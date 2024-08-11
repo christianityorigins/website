@@ -3,7 +3,7 @@ plugins:
   - jekyll-sitemap
 
 title: sebbas.org
-url: https://sebbas.org
+url: https://ccblog2.github.io
 baseurl: ""
 description: "Personal website of Sebastián"
 author: Sebastián
