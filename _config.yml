@@ -2,11 +2,11 @@ permalink: /:title/
 plugins:
   - jekyll-sitemap
 
-title: sebbas.org
-url: https://ccblog2.github.io
+title: christcuck.org
+url: https://christcuck.org
 baseurl: ""
-description: "Personal website of Sebastián"
-author: Sebastián
+description: "Personal website of Hugo Pepe"
+author: Hugo
 twitter: sebbas
 stackoverflow: 1480784/sebbas
 trello: sebbas
