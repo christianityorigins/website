@@ -6,14 +6,20 @@ updated: 2018-11-22 16:01:26 +0100
 
 Welcome to the homepage of independent researcher and historian Hugo Pepe (BA. Philosophy).
 
-
 {% assign categories_to_show = "books,essays" | split: "," %}
 {% for category in categories_to_show %}
   <h3>{{ category | capitalize }}</h3>
   <ul>
   {% for post in site.categories[category] limit:2 %}
     {% unless post.draft %}
-      <li><a href="{{ post.url }}">{{ post.title }}</a></li>
+      <li>
+        <a href="{{ post.url }}">{{ post.title }}</a>
+        {% if post.title == "Book 1" %}
+          <p>This groundbreaking book reveals that Baruch ben Neriah was Zoroaster, Gaumata Bardya (the son of Cyrus the Great) was Gautama Buddha, the descendants of the Babylonian Jewish priests who created Zoroastrianism were heavily involved with the Alexandrian School in Egypt, Simon Boethus was Simon Magus who was the founder of Gnosticism, Philo of Alexandria (one of the creators of Christianity) was a woman who was the great-granddaughter of Simon Boethus and the granddaughter of King Herod, Mark Antony, Cleopatra, and her brother/husband Alexander is who the Jesus composite figure is based on, and additionally, that Alexander and "Philo's" son Tiberius Julius Alexander was both Josephus and emperor Nerva; also, that the Flavian emperors were crypto-Jewish descendants of King Herod.</p>
+        {% elsif post.title == "Book 2" %}
+          <p>This book explains how the Christian slave morality works, that Liberalism was an attempt to infuse Christian morality into post-Enlightenment politics, and that Marxism was the first secularized slave morality religion.</p>
+        {% endif %}
+      </li>
     {% endunless %}
   {% endfor %}
   </ul>
