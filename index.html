@@ -5,7 +5,15 @@ updated: 2018-11-22 16:01:26 +0100
 ---
 
 Welcome to the homepage of...
-<h3>Books</h3>
-<li>Book I</li>
-<li>Book II</li>
-<h3>Essays</h3>
+
+{% assign categories_to_show = "books,essays" | split: "," %}
+{% for category in categories_to_show %}
+  <h3>New {{ category }}</h3>
+  <ul>
+  {% for post in site.categories[category] limit:2 %}
+    {% unless post.draft %}
+      <li><a href="{{ post.url }}">{{ post.title }}</a></li>
+    {% endunless %}
+  {% endfor %}
+  </ul>
+{% endfor %}
