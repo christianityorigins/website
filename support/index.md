@@ -4,14 +4,19 @@ title: Support
 updated: 2016-04-01 09:00:00 +0200
 ---
 
-You can &hellip;
+If you appreciate my work please consider supporting me!<br /><br />
 
-- send me email to [{{ site.email }}][email]
-- chat with me on IRC. I go by *{{ site.irc }}* and mostly hang on [#{{ site.ircchannel }}][irc]
-- follow me on Twitter [@{{ site.twitter }}][twitter]
 
-[email]: mailto:{{ site.email }}
-[irc]: irc://chat.freenode.net/{{ site.ircchannel }}
-[twitter]: https://twitter.com/{{ site.twitter }}
 
+<div class="copyable-email">Monero: 46RmVDA5oeGUE1WdctJq1EQHCq9VpSAbqM2cChJGQzSAbYtcJR6f3xF2tStVaGcLQS1G4cSxHBBw1aXqPuJFGsaMLKE8eJD</div>
+
+
+<script>
+  document.addEventListener('contextmenu', function(event) {
+    // Check if the click was on the copyable-email element
+    if (!event.target.classList.contains('copyable-email')) {
+      event.preventDefault();
+    }
+  });
+</script>
 
