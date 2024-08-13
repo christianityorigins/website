@@ -1,4 +1,3 @@
-
 ---
 layout: post
 title:  "Friedrich Nietzche on Christianity"
