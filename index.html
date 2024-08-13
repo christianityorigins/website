@@ -8,7 +8,7 @@ Welcome to the homepage of...
 
 {% assign categories_to_show = "books,essays" | split: "," %}
 {% for category in categories_to_show %}
-  <h3>{{ category }}</h3>
+  <h3>{{ category | capitalize }}</h3>
   <ul>
   {% for post in site.categories[category] limit:2 %}
     {% unless post.draft %}
