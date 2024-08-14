@@ -10,6 +10,9 @@
     {{ content }}
     {% include social-media-share.html %}
     {% include footer.html %}
+     {% if page.open_links_in_new_tab %}
+    <script src="{{ '/assets/js/target-blank.js' | relative_url }}"></script>
+  {% endif %}
   </body>
 
 </html>
