@@ -16,8 +16,8 @@ _This eternal accusation against Christianity I shall write upon all walls, wher
 
 CONTENTS
 
-Preface  
-BOOK II. ON THE SLAVE MORALITY SYSTEM  
+Preface
+BOOK II. ON THE SLAVE MORALITY SYSTEM
 Chapter 1. The Christian System
 1.1. Universalism
 1.2. Transvaluation of Values
@@ -43,7 +43,7 @@ Christianity is a sophisticated divide-and-conquer millenarianist (1) slave mora
   
 1.1. Universalism
 
-Christian universalism led to ethnic erasure. The catholic church deliberately destroyed ethnic customs and beliefs to emphasize the universality of Christianity. Pre-Christian Europe was a patchwork of ethnicities, each with its own gods and traditions and christianity deliberately destroyed these ethnic bonds so that a religious identity replaced an ethnic identity. "Christendom" then became the first universalized identity that was built around a shared morality that transcended ethnic and cultural boundaries. "Christendom" was then replaced by the word "European" after the enlightenment, but that label still retained Christendom's universal nature. This universalist identity then destroyed what little of specific ethnic European customs and traditions were left. 
+Christian universalism led to ethnic erasure. The catholic church deliberately destroyed ethnic customs and beliefs to emphasize the universality of Christianity. Pre-Christian Europe was a patchwork of ethnicities, each with its own gods and traditions and christianity deliberately destroyed these ethnic bonds so that a religious identity replaced an ethnic identity. "Christendom" then became the first universalized identity that was built around a shared morality that transcended ethnic and cultural boundaries. "Christendom" was then replaced by the word "European" after the enlightenment, but that label still retained Christendom's universal nature. This universalist identity then destroyed what little of specific ethnic European customs and traditions were left.
         Christianity's emphasis on universalism is incompatible with racial hierarchies, and when combined with the concept of sin, is what empowers the lowest castes.
 
 1.2. Transvaluation of Values 
