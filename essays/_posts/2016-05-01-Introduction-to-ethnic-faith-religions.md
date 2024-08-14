@@ -6,7 +6,7 @@ updated: 2018-11-23 21:40:58 +0100
 category: essays
 ---
 
-https://en.wikipedia.org/wiki/List_of_ethnic_religions [<a href="https://en.wikipedia.org/wiki/List_of_ethnic_religions" rel="nofollow" target="_blank">link</a>]<br /><a href="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhONWOUcgtcxxIk2FgeJGfwqoIoE3YI707mNDC2Cg6IafQitC8IL6TqN5wVu9vc93vJAKeecFALchR1e1ni9jrXtw9NaClOmmQOzQ8Zk2x9WOBJdytvFi9Hv5Cy0v0A_V1_tdRyAqyDEwG4PphV6jFPxArBFvx5j40GfMIyIVdCWERDOKcrUydEsf2EAhQ/s4285/religions.png" style="margin-left: 1em; margin-right: 1em;"><img border="0" data-original-height="4285" data-original-width="3942" height="320" src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhONWOUcgtcxxIk2FgeJGfwqoIoE3YI707mNDC2Cg6IafQitC8IL6TqN5wVu9vc93vJAKeecFALchR1e1ni9jrXtw9NaClOmmQOzQ8Zk2x9WOBJdytvFi9Hv5Cy0v0A_V1_tdRyAqyDEwG4PphV6jFPxArBFvx5j40GfMIyIVdCWERDOKcrUydEsf2EAhQ/s320/religions.png" width="294" /></a></div><br /><br> 
+https://en.wikipedia.org/wiki/List_of_ethnic_religions [<a href="https://en.wikipedia.org/wiki/List_of_ethnic_religions" rel="nofollow" target="_blank">link</a>]<br /><a href="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhONWOUcgtcxxIk2FgeJGfwqoIoE3YI707mNDC2Cg6IafQitC8IL6TqN5wVu9vc93vJAKeecFALchR1e1ni9jrXtw9NaClOmmQOzQ8Zk2x9WOBJdytvFi9Hv5Cy0v0A_V1_tdRyAqyDEwG4PphV6jFPxArBFvx5j40GfMIyIVdCWERDOKcrUydEsf2EAhQ/s4285/religions.png" style="margin-left: 1em; margin-right: 1em;"><img border="0" data-original-height="4285" data-original-width="3942" height="320" src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhONWOUcgtcxxIk2FgeJGfwqoIoE3YI707mNDC2Cg6IafQitC8IL6TqN5wVu9vc93vJAKeecFALchR1e1ni9jrXtw9NaClOmmQOzQ8Zk2x9WOBJdytvFi9Hv5Cy0v0A_V1_tdRyAqyDEwG4PphV6jFPxArBFvx5j40GfMIyIVdCWERDOKcrUydEsf2EAhQ/s320/religions.png" width="294" /></a><br /><br> 
                                                                                                                                                                   Polytheistic Ethnic European ("Pagan") Religions
 
 Quick introduction: "Pagan" (Latin: pāgānus, 'rural') was supposed to be a slur that was invented by the catholic church to apply to every non-xtian religion but has since been reappropriated as a general term. Specific ethnic "Pagan" polytheistic religions are: Heathenry is Germanic Paganism ("Asatru" is one of the religions that fall under the Heathenry category). Fyrnsidu is Brittonic Paganism. Druidry is Celtic Paganism. Hellenism is Greek Paganism. Religio Romana is Roman Paganism. Rodnovery is Slavic Paganism. Romuva is Baltic Paganism, etc. Every polytheistic ancestral European religion is similar, the deities just have different regional names (1).
@@ -19,7 +19,7 @@ There are only two things that you need to know to understand Polytheistic Ethni
   
 You can learn more about your specific ethnic traditions and rituals here:
 
-https://ecer-org.eu/organisations/ [<a href="https://ecer-org.eu/organisations/" rel="nofollow" target="_blank">link</a>]
+https://ecer-org.eu/organisations/ [<a href="https://ecer-org.eu/organisations/" rel="nofollow" target="_blank">link</a>]<br>
 https://salonvert.eu [<a href="https://salonvert.eu" rel="nofollow" target="_blank">link</a>]
 
 Footnotes:
@@ -35,6 +35,6 @@ Footnotes:
 
 Read more:
 
-https://en.wikipedia.org/wiki/List_of_modern_pagan_movements [<a href="https://en.wikipedia.org/wiki/List_of_modern_pagan_movements" rel="nofollow" target="_blank">link</a>]
-https://en.wikipedia.org/wiki/Category:Modern_paganism_in_Europe [<a href="https://en.wikipedia.org/wiki/Category:Modern_paganism_in_Europe" rel="nofollow" target="_blank">link</a>]
+https://en.wikipedia.org/wiki/List_of_modern_pagan_movements [<a href="https://en.wikipedia.org/wiki/List_of_modern_pagan_movements" rel="nofollow" target="_blank">link</a>]<br>
+https://en.wikipedia.org/wiki/Category:Modern_paganism_in_Europe [<a href="https://en.wikipedia.org/wiki/Category:Modern_paganism_in_Europe" rel="nofollow" target="_blank">link</a>]<br>
 https://www.youtube.com/watch?v=_c7zzZeT-ws [<a href="https://www.youtube.com/watch?v=_c7zzZeT-ws" rel="nofollow" target="_blank">link</a>]
