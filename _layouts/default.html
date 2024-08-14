@@ -1,18 +1,24 @@
 <!DOCTYPE html>
 <html>
-
+<head>
   {% include head.html %}
   {% include google_analytics.html %}
+</head>
+<body>
+  {% include header.html %}
+  {{ content }}
+  {% include social-media-share.html %}
+  {% include footer.html %}
 
-  <body>
-
-    {% include header.html %}
-    {{ content }}
-    {% include social-media-share.html %}
-    {% include footer.html %}
-     {% if post.open_links_in_new_tab %}
-         {% if page.open_links_in_new_tab %}
-  
-  </body>
-
+  {% if page.open_links_in_new_tab %}
+    <script>
+      document.addEventListener('DOMContentLoaded', function() {
+        const links = document.querySelectorAll('a');
+        links.forEach(link => {
+          link.setAttribute('target', '_blank');
+        });
+      });
+    </script>
+  {% endif %}
+</body>
 </html>
