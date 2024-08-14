@@ -13,9 +13,9 @@ Quick introduction: "Pagan" (Latin: pāgānus, 'rural') was supposed to be a slu
 
 There are only two things that you need to know to understand Polytheistic Ethnic European Religions:
 
-1. Cosmology: the cosmology of the ancient polytheistic European religions is Dharmic (non-dogmatic). You could be a polytheist, pantheist, polydeist, atheist (2) and still find value in tradition, rituals, and ancestor veneration. Some polytheistic religious followers see the polytheistic deities as sentient personal gods, others see them as allegorical personifications of natural forces (numen/animism) and the cosmology is pantheism/polydeism to them, others are atheists (3) who are attracted to tradition, ancestor veneration, and ancestry. A large number of atheistic Pagans are inspired by Carl Jung who combined psychoanalysis with Heathenry, the polytheistic deities = 'archetypes (4) of the collective unconscious (5)' to these Pagans.
+1) Cosmology: the cosmology of the ancient polytheistic European religions is Dharmic (non-dogmatic). You could be a polytheist, pantheist, polydeist, atheist (2) and still find value in tradition, rituals, and ancestor veneration. Some polytheistic religious followers see the polytheistic deities as sentient personal gods, others see them as allegorical personifications of natural forces (numen/animism) and the cosmology is pantheism/polydeism to them, others are atheists (3) who are attracted to tradition, ancestor veneration, and ancestry. A large number of atheistic Pagans are inspired by Carl Jung who combined psychoanalysis with Heathenry, the polytheistic deities = 'archetypes (4) of the collective unconscious (5)' to these Pagans.
 
-2. Rituals: rituals (6) are about manifesting the deities or forces of nature/laws of physics into your daily life. To Pagans who are inspired by Carl Jung, rituals are ways of inducing 'active imagination' (7) or a part of the process of 'individuation' (8).
+2) Rituals: rituals (6) are about manifesting the deities or forces of nature/laws of physics into your daily life. To Pagans who are inspired by Carl Jung, rituals are ways of inducing 'active imagination' (7) or a part of the process of 'individuation' (8).
   
 You can learn more about your specific ethnic traditions and rituals here:
 
@@ -24,8 +24,8 @@ https://salonvert.eu [<a href="https://salonvert.eu" rel="nofollow" target="_bla
 
 Footnotes:
 
-1. Dyaus Pita (Vedic), Zeus (Greek), Jupiter (Roman), Odin (Nordic), Wotan (German), Wotanaz (Slavic), Ukko and Väinämöinen (Finnish), and so on are all derived from the Aryan allfather Dyeus Pter which translates to Sky Father. The name Zeus even comes from the pronunciation of Dyeus.
-2. https://en.wikipedia.org/wiki/Charvaka [<a href="https://en.wikipedia.org/wiki/Charvaka" rel="nofollow" target="_blank">link</a>]
+[1] Dyaus Pita (Vedic), Zeus (Greek), Jupiter (Roman), Odin (Nordic), Wotan (German), Wotanaz (Slavic), Ukko and Väinämöinen (Finnish), and so on are all derived from the Aryan allfather Dyeus Pter which translates to Sky Father. The name Zeus even comes from the pronunciation of Dyeus.
+[2] https://en.wikipedia.org/wiki/Charvaka [<a href="https://en.wikipedia.org/wiki/Charvaka" rel="nofollow" target="_blank">link</a>]
 3. https://en.wikipedia.org/wiki/Secular_paganism [<a href="https://en.wikipedia.org/wiki/Secular_paganism" rel="nofollow" target="_blank">link</a>]
 4. https://en.wikipedia.org/wiki/Jungian_archetypes [<a href="https://en.wikipedia.org/wiki/Jungian_archetypes" rel="nofollow" target="_blank">link</a>]
 5. https://en.wikipedia.org/wiki/Collective_unconscious [<a href="https://en.wikipedia.org/wiki/Collective_unconscious" rel="nofollow" target="_blank">link</a>]
