@@ -1,5 +1,5 @@
 ---
-layout: post
+layout: page
 open_links_in_new_tab: true
 title: "Book I: On the Origins of Christianity"
 date: 2024-08-13
