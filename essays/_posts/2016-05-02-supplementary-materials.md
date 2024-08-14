@@ -1,5 +1,6 @@
 ---
 layout: post
+open_links_in_new_tab: true
 title:  "Supplementary Materials"
 date:   2016-05-02 10:00:00 +0200
 updated: 2016-05-02 10:00:00 +0200
