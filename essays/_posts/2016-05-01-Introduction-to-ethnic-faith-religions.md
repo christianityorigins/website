@@ -17,4 +17,24 @@ There are only two things that you need to know to understand Polytheistic Ethni
 
 2. Rituals: rituals (6) are about manifesting the deities or forces of nature/laws of physics into your daily life. To Pagans who are inspired by Carl Jung, rituals are ways of inducing 'active imagination' (7) or a part of the process of 'individuation' (8).
   
-You can learn more about your specific ethnic traditions and rituals here:</p>https://ecer-org.eu/organisations/ [<a href="https://ecer-org.eu/organisations/" rel="nofollow" target="_blank">link</a>]<br />https://salonvert.eu [<a href="https://salonvert.eu" rel="nofollow" target="_blank">link</a>]</div><div><br /></div><div>Footnotes:</div><div><br /></div><div>1. Dyaus Pita (Vedic), Zeus (Greek), Jupiter (Roman), Odin (Nordic), Wotan (German), Wotanaz (Slavic), Ukko and Väinämöinen (Finnish), and so on are all derived from the Aryan allfather Dyeus Pter which translates to Sky Father. The name Zeus even comes from the pronunciation of Dyeus.<br />2. https://en.wikipedia.org/wiki/Charvaka [<a href="https://en.wikipedia.org/wiki/Charvaka" rel="nofollow" target="_blank">link</a>]<br />3. https://en.wikipedia.org/wiki/Secular_paganism [<a href="https://en.wikipedia.org/wiki/Secular_paganism" rel="nofollow" target="_blank">link</a>] <br />4. https://en.wikipedia.org/wiki/Jungian_archetypes [<a href="https://en.wikipedia.org/wiki/Jungian_archetypes" rel="nofollow" target="_blank">link</a>]<br />5. https://en.wikipedia.org/wiki/Collective_unconscious [<a href="https://en.wikipedia.org/wiki/Collective_unconscious" rel="nofollow" target="_blank">link</a>]<br />6. https://en.wikipedia.org/wiki/Eleusinian_Mysteries [<a href="https://en.wikipedia.org/wiki/Eleusinian_Mysteries" rel="nofollow" target="_blank">link</a>]<br />7. https://en.wikipedia.org/wiki/Active_imagination#Carl_Gustav_Jung [<a href="https://en.wikipedia.org/wiki/Active_imagination#Carl_Gustav_Jung" rel="nofollow" target="_blank">link</a>]<br />8. https://en.wikipedia.org/wiki/Individuation#In_Jungian_psychology [<a href="https://en.wikipedia.org/wiki/Individuation#In_Jungian_psychology" rel="nofollow" target="_blank">link</a>]<br /><br />Read more:<br /><br />https://en.wikipedia.org/wiki/List_of_modern_pagan_movements [<a href="https://en.wikipedia.org/wiki/List_of_modern_pagan_movements" rel="nofollow" target="_blank">link</a>]<br />https://en.wikipedia.org/wiki/Category:Modern_paganism_in_Europe [<a href="https://en.wikipedia.org/wiki/Category:Modern_paganism_in_Europe" rel="nofollow" target="_blank">link</a>]<br />https://www.youtube.com/watch?v=_c7zzZeT-ws [<a href="https://www.youtube.com/watch?v=_c7zzZeT-ws" rel="nofollow" target="_blank">link</a>]</div>
+You can learn more about your specific ethnic traditions and rituals here:
+
+https://ecer-org.eu/organisations/ [<a href="https://ecer-org.eu/organisations/" rel="nofollow" target="_blank">link</a>]
+https://salonvert.eu [<a href="https://salonvert.eu" rel="nofollow" target="_blank">link</a>]
+
+Footnotes:
+
+1. Dyaus Pita (Vedic), Zeus (Greek), Jupiter (Roman), Odin (Nordic), Wotan (German), Wotanaz (Slavic), Ukko and Väinämöinen (Finnish), and so on are all derived from the Aryan allfather Dyeus Pter which translates to Sky Father. The name Zeus even comes from the pronunciation of Dyeus.
+2. https://en.wikipedia.org/wiki/Charvaka [<a href="https://en.wikipedia.org/wiki/Charvaka" rel="nofollow" target="_blank">link</a>]
+3. https://en.wikipedia.org/wiki/Secular_paganism [<a href="https://en.wikipedia.org/wiki/Secular_paganism" rel="nofollow" target="_blank">link</a>]
+4. https://en.wikipedia.org/wiki/Jungian_archetypes [<a href="https://en.wikipedia.org/wiki/Jungian_archetypes" rel="nofollow" target="_blank">link</a>]
+5. https://en.wikipedia.org/wiki/Collective_unconscious [<a href="https://en.wikipedia.org/wiki/Collective_unconscious" rel="nofollow" target="_blank">link</a>]
+6. https://en.wikipedia.org/wiki/Eleusinian_Mysteries [<a href="https://en.wikipedia.org/wiki/Eleusinian_Mysteries" rel="nofollow" target="_blank">link</a>]
+7. https://en.wikipedia.org/wiki/Active_imagination#Carl_Gustav_Jung [<a href="https://en.wikipedia.org/wiki/Active_imagination#Carl_Gustav_Jung" rel="nofollow" target="_blank">link</a>]
+8. https://en.wikipedia.org/wiki/Individuation#In_Jungian_psychology [<a href="https://en.wikipedia.org/wiki/Individuation#In_Jungian_psychology" rel="nofollow" target="_blank">link</a>]
+
+Read more:
+
+https://en.wikipedia.org/wiki/List_of_modern_pagan_movements [<a href="https://en.wikipedia.org/wiki/List_of_modern_pagan_movements" rel="nofollow" target="_blank">link</a>]
+https://en.wikipedia.org/wiki/Category:Modern_paganism_in_Europe [<a href="https://en.wikipedia.org/wiki/Category:Modern_paganism_in_Europe" rel="nofollow" target="_blank">link</a>]
+https://www.youtube.com/watch?v=_c7zzZeT-ws [<a href="https://www.youtube.com/watch?v=_c7zzZeT-ws" rel="nofollow" target="_blank">link</a>]
