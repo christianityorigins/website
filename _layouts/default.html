@@ -14,8 +14,14 @@
     <script>
       document.addEventListener('DOMContentLoaded', function() {
         const links = document.querySelectorAll('a');
+        const siteBaseUrl = '{{ site.url }}'; // Get the base URL of your site
+
         links.forEach(link => {
-          link.setAttribute('target', '_blank');
+          const href = link.getAttribute('href');
+          if (href && (href.startsWith('http') || href.startsWith('https')) && !href.startsWith(siteBaseUrl)) {
+            link.setAttribute('target', '_blank');
+            link.setAttribute('rel', 'noopener noreferrer'); // For security reasons
+          }
         });
       });
     </script>
