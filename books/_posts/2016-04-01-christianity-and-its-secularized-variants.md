@@ -18,17 +18,17 @@ CONTENTS
 
 Preface  
 BOOK II. ON THE SLAVE MORALITY SYSTEM  
-Chapter 1. The Christian System 
-1.1. Universalism  
-1.2. Transvaluation of Values 
+Chapter 1. The Christian System
+1.1. Universalism
+1.2. Transvaluation of Values
 1.3. Weaponizing the "Chandala" Castes
-1.4. Slave Morality System  
+1.4. Slave Morality System
 Chapter 2. Secularization of Christianity
-Chapter 3. Marxism is Secularized Christianity  
+Chapter 3. Marxism is Secularized Christianity
 3.1. Marxist Denominations
 3.2. Secular Christian Tenets and Ethics
-Chapter 4. Judaism Vs. Christianity: What do the Jews Believe?  
-Chapter 5. Conclusion  
+Chapter 4. Judaism Vs. Christianity: What do the Jews Believe?
+Chapter 5. Conclusion
 Footnotes
 
 Preface
