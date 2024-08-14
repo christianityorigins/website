@@ -19,9 +19,7 @@ Preface
 BOOK II. ON THE SLAVE MORALITY SYSTEM  
 Chapter 1. [The Christian System](https://www.christcuck.org/p/christianity-and-its-modern-secularized.html#purposeprogram)  
 1.1. [Universalism](https://www.christcuck.org/p/christianity-and-its-modern-secularized.html#universalism)  
-
 1.2. [Transvaluation of Values](https://www.christcuck.org/p/christianity-and-its-modern-secularized.html#transvaluation) 
-
 1.3. [Weaponizing the "Chandala" Castes](https://www.christcuck.org/p/christianity-and-its-modern-secularized.html#purpose)  
 1.4. [Slave Morality System](https://www.christcuck.org/p/christianity-and-its-modern-secularized.html#program)  
 Chapter 2. [Secularization of Christianity](https://www.christcuck.org/p/christianity-and-its-modern-secularized.html#secularized)  
@@ -37,12 +35,8 @@ Chapter 5. [Conclusion](https://www.christcuck.org/p/christianity-and-its-modern
 Preface
 
 Christianity is a slave-morality religion that is designed to transvaluate a groups ethnic values so that the weak, debased, and traitorous become the nobility. Weaponizing the outcastes is how the system works, and is why it is such a powerful divide-and-conquer psy-op.
-
         It is clear to see how a tiny, foreign, powerless and resentful population who wished to overthrow Rome would have looked at what it was about the Roman religions that made the people so powerful and then conceived of such a system as Christianity. They created Christianity to deconstruct every tribal and social virtue that made the Romans strong and then adapted Judaism to take advantage of the weaknesses that Christianity created. 
-
         The first part of this book explains how the slave morality works, through universalism and the transvaluation of a groups ethnic values and is heavily dependent upon the work of Friedrich Nietzsche. The second part explains how Leftism and Marxism are Christianity's atheist-compatible sects. Coming out of the enlightenment, and off the back of the French Revolution, jews in Europe (Frankists/Jacobins/Karl Marx/et.al.) foresaw a day when Europeans would no longer be Christian so they infused the slave morality into secular post-enlightenment politics. 
-
-  
 
 Chapter 1. The Christian System [Top ↑](#)  
   
@@ -50,29 +44,17 @@ Christianity is a sophisticated divide-and-conquer millenarianist (1) slave mora
   
 1.1. Universalism
 
-  
-
 Christian universalism led to ethnic erasure. The catholic church deliberately destroyed ethnic customs and beliefs to emphasize the universality of Christianity. Pre-Christian Europe was a patchwork of ethnicities, each with its own gods and traditions and christianity deliberately destroyed these ethnic bonds so that a religious identity replaced an ethnic identity. "Christendom" then became the first universalized identity that was built around a shared morality that transcended ethnic and cultural boundaries. "Christendom" was then replaced by the word "European" after the enlightenment, but that label still retained Christendom's universal nature. This universalist identity then destroyed what little of specific ethnic European customs and traditions were left. 
-
         Christianity's emphasis on universalism is incompatible with racial hierarchies, and when combined with the concept of sin, is what empowers the lowest castes.
-
-  
 
 1.2. Transvaluation of Values 
 
-  
-
 Friedrich Nietzsche's concept of the transvaluation of values argues that traditional christian values, which emphasize humility, selflessness, and pity, were created to undermine the strong. Essentially, by redefining "good" as virtues of the "chandala", i.e., by replacing a groups aristocratic values with "chandala" values: guilt, pity, self-hate, weakness, and vulgarity replace strength, pride, honor, loyalty, family, race, and tradition, etc., the lowest "chandala" castes can become the nobility. Also, christianity didn't just transvaluate aristocratic values and replaced them with "chandala" values, it also transvaluated masculine values (strength, honor, pride) and replaced them with feminine values (empathy, compassion, humility).
-
-  
 
 1.3. Weaponizing the "Chandala" Castes  
   
 Universalism, the transvaluation of traditional ethnic values, monotheism (binary good vs. evil), and the concept of sin exist to self-deify and weaponize the lowest castes. 
-
         Friedrich Nietzsche, in his book 'On the Genealogy of Morality' (1887), wrote that the jews (5), who he claimed are motivated by deep resentment and hatred (6), create these "slave morality" systems (7) (Christianity and its secularized variants of Marxism/Bolshevism/Leftism/Progressivism), which, through monotheism (good vs evil), universalism, the 'transvaluation of values', and the concept of sin is designed to empower the lowest "chandala" castes (8). This is what makes the system self-policing and self-regulating. The savior complex (9) is a subset of christian self-deification and is a heritage of monotheism and messianism (10). Self-deification (11) is the foundation for attacking heretics, especially of "aristocratic" or "warrior" castes (12), and redeeming others.
-
-  
 
 See also: [Ressentiment](https://en.wikipedia.org/wiki/Ressentiment), [Conflict Theory](https://en.wikipedia.org/wiki/Conflict_theories), and [Class Conflict](https://en.wikipedia.org/wiki/Class_conflict)
 
@@ -80,7 +62,6 @@ See also: [Ressentiment](https://en.wikipedia.org/wiki/Ressentiment), [Conflict
   
 While Christianity empowers the "chandala" caste through universalism and the transvaluation of a group's traditional values, it also subconsciously connects a population to jews, fills a group with fear (trauma-based mind-control programming), self-hate, strips them of their will to power, fills them with guilt and shame complexes, robs them of their connection to ancestry and genetic memory, makes them stupid (intellectual curiosity and critical thinking are not only threats to faith/fideism but are sins, and this is the reason why every Christian white trash town is filled with people whose culture is built around a contempt for learning) (13), and instills into a group a slave-like mentality of obedience. It does this through:
 
-  
 
 *   Monotheism: social structure headed by a single and all-powerful (and jealous and angry) God promotes a universal morality. This makes a group easier to control.
 *   Fear and punishment/trauma based mind-control programming: the concept of "hell" that they plagiarized from Plato's Republic (the 'Myth of Er' (14)); the lifelong fear of death (Pagans equated death with glory). Also, reward. The concept of "heaven" for asceticism/suffering/obedience.
@@ -94,40 +75,26 @@ While Christianity empowers the "chandala" caste through universalism and the t
 *   Confession: To further reinforce the guilt and shame complexes by continually confessing guilt. Confession also creates a religious commandment that turns its followers into informants, exposes traitors to the church or state, exposes rebellions, and makes the system self-regulating. 
 
 This was a clever divide-and-conquer strategy. Build a coalition of the outcastes of society and then weaponize them to attack the warrior and aristocratic castes while simultaneously transvaluating their aristocratic cultural values to subvert them. This was the formula that was used in Rome, the French Revolution \[[link](https://en.metapedia.org/wiki/French_Revolution)\], Revolutions of 1848 \[[link](https://www.jstor.org/stable/4615300)\], Russian Revolution \[[link](https://en.wikipedia.org/wiki/Russian_Revolution)\], and attempted in the German Revolution \[[link](https://en.wikipedia.org/wiki/German_Revolution_of_1918%E2%80%931919)\]. Each of these revolutions empowered and weaponized the outcastes of society with a unifying slave-morality ideology (Marxism/Bolshevism/Leftism are simply secular variants of christianity). 
-
         This system was also integral to European colonialism. Before the colonial powers sent the military they sent the missionaries. Through christianity, they weaponized the outcastes to fight the warrior castes. Then, christianity placated the native populations by preventing any rebellion (the lowest outcastes self-policed the warrior castes who had their warrior values "transvaluated" and the population eventually succumbed to the thought that they would be rewarded when they die if they submitted).
 
-  
-
 See also: [Tschandala](https://en.wikipedia.org/wiki/Tschandala), [Master–slave morality](https://en.wikipedia.org/wiki/Master%E2%80%93slave_morality), and [Transvaluation of values](https://en.wikipedia.org/wiki/Transvaluation_of_values)  
-
-  
 
 Chapter 2. Secularization of Christianity [Top ↑](#)  
   
 As well as Christianity being a slave-morality system, Fredrich Nietzsche wrote that Liberalism is a secularized Christian political-theological religion (16). The Reformation coincided with the invention of the Gutenberg printing press which increased literacy and this is when a myriad of Protestant sects sprung forth: the Anabaptists, the Mennonites, the Amish, the Digger Movement, the Ranters, etc., all of whom adhered to a system of communism and preached about universalism and a utopia on earth. Marxism was one of these sects. The only difference is that Marxism was the first secularized Christian sect where the belief in a supernatural god was replaced with a belief in an omnipresent government. 
 
-  
 Chapter 3. Marxism is Secularized Christianity  
   
 Marxism is a secularized Christian sect that replaces god with the government. The central organizing principle of classical Marxist economics, “from each according to his ability, to each according to his need”, was lifted verbatim from the pages of the New Testament. Marx's historical materialism (theory of history) is the eschatological framework of Christian orthodoxy in secularized form. Christian salvation is Marxian emancipation. Also, Marxism is built on the philosophy of liberation and universalism (17) and preys on the impoverished and outcastes of society by promising them a future utopia through the triumph of the proletariat. Marxism, like christianity, is also dogmatic and sectarian; both justify violence as a catalyst for social change; both prohibit private property; "take from the rich to give to the poor", and "may the last be first", etc. If you strip away the Marxian narrative you will see that at its core it is the exact same christian divide-and-conquer population control system that is designed to weaponize the resentment of the lower classes for the overthrow of society. This is not a coincidence. Influenced by his teacher Bruno Bauer who wrote extensively about how Leftism was a secular christian cult, Karl Marx approached a Christian communist group called the 'League of the Just' (18) and got them to finance him while he came up with an atheist-compatible sect of christianity.  
   
 3.1 Marxist Denominations
 
-  
-
 Marxism is a secularized sect of Christianity that sees class as the main cause for inequality. Critical Theory is a Marxist sect that replaces class with culture as the main cause of inequality (i.e., "Cultural Marxism"). Critical Race Theory is a Marxist sect that replaces class with race as the main cause of inequality (i.e., "Race Marxism"), and Third Wave Feminism is a Marxist sect that replaces class with gender as the main cause of inequality (i.e., "Gender Marxism"). There is overlap between these Marxist sects, and this is called "intersectionality" in academia. For example, feminists teach that class, culture, race and gender all combined (usually encapsulated through "White") are the structural causes of inequality.
-
-  
 
 3.2 Secular Christian Tenets and Ethics
 
-  
-
 Marxism, Critical Theory, Critical Race Theory, Leftism/Wokeism all incorporate the same ethics that originate in Christianty.
-
   
-
 *   White guilt/privilege/fragility/et.al. = Christian Original Sin.
 *   Virtue signaling = Christian penance .
 *   Publicly exhibiting self-hate/self-flagellating = christian piety signaling. In christianity, genuflection, self-abasement, and self-abnegation are necessary prerequisites for spiritual purity and cleansing. This is expressed as "mortification of the flesh". For 2000 years, Europeans have been rewarded for piety signaling, i.e., displaying self-hate, confession, self-flagellation, etc., and punished for not displaying these things. This is also a form of narcissistic self-sacrifice that is inspired by a suffering servant deity.
@@ -140,21 +107,13 @@ Marxism, Critical Theory, Critical Race Theory, Leftism/Wokeism all incorporate 
 
 What is the end goal of these divide-and-conquer slave-morality systems? (Christianity/Marxism/Cultural Marxism/Race Marxism/Gender Marxism). "Progress" (deconstruction/abolition) is the weaponizing the poor, outcastes, racial groups and women to get them to overthrow the dominant group in society and then create a slave class controlled by a tiny elite. Why? Friedrich Nietzsche claimed that all these slave-moralities were the manifestations of a Jewish group strategy/essentialist racial instincts operating below the level of real consciousness \[[link](https://en.wikipedia.org/wiki/Philosophy_of_Friedrich_Nietzsche#Jews,_nationalism_and_European_identity)\].
 
-  
-
 See also: [What Is ‘Liberalism’?](https://www.revilo-oliver.com/news/2010/09/what-is-%e2%80%98liberalism%e2%80%99/), [Social Gospel](https://en.wikipedia.org/wiki/Social_Gospel), [Liberation theology](https://en.wikipedia.org/wiki/Liberation_theology), and [Why Europeans Must Reject Christianity](https://nationalvanguard.org/2019/02/why-europeans-must-reject-christianity-part-ii/)
-
-  
 
 Chapter 4. Judaism vs. Christianity: What do the Jews Believe? [Top ↑](#)
 
-  
-
 Around the same time that jews at the 'Alexandrian School' in Egypt created the New Testament to mentally subvert their enemies, they plagiarized Plato's Timaeus (360 BC) (where the story of Abraham comes from), Plato's The Laws (347 BC) (19), Manetho’s Aegyptiaca (ca. 285–280 BC) (where the story of Exodus comes from), and Berossus’s Babyloniaca (278 BC) and then turned this new religion into a group strategy that created an intense ethnocentrism, an unconquerable will to power, and a drive to exist at all costs (20).  
   
-
 You can prove that Christianity is a slave morality system that is designed to subvert a group simply by comparing the differences between the Old and New Testaments (21)  
-  
 
 *   Jews: "eye for an eye" and "never forgive, never forget". Christians: "turn the other cheek" and "submit to the evil doer".
 *   Jews: "life should be endowed with material worth." Jews do not believe in an afterlife and believe in achieving riches and pleasure in this life. Christians believe in asceticism and that they will be rewarded in the afterlife.
@@ -168,12 +127,9 @@ You can prove that Christianity is a slave morality system that is designed to s
 *   Jews loath Christians, but Christians believe that Jews are "God's chosen" and they exist to serve Israel.
 
 Chapter 5. Conclusion [Top ↑](#)
-
   
 Over the past 2000 years, every group that had the christian psyop forced on them had their societies overthrown through a revolution of the lowest outcastes of society and then had their evolutionary group strategy evolve under constant pressure to conform to this dysgenic suicide system. All of your patterns of perception, logic, symbol formation, thought, speech, action, and emotional response have evolved to operate subconsciously within the dynamics of this system. This system stripped you of identity, pride, tribal spirit, and the will to power with the ultimate goal of turning you into a guilt-ridden and self-loathing slave.  
         It is horrifying to think of the scale that this psyop grew to, how this system became institutionalized, how it changed the evolutionary group strategy of billions of people, how it created hell on earth for the entire planet for centuries, and how it is the system that is responsible for the needless destruction of billions of people.
-
-  
 
 Footnotes [Top ↑](#)  
   
@@ -199,9 +155,7 @@ Footnotes [Top ↑](#)
 \--Martin Luther was also behind the invention of the Prussian educational system \[[link](https://en.wikipedia.org/wiki/Prussian_education_system)\], i.e. the western system of education. A teacher at the front of the class replicates a priest, a classroom replicates a church, constant tests to show that you memorized the teaching (never tested on your ability to apply learned information in creative ways), this is all designed to strip students of critical thinking ability and turn them into stupid and obedient slaves. See also: Luther's Large Catechism \[[link](https://en.wikipedia.org/wiki/Luther%27s_Large_Catechism)\]  
 \--The catholic church even banned the teaching of philosophy in Europe as it was deemed "heretical" \[[link](https://en.wikipedia.org/wiki/Index_Librorum_Prohibitorum)\] \[[link](https://en.wikipedia.org/wiki/Condemnations_of_1210–1277)\]  
 14\. Myth of Er. Wikipedia. https://en.wikipedia.org/wiki/Myth\_of\_Er \[[link](https://en.wikipedia.org/wiki/Myth_of_Er)\]
-
 \--Biblical hell also refers to Gehenna in Israel where they did child sacrifices \[[link](https://en.wikipedia.org/wiki/Gehenna)\]
-
 15\. Friedrich Nietzsche claimed that slave moralities \[[link](https://en.wikipedia.org/wiki/Master%E2%80%93slave_morality)\] (xtianity, Buddhism, liberalism, etc.) allowed the chandala castes to triumph over the aristocratic and warrior castes in ancient India and in Rome and he predicted that they would eventually allow them to overtake the entire west which is what you see today \[[link](https://en.wikipedia.org/wiki/Last_man)\]. Ex. the lowest scum chandala are empowered to destroy all progress in their attempt to gain moral and social supremacy over the higher castes. See: Master–slave morality \[[link](https://en.wikipedia.org/wiki/Master%E2%80%93slave_morality)\], Tschandala \[[link](https://en.wikipedia.org/wiki/Tschandala)\], Transvaluation of values \[[link](https://en.wikipedia.org/wiki/Transvaluation_of_values)\], Nietzschean affirmation \[[link](https://en.wikipedia.org/wiki/Nietzschean_affirmation)\], and Ressentiment \[[link](https://en.wikipedia.org/wiki/Ressentiment)\]. See also: Last Man \[[link](https://en.wikipedia.org/wiki/Last_man)\]  
 Quotes from Friedrich Nietzsche:  
 \--"Christianity, sprung from Jewish roots and comprehensible only as a growth on this soil, represents the counter-movement to any morality of breeding, of race, privilege:—it is the anti-Aryan religion par excellence. Christianity, the revaluation of all Aryan values, the victory of chandala values, the gospel preached to the poor and base, the general revolt of all the downtrodden, the wretched, the failures, the less favored, against race: the undying chandala hatred as the religion of love".  
