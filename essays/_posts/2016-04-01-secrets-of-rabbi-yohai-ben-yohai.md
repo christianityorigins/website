@@ -35,7 +35,7 @@ Quotes:
 
 "After this a great king will come to power and rule for nineteen years. These are his distinguishing marks (lit. ‘signs’): reddish-hued, squinty-eyed (?), and he will have three moles: one on his forehead, one on his right hand, and one on his left arm. He will plant saplings and rebuild ruined cities and tap subterranean waters to bring up water to irrigate his plantings so that his future descendants will have plenty to eat. All who arise to oppose him will submit to his power, and the land will remain undisturbed during his reign, and he will die peacefully."
 
-\*Note on this quote. I once read a theory that Allah and Muhammad were based on Attila the Hun. The name Allah comes from Attila and Attila the redheaded warlord = Muhammad. The story of Attila waging war against Rome was glorified because they wanted the Arabs to attack Eastern Rome (Byzantium).
+\*Note on this quote. I once read a theory that Allah and Muhammad were based on Attila the Hun and his uncle Rugila. The name Allah comes from Attila and Attila the redheaded warlord = Muhammad. The story of Attila waging war against Rome was glorified because they wanted the Arabs to attack Eastern Rome (Byzantium).
 
 1\. The medieval kabbalist Moses de Leon attributed the authorship of a key mystical work, the Zohar of the Kabbalah, to Rabbi Simon ben Yohai.
 
