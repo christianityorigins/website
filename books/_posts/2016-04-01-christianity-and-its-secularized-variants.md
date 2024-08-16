@@ -16,25 +16,25 @@ _This eternal accusation against Christianity I shall write upon all walls, wher
 
 CONTENTS
 
-Preface
-BOOK II. ON THE SLAVE MORALITY SYSTEM
-Chapter 1. The Christian System
-1.1. Universalism
-1.2. Transvaluation of Values
-1.3. Weaponizing the "Chandala" Castes
-1.4. Slave Morality System
-Chapter 2. Secularization of Christianity
-Chapter 3. Marxism is Secularized Christianity
-3.1. Marxist Denominations
-3.2. Secular Christian Tenets and Ethics
-Chapter 4. Judaism Vs. Christianity: What do the Jews Believe?
+Preface\
+BOOK II. ON THE SLAVE MORALITY SYSTEM\
+Chapter 1. The Christian System\
+1.1. Universalism\
+1.2. Transvaluation of Values\
+1.3. Weaponizing the "Chandala" Castes\
+1.4. Slave Morality System\
+Chapter 2. Secularization of Christianity\
+Chapter 3. Marxism is Secularized Christianity\
+3.1. Marxist Denominations\
+3.2. Secular Christian Tenets and Ethics\
+Chapter 4. Judaism Vs. Christianity: What do the Jews Believe?\
 Chapter 5. Conclusion
 Footnotes
 
 Preface
 
-Christianity is a slave-morality religion that is designed to transvaluate a groups ethnic values so that the weak, debased, and traitorous become the nobility. Weaponizing the outcastes is how the system works, and is why it is such a powerful divide-and-conquer psy-op.
-        It is clear to see how a tiny, foreign, powerless and resentful population who wished to overthrow Rome would have looked at what it was about the Roman religions that made the people so powerful and then conceived of such a system as Christianity. They created Christianity to deconstruct every tribal and social virtue that made the Romans strong and then adapted Judaism to take advantage of the weaknesses that Christianity created. 
+Christianity is a slave-morality religion that is designed to transvaluate a groups ethnic values so that the weak, debased, and traitorous become the nobility. Weaponizing the outcastes is how the system works, and is why it is such a powerful divide-and-conquer psy-op.\
+        It is clear to see how a tiny, foreign, powerless and resentful population who wished to overthrow Rome would have looked at what it was about the Roman religions that made the people so powerful and then conceived of such a system as Christianity. They created Christianity to deconstruct every tribal and social virtue that made the Romans strong and then adapted Judaism to take advantage of the weaknesses that Christianity created.\
         The first part of this book explains how the slave morality works, through universalism and the transvaluation of a groups ethnic values and is heavily dependent upon the work of Friedrich Nietzsche. The second part explains how Leftism and Marxism are Christianity's atheist-compatible sects. Coming out of the enlightenment, and off the back of the French Revolution, jews in Europe (Frankists/Jacobins/Karl Marx/et.al.) foresaw a day when Europeans would no longer be Christian so they infused the slave morality into secular post-enlightenment politics. 
 
 Chapter 1. The Christian System [Top ↑](#)  
@@ -43,7 +43,7 @@ Christianity is a sophisticated divide-and-conquer millenarianist (1) slave mora
   
 1.1. Universalism
 
-Christian universalism led to ethnic erasure. The catholic church deliberately destroyed ethnic customs and beliefs to emphasize the universality of Christianity. Pre-Christian Europe was a patchwork of ethnicities, each with its own gods and traditions and christianity deliberately destroyed these ethnic bonds so that a religious identity replaced an ethnic identity. "Christendom" then became the first universalized identity that was built around a shared morality that transcended ethnic and cultural boundaries. "Christendom" was then replaced by the word "European" after the enlightenment, but that label still retained Christendom's universal nature. This universalist identity then destroyed what little of specific ethnic European customs and traditions were left.
+Christian universalism led to ethnic erasure. The catholic church deliberately destroyed ethnic customs and beliefs to emphasize the universality of Christianity. Pre-Christian Europe was a patchwork of ethnicities, each with its own gods and traditions and christianity deliberately destroyed these ethnic bonds so that a religious identity replaced an ethnic identity. "Christendom" then became the first universalized identity that was built around a shared morality that transcended ethnic and cultural boundaries. "Christendom" was then replaced by the word "European" after the enlightenment, but that label still retained Christendom's universal nature. This universalist identity then destroyed what little of specific ethnic European customs and traditions were left.\
         Christianity's emphasis on universalism is incompatible with racial hierarchies, and when combined with the concept of sin, is what empowers the lowest castes.
 
 1.2. Transvaluation of Values 
@@ -52,7 +52,7 @@ Friedrich Nietzsche's concept of the transvaluation of values argues that tradit
 
 1.3. Weaponizing the "Chandala" Castes  
   
-Universalism, the transvaluation of traditional ethnic values, monotheism (binary good vs. evil), and the concept of sin exist to self-deify and weaponize the lowest castes. 
+Universalism, the transvaluation of traditional ethnic values, monotheism (binary good vs. evil), and the concept of sin exist to self-deify and weaponize the lowest castes.\
         Friedrich Nietzsche, in his book 'On the Genealogy of Morality' (1887), wrote that the jews (5), who he claimed are motivated by deep resentment and hatred (6), create these "slave morality" systems (7) (Christianity and its secularized variants of Marxism/Bolshevism/Leftism/Progressivism), which, through monotheism (good vs evil), universalism, the 'transvaluation of values', and the concept of sin is designed to empower the lowest "chandala" castes (8). This is what makes the system self-policing and self-regulating. The savior complex (9) is a subset of christian self-deification and is a heritage of monotheism and messianism (10). Self-deification (11) is the foundation for attacking heretics, especially of "aristocratic" or "warrior" castes (12), and redeeming others.
 
 See also: [Ressentiment](https://en.wikipedia.org/wiki/Ressentiment), [Conflict Theory](https://en.wikipedia.org/wiki/Conflict_theories), and [Class Conflict](https://en.wikipedia.org/wiki/Class_conflict)
@@ -73,7 +73,7 @@ While Christianity empowers the "chandala" caste through universalism and the t
 *   Prayer: The purpose of prayer is to reinforce the brainwashing (guilt, shame, fear) by continually repeating directed affirmations.
 *   Confession: To further reinforce the guilt and shame complexes by continually confessing guilt. Confession also creates a religious commandment that turns its followers into informants, exposes traitors to the church or state, exposes rebellions, and makes the system self-regulating. 
 
-This was a clever divide-and-conquer strategy. Build a coalition of the outcastes of society and then weaponize them to attack the warrior and aristocratic castes while simultaneously transvaluating their aristocratic cultural values to subvert them. This was the formula that was used in Rome, the French Revolution \[[link](https://en.metapedia.org/wiki/French_Revolution)\], Revolutions of 1848 \[[link](https://www.jstor.org/stable/4615300)\], Russian Revolution \[[link](https://en.wikipedia.org/wiki/Russian_Revolution)\], and attempted in the German Revolution \[[link](https://en.wikipedia.org/wiki/German_Revolution_of_1918%E2%80%931919)\]. Each of these revolutions empowered and weaponized the outcastes of society with a unifying slave-morality ideology (Marxism/Bolshevism/Leftism are simply secular variants of christianity).
+This was a clever divide-and-conquer strategy. Build a coalition of the outcastes of society and then weaponize them to attack the warrior and aristocratic castes while simultaneously transvaluating their aristocratic cultural values to subvert them. This was the formula that was used in Rome, the French Revolution \[[link](https://en.metapedia.org/wiki/French_Revolution)\], Revolutions of 1848 \[[link](https://www.jstor.org/stable/4615300)\], Russian Revolution \[[link](https://en.wikipedia.org/wiki/Russian_Revolution)\], and attempted in the German Revolution \[[link](https://en.wikipedia.org/wiki/German_Revolution_of_1918%E2%80%931919)\]. Each of these revolutions empowered and weaponized the outcastes of society with a unifying slave-morality ideology (Marxism/Bolshevism/Leftism are simply secular variants of christianity).\
         This system was also integral to European colonialism. Before the colonial powers sent the military they sent the missionaries. Through christianity, they weaponized the outcastes to fight the warrior castes. Then, christianity placated the native populations by preventing any rebellion (the lowest outcastes self-policed the warrior castes who had their warrior values "transvaluated" and the population eventually succumbed to the thought that they would be rewarded when they die if they submitted).
 
 See also: [Tschandala](https://en.wikipedia.org/wiki/Tschandala), [Master–slave morality](https://en.wikipedia.org/wiki/Master%E2%80%93slave_morality), and [Transvaluation of values](https://en.wikipedia.org/wiki/Transvaluation_of_values)  
@@ -127,7 +127,7 @@ You can prove that Christianity is a slave morality system that is designed to s
 
 Chapter 5. Conclusion [Top ↑](#)
   
-Over the past 2000 years, every group that had the christian psyop forced on them had their societies overthrown through a revolution of the lowest outcastes of society and then had their evolutionary group strategy evolve under constant pressure to conform to this dysgenic suicide system. All of your patterns of perception, logic, symbol formation, thought, speech, action, and emotional response have evolved to operate subconsciously within the dynamics of this system. This system stripped you of identity, pride, tribal spirit, and the will to power with the ultimate goal of turning you into a guilt-ridden and self-loathing slave.  
+Over the past 2000 years, every group that had the christian psyop forced on them had their societies overthrown through a revolution of the lowest outcastes of society and then had their evolutionary group strategy evolve under constant pressure to conform to this dysgenic suicide system. All of your patterns of perception, logic, symbol formation, thought, speech, action, and emotional response have evolved to operate subconsciously within the dynamics of this system. This system stripped you of identity, pride, tribal spirit, and the will to power with the ultimate goal of turning you into a guilt-ridden and self-loathing slave.\
         It is horrifying to think of the scale that this psyop grew to, how this system became institutionalized, how it changed the evolutionary group strategy of billions of people, how it created hell on earth for the entire planet for centuries, and how it is the system that is responsible for the needless destruction of billions of people.
 
 Footnotes [Top ↑](#)  
