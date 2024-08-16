@@ -7,23 +7,8 @@ url: https://christcuck.org
 baseurl: ""
 description: "Personal website of Hugo Pepe"
 author: Hugo
-twitter: sebbas
-stackoverflow: 1480784/sebbas
-trello: sebbas
-googleplay: sebbas
-vimeo: sebbas
-linkedin: 
-bitbucket: sebbas
-goodreads: sebbas
-delicious: sebbas
-hackernews: sebbas
-medium: sebbas
-youtube: UCiU3oTGKL4GDr5xgK_EMjnQ
-500px: sebbas
-irc: sebbas
-ircchannel: blendercoders # a channel that you are frequenting
-username: sebbas
-email: sebbas@sebbas.org
+twitter: 
+email: @.org
 
 timezone: Europe/Madrid
-google_analytics_tracking_id: G-DSZPS9W1W4
+google_analytics_tracking_id:
