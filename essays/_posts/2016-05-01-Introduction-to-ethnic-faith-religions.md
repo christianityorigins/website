@@ -18,7 +18,7 @@ There are only two things that you need to know to understand Polytheistic Ethni
 
 2) Rituals: rituals (6) are about manifesting the deities or forces of nature/laws of physics into your daily life. To Pagans who are inspired by Carl Jung, rituals are ways of inducing 'active imagination' (7) or a part of the process of 'individuation' (8).
   
-You can learn more about your specific "Pagan" traditions and rituals here: [<a href="https://ecer-org.eu/organisations/" rel="nofollow" target="_blank">link</a>] an here: [<a href="https://salonvert.eu" rel="nofollow" target="_blank">link</a>]
+You can learn more about your specific "Pagan" traditions and rituals here: [<a href="https://ecer-org.eu/organisations/" rel="nofollow" target="_blank">link</a>] and here: [<a href="https://salonvert.eu" rel="nofollow" target="_blank">link</a>]
 
 Note that most ethnic faith religions were pretty similar to this. For example, Native American religions followed this same belief system (animist/ritual based) [<a href="https://en.wikipedia.org/wiki/Native_American_religions" rel="nofollow" target="_blank">link</a>] [<a href="https://en.wikipedia.org/wiki/Mythologies_of_the_Indigenous_peoples_of_the_Americas" rel="nofollow" target="_blank">link</a>] 
 
