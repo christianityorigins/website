@@ -13,7 +13,7 @@ Simon ben Yohai wrote that the "secrets" were revealed to him when he was hidin
 
 The name "Simon" denotes that he was of the tribe of Simon/Simeon and he obviously was a descendant of Simon Boethius, and Yohai is a nickname for yochai. The name Yochai means "YHWAH is gracius" from the Hebrew word Yochanan sometimes transcribed as Johanan (was he also John of Gischala who was a leader of the first Jewish revolt against the Romans?).
 
-In my yet-to-be completed book, I trace Zoroastrianism back to Baruch ben Neriah (who was both Jeremiah in the bible and Zoroaster) and his Simonian and Zadokite/sons of Zadok (Zadokite = the upper echelon of jewish society, essentially kings) heirs were responsible for the slave-morality religions of Gnosticism (Simon Boethus/Magus/Peter), Christianity (Philo of Alexandria aka Cleopatra of Mauritania and her son Tiberius Julius Alexander/Josephus/Arrius Piso), and this line was very likely also responsible for creating Islam.
+In my yet-to-be completed book, I trace Zoroastrianism back to Baruch ben Neriah (who was both Jeremiah in the bible and Zoroaster) and his Simonian and Zadokite/sons of Zadok (Zadokite = the upper echelon of jewish society, essentially kings) heirs were responsible for the slave-morality religions of Gnosticism (Simon Boethus/Magus/Peter), Christianity (Philo of Alexandria aka Cleopatra of Mauritania and her son Tiberius Julius Alexander/Josephus/Arrius Piso), and this genetic line was very likely also responsible for creating Islam.
 
 In _Hagarism: The Making of the Islamic World_ the authors theorize that the jews invented Islam as a psy-op to weaponize the Arabs to attack the Byzantine empire to free judea. _The Secrets of Rabbi Simon ben Yohai_ certainly corroborates this theory.
 
