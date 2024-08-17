@@ -93,10 +93,8 @@ Europeans = a mixture of three races to varing degrees: Neolithic, Indo-Aryans, 
 
 1\. https://www.ncbi.nlm.nih.gov/pmc/articles/PMC3585000/  
 \--https://www.ncbi.nlm.nih.gov/pmc/articles/PMC6102297/
-
 \--https://eupedia.com/europe/Haplogroup\_R1a\_Y-DNA.shtml  
 \--https://duckduckgo.com/?q=nabataean+busts+jordan+melpomeme&t=ofa&iar=images&iax=images&ia=images  
-
 \--https://en.wikipedia.org/wiki/Saltmen
 
 2\. Eezekiel 16:1-316: "The word of the Lord came to me: 2 “Son of man, confront Jerusalem with her detestable practices 3 and say, ‘This is what the Sovereign Lord says to Jerusalem: Your ancestry and birth were in the land of the Canaanites \[Canaan = Modern day Israel\]; your father was an Amorite and your mother a Hittite". The House of Omri (Kingdom of Israel), pronounced phonetically as "Ghomri" (Hebrew) or "Khumri" (Assyrian), and derivatives of those words "Gamera/Gimera" & "ga-me-ra-a-an" (Assyrian) and "Gimiri" (Babylonian) also show up in ancient records as root words for Cimmerian/Scythian.
