@@ -20,7 +20,7 @@ There are only two things that you need to know to understand Polytheistic Ethni
   
 You can learn more about your specific "Pagan" traditions and rituals here: [<a href="https://ecer-org.eu/organisations/" rel="nofollow" target="_blank">link</a>] and here: [<a href="https://salonvert.eu" rel="nofollow" target="_blank">link</a>]
 
-Note that most ethnic faith religions were pretty similar to this. For example, Native American religions followed this same belief system (polytheistic, animist, ancestor veneration, ritual based) [<a href="https://en.wikipedia.org/wiki/Native_American_religions" rel="nofollow" target="_blank">link</a>] [<a href="https://en.wikipedia.org/wiki/Mythologies_of_the_Indigenous_peoples_of_the_Americas" rel="nofollow" target="_blank">link</a>] 
+Note that most ethnic faith religions were pretty similar to this. For example, Native American religions followed this same belief system (polytheistic, animist, ancestor veneration, ritual based) [<a href="https://en.wikipedia.org/wiki/Native_American_religions" rel="nofollow" target="_blank">link</a>] [<a href="https://en.wikipedia.org/wiki/Mythologies_of_the_Indigenous_peoples_of_the_Americas" rel="nofollow" target="_blank">link</a>], and so are East Asian religions like Shinto. 
 
 Footnotes:
 
