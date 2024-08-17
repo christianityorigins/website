@@ -89,6 +89,10 @@ Indo-Aryans = Hyksos into Egypt, Scythians into Persia, Aryans into the Indus Va
 
 Semites = Neanderthal relics who mixed with whatever dominated their ancestors the most: Scythian-Turkic (Cimmerian) mixes from the Pontic-Caspian steppes, Hapiru in Egypt, Neanderthal mixes in Canaan, the Hittites (2) and Natufians who were 1/4 Sub-Saharan African.
 
+Europeans are a mixture of three races to varing degrees: Neolithic, Indo-Aryans, and Alpine. Alpine are Western Hunter Gatherer's (WHG), ie. cheddar man. They are Indigenous Europeans that were heavily domesticated (brachycephalic skull, short mesomorphic body type, round and juvenile facial features/neoteny, bright pink skin).  
+
+
+
 1\. https://www.ncbi.nlm.nih.gov/pmc/articles/PMC3585000/  
 \--https://www.ncbi.nlm.nih.gov/pmc/articles/PMC6102297/
 
