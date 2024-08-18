@@ -27,6 +27,8 @@ _Following Philo: The Magdalene. the Virgin. the Men Called Jesus_ (2015) by P.
 
 _Following Philo to Pallas (the Freedman): The Most Powerful Man in First Century Rome, also known as Goddess (the Mother)_ (2019) by P.J. Gott \[[link](https://www.amazon.com/Following-Philo-Pallas-Freedman-Powerful-ebook/dp/B07PXKQGYG/)\]. Alternately, the authors website: thenazareneway.com \[[link](https://web.archive.org/web/20100313155615/http://www.thenazareneway.com/Caesar%27s%20Messiah%20Commentary.htm)\] \[[link](https://web.archive.org/web/20230321143128/http://thenazareneway.com/Philo%27s%20Exegesis.htm)\] \[[link](https://web.archive.org/web/20230913204543/http://thenazareneway.com/MM%20Chart.htm)\] (reveals that Philo of Alexandria was a pen-name for Cleopatra of Mauretania who was married to her brother Alexander (grandson of King Herod)/Ptolemy of Mauretania, therefore, she was the mother of Tiberius Julius Alexander/Arrius Piso/Josephus. Also, she was Vespasian's first cousin and mistress Antonia Caenis)
 
+_The Iceman Inheritance: Prehistoric Sources of Western Man's Racism, Sexism and Aggression_ (1978) \[[link](https://www.amazon.sg/dp/1879831007)\]
+
 Reference Guide
 
 Ancient Civilizations
