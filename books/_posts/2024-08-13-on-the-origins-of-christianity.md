@@ -55,7 +55,7 @@ Characters
 \-Martha Boethus = St. Martha of Bethany, daughter of Simon Boethus and she was married to Judean high priest Joshua 'Jesus' ben Gamla/Gamaliel who was the son of Gamaliel.\
 \-Matthias the Apostle = Matthias Boethus, son of Simon Boethus.\
 \-Onias I = heir of the Zadokite (High Priest) dynasty and a direct descendant of Joshua the High Priest and Zadok who was a descendant of Aaron who was the elder brother of Moses.\
-\-Onias II = Simeon the Righteous aka Simeon the Just aka Shimon HaTzaddik who was the Kohen Gadol High Priest.\ 
+\-Onias II = Simeon the Righteous aka Simeon the Just aka Shimon HaTzaddik who was the Kohen Gadol High Priest.\
 \-Onias III = Qumran Teacher of Righteousness in the Dead Sea Scrolls. "The Anointed One" which in Hebrew is "moshiach" and often translated as "messiah". In Greek, "The Anointed One" is Chréstos/Christ.\
 \-Saulos Thaddeus Alexander Herod = Paul the Apostle, grandson of King Herod and great-grandson of Simon Boethus.\
 \-Simon Boethus (great-great-great? grandson of Onias III and heir of the Zadokite line) = Simon Magus aka Ptolemy Bar Mennius. Likely also "Simon the Essene" the founder of the Essene sect and 'Simon Peter' in the bible.\
