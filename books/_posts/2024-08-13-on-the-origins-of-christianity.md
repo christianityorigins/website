@@ -170,7 +170,7 @@ Platonism was the school of thought that started with Plato's teachings and mixe
 <img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjFSLLYvMZx3v6PQyiK_xcyAb0dO-6tAfrLxLYhNlgyFuc18Vld7oXgKlw4dDbtSFV2S19UlpQxoE1d8IVMaiN9k_e0_uhhFTTM8EiJH1gXNX8M5qFrg4X7I4dUeygNml6W2QR4KWXkSIwDfosiif7EBJoMHU0K2NM1yVAdS-oUxbzoNrNxsOZUybrqJlc/s320/combined.jpg"></p>
 
 <p align="center">
-Fig 1.2. (L) Alexander (son of King Herod) aka Juba II. (R) Cleopatra Selene II aka Queen Thea Muse Ourania</p>
+Fig 1.2. (L) Alexander (son of King Herod) aka Juba II. (R) Cleopatra Selene II aka Queen Thea Muse Ourania (the "Kingdom of Ourania" in Greek translates to the "Kingdom of Heaven" in English)</p>
 
 Alexander (son of King Herod) aka Juba II and Cleopatra Selene II had two prominent children who were married to each other:
 
