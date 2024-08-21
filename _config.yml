@@ -1,6 +1,7 @@
 permalink: /:title/
 plugins:
   - jekyll-sitemap
+    - jekyll-seo-tag
 
 title: christcuck.org
 url: https://christcuck.org
