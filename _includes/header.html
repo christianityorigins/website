@@ -5,27 +5,18 @@
     <a href="{{ site.baseurl }}/">Home</a> &middot;
     <a href="{{ site.baseurl }}/guestbook">Guestbook</a> &middot;
     <a href="{{ site.baseurl }}/donate">Donate</a> &middot;
-    <span id="translate-widget"></span>
+    <!-- Yandex Translate Widget -->
+    <div id="translate_widget"></div>
+    <script type="text/javascript">
+      (function() {
+        var widget = document.createElement('script');
+        widget.src = "https://translate.yandex.com/widget?lang=en";
+        widget.type = "text/javascript";
+        widget.async = true;
+        document.getElementById('translate_widget').appendChild(widget);
+      })();
+    </script>
+    <!-- Yandex.Translate Widget end -->
   </p>
   <hr />
 </header>
-
-<script type="text/javascript">
-  (function(d, w, c) {
-    w[c] = w[c] || [];
-    w[c].push(function() {
-      try {
-        w.yaTranslateWidget = new YaTranslate.Widget({
-          lang: 'en',
-          size: 'small',
-          color: 'blue'
-        });
-        document.getElementById('translate-widget').appendChild(w.yaTranslateWidget);
-      } catch (e) {}
-    });
-    var s = d.createElement('script');
-    s.src = 'https://translate.yandex.net/widget/v1?service=translate';
-    s.type = 'text/javascript';
-    d.head.appendChild(s);
-  })(document, window, 'yaTranslateWidget');
-</script>
