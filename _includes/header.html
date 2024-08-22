@@ -1,11 +1,31 @@
 <header>
-<h1>Hugo's personal site</h1>
+  <h1>Hugo's personal site</h1>
 
-  <p>
+  <p style="display: flex; align-items: center;">
     <a href="{{ site.baseurl }}/">Home</a> &middot;
     <a href="{{ site.baseurl }}/guestbook">Guestbook</a> &middot;
-    <a href="{{ site.baseurl }}/donate">Donate</a>
+    <a href="{{ site.baseurl }}/donate">Donate</a> &middot;
+    <span id="translate-widget"></span>
   </p>
   <hr />
-
 </header>
+
+<script type="text/javascript">
+  (function(d, w, c) {
+    w[c] = w[c] || [];
+    w[c].push(function() {
+      try {
+        w.yaTranslateWidget = new YaTranslate.Widget({
+          lang: 'en',
+          size: 'small',
+          color: 'blue'
+        });
+        document.getElementById('translate-widget').appendChild(w.yaTranslateWidget);
+      } catch (e) {}
+    });
+    var s = d.createElement('script');
+    s.src = 'https://translate.yandex.net/widget/v1?service=translate';
+    s.type = 'text/javascript';
+    d.head.appendChild(s);
+  })(document, window, 'yaTranslateWidget');
+</script>
