@@ -34,7 +34,7 @@ Chapter 9. The origins of Christianity\
 9.2 Alexandria, Egypt. 1st Century\
 APPENDICES\
 Appendix A. How did Christianity spread so rapidly?\
-Appendix B. Expulsions from Rome for trying to spread religions//
+Appendix B. Expulsions from Rome for trying to spread religions
   
 Preface
   
