@@ -7,44 +7,7 @@ updated: 2018-11-23 21:40:58 +0100
 category: essays
 ---
 
-[https://en.wikipedia.org/wiki/List_of_ethnic_religions [<a href="https://en.wikipedia.org/wiki/List_of_ethnic_religions" rel="nofollow" target="_blank">link</a>]<br /><a href="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhONWOUcgtcxxIk2FgeJGfwqoIoE3YI707mNDC2Cg6IafQitC8IL6TqN5wVu9vc93vJAKeecFALchR1e1ni9jrXtw9NaClOmmQOzQ8Zk2x9WOBJdytvFi9Hv5Cy0v0A_V1_tdRyAqyDEwG4PphV6jFPxArBFvx5j40GfMIyIVdCWERDOKcrUydEsf2EAhQ/s4285/religions.png" style="margin-left: 1em; margin-right: 1em;"><img border="0" data-original-height="4285" data-original-width="3942" height="320" src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhONWOUcgtcxxIk2FgeJGfwqoIoE3YI707mNDC2Cg6IafQitC8IL6TqN5wVu9vc93vJAKeecFALchR1e1ni9jrXtw9NaClOmmQOzQ8Zk2x9WOBJdytvFi9Hv5Cy0v0A_V1_tdRyAqyDEwG4PphV6jFPxArBFvx5j40GfMIyIVdCWERDOKcrUydEsf2EAhQ/s320/religions.png" width="294" /></a><br /><br> 
-                                                                                                                                                                  Polytheistic Ethnic European ("Pagan") Religions
-
-Quick introduction: "Pagan" (Latin: pāgānus, 'rural') was supposed to be a slur that was invented by the catholic church to apply to every non-xtian religion but has since been reappropriated as a general term. Specific ethnic "Pagan" polytheistic religions are: Heathenry is Germanic Paganism ("Asatru" is one of the religions that fall under the Heathenry category). Fyrnsidu is Brittonic Paganism. Druidry is Celtic Paganism. Hellenism is Greek Paganism. Religio Romana is Roman Paganism. Rodnovery is Slavic Paganism. Romuva is Baltic Paganism, etc. Every polytheistic ancestral European religion is similar, the deities just have different regional names (1).
-
-There are only two things that you need to know to understand Polytheistic Ethnic European Religions:
-
-1) Cosmology: the cosmology of the ancient polytheistic European religions is Dharmic (non-dogmatic). You could be a polytheist, pantheist, polydeist, atheist (2) and still find value in tradition, rituals, and ancestor veneration. Some polytheistic religious followers see the polytheistic deities as sentient personal gods, others see them as allegorical personifications of natural forces (numen/animism) and the cosmology is pantheism/polydeism to them, others are atheists (3) who are attracted to tradition, ancestor veneration, and ancestry. A large number of atheistic Pagans are inspired by Carl Jung who combined psychoanalysis with Heathenry, the polytheistic deities = 'archetypes (4) of the collective unconscious (5)' to these Pagans.
-
-2) Rituals: rituals (6) are about manifesting the deities or forces of nature/laws of physics into your daily life. To Pagans who are inspired by Carl Jung, rituals are ways of inducing 'active imagination' (7) or a part of the process of 'individuation' (8).
-  
-You can learn more about your specific "Pagan" traditions and rituals here: [<a href="https://ecer-org.eu/organisations/" rel="nofollow" target="_blank">link</a>] and here: [<a href="https://salonvert.eu" rel="nofollow" target="_blank">link</a>]
-
-Note that most ethnic faith religions were pretty similar to this. For example, Native American religions followed this same belief system (polytheistic, animist, ancestor veneration, ritual based) [<a href="https://en.wikipedia.org/wiki/Native_American_religions" rel="nofollow" target="_blank">link</a>] [<a href="https://en.wikipedia.org/wiki/Mythologies_of_the_Indigenous_peoples_of_the_Americas" rel="nofollow" target="_blank">link</a>], and so do East Asian native religions like Shinto. 
-
-Footnotes:
-
-[1] Dyaus Pita (Vedic), Zeus (Greek), Jupiter (Roman), Odin (Nordic), Wotan (German), Wotanaz (Slavic), Ukko and Väinämöinen (Finnish), and so on are all derived from the Aryan allfather Dyeus Pter which translates to Sky Father. The name Zeus even comes from the pronunciation of Dyeus.<br>
-[2] https://en.wikipedia.org/wiki/Charvaka [<a href="https://en.wikipedia.org/wiki/Charvaka" rel="nofollow" target="_blank">link</a>]<br>
-[3] https://en.wikipedia.org/wiki/Secular_paganism [<a href="https://en.wikipedia.org/wiki/Secular_paganism" rel="nofollow" target="_blank">link</a>]<br>
-[4] https://en.wikipedia.org/wiki/Jungian_archetypes [<a href="https://en.wikipedia.org/wiki/Jungian_archetypes" rel="nofollow" target="_blank">link</a>]<br>
-[5] https://en.wikipedia.org/wiki/Collective_unconscious [<a href="https://en.wikipedia.org/wiki/Collective_unconscious" rel="nofollow" target="_blank">link</a>]<br>
-[6] https://en.wikipedia.org/wiki/Eleusinian_Mysteries [<a href="https://en.wikipedia.org/wiki/Eleusinian_Mysteries" rel="nofollow" target="_blank">link</a>]<br>
-[7] https://en.wikipedia.org/wiki/Active_imagination#Carl_Gustav_Jung [<a href="https://en.wikipedia.org/wiki/Active_imagination#Carl_Gustav_Jung" rel="nofollow" target="_blank">link</a>]<br>
-[8] https://en.wikipedia.org/wiki/Individuation#In_Jungian_psychology [<a href="https://en.wikipedia.org/wiki/Individuation#In_Jungian_psychology" rel="nofollow" target="_blank">link</a>]
-
-Read more:
-
-https://en.wikipedia.org/wiki/List_of_modern_pagan_movements [<a href="https://en.wikipedia.org/wiki/List_of_modern_pagan_movements" rel="nofollow" target="_blank">link</a>]<br>
-https://en.wikipedia.org/wiki/Category:Modern_paganism_in_Europe [<a href="https://en.wikipedia.org/wiki/Category:Modern_paganism_in_Europe" rel="nofollow" target="_blank">link</a>]<br>
-https://www.youtube.com/watch?v=_c7zzZeT-ws [<a href="https://www.youtube.com/watch?v=_c7zzZeT-ws" rel="nofollow" target="_blank">link</a>]
-](https://en.wikipedia.org/wiki/List\_of\_ethnic\_religions
-
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhqL3BzkAtJe0hCPUwMAD11WcH7BSqZRxvm1oKPW1IXtqvnalfANcpF3VW6934IsALRusB0j6jIiiNlLvGPGhlfo1sM0baVLD4ApV9PRdlMd5hQJm9F9s4HlJK7vVgQPDmm1VqG1e3eEZ2hcZ0bPnaObvwosjKFxOvKeoP6Q69f5Pz-Qs1VInFdyIdMdT8/s320/religions.png)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhqL3BzkAtJe0hCPUwMAD11WcH7BSqZRxvm1oKPW1IXtqvnalfANcpF3VW6934IsALRusB0j6jIiiNlLvGPGhlfo1sM0baVLD4ApV9PRdlMd5hQJm9F9s4HlJK7vVgQPDmm1VqG1e3eEZ2hcZ0bPnaObvwosjKFxOvKeoP6Q69f5Pz-Qs1VInFdyIdMdT8/s4285/religions.png)
-
-  
-
-  
+[https://en.wikipedia.org/wiki/List_of_ethnic_religions [<a href="https://en.wikipedia.org/wiki/List_of_ethnic_religions" rel="nofollow" target="_blank">link</a>]<br /><a href="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhONWOUcgtcxxIk2FgeJGfwqoIoE3YI707mNDC2Cg6IafQitC8IL6TqN5wVu9vc93vJAKeecFALchR1e1ni9jrXtw9NaClOmmQOzQ8Zk2x9WOBJdytvFi9Hv5Cy0v0A_V1_tdRyAqyDEwG4PphV6jFPxArBFvx5j40GfMIyIVdCWERDOKcrUydEsf2EAhQ/s4285/religions.png" style="margin-left: 1em; margin-right: 1em;"><img border="0" data-original-height="4285" data-original-width="3942" height="320" src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhONWOUcgtcxxIk2FgeJGfwqoIoE3YI707mNDC2Cg6IafQitC8IL6TqN5wVu9vc93vJAKeecFALchR1e1ni9jrXtw9NaClOmmQOzQ8Zk2x9WOBJdytvFi9Hv5Cy0v0A_V1_tdRyAqyDEwG4PphV6jFPxArBFvx5j40GfMIyIVdCWERDOKcrUydEsf2EAhQ/s320/religions.png" width="294" /></a><br /><br>   
 
 Polytheistic Ethnic European ("Pagan") Religions
 
@@ -52,7 +15,7 @@ Quick introduction: "Pagan" (Latin: pāgānus, 'rural') was supposed to be a slu
 
 There are only two things that you need to know to understand Polytheistic Ethnic European Religions:
 
-1\. Cosmology: the cosmology of the ancient polytheistic European religions is Dharmic (non-dogmatic). You could be a polytheist, pantheist, atheist (2) and still find value in tradition, rituals, and ancestor veneration. Some polytheistic religious followers see the polytheistic deities as sentient personal gods, others see them as allegorical personifications of natural forces (numen/animism) or as emanations or forms/symbolic representations of a particular quality or principle (mater or energy) and the cosmology is pantheism/polydeism to them (3), others are atheists (4) who are attracted to tradition, ancestor veneration, and ancestry. Many atheistic Pagans are inspired by Carl Jung who combined psychoanalysis with Heathenry; the polytheistic deities = 'archetypes (5) of the collective unconscious (6)' to these Pagans.
+1\. Cosmology: the cosmology of the ancient polytheistic European religions is Dharmic (non-dogmatic). You could be a polytheist, pantheist, atheist (2) and still find value in tradition, rituals, and ancestor veneration. Some polytheistic religious followers see the polytheistic deities as sentient personal gods, others see them as allegorical personifications of natural forces (numen/animism) or as emanations or forms/ or ymbolic representations of a particular quality or principle (mater or energy) and the cosmology is pantheism/polydeism to them (3), others are atheists (4) who are attracted to tradition, ancestor veneration, and ancestry. Many atheistic Pagans are inspired by Carl Jung who combined psychoanalysis with Heathenry; the polytheistic deities = 'archetypes (5) of the collective unconscious (6)' to these Pagans.
 
 2\. Rituals: rituals (7) are about manifesting the deities or forces of nature/laws of physics into your daily life. To secular Pagans who are inspired by Carl Jung, rituals are ways of inducing 'active imagination' (8) or a part of the process of 'individuation' (9).
 
