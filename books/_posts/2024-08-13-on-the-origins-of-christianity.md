@@ -79,14 +79,15 @@ Ptolemy Menneus/Simon Boethus's son was named Philippion who I believe is a good
 The connection between Simon Boethus/Magus/Ptolemy X Alexander I/Ptolemy (Alexander) bar Menneus and Julius Caesar is obviously through his daughter Cleopatra who Julius Caesar/Asander married. Using Josephus as a source, Antipater the Idumean's son King Herod was married to Simon Boethus's daughter Mariamme and Antipater the Idumean saved Julius Caesars life during the Battle of the Nile (47 BC). As a reward, Josephus claims that Julius Caesar adopted King Herod's sons (Simon Boethus's grandsons) Aristobulus IV (Vespasian's grandfather \[[link](https://henrydavis-cc.medium.com/the-royal-ancestry-of-the-roman-emperor-vespasian-72e144335299)\]), Alexander (son of king Herod) aka Alexandros III aka Juba II, Herod Antipas the Tetrarch, Archelaus, and Philip and raised them in Rome, in the household of Gaius Asinius Pollio which was the same household that Caesar Augustus was raised in (Josephus, 'Antiquities of the Jews', Book 15, Chapter 2. Josephus, 'Antiquities of the Jews', Book 17). This is untrue and those kids were his biological sons. It is also untrue that Alexander, son of King Herod, was killed by his father Herod, Josephus even has a story about a 'spurious Alexander' that showed up in Rome claiming to be the son of Herod who faked his death (Josephus, 'Antiquities of the Jews', Book 12 \[[link](https://www.ccel.org/ccel/josephus/complete.ii.xviii.xii.html)\]), so he was 'resurrected' as Juba II, king of Numidia and Mauretania. 
 
   
-
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhXdQKCoYWO_vFdleCS2PNk8fKAiucO2S8ZZxYWwvWReq1J_3WNuYw6zpjdHeew47-vKr2qE9H6f1MY9u6sI1qPzl3CaVa5FypEXMZXq-GpmO4ZPp-aerRkpxThRKzDtJaCrcbPiwFIO3nCnLT4G48wMB1fpDF94pur25UTey0xBpg9FkiUoMYEXh7ptU4/s320/ptolemy-ix.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhXdQKCoYWO_vFdleCS2PNk8fKAiucO2S8ZZxYWwvWReq1J_3WNuYw6zpjdHeew47-vKr2qE9H6f1MY9u6sI1qPzl3CaVa5FypEXMZXq-GpmO4ZPp-aerRkpxThRKzDtJaCrcbPiwFIO3nCnLT4G48wMB1fpDF94pur25UTey0xBpg9FkiUoMYEXh7ptU4/s1600/ptolemy-ix.jpg)
+<p align="center">
+<img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhXdQKCoYWO_vFdleCS2PNk8fKAiucO2S8ZZxYWwvWReq1J_3WNuYw6zpjdHeew47-vKr2qE9H6f1MY9u6sI1qPzl3CaVa5FypEXMZXq-GpmO4ZPp-aerRkpxThRKzDtJaCrcbPiwFIO3nCnLT4G48wMB1fpDF94pur25UTey0xBpg9FkiUoMYEXh7ptU4/s1600/ptolemy-ix.jpg" width="200">
+</p>
 
   
 
   
 
-Fig. 1.1. Bust attributed to Ptolemy IX who was the grandfather of Ptolemy X Alexander I aka Ptolemy Menneus aka Simon Boethus aka Simon Magus  Notice the jewish physiognomy and beard shaved in a jewish style? It is possible that this bust is mislabelled and is actually Ptolemy X Alexander I aka Ptolemy Menneus aka Simon Boethus aka Simon Magus himself.
+<p align="center">Fig. 1.1. Bust attributed to Ptolemy IX who was the grandfather of Ptolemy X Alexander I aka Ptolemy Menneus aka Simon Boethus aka Simon Magus  Notice the jewish physiognomy and beard shaved in a jewish style? It is possible that this bust is mislabelled and is actually Ptolemy X Alexander I aka Ptolemy Menneus aka Simon Boethus aka Simon Magus himself.</p>
 
   
 
@@ -99,8 +100,6 @@ The people I identify specifically as being in involved are Alexander (grandson 
   
 
 Then, less than a century later, emperor Hadrian created a religion to deify his underage gay lover as the son of god (Osiris-Antinous) called _The Cult of Antinous_ \[[link](https://en.wikipedia.org/wiki/Antinous)\]. The Cult of Antinous actually rivaled christianity as the biggest cult in the empire for a couple of centuries. One of the scribes for this cult was Aquila of Sinope aka Onkelos who was a kinsman of the Roman emperor Hadrian. The midrash Tanhuma claims that Onkelos was a nephew of Hadrian and other jewish sources list him as a nephew of emperor Titus. Emperor Hadrian also employed Aquilla of Sinope to rebuild Jerusalem as Aelia Capitolina. Aquila aka Onkelos was a student of rabbi Akiva who was a student of  Gamaliel (Paul the Apostle claimed that he was brought up in Jerusalem "at the feet of Gamaliel" (Acts 22:3) and Gamaliel was the father of Jesus ben Gamala/Gamaliel aka Jesus ben Sapphias who was also King Izas Ma'nu (Jesus Emmanuel) Monobazus of Adiabene). Rabbi Akiva's other students included Markianos of Alexandria aka Marcion of Sinope and Shimon bar Yochai who was the author of _The Secrets of Rabbi Simon ben Yohai_ which laid the groundwork for Islam (weaponizing Ishmael to fight Edom) \[[link](https://pages.charlotte.edu/john-reeves/research-projects/trajectories-in-near-eastern-apocalyptic/nistarot-secrets-of-r-shimon-b-yohai-2/)\]. _The Secret Gospel of Mark_ \[[link](https://en.wikipedia.org/wiki/Secret_Gospel_of_Mark)\] which speaks about Jesus's homosexuality and the Cult of Antinous came out about the same time. It is possible that the Gospel of Mark was written by Markianos of Alexandria aka Marcion of Sinope for the Cult of Antinous and was grafted on to the Roman imperial cult and the Cult of Simon bar Kokhba, or Markianos of Alexandria aka Marcion of Sinope and other scribes at the Alexandrian School in Egypt used the imperial cult as the foundation for the Cult of Antinous that included the Cult of Simon bar Kokhba and this became christianity. Religious syncrenism and intertextuality makes new religions easier for a population to adapt. The Sibylline Oracles were a style guide for the Alexandrian School students and they teach about religious syncretism and intertextual borrowing.
-
-  
 
 *Alexander (grandson of King Herod) and his son Tiberius Julius Alexander were personally responsible for the overthrow of Caligula \[link\], Nero, Galba, Otho, and they paved the way for Vespasian’s accession as the founder of the Flavian dynasty \[[link](https://en.wikipedia.org/wiki/Tiberius_Julius_Alexander#:~:text=While%20Prefect%20of%20Egypt%20(66–69)%2C%20he%20employed%20his%20legions%20against%20the%20Alexandrian%20Jews%20in%20a%20brutal%20response%20to%20ethnic%20violence%2C%20and%20was%20instrumental%20in%20the%20Emperor%20Vespasian%27s%20rise%20to%20power.%20In%2070%2C%20he%20participated%20in%20the%20Siege%20of%20Jerusalem%20as%20Titus%27%20second-in-command.)\]. Alexander's (grandson of King Herod) sons were directly involved in Caligula's assassination and Tiberius Julius Alexander immediately became the Prefect (leader) of the Praetorian Guard after Caligula's death. Before his death Nero is quoted as saying that followers of Chretus started the Great Fire of Rome (64 AD) (Tacitus, Annals XV. 44). The burning of Rome was part of the coup to install the crypto-jewish Flavian family into power. Vespasian, going by the alias 'Flavius Scaevinus', was directly involved in this conspiracy to overthrow Nero and burn Rome.\
 *After Julius Caesar's death he was deified through the Divine Julius cult. His adopted son Caesar Augustus then took on the name 'divi Iuli filius' ('son of the divine Julius') or simply 'divi filius' ('son of god'). It seems likely that Julius Caesar's other adopted sons of King Herod also took on this title. Also, King Herod's sons, especially his heir Alexander, would have carried the title 'king of the jews' or 'king of judea'.\
@@ -228,9 +227,12 @@ Alexander the Great was an archetype for the Jesus figure. The jews declared him
 
 YHWH = Jehova = Jove (Yoweh is similar to Latin Iove) = Jupiter = Ye-Zeus (YHWH + Zeus). Alexander claimed to be the son of Zeus (Zeus-Amun, Zeus-Ahura Mazda, Zeus-Yahweh, etc.).
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEifs7dG7rR6ELZ0YN_bJRg1OnnZ_ZSuTjdSPbOEt3xI8n_SmQdUX9ZkN_wsNykEKob5zMFqZpKLTFuFn_jQmwPYpbfS4-dObo5gnyDgSnbe0IYeFnIFDCVAaQ2176qwn8CPIZ8Vq7pKFXB5NVFVrKkCnRHPKGujSVsrNB3zMbDvaliXt5Vmuameaz-z49I/s1600/Alexander.png)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEifs7dG7rR6ELZ0YN_bJRg1OnnZ_ZSuTjdSPbOEt3xI8n_SmQdUX9ZkN_wsNykEKob5zMFqZpKLTFuFn_jQmwPYpbfS4-dObo5gnyDgSnbe0IYeFnIFDCVAaQ2176qwn8CPIZ8Vq7pKFXB5NVFVrKkCnRHPKGujSVsrNB3zMbDvaliXt5Vmuameaz-z49I/s259/Alexander.png)
+<p align="center">
+<img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEifs7dG7rR6ELZ0YN_bJRg1OnnZ_ZSuTjdSPbOEt3xI8n_SmQdUX9ZkN_wsNykEKob5zMFqZpKLTFuFn_jQmwPYpbfS4-dObo5gnyDgSnbe0IYeFnIFDCVAaQ2176qwn8CPIZ8Vq7pKFXB5NVFVrKkCnRHPKGujSVsrNB3zMbDvaliXt5Vmuameaz-z49I/s259/Alexander.png" width="200"></p>
 
-Fig. 1.2. Alexander the Great as Zeus Ammon (or Jupiter Ammon), the ram god. The Greeks had identified the Egyptian god Ammon with Zeus, the Romans identified Ammon with Jupiter.
+
+<p align="center">
+Fig. 1.2. Alexander the Great as Zeus Ammon (or Jupiter Ammon), the ram god. The Greeks had identified the Egyptian god Ammon with Zeus, the Romans identified Ammon with Jupiter.</p>
 
 #### 5.2 Alexander as a Prototype for the Jesus Figure
 
@@ -310,12 +312,14 @@ Simon had a couple Gnostic sects that worshiped him: the Simonians (49), and a r
 Simon's line of descent to focus on is through his grandson Alexander (son of King Herod) aka Juba II ("Iuba" is most likely a diminutive of Iehuva, but "Iuba" also translates to "love" in the Berber languages of Mauretania that he was king of exactly like "Philo" translates to "love" in ancient Greek) who was Simon's grandson through his daughter Mariamne Boethus (56). Alexander (son of King Herod) was married to Cleopatra Selene II (daughter of Mark Antony and Cleopatra VII) aka Queen Thea Muse Ourania. Alexander (son of King Herod) and Cleopatra Selene II were both adopted by Julius Caesar and were raised in Rome (Julius Caesar and Augustus adopted heirs of many royal families and got them to intermarry because then every Roman client state would be ruled by a single family and they would then be easier to control through proxy)).
 
   
-
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjFSLLYvMZx3v6PQyiK_xcyAb0dO-6tAfrLxLYhNlgyFuc18Vld7oXgKlw4dDbtSFV2S19UlpQxoE1d8IVMaiN9k_e0_uhhFTTM8EiJH1gXNX8M5qFrg4X7I4dUeygNml6W2QR4KWXkSIwDfosiif7EBJoMHU0K2NM1yVAdS-oUxbzoNrNxsOZUybrqJlc/s320/combined.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjFSLLYvMZx3v6PQyiK_xcyAb0dO-6tAfrLxLYhNlgyFuc18Vld7oXgKlw4dDbtSFV2S19UlpQxoE1d8IVMaiN9k_e0_uhhFTTM8EiJH1gXNX8M5qFrg4X7I4dUeygNml6W2QR4KWXkSIwDfosiif7EBJoMHU0K2NM1yVAdS-oUxbzoNrNxsOZUybrqJlc/s1800/combined.jpg)
+<p align="center">
+<img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjFSLLYvMZx3v6PQyiK_xcyAb0dO-6tAfrLxLYhNlgyFuc18Vld7oXgKlw4dDbtSFV2S19UlpQxoE1d8IVMaiN9k_e0_uhhFTTM8EiJH1gXNX8M5qFrg4X7I4dUeygNml6W2QR4KWXkSIwDfosiif7EBJoMHU0K2NM1yVAdS-oUxbzoNrNxsOZUybrqJlc/s1800/combined.jpg" width="200">
+</p>
 
   
 
- Fig 1.3. (L) Alexander (son of King Herod) aka Juba II. (R) Cleopatra Selene II aka Queen Thea Muse Ourania
+ <p align="center">
+Fig 1.3. (L) Alexander (son of King Herod) aka Juba II. (R) Cleopatra Selene II aka Queen Thea Muse Ourania</p>
 
         
 
@@ -326,13 +330,16 @@ Alexander (son of King Herod) aka Juba II and Cleopatra Selene II had two promin
 *   Alexander (grandson of King Herod) (57) aka Gaius Julius Alexander, Herodian Prince of Judaea aka Alexander Lysimachus aka Alexander the Alabarch aka Tiberius Julius Alexander Major aka (King/Tetrarch) Ptolemy (Alexander) bar Menneus aka Ptolemy of Mauretania (aka 'Joseph Panthera', the name for jesus's father in the Talmud; Panthera is a corruption of Cantheras, or Cleopatros) aka Phraates IV (the "King of Kings") aka Monobazus I King of Adiabene. Alexander (grandson of King Herod) had over a dozen aliases (58) and he was the richest man in the world at the time. Note how 'The Son of the Man' is a Koine->Aramaic->Koine mistranslation of Alexander and that as the grandson and heir of King Herod he was the 'King of Judea', 'King of the Jews'. Also, through his mother he was a descendant of the Egyptian Pharaohs, hence 'Son of God' (59) as all Egyptian Pharaohs were called that. Like his ancestor Onias III and his adopted grandfather Julius Caesar Alexander (grandson of King Herod) used the title "Chrestus" ("anointed one") (60). He is also Jesus in the bible. He was married to his sister (see below).
 *   Philo Judaeus of Alexandria ("Julius Philo", of the Julia gens (61), because she was the adopted granddaughter of Julius Caesar), which was an alias for King Herod's granddaughter (Salome III?) aka Cleopatra (Thea Philopator) of Mauretania aka Cleopatra IX aka Pythodorida Philometor aka Helene aka Drusilla of Mauretania aka Julia Ourania of Parthia aka Theophilus in the bible. She was also 'Pallas' (as in the ancient Greek goddess 'Pallas-Athena' who in mythology frequently disguised herself as a man) (62) who was Claudius and Nero's secretary, and 'Antonia Caenis' ('Caenis' was the Greek goddess who was transformed into a man), who was Vespasian's mistress (63)
 
-  
+  <p align="center">
+<img src="[https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhXdQKCoYWO_vFdleCS2PNk8fKAiucO2S8ZZxYWwvWReq1J_3WNuYw6zpjdHeew47-vKr2qE9H6f1MY9u6sI1qPzl3CaVa5FypEXMZXq-GpmO4ZPp-aerRkpxThRKzDtJaCrcbPiwFIO3nCnLT4G48wMB1fpDF94pur25UTey0xBpg9FkiUoMYEXh7ptU4/s1600/ptolemy-ix.jpg]
+</p>
 
 [![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhnuogIGVjK2GcbSQnbDi5NQzRAo7k4Rv5e7tev5RJLRqYVo6-GglMLiK8BJmXdIZVNbzINyAfjbaHdg6jwVHaF6GgddSVAp3fYjFn_3boTsQ6ie-jPR7PhwmdhM79ts9AD7a80bo5Q1DQLRb94z-bgs6-gb4KZbRsY_y-EqVlFeQlmJ0dPHI50Q6IXkhY/s320/AlexanderPhilo.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhnuogIGVjK2GcbSQnbDi5NQzRAo7k4Rv5e7tev5RJLRqYVo6-GglMLiK8BJmXdIZVNbzINyAfjbaHdg6jwVHaF6GgddSVAp3fYjFn_3boTsQ6ie-jPR7PhwmdhM79ts9AD7a80bo5Q1DQLRb94z-bgs6-gb4KZbRsY_y-EqVlFeQlmJ0dPHI50Q6IXkhY/s1296/AlexanderPhilo.jpg)
 
   
 
-Fig. 1.4. (L) Alexander (grandson of King Herod) aka Gaius Julius Alexander, Herodian Prince of Judaea aka Alexander the Alabarch aka (King/Tetrarch) Ptolemy (Alexander) bar Menneus aka Ptolemy of Mauretania aka "Jesus" in the bible. (R) Cleopatra (Thea Philopator) of Mauretania aka Cleopatra IX aka Pythodorida Philometor aka Helene aka Drusilla of Mauretania aka Julia Ourania of Parthia aka "Philo of Alexandria".
+<p align="center">
+Fig. 1.4. (L) Alexander (grandson of King Herod) aka Gaius Julius Alexander, Herodian Prince of Judaea aka Alexander the Alabarch aka (King/Tetrarch) Ptolemy (Alexander) bar Menneus aka Ptolemy of Mauretania aka "Jesus" in the bible. (R) Cleopatra (Thea Philopator) of Mauretania aka Cleopatra IX aka Pythodorida Philometor aka Helene aka Drusilla of Mauretania aka Julia Ourania of Parthia aka "Philo of Alexandria".</p>
 
   
 
@@ -346,11 +353,14 @@ Fig. 1.4. (L) Alexander (grandson of King Herod) aka Gaius Julius Alexander, Her
 
   
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhnq0jxzeQae7XTqCrtwXHdrZswqBc59cjLzPMcpmMAGrBRW6Sc4RrDmfh0zqri3liZggFDtHvok1Kx_4a_i_68YkiFHe2EqHLvqAY46ftMl9L42L5UEkSAUp-27WQgQjHhfBOACZev-y9Ducq-HV5tYc8rldWjOvXhbmeTSo3l7s9A42uBxGak-wwj5lM/s320/Denarius_C._Memmius_C._F._Romulus.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhnq0jxzeQae7XTqCrtwXHdrZswqBc59cjLzPMcpmMAGrBRW6Sc4RrDmfh0zqri3liZggFDtHvok1Kx_4a_i_68YkiFHe2EqHLvqAY46ftMl9L42L5UEkSAUp-27WQgQjHhfBOACZev-y9Ducq-HV5tYc8rldWjOvXhbmeTSo3l7s9A42uBxGak-wwj5lM/s500/Denarius_C._Memmius_C._F._Romulus.jpg)
+<p align="center">
+<img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhnq0jxzeQae7XTqCrtwXHdrZswqBc59cjLzPMcpmMAGrBRW6Sc4RrDmfh0zqri3liZggFDtHvok1Kx_4a_i_68YkiFHe2EqHLvqAY46ftMl9L42L5UEkSAUp-27WQgQjHhfBOACZev-y9Ducq-HV5tYc8rldWjOvXhbmeTSo3l7s9A42uBxGak-wwj5lM/s500/Denarius_C._Memmius_C._F._Romulus.jpg" width="200">
+</p>
 
   
 
-Fig. 1.5. Romulus. Does he look familiar? He was born to a virgin, the son of god, hailed as a King, crucified (67) by a conniving elite and rose from the dead. See: 'Romulus' (75AC) by Plutarch.
+<p align="center">
+Fig. 1.5. Romulus. Does he look familiar? He was born to a virgin, the son of god, hailed as a King, crucified (67) by a conniving elite and rose from the dead. See: 'Romulus' (75AC) by Plutarch.</p>
 
   
 
@@ -376,12 +386,16 @@ Alexander (grandson of King Herod), who was the richest man in the world at the 
 *   Tiberius Julius Alexander (aka Agrippa III?) aka Josephus (Tiberius Julius Alexander's son was named 'Philopappos' and one of his mothers recorded maiden aliases was 'Alexandria bat Matthias' (70) which is where the pseudonym 'Joseph bar Matthias' comes from. Also, drop the initial b and final s in the name "Bar Mathias" and you get (Joseph of) Arimathea) aka Arrius Calpernius Piso (Seneca referred to Josephus as "Episemos" which is a Koine Greek to Latin mistranslation of "son of Piso" (71) and Arrius comes from "Arrius Varus" (72), one of his many alias, which in turn is probably a diminutive of his uncle's name Aristobulus) aka Emperor Nerva (73).
 
   
+<p align="center">
+<img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjHHy4eICOzN66fUd19fh8yxL1kX3Ap939gBs0403VhSGVm3zQ5iJ84zIoC1Wc-33vWkrmf8yiZjgIn5ss_7MqoBYhbE9n92iffxgPOOWHD70F806umzCXu-4fTKrlvBo5IMko4jhudJ0Q1VaqzS76oeeEnyftYnZh87JldBVl1KG1eJwXS8Fz19ocJaL8/s1115/Josephus%20(1).jpg" width="200">
+</p>
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjHHy4eICOzN66fUd19fh8yxL1kX3Ap939gBs0403VhSGVm3zQ5iJ84zIoC1Wc-33vWkrmf8yiZjgIn5ss_7MqoBYhbE9n92iffxgPOOWHD70F806umzCXu-4fTKrlvBo5IMko4jhudJ0Q1VaqzS76oeeEnyftYnZh87JldBVl1KG1eJwXS8Fz19ocJaL8/s320/Josephus%20(1).jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjHHy4eICOzN66fUd19fh8yxL1kX3Ap939gBs0403VhSGVm3zQ5iJ84zIoC1Wc-33vWkrmf8yiZjgIn5ss_7MqoBYhbE9n92iffxgPOOWHD70F806umzCXu-4fTKrlvBo5IMko4jhudJ0Q1VaqzS76oeeEnyftYnZh87JldBVl1KG1eJwXS8Fz19ocJaL8/s1115/Josephus%20(1).jpg)
+
 
   
 
-Fig. 1.6. Compare the famous Josephus bust to Nerva's depictions
+<p align="center">
+Fig. 1.6. Compare the famous Josephus bust to Nerva's depictions</p>
 
   
 
@@ -389,12 +403,16 @@ Emperor Vespasian was another likely grandson of King Herod. He was Herod Pollio
 
    
   
+<p align="center">
+<img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjvwLJq_qm6wUPcu9rbi_x8aYUnfJ0BWuYROtV9FvUZ_f_LkITFbd67uS5vU7mh9pR7Oo1SxlRRcuZG7GDXtuT4xYbMw7a6RSieSaJBT7r2OAoa9pYZ5bNlMNj24SBxJEniQKGHc3Zc-QEjucpkb_CyJ7C_lUYkEHUe2RekRCiCf5cpdfMqsLRhJ5moggA/s3130/Vespasian%20(1).jpg" width="200">
+</p>
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjvwLJq_qm6wUPcu9rbi_x8aYUnfJ0BWuYROtV9FvUZ_f_LkITFbd67uS5vU7mh9pR7Oo1SxlRRcuZG7GDXtuT4xYbMw7a6RSieSaJBT7r2OAoa9pYZ5bNlMNj24SBxJEniQKGHc3Zc-QEjucpkb_CyJ7C_lUYkEHUe2RekRCiCf5cpdfMqsLRhJ5moggA/s320/Vespasian%20(1).jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjvwLJq_qm6wUPcu9rbi_x8aYUnfJ0BWuYROtV9FvUZ_f_LkITFbd67uS5vU7mh9pR7Oo1SxlRRcuZG7GDXtuT4xYbMw7a6RSieSaJBT7r2OAoa9pYZ5bNlMNj24SBxJEniQKGHc3Zc-QEjucpkb_CyJ7C_lUYkEHUe2RekRCiCf5cpdfMqsLRhJ5moggA/s3130/Vespasian%20(1).jpg)
+
 
   
 
-Fig. 1.7. Compare Vespasian's depiction to Herod Agrippa I
+<p align="center">
+Fig. 1.7. Compare Vespasian's depiction to Herod Agrippa I</p>
 
   
 
@@ -406,11 +424,15 @@ So, five emperors in a row were King Herod's grandsons or great-grandsons: Vitel
   
   
 
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgTVPKVkivFfMXq9MmCSCo-VUUt7i_a3lLYI1k4DLvRN2BqXjH1VlaXWpP-sSxgaLH2ri-BCZ82h9C9pp-J17X3RGfIWJLEiKf9NKj1emwmZgR_lxHEXSqAeITieZEr-e86v3Laf1hynvzbQhbYzW7dKrlElNTmJ4vNEFFiJRWuPrhYwWn6jWf3iR7y1ew/s320/Emperors.jpeg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgTVPKVkivFfMXq9MmCSCo-VUUt7i_a3lLYI1k4DLvRN2BqXjH1VlaXWpP-sSxgaLH2ri-BCZ82h9C9pp-J17X3RGfIWJLEiKf9NKj1emwmZgR_lxHEXSqAeITieZEr-e86v3Laf1hynvzbQhbYzW7dKrlElNTmJ4vNEFFiJRWuPrhYwWn6jWf3iR7y1ew/s2000/Emperors.jpeg)
+<p align="center">
+<img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgTVPKVkivFfMXq9MmCSCo-VUUt7i_a3lLYI1k4DLvRN2BqXjH1VlaXWpP-sSxgaLH2ri-BCZ82h9C9pp-J17X3RGfIWJLEiKf9NKj1emwmZgR_lxHEXSqAeITieZEr-e86v3Laf1hynvzbQhbYzW7dKrlElNTmJ4vNEFFiJRWuPrhYwWn6jWf3iR7y1ew/s2000/Emperors.jpeg" width="200">
+</p>
+
 
   
 
-Fig. 1.8. Note how the Roman emperor phenotype changes dramatically after Otho
+<p align="center">
+Fig. 1.8. Note how the Roman emperor phenotype changes dramatically after Otho</p>
 
   
 
@@ -418,12 +440,14 @@ Fig. 1.8. Note how the Roman emperor phenotype changes dramatically after Otho
 Every Roman Emperor from Hadrian (likely an acronym for Herodian (77)) onward descends from King Herod mainly through two jewish women: Arria the Younger and Cleopatra of Mauretania or Cleopatra IX ("Philo"), and by my count 37 Roman and Byzantine emperors bore the title "Flavius" and it's later Greek->Latin transliteration "Phlabios" ("Shabbos").
 
   
-
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEioe0Mg4gfE727jr229mkCGA8ZNU2mBvL-gO2H1MPve6NStmuU4pK2l5a2jkNny_CG_p4S84r5KDuEPYwpsnpFbcFcX_apZOCthvqmA-whOay_cFsUe2iPJ9RwbsF60eZiwt2Q7ZPm3QAv6zWUjkIgWRwkOKCBp3UgI4ZWvxjKBMRkUB20Wgkc6bVk6tbY/s320/constantineandfather.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEioe0Mg4gfE727jr229mkCGA8ZNU2mBvL-gO2H1MPve6NStmuU4pK2l5a2jkNny_CG_p4S84r5KDuEPYwpsnpFbcFcX_apZOCthvqmA-whOay_cFsUe2iPJ9RwbsF60eZiwt2Q7ZPm3QAv6zWUjkIgWRwkOKCBp3UgI4ZWvxjKBMRkUB20Wgkc6bVk6tbY/s1306/constantineandfather.jpg)
+<p align="center">
+<img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEioe0Mg4gfE727jr229mkCGA8ZNU2mBvL-gO2H1MPve6NStmuU4pK2l5a2jkNny_CG_p4S84r5KDuEPYwpsnpFbcFcX_apZOCthvqmA-whOay_cFsUe2iPJ9RwbsF60eZiwt2Q7ZPm3QAv6zWUjkIgWRwkOKCBp3UgI4ZWvxjKBMRkUB20Wgkc6bVk6tbY/s1306/constantineandfather.jpg" width="200">
+</p>
 
   
 
-Fig. 1.9. (L) Constantius Chlorus. The father of emperor Constantine (R) Emperor Flavius Constantine/Constantinus who carried the Flavian title.
+<p align="center">
+Fig. 1.9. (L) Constantius Chlorus. The father of emperor Constantine (R) Emperor Flavius Constantine/Constantinus who carried the Flavian title.</p>
 
   
 
