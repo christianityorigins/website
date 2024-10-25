@@ -16,26 +16,21 @@ _This eternal accusation against Christianity I shall write upon all walls, wher
 
 CONTENTS
 
-Preface  
-BOOK II. ON THE SLAVE MORALITY SYSTEM  
-Chapter 1. [The Christian System](https://www.christcuck.org/p/christianity-and-its-modern-secularized.html#purposeprogram)
-
-1.1. [Monotheism](https://www.christcuck.org/p/christianity-and-its-modern-secularized.html#monotheism)  
-1.2. [Universalism](https://www.christcuck.org/p/christianity-and-its-modern-secularized.html#universalism)  
-
-1.3. [Transvaluation of Values](https://www.christcuck.org/p/christianity-and-its-modern-secularized.html#transvaluation) 
-
-1.4. [Weaponizing the "Chandala" Castes](https://www.christcuck.org/p/christianity-and-its-modern-secularized.html#purpose)  
-1.5. [Slave Morality System](https://www.christcuck.org/p/christianity-and-its-modern-secularized.html#program)  
-Chapter 2. [Secularization of Christianity](https://www.christcuck.org/p/christianity-and-its-modern-secularized.html#secularized)  
-Chapter 3. [Marxism is Secularized Christianity](https://www.christcuck.org/p/christianity-and-its-modern-secularized.html#ideologies)  
-3.1. [Marxist Denominations](https://www.christcuck.org/p/christianity-and-its-modern-secularized.html#denominations)  
-3.2. [Secular Christian Tenets and Ethics](https://www.christcuck.org/p/christianity-and-its-modern-secularized.html#ethics)  
-Chapter 4. [Judaism Vs. Christianity: What do the Jews Believe?](https://www.christcuck.org/p/christianity-and-its-modern-secularized.html#jewsbelieve)  
-Chapter 5. [Conclusion](https://www.christcuck.org/p/christianity-and-its-modern-secularized.html#conclusion)  
-[Footnotes](https://www.christcuck.org/p/christianity-and-its-modern-secularized.html#footnotes)
-
-  
+Preface
+BOOK II. ON THE SLAVE MORALITY SYSTEM
+Chapter 1. The Christian System
+1.1. Monotheism
+1.2. Universalism
+1.3. Transvaluation of Values 
+1.4. Weaponizing the "Chandala" Castes
+1.5. Slave Morality System
+Chapter 2. Secularization of Christianity
+Chapter 3. Marxism is Secularized Christianity
+3.1. Marxist Denominations
+3.2. Secular Christian Tenets and Ethics
+Chapter 4. Judaism Vs. Christianity: What do the Jews Believe?
+Chapter 5. Conclusion
+Footnotes
 
 Preface
 
