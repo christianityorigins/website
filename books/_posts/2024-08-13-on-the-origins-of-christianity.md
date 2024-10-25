@@ -328,7 +328,7 @@ Alexander (son of King Herod) aka Juba II and Cleopatra Selene II had two promin
 *   Philo Judaeus of Alexandria ("Julius Philo", of the Julia gens (61), because she was the adopted granddaughter of Julius Caesar), which was an alias for King Herod's granddaughter (Salome III?) aka Cleopatra (Thea Philopator) of Mauretania aka Cleopatra IX aka Pythodorida Philometor aka Helene aka Drusilla of Mauretania aka Julia Ourania of Parthia aka Theophilus in the bible. She was also 'Pallas' (as in the ancient Greek goddess 'Pallas-Athena' who in mythology frequently disguised herself as a man) (62) who was Claudius and Nero's secretary, and 'Antonia Caenis' ('Caenis' was the Greek goddess who was transformed into a man), who was Vespasian's mistress (63)
 
   <p align="center">
-<img src="[https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhXdQKCoYWO_vFdleCS2PNk8fKAiucO2S8ZZxYWwvWReq1J_3WNuYw6zpjdHeew47-vKr2qE9H6f1MY9u6sI1qPzl3CaVa5FypEXMZXq-GpmO4ZPp-aerRkpxThRKzDtJaCrcbPiwFIO3nCnLT4G48wMB1fpDF94pur25UTey0xBpg9FkiUoMYEXh7ptU4/s1600/ptolemy-ix.jpg]
+<img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhXdQKCoYWO_vFdleCS2PNk8fKAiucO2S8ZZxYWwvWReq1J_3WNuYw6zpjdHeew47-vKr2qE9H6f1MY9u6sI1qPzl3CaVa5FypEXMZXq-GpmO4ZPp-aerRkpxThRKzDtJaCrcbPiwFIO3nCnLT4G48wMB1fpDF94pur25UTey0xBpg9FkiUoMYEXh7ptU4/s1600/ptolemy-ix.jpg" width="200">
 </p>  
 
 <p align="center">
