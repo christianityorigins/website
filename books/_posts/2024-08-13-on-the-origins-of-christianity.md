@@ -738,6 +738,7 @@ The jews were expelled at least three times from Rome after being accused of mis
 
 _Christianity Exposed_ (1843) by Bruno Bauer \[[link](https://play.google.com/store/books/details?id=mrP4MDmYNXkC&rdid=book-mrP4MDmYNXkC&rdot=1)\]  
 _Christ and the Caesars_ (1879) by Bruno Bauer \[[link](http://www.sidneyrigdon.com/vern/1879BaurEng.htm)\]  
+_History: Fiction or Science? Chronology volumes 1–7_ (2007-2024) by Anatoly Fomenko \[[link](https://archive.org/details/AnatolyFomenkoBooks/DatingPtolemysAlmagestByAnatolyFomenko/page/n3/mode/1up)\]
 _Cleopatra to Christ_ (2010) by Ralph Ellis \[[link](https://www.google.com/books/edition/Cleopatra_to_Christ/T7sqfHyWPuQC?hl=en&gbpv=1&dq=cleopatra+to+christ&printsec=frontcover)\] (_reveals that the biblical Jesus was based on King Izates of Adiabene who was directly descended from Cleopatra VII_)  
 _Jesus Among the Julio-Claudians_ (2017) by Charles N. Pope \[[link](https://books.google.se/books/about/Jesus_Among_the_Julio_Claudians.html?id=c7A3DwAAQBAJ&redir_esc=y)\]   
 _Creating Christianity: A Weapon Of Ancient Rome_ (2018) by Henry Davis \[[link](https://books.google.com/books/about/Creating_Christianity_A_Weapon_Of_Ancien.html?id=-M1VEAAAQBAJ)\] (_reveals that the Flavians were crypto-jewish descendants of King Herod_)  
