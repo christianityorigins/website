@@ -189,8 +189,6 @@ _"Since the second century BC, Egyptians, Greeks, and Romans had identified the 
 
 ### Chapter 3: The Origins of Zoroastrianism
 
-#### 
-
 Zoroaster was Baruch ben Neriah (12) who was a member of the priestly caste of jews in Babylonia who created Zoroastrianism as a slave morality system in order to subvert the people of the Iranian Plateau. The subversion was done as revenge on the Babylonians for the destruction of Solomon's Temple and the deportation of Jews (586 BC) and despite the last king of Babylon, Nabonidus, treating the jews well (13). Very shortly after its foundation in 550 BC the Persian Empire under Cyrus the Great aka Kurushi Kabir (Kurushi = "lord of the sun", "kabi = great) wiped the Babylonians out, and allowed the Jews to return to Canaan (539 BC). Jews were then allowed to build their Second Temple (Ezra 6:14), beginning Second Temple Judaism. Obviously, this happened due to the extreme influence of Zoroastrianism, a Jewish creation, which Cyrus promoted.
 
 All the troubling aspects of christianity originate in Zoroastrianism: monotheistic deity that judges you when you die, eternal hell, universalism, sin/salvation, confession of sins, self-deification to weaponize/empower the lowest castes. Zoroastrianism also has a religious commandment called 'Xwedodah' that commands Zoroastrians to marry and procreate with their siblings, with punishment for not doing so!
@@ -318,8 +316,7 @@ Simon's line of descent to focus on is through his grandson Alexander (son of Ki
 
   
 
- <p align="center">
-Fig 1.3. (L) Alexander (son of King Herod) aka Juba II. (R) Cleopatra Selene II aka Queen Thea Muse Ourania</p>
+ <p align="center">Fig 1.3. (L) Alexander (son of King Herod) aka Juba II. (R) Cleopatra Selene II aka Queen Thea Muse Ourania</p>
 
         
 
@@ -349,7 +346,7 @@ Fig. 1.4. (L) Alexander (grandson of King Herod) aka Gaius Julius Alexander, Her
 
 ### Chapter 9: The Origins of Christianity
 
-#### Christianity is a Gnostic sect that was retconned with the Roman myth of Quirinus aka Romulus (64) and the Divine Julius cult (65) and then targeted at Rome with Alexander (grandson of King Herod) elevated to the Romulus/Iulius figure (66).  
+Christianity is a Gnostic sect that was retconned with the Roman myth of Quirinus aka Romulus (64) and the Divine Julius cult (65) and then targeted at Rome with Alexander (grandson of King Herod) elevated to the Romulus/Iulius figure (66).  
 
   
 
