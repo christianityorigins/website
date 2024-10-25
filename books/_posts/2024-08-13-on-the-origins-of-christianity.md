@@ -329,11 +329,7 @@ Alexander (son of King Herod) aka Juba II and Cleopatra Selene II had two promin
 
   <p align="center">
 <img src="[https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhXdQKCoYWO_vFdleCS2PNk8fKAiucO2S8ZZxYWwvWReq1J_3WNuYw6zpjdHeew47-vKr2qE9H6f1MY9u6sI1qPzl3CaVa5FypEXMZXq-GpmO4ZPp-aerRkpxThRKzDtJaCrcbPiwFIO3nCnLT4G48wMB1fpDF94pur25UTey0xBpg9FkiUoMYEXh7ptU4/s1600/ptolemy-ix.jpg]
-</p>
-
-[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhnuogIGVjK2GcbSQnbDi5NQzRAo7k4Rv5e7tev5RJLRqYVo6-GglMLiK8BJmXdIZVNbzINyAfjbaHdg6jwVHaF6GgddSVAp3fYjFn_3boTsQ6ie-jPR7PhwmdhM79ts9AD7a80bo5Q1DQLRb94z-bgs6-gb4KZbRsY_y-EqVlFeQlmJ0dPHI50Q6IXkhY/s320/AlexanderPhilo.jpg)](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhnuogIGVjK2GcbSQnbDi5NQzRAo7k4Rv5e7tev5RJLRqYVo6-GglMLiK8BJmXdIZVNbzINyAfjbaHdg6jwVHaF6GgddSVAp3fYjFn_3boTsQ6ie-jPR7PhwmdhM79ts9AD7a80bo5Q1DQLRb94z-bgs6-gb4KZbRsY_y-EqVlFeQlmJ0dPHI50Q6IXkhY/s1296/AlexanderPhilo.jpg)
-
-  
+</p>  
 
 <p align="center">
 Fig. 1.4. (L) Alexander (grandson of King Herod) aka Gaius Julius Alexander, Herodian Prince of Judaea aka Alexander the Alabarch aka (King/Tetrarch) Ptolemy (Alexander) bar Menneus aka Ptolemy of Mauretania aka "Jesus" in the bible. (R) Cleopatra (Thea Philopator) of Mauretania aka Cleopatra IX aka Pythodorida Philometor aka Helene aka Drusilla of Mauretania aka Julia Ourania of Parthia aka "Philo of Alexandria".</p>
