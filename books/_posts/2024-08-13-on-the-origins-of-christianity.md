@@ -111,7 +111,7 @@ _The Secret Gospel of Mark_ \[[link](https://en.wikipedia.org/wiki/Secret_Gospel
 *After Julius Caesar's death he was deified through the Divine Julius cult. His adopted son Caesar Augustus then took on the name 'divi Iuli filius' ('son of the divine Julius') or simply 'divi filius' ('son of god'). It seems likely that Julius Caesar's other adopted sons of King Herod also took on this title. Also, King Herod's sons, especially his heir Alexander, would have carried the title 'king of the jews' or 'king of judea'.\
 *https://en.wikipedia.org/wiki/Letter\_to\_Flora (the Letter to Flora and the Tripartite Tractate write about a Gnostic teacher called "Ptolemy" who I identify as Ptolemy Menneus aka Simon Boethus aka Simon Magus).\
 *Kabbalists believe that Rabbi Akiba was a gilgul (reincarnation) of Zimri, a prince of the Tribe of Simeon who participated in the Heresy of Peor.\
-*Aristo of Pella, who is a good candidate for being Luke the Evangelist (Aristo is a Greek name that is similar to the Latin name Lucas), was another student of Rabbi Akiva and he was the secretary of  Mark, or Mahalia, first Gentile bishop of Jerusalem. So,  Mark, first Gentile bishop of Jerusalem was also Markianos of Alexandria aka Marcion of Sinope?
+*Aristo of Pella, who is a good candidate for being Luke the Evangelist (Aristo is a Greek name that is similar to the Latin name Lucas. Also, Marcion is known to have had a disciple named Lucanus, as documented by Tertullian), was another student of Rabbi Akiva and he was the secretary of  Mark, or Mahalia, first Gentile bishop of Jerusalem. So,  Mark, first Gentile bishop of Jerusalem was also Markianos of Alexandria aka Marcion of Sinope?
 
 Characters
 ----------
