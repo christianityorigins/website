@@ -14,7 +14,7 @@ There are only two things that you need to know to understand Polytheistic Ethni
 
 1\. Cosmology: the cosmology of the ancient polytheistic European religions is Dharmic (non-dogmatic). You could be a polytheist, pantheist, atheist (2) and still find value in tradition, rituals, and ancestor veneration. Some polytheistic religious followers see the polytheistic deities as sentient personal gods, others see them as symbolic personifications of natural forces (numen/animism) (3) and the cosmology is pantheism to them, others are atheists (4) who are attracted to tradition, ancestor veneration, and ancestry. Many atheistic Pagans are inspired by Carl Jung who combined psychoanalysis with Heathenry; the polytheistic deities = 'archetypes (5) of the collective unconscious (6)' to these Pagans.
 
-2\. Rituals: rituals serve as a means to connect with deeper truths about existence. In the case of the Eleusinian Mysteries (9), the rituals were believed to provide initiates with profound insights into the nature of reality, the cycle of life and death, and the interconnectedness of all things. They also served important social functions, such as reinforcing community bonds, resolving conflicts, and marking life transitions (see: the Olympic Games and the festival of Dionysus). To secular Pagans who are inspired by Carl Jung, rituals are ways of inducing 'active imagination' (7) or a part of the process of 'individuation' (8)
+2\. Rituals: rituals serve as a means to connect with deeper truths about existence. In the case of the Eleusinian Mysteries (7), the rituals were believed to provide initiates with profound insights into the nature of reality, the cycle of life and death, and the interconnectedness of all things. They also served important social functions, such as reinforcing community bonds, resolving conflicts, and marking life transitions (see: the Olympic Games and the festival of Dionysus). To secular Pagans who are inspired by Carl Jung, rituals are ways of inducing 'active imagination' (8) or a part of the process of 'individuation' (9)
 
 You can learn more about your specific "Pagan" traditions and rituals here: \[[link](https://ecer-org.eu/organisations/)\] and here: \[[link](https://salonvert.eu)\]
 
@@ -26,9 +26,10 @@ Footnotes:
 4\. https://en.wikipedia.org/wiki/Secular\_paganism \[[link](https://en.wikipedia.org/wiki/Secular_paganism)\]\
 5\. https://en.wikipedia.org/wiki/Jungian\_archetypes \[[link](https://en.wikipedia.org/wiki/Jungian_archetypes)\]  \
 6\. https://en.wikipedia.org/wiki/Collective\_unconscious \[[link](https://en.wikipedia.org/wiki/Collective_unconscious)\]\
-7\. https://en.wikipedia.org/wiki/Active\_imagination#Carl\_Gustav\_Jung \[[link]\(https://en.wikipedia.org/wiki/Active_imagination#Carl_Gustav_Jung)\]  
-8\. https://en.wikipedia.org/wiki/Individuation#In\_Jungian\_psychology \[[link](https://en.wikipedia.org/wiki/Individuation#In_Jungian_psychology)\]\
-9\. https://en.wikipedia.org/wiki/Eleusinian\_Mysteries \[[link](https://en.wikipedia.org/wiki/Eleusinian_Mysteries)\]
+7\. https://en.wikipedia.org/wiki/Eleusinian\_Mysteries \[[link](https://en.wikipedia.org/wiki/Eleusinian_Mysteries)\]
+8\. https://en.wikipedia.org/wiki/Active\_imagination#Carl\_Gustav\_Jung \[[link]\(https://en.wikipedia.org/wiki/Active_imagination#Carl_Gustav_Jung)\]  
+9\. https://en.wikipedia.org/wiki/Individuation#In\_Jungian\_psychology \[[link](https://en.wikipedia.org/wiki/Individuation#In_Jungian_psychology)\]\
+
 
   
 Read more:  
