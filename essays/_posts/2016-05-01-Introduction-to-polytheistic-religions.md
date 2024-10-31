@@ -1,13 +1,11 @@
 ---
 layout: post
 open_links_in_new_tab: true
-title:  "Introduction to Ethnic Faith Religions"
+title:  "Introduction to Polytheistic Ethnic European ("Pagan") Religions"
 date:   2016-05-01 09:00:00 +0200
 updated: 2018-11-23 21:40:58 +0100
 category: essays
 ---
-
-[https://en.wikipedia.org/wiki/List_of_ethnic_religions [<a href="https://en.wikipedia.org/wiki/List_of_ethnic_religions" rel="nofollow" target="_blank">link</a>]<br /><a href="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhONWOUcgtcxxIk2FgeJGfwqoIoE3YI707mNDC2Cg6IafQitC8IL6TqN5wVu9vc93vJAKeecFALchR1e1ni9jrXtw9NaClOmmQOzQ8Zk2x9WOBJdytvFi9Hv5Cy0v0A_V1_tdRyAqyDEwG4PphV6jFPxArBFvx5j40GfMIyIVdCWERDOKcrUydEsf2EAhQ/s4285/religions.png" style="margin-left: 1em; margin-right: 1em;"><img border="0" data-original-height="4285" data-original-width="3942" height="320" src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhONWOUcgtcxxIk2FgeJGfwqoIoE3YI707mNDC2Cg6IafQitC8IL6TqN5wVu9vc93vJAKeecFALchR1e1ni9jrXtw9NaClOmmQOzQ8Zk2x9WOBJdytvFi9Hv5Cy0v0A_V1_tdRyAqyDEwG4PphV6jFPxArBFvx5j40GfMIyIVdCWERDOKcrUydEsf2EAhQ/s320/religions.png" width="294" /></a><br /><br>   
 
 Polytheistic Ethnic European ("Pagan") Religions
 
