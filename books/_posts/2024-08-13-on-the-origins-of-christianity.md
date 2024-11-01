@@ -280,10 +280,10 @@ According to the Letter of Aristeas (30) Ptolemy I Soter summoned 72 Babylonian 
   
 
 In the book The Antiquities of the Jews by Josephus, Book XX, Chapter 10 (32) he writes that Onias I was the leader of the Babylonian jews who went to Egypt. Onias I was the heir of the Zadokite (High Priest) dynasty that traces back to Joshua the High Priest. Baruch ben Neriah was the scribe for Joshua and in the Old Latin Version of the Apocryphal Book of Baruch (i. 1) it says that Baruch was of the tribe of Simeon (same as Onias I). These Babylonian jews settled in an area of Egypt that they called the 'Land of Onias' (33) where they created a sacrifice cult at the 'Temple of Onias' (34). Josephus also writes that Onias I was a friend of Alexander the Great (Antiquities, Book. 8, section 7) and later Ptolemaic kings (Antiquities, Book. 13, section 69) and it was through this connection that this family not only were able to acquire land and protection but eventually became aristocrats who married into the Ptolemaic dynasty (Onias I was also the jewish high priest who tried to convince the Spartan king Areus I that the Spartans were jews and promoted an Abrahamic-Herculean syncretic religion to them (35)).  
- 
+
 
 The son of Onias I, Simeon the Righteous (aka Simeon the Just aka Shimon HaTzaddik --  HaTzaddik ("the righteous one") obviously comes from Zadok ("righteous")), was the Kohen Gadol (High Priest) of Israel and one of the last remnants of the Men of the Great Assembly (36). The Talmud (Yoma 69a) claims that Alexander the Great "prostrated himself at the feet of Simeon the Righteous". Then, to flatter Alexander, Simon the Righteous named every son of jewish priests (kohanim) born that year Alexander (37). Also, like Cyrus the Great, Alexander the Great was declared a messiah, or "The Anointed One" (Chréstos/Soter) (Josephus. Antiquities, XI. 8. Talmud, Yoma 67b) because he "liberated" the jews from the Persians.  
- 
+
 
 The son of Simeon the Righteous was Onias III, who was also an "Anointed One" as prince according to Daniel Ch 9:25. Onias III was probably also the Qumran Teacher of Righteousness in the Dead Sea Scrolls.  
   
@@ -370,7 +370,7 @@ Christianity was one branch of the slave morality that originates with the Zoroa
 
   
 
-9.1 The Role of the Boethians and Herodians in Rome
+#### 9.1 The Role of the Boethians and Herodians in Rome ####
 
 Julius Caesar and Emperor Augustus adopted members of many royal families and got them to intermarry so that their countries would be easier to control through proxy, but King Herod's father Antipater the Idumaean apparently provided troops for Julius Caesar and helped him during the Battle of the Nile (47 BC) (68) and because of this Antipater the Idumean's descendants were given an elevated position even within Rome. They were raised in the same household as Caesar Augustus (69) and even became emperors.  
   
@@ -454,21 +454,20 @@ The origins of Christianity become clear when you realize that the Herodians, Al
 **9.2. Alexandria, Egypt. 1st Century**
 
 Emperor Caligula and his Prefect of Roman Egypt, Aulus Avilius Flaccus (the real-life Pontius Pilate) (80), most likely became aware sometime around the Alexandrian Riots in 38CE that jews in Alexandria, in conjunction with the Alexandrian School, were trying to usurp the Romans through a revolution that weaponized the slaves and lowest classes. He then killed Alexander (son of King Herod) aka Juba II and imprisoned his son Alexander (grandson of King Herod). This led to Philo's embassy to Rome in 40CE (81). This family then used their connections in Rome and money to bribe the Praetorian Guard to kill Caligula as revenge. Both of Alexander's (grandson of King Herod) sons were directly involved in Caligula's assassination and Tiberius Julius Alexander immediately became the Prefect (leader) of the Praetorian Guard after Caligula's death and eventually succeeded Aulus Avilius Flaccus as the Prefect of Roman Egypt. This group achieved their coup when Vespasian became emperor.  
-        A stylometric and textual analysis can trace the earliest (82) Koine Greek written (83) New Testament epistles back to the Alexandrian School in Egypt and Philo of Alexandria and Josephus, but the actual conspiracy to use a slave morality religion to destroy civilizations traces back to a group of jewish high priests in Babylon and their slave morality system successfully took down the mighty civilizations and races of Babylon, Persia, Egypt, India, Rome, and eventually, all of Europe.  
+
+A stylometric and textual analysis can trace the earliest (82) Koine Greek written (83) New Testament epistles back to the Alexandrian School in Egypt and Philo of Alexandria and Josephus, but the actual conspiracy to use a slave morality religion to destroy civilizations traces back to a group of jewish high priests in Babylon and their slave morality system successfully took down the mighty civilizations and races of Babylon, Persia, Egypt, India, Rome, and eventually, all of Europe.  
   
 \*Note on Vespasian's rise to power. Alexander (grandson of King Herod) and his son Tiberius Julius Alexander were personally responsible for the overthrow of Caligula \[link\], Nero, Galba, Otho, and they paved the way for Vespasian’s accession as the founder of the Flavian dynasty. Alexander's (grandson of King Herod) sons were directly involved in Caligula's assassination and Tiberius Julius Alexander immediately became the Prefect (leader) of the Praetorian Guard after Caligula's death. Before his death Nero is quoted as saying that followers of Chretus started the Great Fire of Rome (64 AD) (Tacitus, Annals XV. 44). The burning of Rome was part of the coup to install the crypto-jewish Flavian family into power. Vespasian, going by the alias 'Flavius Scaevinus', was directly involved in this conspiracy to overthrow Nero and burn Rome. Also, in July 69 CE Alexander (grandson of King Herod) and his son Tiberius Julius Alexander declared their allegiance to Vespasian and persuaded their legions to follow him. This was a crucial move that gave Vespasian a strong base of support in the eastern part of the empire. Tiberius Julius Alexander also sent money and troops to Vespasian’s allies in Italy and Africa and helped to secure the loyalty of other provinces and governors. Essentially, they used social engineering, bribery, and a slave morality religion to overthrow Rome, then, like in Egypt under the Hyksos and Babylonia and Persia under Cyrus the Great, they flooded Rome with foreigners to destroy group cohesion and cause tribal conflict with them ruling over the chaos.
 \*Tiberius Julius Alexander aka Josephus aka Emperor Nerva was the Prefect (Governor) of Egypt from 56 to 59 under the name Tiberius Claudius Balbilus and then from 66-69 as Tiberius Julius Alexander. This places him in Alexandria at the same time as his parents Alexander (son of King Herod) and Cleopatra of Mauritania ("Philo"). Was he the one responsible for burning down the Library of Alexandria and erasing all recorded history up until that point?
 
 \*Charlemagne descends from King Herod \[[link](https://web.archive.org/web/20231021005222/https://soc.genealogy.medieval.narkive.com/APC4dBQP/herod-and-cleopatra-to-charlemagne-dfa)\] and every royal house in Europe descends from King Herod through Charlemagne, the House of Este \[[link](https://en.wikipedia.org/wiki/House_of_Este)\], and William of Orange/Guillaume de Gellone/William of Septimania. Read more: \[[link](https://en.wikipedia.org/wiki/A_Jewish_Princedom_in_Feudal_France)\] \[[link](https://nationalvanguard.org/2020/05/charlemagne-defender-of-the-west-or-servant-of-the-jews/)\]. Feudalism was invented simultaneously as institutional Christianity. Both by Constantine, one to enforce the other and vice versa, and this system was overseen by a 'Court Jew' \[[link](https://en.wikipedia.org/wiki/Court_Jew)\]. Because christianity banned money lending for Christians it allowed the jews to create monopolies in finance and become even richer than kings \[[link](https://en.wikipedia.org/wiki/Aaron_of_Lincoln)\].  
   
-**APPENDICES  
-**  
-**Appendix A  
-**  
+**APPENDICES**  
+
+**Appendix A**  
 How did christianity spread? Vespasian and his sons Titus and Domitian brought 100,000 jewish "slaves" to Rome (Josephus, Jewish War vi, 9) (84). It seems likely that the 100,000 jewish "slaves" joined the jews that were already in Rome and they became the early church missionaries and profited from selling this religion to the slaves and exploited classes.  
   
-**Appendix B  
-**  
+**Appendix B**  
 The jews were expelled at least three times from Rome after being accused of missionary efforts/co-opting Roman religions and making them jewish (85). In 139 BC they were expelled by Gnaeus Cornelius Hispanus for "corrupting the cult of "Jupiter Sabazius". They were then expelled in 19 AD by Tiberius, and in 41 AD by Claudius. Claudius in his letter of warning to the Jews in Egypt (preserved in a papyrus in the British Museum, P. Lond. 1912) described them as "the fomenters of a universal plague.".
 
   
