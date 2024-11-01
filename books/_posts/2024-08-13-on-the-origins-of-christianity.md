@@ -55,8 +55,11 @@ Preface
 
 Imperial Cult
 
-Alexander the Great created the Ptolemaic Cult of Alexander to deify himself and justify his rule over his subjects. The practice of deifying leaders to maintain social order amongst a population was advised by Plato in The Repbulic as the "Noble Lie" and Alexander was tutored by Aristotle. Alexander's 'Diadochi' (successors) heirs and the Roman aristocracy copied this custom. Religious syncretism is how they ruled over the people they conquered and this was their soft-power control system. These elites used religion and an incredible amount of aliases, locations, fictional stories, and faked deaths for their family members to control the population. They role-played as deities, religious figures, and different characters as if they were actors in plays. The Jesus Christ (of Nazareth) is a literary creation that these elites created which incorporated elements of various historical and mythological figures to appeal to a wide audience. This character then became an avatar for several historical figures in an imperial cult.
+Alexander the Great created the Ptolemaic Cult of Alexander to deify himself and justify his rule over his subjects. The practice of deifying leaders to maintain social order amongst a population was advised by Plato in The Republic as the "Noble Lie," and Alexander was tutored by Aristotle. Alexander's 'Diadochi' (successors) and the Roman aristocracy later copied this custom.
 
+Religious syncretism was a social engineering tool designed to turn people into agents or pawns of the ruling class, serving as a soft-power control system for the imperial elite. These elites used religion, as well as an incredible number of aliases, locations, fictional stories, and faked deaths for their family members, to control the population. They role-played as deities, religious figures, and different characters, as if they were actors in plays.
+
+The figure of Jesus Christ (of Nazareth) is a literary creation of these elites, incorporating elements of various historical and mythological figures to appeal to a wide audience. This character then became an avatar for several historical figures in an imperial cult.
   
 
 Here are several related people who were avatars for the composite Jesus character:
