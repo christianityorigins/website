@@ -47,14 +47,15 @@ https://journals.plos.org/plosone/article?id=10.1371/journal.pone.0183015 (study
 
 https://www.cato.org/public-opinion-brief/religious-trump-voters-how-faith-moderates-attitudes-about-immigration-race
 
-1\. There's a theory that supports the "autistic brain" (as of the extreme male brain theory) is a brain with a tendency to be undomesticated or "failed domestication" [[link](https://www.psychologytoday.com/gb/blog/the-imprinted-brain/201608/autism-and-domestication-syndrome-in-humans)\]. Undomesticated people are socialized to a lesser degree therefore fall less for propaganda. Schizophrenia is the reverse of this and is a form of hyper-domestication syndrome [[link](https://www.psychologytoday.com/us/blog/the-imprinted-brain/201609/schizophrenics-hyper-domesticated-humans)]
+1\. There's a theory that supports the "autistic brain" (as of the extreme male brain theory) is a brain with a tendency to be undomesticated or "failed domestication" [[link](https://www.psychologytoday.com/gb/blog/the-imprinted-brain/201608/autism-and-domestication-syndrome-in-humans)\]. Undomesticated people are socialized to a lesser degree therefore fall less for propaganda. Schizophrenia is the opposite of this and is a form of hyper-domestication syndrome [[link](https://www.psychologytoday.com/us/blog/the-imprinted-brain/201609/schizophrenics-hyper-domesticated-humans)]\
 \--People who identify as conservative have a larger amygdala \[[link](https://phys.org/news/2024-09-political-ideology-differences-brain-previously.html)\]  
 \--Anthropologists who look at ancient cities throughout history have found that as soon as a city pops up a populations skull size decreases substantially, most likely due to self domestication.\
 \--The pinnacle of domesticated human form would come close to the amerimutt creature \[[link](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjc4F0NnadR_YuHiOU08n_hCe1fJW_1VEJEfbOQr35nGkN-hAIlj_ADuXrqyD5uFiw-oVPnIZ1UwBuKBPG394aJewjSyL-HzqVIJW4YuLJdiXlQXLGklA6Ju9-fXDE4CkH9HQoF2v7zpQW1ELfKpDPPmaH_zwIhI-sVUreaRY5Tap8TStyHbZjw-X3GzII/s3840/amerimutt.jpg)\] \[[link](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgr2HTRTpxoltR8A4wchBUj7nCeQ2xC_pLATRw9KPQVOTwK9hRjDAfTK3jlkLKWZori0BzPu3ADTRwNakkHp_FWPklDqAT8oo2wiCs7Wubw4uLsWytM5eSwrftdSrtoFtJHMIF4ykO2h0_oyTg2PsoBiDLp4BA1nyYC3p5CzXOP3jchMM_24pDxq0fHR_M/s4044/amerimutt2.jpg)\]  
-2\. It is important to note that feudalism was invented simultaneously as institutional Christianity. Both by Constantine, one to enforce the other and vice versa. For 2000 years, Europeans have lived, and evolved, within this domestication system.
+2\. It is important to note that feudalism was invented simultaneously as institutional Christianity. Both by Constantine, one to enforce the other and vice versa. For 2000 years, Europeans have lived, and evolved, within this domestication system.\
+--On a related note, many people complain about jewish influence in the west, which is considerable [[link](https://en.metapedia.org/wiki/Jewish_influence)]. However, no one ever talks about the root cause of this, which is that white domestication syndrome turned the majority of the population into cattle. Jewish group strategy (ingroup preference/ethnocentrisim) plays off of this. How did this happen? By design. The jews at the Alexandrian School in Egypt struck gold when they invented judaism for their ingroup and christianity for the outgroup.
 
 Read more
 
-https://en.wikipedia.org/wiki/R/K_selection_theory
-https://en.wikipedia.org/wiki/Ressentiment
-https://en.metapedia.org/wiki/The\_Revolt\_Against\_Civilization:\_The\_Menace\_of\_the\_Under-Man
+https://en.wikipedia.org/wiki/R/K_selection_theory \
+https://en.wikipedia.org/wiki/Ressentiment \
+https://en.metapedia.org/wiki/The_Revolt_Against_Civilization:_The_Menace_of_the_Under-Man
