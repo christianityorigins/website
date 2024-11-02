@@ -12,7 +12,7 @@ Quick introduction: "Pagan" (Latin: pāgānus, 'rural') was supposed to be a slu
 
 There are only two things that you need to know to understand Polytheistic Ethnic European Religions:
 
-1\. Cosmology: the cosmology of the ancient polytheistic European religions is Dharmic (non-dogmatic). You could be a polytheist, pantheist, atheist (2) and still find value in tradition, rituals, and ancestor veneration. Some polytheistic religious followers see the polytheistic deities as sentient personal gods, others see them as symbolic personifications of natural forces (numen/animism) (3) and the cosmology is pantheism to them, others are atheists (4) who are attracted to tradition, ancestor veneration, and ancestry. Many atheistic Pagans are inspired by Carl Jung who combined psychoanalysis with Heathenry; the polytheistic deities = 'archetypes (5) of the collective unconscious (6)' to these Pagans.
+1\. Cosmology: the cosmology of the ancient polytheistic European religions is Dharmic (non-dogmatic). You could be a polytheist, pantheist, atheist (2) and still find value in tradition, rituals, and ancestor veneration. Some polytheistic religious followers see the polytheistic deities as sentient personal gods, others see them as symbolic representations of natural forces (numen/animism) (3) and the cosmology is pantheism to them, others are atheists (4) who are attracted to tradition, ancestor veneration, and ancestry. Many atheistic Pagans are inspired by Carl Jung who combined psychoanalysis with Heathenry; the polytheistic deities = 'archetypes (5) of the collective unconscious (6)' to these Pagans.
 
 2\. Rituals: rituals serve as a means to connect with deeper truths about existence. In the case of the Eleusinian Mysteries (7), the rituals were believed to provide initiates with profound insights into the nature of reality, the cycle of life and death, and the interconnectedness of all things. They also served important social functions, such as reinforcing community bonds, resolving conflicts, and marking life transitions (see: the Olympic Games and the festival of Dionysus). To secular Pagans who are inspired by Carl Jung, rituals are ways of inducing 'active imagination' (8) or a part of the process of 'individuation' (9)
 
@@ -34,6 +34,7 @@ Footnotes:
   
 Read more:  
   
-https://en.wikipedia.org/wiki/List\_of\_modern\_pagan\_movements \[[link](https://en.wikipedia.org/wiki/List_of_modern_pagan_movements)\]  
-https://en.wikipedia.org/wiki/Category:Modern\_paganism\_in\_Europe \[[link](https://en.wikipedia.org/wiki/Category:Modern_paganism_in_Europe)\]  
-https://www.youtube.com/watch?v=\_c7zzZeT-ws \[[link](https://www.youtube.com/watch?v=_c7zzZeT-ws)\])
+https://en.wikipedia.org/wiki/Category:Modern_paganism_in_Europe \[[link](https://en.wikipedia.org/wiki/Category:Modern_paganism_in_Europe)\]  
+https://en.wikipedia.org/wiki/Jungian_interpretation_of_religion \[[link](https://en.wikipedia.org/wiki/Jungian_interpretation_of_religion
+)\]  
+https://www.youtube.com/watch?v=_c7zzZeT-ws \[[link](https://www.youtube.com/watch?v=_c7zzZeT-ws)\])
