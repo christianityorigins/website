@@ -15,7 +15,7 @@ Behavioral:
 
 *   Low in-group preference or sense of tribalism ([ref](https://www.sciencedirect.com/science/article/pii/S0376635723000888))
 *   As part of the system of self-domestication animals begin self-policing group members to enforce the norms of the group and deter other members from behaving in ways that could disrupt the social order. Ex. dogs are often seen growling at or barking at other dogs who they see as behaving inappropriately.
-*   No sense of self-agency, independence, and follows orders ([ref](https://link.springer.com/article/10.1007/s40656-020-00315-0))
+*   No sense of self-agency, independence, and follows orders (once domesticated, being part of the herd becomes more important than being right.) ([ref](https://link.springer.com/article/10.1007/s40656-020-00315-0))
 *   Less threat reactivity
 *   Poor maternal instincts ([ref](https://www.ncbi.nlm.nih.gov/pmc/articles/PMC5857534/))
 
@@ -47,7 +47,7 @@ https://journals.plos.org/plosone/article?id=10.1371/journal.pone.0183015 (study
 
 https://www.cato.org/public-opinion-brief/religious-trump-voters-how-faith-moderates-attitudes-about-immigration-race
 
-1\. There's a theory that supports the "autistic brain" (as of the extreme male brain theory) is a brain with a tendency to be undomesticated or "failed domestication", undomesticated people are socialized to a lesser degree therefore fall less for propaganda.  
+1\. There's a theory that supports the "autistic brain" (as of the extreme male brain theory) is a brain with a tendency to be undomesticated or "failed domestication" [[link](https://www.psychologytoday.com/gb/blog/the-imprinted-brain/201608/autism-and-domestication-syndrome-in-humans)\]. Undomesticated people are socialized to a lesser degree therefore fall less for propaganda.  
 \--People who identify as conservative have a larger amygdala \[[link](https://phys.org/news/2024-09-political-ideology-differences-brain-previously.html)\]  
 \--Anthropologists who look at ancient cities throughout history have found that as soon as a city pops up a populations skull size decreases substantially, most likely due to self domestication.\
 \--The pinnacle of domesticated human form would come close to the amerimutt creature \[[link](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjc4F0NnadR_YuHiOU08n_hCe1fJW_1VEJEfbOQr35nGkN-hAIlj_ADuXrqyD5uFiw-oVPnIZ1UwBuKBPG394aJewjSyL-HzqVIJW4YuLJdiXlQXLGklA6Ju9-fXDE4CkH9HQoF2v7zpQW1ELfKpDPPmaH_zwIhI-sVUreaRY5Tap8TStyHbZjw-X3GzII/s3840/amerimutt.jpg)\] \[[link](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgr2HTRTpxoltR8A4wchBUj7nCeQ2xC_pLATRw9KPQVOTwK9hRjDAfTK3jlkLKWZori0BzPu3ADTRwNakkHp_FWPklDqAT8oo2wiCs7Wubw4uLsWytM5eSwrftdSrtoFtJHMIF4ykO2h0_oyTg2PsoBiDLp4BA1nyYC3p5CzXOP3jchMM_24pDxq0fHR_M/s4044/amerimutt2.jpg)\]  
@@ -55,6 +55,6 @@ https://www.cato.org/public-opinion-brief/religious-trump-voters-how-faith-moder
 
 Read more
 
+https://en.wikipedia.org/wiki/R/K_selection_theory
 https://en.wikipedia.org/wiki/Ressentiment
-
 https://en.metapedia.org/wiki/The\_Revolt\_Against\_Civilization:\_The\_Menace\_of\_the\_Under-Man
