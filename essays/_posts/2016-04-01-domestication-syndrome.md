@@ -24,6 +24,7 @@ Phenotype:
 *   Neoteny ([ref](https://www.ncbi.nlm.nih.gov/pmc/articles/PMC4096361/)) ([ref](https://www.ncbi.nlm.nih.gov/pmc/articles/PMC5646786/)) ([ref](https://incels.wiki/w/Neoteny)) and feminization ([ref](https://incels.wiki/w/Feminization)) in males
 *   Brachycephaly (short and round skulls which leads to a reduction of the back of the brain and a smaller amygdala (1))
 *   Weak jaws
+*   'Prey eyes' as opposed to 'hunter eyes' [[link](https://incels.wiki/w/Hunter_eyes)\]
 *   Low muscle mass in males
 *   Poor eyesight ([ref](https://books.google.ca/books?id=hEy4AAAAIAAJ&redir_esc=y))
 *   Incompletely developed neural crest which leads to craniofacial abnormalities, neurological problems, lower intelligence, vision problems ([ref](https://pmc.ncbi.nlm.nih.gov/articles/PMC8633094/)) ([ref](https://www.sciencedaily.com/releases/2014/07/140714100122.htm/))
