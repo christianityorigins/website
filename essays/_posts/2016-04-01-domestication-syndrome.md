@@ -15,7 +15,7 @@ Behavioral:
 
 *   Low in-group preference or sense of tribalism ([ref](https://www.sciencedirect.com/science/article/pii/S0376635723000888))
 *   As part of the system of self-domestication animals begin self-policing group members to enforce the norms of the group and deter other members from behaving in ways that could disrupt the social order. Ex. dogs are often seen growling at or barking at other dogs who they see as behaving inappropriately.
-*   No sense of self-agency, independence, and follows orders (once domesticated, being part of the herd becomes more important than being right.) ([ref](https://link.springer.com/article/10.1007/s40656-020-00315-0))
+*   No sense of self-agency, independence, and follows orders (once domesticated, being part of the herd becomes more important than being right) ([ref](https://link.springer.com/article/10.1007/s40656-020-00315-0))
 *   Less threat reactivity
 *   Poor maternal instincts ([ref](https://www.ncbi.nlm.nih.gov/pmc/articles/PMC5857534/))
 
@@ -57,4 +57,5 @@ Read more
 
 https://en.wikipedia.org/wiki/R/K_selection_theory \
 https://en.wikipedia.org/wiki/Ressentiment \
-https://en.metapedia.org/wiki/The_Revolt_Against_Civilization:_The_Menace_of_the_Under-Man
+https://en.metapedia.org/wiki/The_Revolt_Against_Civilization:_The_Menace_of_the_Under-Man \
+https://www.psychologicalscience.org/news/releases/facial-structure-may-predict-endorsement-of-racial-prejudice.html
