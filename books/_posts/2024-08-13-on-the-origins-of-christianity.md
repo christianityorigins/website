@@ -116,7 +116,7 @@ Rabbi Akiva's other students included Markianos of Alexandria aka Marcion of Sin
 *After Julius Caesar's death he was deified through the Divine Julius cult. His adopted son Caesar Augustus then took on the name 'divi Iuli filius' ('son of the divine Julius') or simply 'divi filius' ('son of god'). It seems likely that Julius Caesar's other adopted sons of King Herod also took on this title. Also, King Herod's sons, especially his heir Alexander, would have carried the title 'king of the jews' or 'king of judea'.\
 *https://en.wikipedia.org/wiki/Letter\_to\_Flora (the Letter to Flora and the Tripartite Tractate write about a Gnostic teacher called "Ptolemy" who I identify as Ptolemy Menneus aka Simon Boethus aka Simon Magus).\
 *Kabbalists believe that Rabbi Akiba was a gilgul (reincarnation) of Zimri, a prince of the Tribe of Simeon who participated in the Heresy of Peor. \
-*The Syllabine Oracles served as a Prisca Theologia, or styleguide, for the Alexandrian School scribes when they created new religions; Orphism, Neoplatonism, Neopythagoreanism, Valentinianism, Mandaeism, Buddhism, Hermeticism, Gnosticism, Imperial Cults, Christianity, etc., and this is why they all share similar themes. One w
+*The Syllabine Oracles served as a Prisca Theologia, or styleguide, for the Alexandrian School scribes when they created new religions; Orphism, Neoplatonism, Neopythagoreanism, Valentinianism, Mandaeism, Buddhism, Hermeticism, Gnosticism, Imperial Cults, Christianity, etc., and this is why they all share similar themes.
 
 Characters
 ----------
