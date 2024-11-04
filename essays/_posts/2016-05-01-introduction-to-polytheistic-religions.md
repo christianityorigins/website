@@ -1,10 +1,16 @@
 ---
 layout: post
 open_links_in_new_tab: true
-title:  "Introduction to Polytheistic Ethnic European (Pagan) Religions"
+title:  "Introduction to Ethnic Faith Religions"
 date:   2016-05-01 09:00:00 +0200
 category: essays
 ---
+
+https://en.wikipedia.org/wiki/List_of_ethnic_religions
+
+<p align="center">
+<img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhqL3BzkAtJe0hCPUwMAD11WcH7BSqZRxvm1oKPW1IXtqvnalfANcpF3VW6934IsALRusB0j6jIiiNlLvGPGhlfo1sM0baVLD4ApV9PRdlMd5hQJm9F9s4HlJK7vVgQPDmm1VqG1e3eEZ2hcZ0bPnaObvwosjKFxOvKeoP6Q69f5Pz-Qs1VInFdyIdMdT8/s4285/religions.png" width="200">
+</p>
 
 Polytheistic Ethnic European ("Pagan") Religions
 
