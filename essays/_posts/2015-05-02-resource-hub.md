@@ -36,7 +36,6 @@ Underwater Cities |
 ### Indigenous Rights:
 <a href="http://www.survival-international.org/" target="_blank" rel="nofollow">Survival International</a> | 
 <a href="http://www.pechanga.net/category/primary-category/native-news" target="_blank" rel="nofollow">Pechanga World Indigenous News</a> | 
-<a href="http://heninen.net/seid/english.htm" target="_blank" rel="nofollow">Saami Sacred Stones in Karelia</a> | 
 <a href="http://www.indiancountry.com/" target="_blank" rel="nofollow">Indian Country Today</a> | 
 <a href="http://www.fsd.nl/csvpa" target="_blank" rel="nofollow">IUCN Specialist Group on Cultural and Spiritual Values of Protected Areas</a> | 
 <a href="https://mohawknationnews.com/blog/" target="_blank" rel="nofollow">Mohawk Nation News</a> | 
