@@ -19,6 +19,7 @@ I'm interested in independent and vintage media, heterodox ideas.
 <a href="https://archive.org/details/oldtimeradio" target="_blank" rel="nofollow">Old Time Radio Broadcasts</a>
 
 ### Vintage Newspapers and Magazines:
+<a href="https://en.wikipedia.org/wiki/List_of_18th-century_British_periodicals" target="_blank" rel="nofollow">18th-century British Periodicals</a> | 
 <a href="https://www.victorianresearch.org/openaccessperiodicals.html" target="_blank" rel="nofollow">19th-century British Periodicals</a> | 
 <a href="https://en.wikipedia.org/wiki/List_of_19th-century_British_periodicals" target="_blank" rel="nofollow">List of 19th-century British Periodicals</a> | 
 <a href="https://books.google.ca/books/about/LIFE.html?id=N0EEAAAAMBAJ&redir_esc=y" target="_blank" rel="nofollow">LIFE Magazine</a>
@@ -48,6 +49,7 @@ Underwater Cities |
 ### General:
 <a href="https://offgridworld.com" target="_blank" rel="nofollow">Off Grid World</a>
 
-### WWII Data:
+### WWII Data:Bombing of Dresden in World War II
+<a href="https://en.metapedia.org/wiki/Bombing_of_Dresden_in_World_War_II" target="_blank" rel="nofollow">Bombing of Dresden in World War II</a> |
 <a href="http://www.ihr.org/jhr/v10/v10p161_Brech.html" target="_blank" rel="nofollow">A US Soldier Remembers Eisenhower's Monstrous Genocide</a> | 
 <a href="http://library.flawlesslogic.com/ike.htm" target="_blank" rel="nofollow">Eisenhower's Starvation Order And Genocide</a>
