@@ -25,7 +25,7 @@ I'm interested in independent and vintage media, heterodox ideas.
 <a href="https://www.victorianresearch.org/openaccessperiodicals.html" target="_blank" rel="nofollow">19th-century British Periodicals</a> | 
 <a href="https://en.wikipedia.org/wiki/List_of_19th-century_British_periodicals" target="_blank" rel="nofollow">List of 19th-century British Periodicals</a> | 
 <a href="https://archive.org/details/pub_national-police-gazette" target="_blank" rel="nofollow">National Police Gazette</a> | 
-<a href="https://books.google.ca/books/about/LIFE.html?id=N0EEAAAAMBAJ&redir_esc=y" target="_blank" rel="nofollow">LIFE Magazine</a>
+<a href="https://books.google.com/books/about/LIFE.html?id=N0EEAAAAMBAJ&redir_esc=y" target="_blank" rel="nofollow">LIFE Magazine</a>
 
 ### Oddities/Weird/Mysteries:
 <a href="http://en.wikipedia.org/wiki/Antikythera_mechanism" target="_blank" rel="nofollow">Antikythera Mechanism</a> | 
