@@ -6,7 +6,7 @@ date:   2015-05-02 10:00:00 +0200
 updated: 2015-05-02 10:00:00 +0200
 category: essays
 ---
-Curated links that reflect my interests in independent and vintage media, heterodox ideas.
+I'm interested in independent and vintage media, heterodox ideas.
 
 ### Classic Movies and Television:
 <a href="https://live.retrostrange.com" target="_blank" rel="nofollow">RetroStrange TV</a> | 
