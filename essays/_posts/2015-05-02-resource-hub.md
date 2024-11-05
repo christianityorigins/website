@@ -43,7 +43,9 @@ Underwater Cities |
 <a href="https://ecer-org.eu" target="_blank" rel="nofollow">ECER - European Conference on Educational Research</a> | 
 <a href="http://www.aimovement.org/" target="_blank" rel="nofollow">American Indian Movement</a> | 
 <a href="http://www.palestinechronicle.com/" target="_blank" rel="nofollow">Palestine Chronicle</a> | 
-<a href="https://bdsmovement.net" target="_blank" rel="nofollow">BDS Movement</a> | 
+<a href="https://bdsmovement.net" target="_blank" rel="nofollow">BDS Movement</a> 
+
+### General:
 <a href="https://offgridworld.com" target="_blank" rel="nofollow">Off Grid World</a>
 
 ### WWII Data:
