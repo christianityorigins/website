@@ -53,7 +53,7 @@ Appendix B. Expulsions from Rome for Trying to Spread Religions
 Preface
 -------
 
-Imperial Cult
+Byzantine Imperial Cult
 
 Alexander the Great created the Ptolemaic Cult of Alexander to deify himself and justify his rule over his subjects. The practice of deifying leaders to maintain social order amongst a population was advised by Plato in The Republic as the "Noble Lie," and Alexander was tutored by Aristotle. Alexander's 'Diadochi' (successors) and the Roman aristocracy later copied this custom.
 
