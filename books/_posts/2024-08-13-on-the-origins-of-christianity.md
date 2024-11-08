@@ -705,13 +705,9 @@ The jews were expelled at least three times from Rome after being accused of mis
 
 \[71\] Jesus Among the Julio Claudians. Charles N. Pope. Pg.108
 
-\--Flavius Josephus Was Really Arrius Piso. Roman Piso. https://www.bibliotecapleyades.net/sociopolitica/esp\_sociopol\_piso07.htm
-
 \[72\] Arrius Varus. Wikipedia. https://en.wikipedia.org/wiki/Arrius\_Varus
 
 \[73\] Jesus Among the Julio-Claudians. Charles N. Pope. Pg.107
-
-\--Tiberius Julius Alexander aka Arrius Piso aka Josephus aka Emperor Nerva's son was Justus C. Piso aka Justin Martyr aka Pope Sixtus I who was the grandfather of Emperor Marcus Aurelius? 
 
 \[74\] The Royal Ancestry Of The Roman Emperor Vespasian. Henry Davis. https://henrydavis-cc.medium.com/the-royal-ancestry-of-the-roman-emperor-vespasian-72e144335299
 
