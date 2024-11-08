@@ -404,7 +404,7 @@ Alexander (grandson of King Herod), who was the richest man in the world at the 
   
 
 <p align="center">
-Fig. 1.6. Compare the famous Josephus bust which I idntify as Tiberius Julius Alexander to Nerva's depictions</p>
+Fig. 1.6. Erroneously identified 'Josephus' bust which I idntify as Tiberius Julius Alexander. Compare it to Nerva's depictions</p>
 
   
 
