@@ -27,18 +27,6 @@ I'm interested in independent and vintage media, heterodox ideas.
 <a href="https://archive.org/details/pub_national-police-gazette?sort=date" target="_blank" rel="nofollow">National Police Gazette</a> | 
 <a href="https://books.google.com/books/about/LIFE.html?id=N0EEAAAAMBAJ&redir_esc=y" target="_blank" rel="nofollow">LIFE Magazine</a>
 
-
-### Books:
-Christinaity: <a href="https://play.google.com/store/books/details?id=mrP4MDmYNXkC&rdid=book-mrP4MDmYNXkC&rdot=1">Christianity Exposed</a> (1843) by Bruno Bauer |
-<a href="http://www.sidneyrigdon.com/vern/1879BaurEng.htm">Christ and the Caesars</a> (1879) by Bruno Bauer |
-<a href="https://www.revilo-oliver.com/rpo/Christianity_and_the_Survival_of_the_West3.html">Christianity and the Survival of the West</a> (1973) by Revilo P. Oliver |
-<a href="https://www.revilo-oliver.com/rpo/Forgery_of_Our_Own.html">A Forgery of Our Own</a> (1991) by Revilo P. Oliver |
-<a href="https://ia802203.us.archive.org/23/items/the-origins-of-christianity/The%20Origins%20of%20Christianity.pdf">The Origins of Christianity</a> (1992) by Revilo P. Oliver |
-<a href="https://www.revilo-oliver.com/rpo/Reflections.html">Reflections on the Christ Myth</a> (1992) by Revilo P. Oliver |
-<a href="https://archive.org/details/AnatolyFomenkoBooks/DatingPtolemysAlmagestByAnatolyFomenko/page/n3/mode/1up">History: Fiction or Science? Chronology volumes 1–7</a> (2007-2024) by Anatoly Fomenko |
-<a href="https://www.google.com/books/edition/Cleopatra_to_Christ/T7sqfHyWPuQC?hl=en&gbpv=1&dq=cleopatra+to+christ&printsec=frontcover">Cleopatra to Christ</a> (2010) by Ralph Ellis |
-<a href="https://www.amazon.com/Following-Philo-Pallas-Freedman-Powerful-ebook/dp/B07PXKQGYG">Following Philo to Pallas (the Freedman): The Most Powerful Man in First Century Rome, also known as Goddess (the Mother)</a> (2019) by P.J. Gott
-
 ### Oddities/Weird/Mysteries:
 <a href="http://en.wikipedia.org/wiki/Antikythera_mechanism" target="_blank" rel="nofollow">Antikythera Mechanism</a> | 
 Mal'ta Boy | 
@@ -48,18 +36,6 @@ Megalith buildings/Stonehenge |
 Underwater Cities | 
 <a href="https://en.wikipedia.org/wiki/Seven_Sages_of_Greece" target="_blank" rel="nofollow">Seven Sages of Greece</a> | 
 <a href="https://ufostalker.com" target="_blank" rel="nofollow">UFO Stalker</a>
-
-### Indigenous Rights:
-<a href="http://www.survival-international.org/" target="_blank" rel="nofollow">Survival International</a> | 
-<a href="http://www.pechanga.net/category/primary-category/native-news" target="_blank" rel="nofollow">Pechanga World Indigenous News</a> | 
-<a href="http://www.indiancountry.com/" target="_blank" rel="nofollow">Indian Country Today</a> | 
-<a href="http://www.fsd.nl/csvpa" target="_blank" rel="nofollow">IUCN Specialist Group on Cultural and Spiritual Values of Protected Areas</a> | 
-<a href="https://mohawknationnews.com/blog/" target="_blank" rel="nofollow">Mohawk Nation News</a> | 
-<a href="https://parliamentofreligions.org" target="_blank" rel="nofollow">Parliament of the World's Religions</a> | 
-<a href="https://ecer-org.eu" target="_blank" rel="nofollow">ECER - European Conference on Educational Research</a> | 
-<a href="http://www.aimovement.org/" target="_blank" rel="nofollow">American Indian Movement</a> | 
-<a href="http://www.palestinechronicle.com/" target="_blank" rel="nofollow">Palestine Chronicle</a> | 
-<a href="https://bdsmovement.net" target="_blank" rel="nofollow">BDS Movement</a> 
 
 ### General:
 <a href="https://offgridworld.com" target="_blank" rel="nofollow">Off Grid World</a>
