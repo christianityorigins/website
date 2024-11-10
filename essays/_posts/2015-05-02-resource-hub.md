@@ -9,8 +9,6 @@ category: essays
 I'm interested in independent and vintage media, heterodox ideas.
 
 ### Classic Movies and Television:
-<a href="https://live.retrostrange.com" target="_blank" rel="nofollow">RetroStrange TV</a> | 
-<a href="https://halloween.retrostrange.tv" target="_blank" rel="nofollow">RetroStrange Halloween Channel</a> | 
 <a href="https://retroflix.org" target="_blank" rel="nofollow">RetroFlix</a> | 
 <a href="https://classiccinemaonline.com" target="_blank" rel="nofollow">Classic Cinema Online</a> | 
 <a href="https://bnwmovies.com" target="_blank" rel="nofollow">Black and White Movies</a> | 
