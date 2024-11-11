@@ -58,4 +58,3 @@ Read more
 https://en.wikipedia.org/wiki/R/K_selection_theory \
 https://en.wikipedia.org/wiki/Ressentiment \
 https://en.metapedia.org/wiki/The_Revolt_Against_Civilization:_The_Menace_of_the_Under-Man \
-https://www.psychologicalscience.org/news/releases/facial-structure-may-predict-endorsement-of-racial-prejudice.html
