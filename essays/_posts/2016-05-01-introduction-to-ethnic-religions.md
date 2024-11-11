@@ -22,6 +22,8 @@ There are only two things that you need to know to understand Polytheistic Ethni
 
 2\. Rituals: rituals are about manifesting the deities/forces of nature/laws of physics into your daily life. In the case of the Eleusinian Mysteries (7), the rituals were believed to provide initiates with profound insights into the nature of reality, the cycle of life and death, and the interconnectedness of all things. They also served important social functions, such as reinforcing community bonds, resolving conflicts, and marking life transitions (see: the Olympic Games and the festival of Dionysus). To secular Pagans who are inspired by Carl Jung, rituals are ways of manifesting the Jungian archetypes into your life, inducing 'active imagination' (8), or a part of the process of 'individuation' (9)
 
+Most ethnic faith religions followed this formula. See: Native American Religions \[[link](https://en.wikipedia.org/wiki/Native_American_religions)\]
+
 You can learn more about your specific "Pagan" traditions and rituals here: \[[link](https://ecer-org.eu/organisations/)\] and here: \[[link](https://salonvert.eu)\]
 
 Footnotes:
