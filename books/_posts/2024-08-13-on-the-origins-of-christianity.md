@@ -76,7 +76,7 @@ One name that shows up in the family trees of all the people listed above is Sim
 
   
 
-Ptolemy Menneus/Simon Boethus's son was named Philippion who I believe is a good candidate for Philip II Philoromaios and also Tiridates II of Parthia or Arsaces Philoromaios. Arsaces was the brother of Dynamis \[[link](https://www.geni.com/people/Tiridates-II-king-of-Parthia/6000000019000945876)\]. So, Simon Boethus/Magus/Ptolemy (Alexander) bar Menneus, et.al., were the aliases of Ptolemy X Alexander I and Marriamme Boethus was another of Cleopatra's regional aliases(?). 
+Ptolemy Menneus/Simon Boethus's son was named Philippion who I believe is a good candidate for Philip II Philoromaios and also Tiridates II of Parthia or Arsaces Philoromaios. Arsaces was the brother of Dynamis \[[link](https://www.geni.com/people/Tiridates-II-king-of-Parthia/6000000019000945876)\]. So, Simon Boethus/Magus/Ptolemy (Alexander) bar Menneus, et.al., were the aliases of Ptolemy X Alexander I and Marriamme Boethus was another of Cleopatra's regional aliases? 
 
   
 
