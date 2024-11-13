@@ -98,7 +98,7 @@ My theory is that a jewish kohanim family who had tried promoting about a dozen
 The people I identify specifically as being in involved with creating this imperial cult are Alexander (grandson of King Herod) aka Ptolemy of Mauretania aka Alexander the Alabarch, his sister-wife Cleopatra (Thea Philopator) of Mauretania aka 'Philo of Alexandria', and their son Tiberius Julius Alexander aka Arrius Calpernius Piso aka Arrius Varus aka Emperor Nerva.
 
   
-The Bar Kokhba Revolt (132–136 CE) and The Cult of Antinous
+The Cult of Antinous and the Bar Kokhba Revolt (132–136 CE)
 
 During the Bar Kokhba revolt a Rabbi in jerusalem named Akiva ben Joseph (the name Akiva is related to Jacob/James) who lead the Talmudic Pharisees and is responsible for large parts of the Talmud, Sefer Yetzirah (book of creation), the Mishna and the Midrash Halakha, and modern judaism, and who was a student of Gamaliel (Paul the Apostle claimed that he was brought up in Jerusalem "at the feet of Gamaliel" (Acts 22:3) and Gamaliel was the father of Jesus ben Gamala/Gamaliel aka Jesus ben Sapphias who was also King Izas Ma'nu (Jesus Emmanuel) Monobazus of Adiabene), and who was the one that came up with the idea that "Rome was Edom", preached that Simon bar Kokhba ('bar Kozeva' = 'son of the star' in ancient Hebrew) was the 'messiah' during the Bar Kokhba revolt. Simon bar Kozeva's son was named Rufus which was also the name of the son of Simon of Cyrene. The Gospel of Mark is about Simon of Cyrene and Jesus is meant to be seen as an invisible spirit from heaven come down to accompany Simon and his disciples who then returns after Simon is crucified. 
 
