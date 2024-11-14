@@ -64,7 +64,7 @@ The figure of Jesus Christ (of Nazareth) is a literary creation of these elites,
 
 Here are several related people who were avatars for the composite Jesus character:
 
-*   Julius Caesar. He was deified in two religions: during his lifetime in the Flamen Dialis cult (Dialis is related to Diespiter, an Old Latin form of the name Jupiter) which made him the claimed son of (I)Jupiter (Iupiter-Zeus -> I-Zeus -> Iesus. There was no letter J in Latin and (I)Jupiter is the Roman equivalent of Zeus and they both derive from the Aryan allfather Dyeus Pter which translates to Sky Father. The name Zeus comes from the pronunciation of 'Dyeus', and (I)Jupiter comes from the pronunciation of 'Dyeus Pter'), and he was deified posthumously in the Divus Iulius cult (Divus is synonymous to Dyeus, and as aforemented, Iulius derives from (I)Jupiter). He had a claimed divine birth, was put on trial, betrayed, sacrificed, and was a pontifex maximus (high priest) in his religion. Julius Caesar was his title (Caesar is etymologically similar to the Indo-Aryan word for 'king' and Julius (Iulius) is similar to both (I)Jupiter and to the Indo-Aryan word for 'sun'). He was also Asander (a derivative of Alexander), Philocaesar Philoromaios, King of Bosphorus \[[link](https://www.thenazareneway.com/Gospel%20of%20Jesus%20Wife%20Papyrus.htm)\] (the city of Byzantine, later called Constantinople, and now Istanbul was/is located in the area called Bosphorus), and his wife Dynamis Ourania (translates to 'heavenly power'), queen of Bosporus, was Cleopatra's regional alias \[[link](http://thenazareneway.com/Gospel%20of%20Jesus%20Wife%20Papyrus.htm)\]. Dynamis was the granddaughter of Mithridates VI Eupator who carried the title 'king of kings' and she was the niece of Mithridates 'Chrestus', Prince and co-ruler of the Kingdom of Pontus. Asander and Julius Caesar were born in the same year, so was Dynamis and Cleopatra, also, Asander's son, Tiberius Julius Aspurgus Philoromaios, was born about the same time as Caesarion and Emperor Tiberius Julius Caesar. Author Anatoly T. Fomenko in his book 'History: Fiction or Science? Russia. Britain. Byzantium. Rome. New Chronology Vol.IV' (2008) claims that the Roman Empire was simply an outpost for the Byzantine Empire and that the elites were just Ptolemaic Greeks. Author Charles N. Pope in his book called 'Jesus Among the Julio-Claudians' (2017) \[[link](https://books.google.se/books/about/Jesus_Among_the_Julio_Claudians.html?id=c7A3DwAAQBAJ&redir_esc=y)\] makes this same claim. I subscribe to this theory as well (the Anatolians were Phrygians, Hittites, and Carians. The Carians have a strong connection with the settlement of Rome (Aquilla = Qos = god of Kos of Caria), Sparta, and Canaan). Anatoly T. Fomenko also claims that Jerusalem was located on the Bospherous river.
+*   Julius Caesar. He was deified in two religions: during his lifetime in the Flamen Dialis cult (Dialis is related to Diespiter, an Old Latin form of the name Jupiter) which made him the claimed son of (I)Jupiter (There was no letter J in Latin and (I)Jupiter is the Roman equivalent of Zeus and they both derive from the Aryan allfather Dyeus Pter which translates to Sky Father. The name Zeus comes from the pronunciation of 'Dyeus', and (I)Jupiter comes from the pronunciation of 'Dyeus Pter'), and he was deified posthumously in the Divus Iulius cult (Divus is synonymous to Dyeus, and as aforemented, Iulius derives from (I)Jupiter). He had a claimed divine birth, was put on trial, betrayed, sacrificed, and was a pontifex maximus (high priest) in his religion. Julius Caesar was his title (Caesar is etymologically similar to the Indo-Aryan word for 'king' and Julius (Iulius) is similar to both (I)Jupiter and to the Indo-Aryan word for 'sun'). He was also Asander (a derivative of Alexander), Philocaesar Philoromaios, King of Bosphorus \[[link](https://www.thenazareneway.com/Gospel%20of%20Jesus%20Wife%20Papyrus.htm)\] (the city of Byzantine, later called Constantinople, and now Istanbul was/is located in the area called Bosphorus), and his wife Dynamis Ourania (translates to 'heavenly power'), queen of Bosporus, was Cleopatra's regional alias \[[link](http://thenazareneway.com/Gospel%20of%20Jesus%20Wife%20Papyrus.htm)\]. Dynamis was the granddaughter of Mithridates VI Eupator who carried the title 'king of kings' and she was the niece of Mithridates 'Chrestus', Prince and co-ruler of the Kingdom of Pontus. Asander and Julius Caesar were born in the same year, so was Dynamis and Cleopatra, also, Asander's son, Tiberius Julius Aspurgus Philoromaios, was born about the same time as Caesarion and Emperor Tiberius Julius Caesar. Author Anatoly T. Fomenko in his book 'History: Fiction or Science? Russia. Britain. Byzantium. Rome. New Chronology Vol.IV' (2008) claims that the Roman Empire was simply an outpost for the Byzantine Empire and that the elites were just Ptolemaic Greeks. Author Charles N. Pope in his book called 'Jesus Among the Julio-Claudians' (2017) \[[link](https://books.google.se/books/about/Jesus_Among_the_Julio_Claudians.html?id=c7A3DwAAQBAJ&redir_esc=y)\] makes this same claim. I subscribe to this theory as well (the Anatolians were Phrygians, Hittites, and Carians. The Carians have a strong connection with the settlement of Rome (Aquilla = Qos = god of Kos of Caria), Sparta, and Canaan). Anatoly T. Fomenko also claims that Jerusalem was located on the Bospherous river.
 *   Jesus ben Fabus who was Isa Amen (Jesus Amen) of Rev. iii. 14 who was also Amyntas of Galatia who was also Amyntas Nikator (the name Fabus may have been distorted by Josephus from Jesus ben Bagus. Amyntas was the son of Bogitarus. In Persian 'Bagus' means god. ‘Boga’ in Persian also means god and in the name Adobogiona 'Bog-' means god in Celtic). His palace at Iśauria reveals his name as Iśa. (See: Jesus Christ Was Amyntas of Galatia (2010) by Ranajit Pal \[[link](https://ranajitpal-jesus-from-asia-minor.blogspot.com/2011/06/jesus-christ-was-amyntas-of-galatia_20.html)\]) Amyntas of Galatia was the husband of Stratonice, who was the sister of Asander, the king of the Bosporus.
 *   Jesus ben Gamala/Gamaliel aka Jesus ben Sapphias who was also King Izas Ma'nu (Jesus Emmanuel) Monobazus of Adiabene aka Yeshua Cleopatros (Cantheras/Panthera) ben Josephus bar Menneus aka Ptolemy aka Yakov Zu Tolomoy. (See: Jesus, King of Edessa (2012) by Ralph Ellis \[[link](https://x.com/ralfellis/status/1809520320077803525)\]). King Izates of Monobazus was married to the sister of Dynamis's mother.
 *   Juba II of Mauritania. Juba II's full name was Gaius Iulius Iuba, prenomen and nomen after his adopted father Gaius Iulius Caesar, and 'Iuba' is most likely a diminutive of 'Iehuva'. He was the royal heir of the Massylii tribe, which is the 'Messiah' lineage from David's firstborn son with Saul's daughter Michal.
@@ -72,9 +72,11 @@ Here are several related people who were avatars for the composite Jesus charact
 *   Apollonius of Tyana.
 *   Emperor Vespasian (See: Caesar's Messiah (2005) by Joseph Atwill)
 
-One name that shows up in the family trees of all the people listed above is Simon Boethus who I identify as (king/Tetrarch) Ptolemy (Alexander) bar Menneus aka Simon Magus. The name Boethus comes from Sabazios which is a translation of Zeus (Jupiter to the Romans) in the dialect and tradition of Phrygians and Thracians of Anatolia. Sabazius is related to the Saba/Sheba root meaning seven, rest, sated etc. and Jupiter-Sabazius is a Semitic or Semitized form of Jupiter, i.e. Turkish Judaism (the day of Sabbath was a festival of Sabazius (Plutarch (Symp. iv. 6)). Also, I(J)upiter was also called Jove or Iove to the Romans. The Latin pronunciation of Iove would have been Yoh-Way, i.e Yahweh/Yhwh, so Jove Sabazios became conflated with Yahweh Saboath the god of the hebrew bible. Also, from Sabazios you get Zebedaios, sons of Zebedee). Ma'nu is likely a diminutive of Menneus and then Manu-Sabazios becomes Monobazus which becomes 'Bazus' or 'Bar Izates' shortened to 'baYZTus' (or bar YZT) through frequent oral repetition which becomes 'bOETHus'. The name Simon probably denoted that he was of the tribe of Simon/Simeon which was one of the twelve tribes of Israel. He was likely also Simon the Essene the founder of the Essene sect and Simon Peter in the bible (the term 'Peter' is derived from the Latin 'Pater' meaning 'father', denoting the Essene High Priest. The Essenes called themselves 'the Sons of Zadok' and Simon was the heir of the Zadokite High Priest dynasty). His daughter Mariamne Boethus was the fifth wife of King Herod and this line produced the Flavian emperors. He was the uncle of Jesus ben Fabus, father-in-law of Jesus ben Gamla/Gamaliel aka King Izas Monobazus (the Talmud (Bereshit Rabbah 46:10) calls Izates and Monobazus the "Sons of Ptolemy"), and I identify Juba II as Alexander (son of King Herod) below which makes him the grandson of Simon Boethus, and he was the great-grandfather of Antipater III's son. Apollonius of Tyana was likely also Paul the Apostle who was Saulus ben Antipater who was the son of Antipater III making him Simon's great-great-grandson and he was the great-great-great-grandfather of Vespasian.
+Making sense of this:
 
-  
+The Galatians of Anatolia were Celtic \[[link](https://en.wikipedia.org/wiki/Galatians_(people))\]. A member of this Anatolian family was Amyntas, King of Galatia. The Celtic religion was Druidism, and the Druids worshipped a diety called Esus/Esos/Hesus/Aisus \[[link](https://en.wikipedia.org/wiki/Esus)\] who was the Celtic equivilent of Dyeus Pter/Zeus/I(J)upiter. So, it is likely that this aristocratic family was Celtic, therefore, I have come up with two likely origins of the 'Jesus' name: 1)Julius Caesar aka Asander took on the Esus title, or 2)Julius Caesar aka Asander took on the title Iupiter-Zeus shortened to I-Zeus and then Iesus, and the rest of the family (Izates and Isa) followed this custom.
+
+One name that shows up in the family trees of all the people listed above is Simon Boethus who I identify as (king/Tetrarch) Ptolemy (Alexander) bar Menneus aka Simon Magus. The name Boethus comes from Sabazios which is a translation of Zeus (Jupiter to the Romans) in the dialect and tradition of Phrygians and Thracians of Anatolia. Sabazius is related to the Saba/Sheba root meaning seven, rest, sated etc. and Jupiter-Sabazius is a Semitic or Semitized form of Jupiter, i.e. Turkish Judaism (the day of Sabbath was a festival of Sabazius (Plutarch (Symp. iv. 6)). Also, I(J)upiter was also called Jove or Iove to the Romans. The Latin pronunciation of Iove would have been Yoh-Way, i.e Yahweh/Yhwh, so Jove Sabazios became conflated with Yahweh Saboath the god of the hebrew bible. Also, from Sabazios you get Zebedaios, sons of Zebedee. Judaism is a bastardized version of Turkish Druidism, filtered through this imperial cult and the Alexandrian School (Plato)). Ma'nu is likely a diminutive of Menneus and then Manu-Sabazios becomes Monobazus which becomes 'Bazus' or 'Bar Izates' shortened to 'baYZTus' (or bar YZT) through frequent oral repetition which becomes 'bOETHus'. The name Simon probably denoted that he was of the tribe of Simon/Simeon which was one of the twelve tribes of Israel. He was likely also Simon the Essene the founder of the Essene sect and Simon Peter in the bible (the term 'Peter' is derived from the Latin 'Pater' meaning 'father', denoting the Essene High Priest. The Essenes called themselves 'the Sons of Zadok' and Simon was the heir of the Zadokite High Priest dynasty). His daughter Mariamne Boethus was the fifth wife of King Herod and this line produced the Flavian emperors. He was the uncle of Jesus ben Fabus, father-in-law of Jesus ben Gamla/Gamaliel aka King Izas Monobazus (the Talmud (Bereshit Rabbah 46:10) calls Izates and Monobazus the "Sons of Ptolemy"), and I identify Juba II as Alexander (son of King Herod) below which makes him the grandson of Simon Boethus, and he was the great-grandfather of Antipater III's son. Apollonius of Tyana was likely also Paul the Apostle who was Saulus ben Antipater who was the son of Antipater III making him Simon's great-great-grandson and he was the great-great-great-grandfather of Vespasian.
 
 Ptolemy Menneus/Simon Boethus's son was named Philippion who I believe is a good candidate for Philip II Philoromaios and also Tiridates II of Parthia or Arsaces Philoromaios. Arsaces was the brother of Dynamis \[[link](https://www.geni.com/people/Tiridates-II-king-of-Parthia/6000000019000945876)\]. So, Simon Boethus/Magus/Ptolemy (Alexander) bar Menneus, et.al., were the aliases of Ptolemy X Alexander I and Marriamme Boethus was another of Cleopatra's regional aliases? 
 
@@ -82,13 +84,6 @@ Ptolemy Menneus/Simon Boethus's son was named Philippion who I believe is a good
 
 The connection between Simon Boethus/Magus/Ptolemy X Alexander I/Ptolemy (Alexander) bar Menneus and Julius Caesar is obviously through his daughter Cleopatra who Julius Caesar/Asander married. Using Josephus as a source, Antipater the Idumean's son King Herod was married to Simon Boethus's daughter Mariamme and Antipater the Idumean saved Julius Caesars life during the Battle of the Nile (47 BC). As a reward, Josephus claims that Julius Caesar adopted King Herod's sons (Simon Boethus's grandsons) Aristobulus IV (Vespasian's grandfather \[[link](https://henrydavis-cc.medium.com/the-royal-ancestry-of-the-roman-emperor-vespasian-72e144335299)\]), Alexander (son of king Herod) aka Alexandros III aka Juba II, Herod Antipas the Tetrarch, Archelaus, and Philip and raised them in Rome, in the household of Gaius Asinius Pollio which was the same household that Caesar Augustus was raised in (Josephus, 'Antiquities of the Jews', Book 15, Chapter 2. Josephus, 'Antiquities of the Jews', Book 17). This is untrue and those kids were his biological sons. It is also untrue that Alexander, son of King Herod, was killed by his father Herod, Josephus even has a story about a 'spurious Alexander' that showed up in Rome claiming to be the son of Herod who faked his death (Josephus, 'Antiquities of the Jews', Book 12 \[[link](https://www.ccel.org/ccel/josephus/complete.ii.xviii.xii.html)\]), so he was 'resurrected' as Juba II, king of Numidia and Mauretania. 
 
-  
-<p align="center">
-<img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhXdQKCoYWO_vFdleCS2PNk8fKAiucO2S8ZZxYWwvWReq1J_3WNuYw6zpjdHeew47-vKr2qE9H6f1MY9u6sI1qPzl3CaVa5FypEXMZXq-GpmO4ZPp-aerRkpxThRKzDtJaCrcbPiwFIO3nCnLT4G48wMB1fpDF94pur25UTey0xBpg9FkiUoMYEXh7ptU4/s1600/ptolemy-ix.jpg" width="200">
-</p>
-
-
-<p align="center">Fig. 1.1. Bust attributed to Ptolemy IX who was the grandfather of Ptolemy X Alexander I aka Ptolemy Menneus aka Simon Boethus aka Simon Magus. Notice the jewish physiognomy and beard shaved in a jewish style? It is possible that this bust is mislabelled and is actually Ptolemy X Alexander I aka Ptolemy Menneus aka Simon Boethus aka Simon Magus himself.</p>
 
 My theory is that a jewish kohanim family who had tried promoting about a dozen syncretic religions previous to christianity \[[link](https://discoveringancienthistory.wordpress.com/2017/10/24/the-jews-of-sparta-diplomatic-origins-of-religious-synchronization/)\] \[[link](https://en.wikipedia.org/wiki/Sabazios#Jewish_connection)\], and who intermarried with the Egyptian-Byzantine-Greco-Roman elites and were the leaders of the Alexandrian School in Egypt where they were likely the scribes who were in charge of creating Imperial cults for the empire, infused a slave morality into one of these religions around the time that Caligula became emperor, Aulus Avillius Flaccus (the real life Pontius Pilate) became the prefect of Roman Egypt, and the Alexandrian riots of 38 CE to subvert Rome and mentally connect the Romans to jews. 
 
@@ -244,7 +239,7 @@ YHWH = Jehova = Jove (Yoweh is similar to Latin Iove) = Jupiter = Ye-Zeus (YHWH 
 
 
 <p align="center">
-Fig. 1.2. Alexander the Great as Zeus Ammon (or Jupiter Ammon), the ram god. The Greeks had identified the Egyptian god Ammon with Zeus, the Romans identified Ammon with Jupiter.</p>
+Fig. 1.1. Alexander the Great as Zeus Ammon (or Jupiter Ammon), the ram god. The Greeks had identified the Egyptian god Ammon with Zeus, the Romans identified Ammon with Jupiter.</p>
 
 #### 5.2 Alexander as a Prototype for the Jesus Figure
 
@@ -332,7 +327,7 @@ Simon's line of descent to focus on is through his grandson Alexander (son of Ki
 
   
 
- <p align="center">Fig 1.3. (L) Alexander (son of King Herod) aka Juba II. (R) Cleopatra Selene II aka Queen Thea Muse Ourania</p>
+ <p align="center">Fig 1.2. (L) Alexander (son of King Herod) aka Juba II. (R) Cleopatra Selene II aka Queen Thea Muse Ourania</p>
 
         
 
@@ -348,7 +343,7 @@ Alexander (son of King Herod) aka Juba II and Cleopatra Selene II had two promin
 </p>  
 
 <p align="center">
-Fig. 1.4. (L) Alexander (grandson of King Herod) aka Gaius Julius Alexander, Herodian Prince of Judaea aka Alexander the Alabarch aka (King/Tetrarch) Ptolemy (Alexander) bar Menneus aka Ptolemy of Mauretania aka "Jesus" in the bible. (R) Cleopatra (Thea Philopator) of Mauretania aka Cleopatra IX aka Pythodorida Philometor aka Helene aka Drusilla of Mauretania aka Julia Ourania of Parthia aka "Philo of Alexandria".</p>
+Fig. 1.3. (L) Alexander (grandson of King Herod) aka Gaius Julius Alexander, Herodian Prince of Judaea aka Alexander the Alabarch aka (King/Tetrarch) Ptolemy (Alexander) bar Menneus aka Ptolemy of Mauretania aka "Jesus" in the bible. (R) Cleopatra (Thea Philopator) of Mauretania aka Cleopatra IX aka Pythodorida Philometor aka Helene aka Drusilla of Mauretania aka Julia Ourania of Parthia aka "Philo of Alexandria".</p>
 
   
 
@@ -369,7 +364,7 @@ Christianity is a Gnostic sect that was retconned with the Roman myth of Quirinu
   
 
 <p align="center">
-Fig. 1.5. Romulus. Does he look familiar? He was born to a virgin, the son of god, hailed as a King, crucified (67) by a conniving elite and rose from the dead. See: 'Romulus' (75AC) by Plutarch.</p>
+Fig. 1.4. Romulus. Does he look familiar? He was born to a virgin, the son of god, hailed as a King, crucified (67) by a conniving elite and rose from the dead. See: 'Romulus' (75AC) by Plutarch.</p>
 
   
 
@@ -404,7 +399,7 @@ Alexander (grandson of King Herod), who was the richest man in the world at the 
   
 
 <p align="center">
-Fig. 1.6. Erroneously identified 'Josephus' bust which I idntify as Tiberius Julius Alexander. Compare it to Nerva's depictions</p>
+Fig. 1.5. Erroneously identified 'Josephus' bust which I idntify as Tiberius Julius Alexander. Compare it to Nerva's depictions</p>
 
   
 
@@ -421,7 +416,7 @@ Emperor Vespasian was another likely grandson of King Herod. He was Herod Pollio
   
 
 <p align="center">
-Fig. 1.7. Compare Vespasian's depiction to Herod Agrippa I</p>
+Fig. 1.6. Compare Vespasian's depiction to Herod Agrippa I</p>
 
   
 
@@ -441,7 +436,7 @@ So, five emperors in a row were King Herod's grandsons or great-grandsons: Vitel
   
 
 <p align="center">
-Fig. 1.8. Note how the Roman emperor phenotype changes dramatically after Otho</p>
+Fig. 1.7. Note how the Roman emperor phenotype changes dramatically after Otho</p>
 
   
 
@@ -456,7 +451,7 @@ Every Roman Emperor from Hadrian (likely an acronym for Herodian (77)) onward de
   
 
 <p align="center">
-Fig. 1.9. (L) Constantius Chlorus. The father of emperor Constantine (R) Emperor Flavius Constantine/Constantinus who carried the Flavian title.</p>
+Fig. 1.8. (L) Constantius Chlorus. The father of emperor Constantine (R) Emperor Flavius Constantine/Constantinus who carried the Flavian title.</p>
 
   
 
