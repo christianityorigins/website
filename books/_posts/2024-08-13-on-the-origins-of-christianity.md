@@ -355,7 +355,7 @@ Fig. 1.3. (L) Alexander (grandson of King Herod) aka Gaius Julius Alexander, Her
 
 ### Chapter 9: The Origins of Christianity
 
-Christianity is a Gnostic sect that was retconned with the Roman myth of Quirinus aka Romulus (64) and the Divine Julius cult (65) and then targeted at Rome with Alexander (grandson of King Herod) elevated to the Romulus/Iulius figure (66).  
+Christianity is subverion of the imprial cult with Gnosticism, the Roman myth of Quirinus aka Romulus (64), and the Divine Julius cult (65) thrown in, and then targeted at Rome with some jewish rabbi as the Romulus/Iulius figure (66) to subconsciously connect the Romans to jews.  
 
   
 
