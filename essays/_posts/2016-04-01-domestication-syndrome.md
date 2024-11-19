@@ -11,7 +11,7 @@ category: essays
 <img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgHWOQYKN1dT7B0H6x8Sx2WLDtHViTUdyDCkLIh0XC71lNNAnmbToY6zUUapq9bKu-LLidHY0NwLejEaLSC0DDDq1HgO8aereBZk3mWs4OcbxiUUIcEJqX6BCktLNA7XGehlrMAt9C2InwTKN3BmOHs-MCyfxaTICSg-dOHMeMvsUniH3MH5zQWOya8NKY/s4000/collage.jpg" width="400">
 </p>
 
-<p align="center">Fig. 1. A quick image search for "prominent liberals" yields this result. Note how the pig look predominates</p>
+<p align="center">Fig. 1. A quick image search for "prominent liberals" yields this result. Note how the pig look predominates?</p>
 
 Did Christianity Cause Domestication Syndrome \[[link](https://en.wikipedia.org/wiki/Domestication_syndrome)\] \[[link](https://www.ncbi.nlm.nih.gov/pmc/articles/PMC5646786/#!po=8.25243)\] and Human Self-Domestication \[[link](https://en.wikipedia.org/wiki/Self-domestication)\] in the West?
 
@@ -27,31 +27,20 @@ Behavioral:
 
 Phenotype:
 
-*   Neoteny ([ref](https://www.ncbi.nlm.nih.gov/pmc/articles/PMC4096361/)) ([ref](https://www.ncbi.nlm.nih.gov/pmc/articles/PMC5646786/)) ([ref](https://incels.wiki/w/Neoteny)) and feminization ([ref](https://incels.wiki/w/Feminization)) in males
+*   Neoteny ([ref](https://www.ncbi.nlm.nih.gov/pmc/articles/PMC4096361/)) ([ref](https://www.ncbi.nlm.nih.gov/pmc/articles/PMC5646786/)) ([ref](https://incels.wiki/w/Neoteny)) and feminization ([ref](https://incels.wiki/w/Feminization)) in males (neotony and feminization comes from hormonal adaptation to domestication. I.e. no pressure for epigenetic expression of high testosterone)
 *   Brachycephaly (short and round skulls which leads to a reduction of the back of the brain and a smaller amygdala (1))
 *   Weak jaws
 *   Low muscle mass in males
+*   Lower testosterone in men
 *   Poor eyesight ([ref](https://books.google.ca/books?id=hEy4AAAAIAAJ&redir_esc=y))
 *   Incompletely developed neural crest which leads to craniofacial abnormalities, neurological problems, lower intelligence, and vision problems ([ref](https://pmc.ncbi.nlm.nih.gov/articles/PMC8633094/)) ([ref](https://www.sciencedaily.com/releases/2014/07/140714100122.htm/))
 *   Notice how the entirety of the working classes in every western country has the domesticated phenotype \[[link](http://humanphenotypes.net/basic/Alpinid.html)\] or else the pig phenotype? \[[link](http://humanphenotypes.net/Borreby.html)\] (including pink skin tone \[[link](https://en.wikipedia.org/wiki/Piebald)\]). This is the same species-specific domestication process that turned a wolf into a dog \[[link](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgeSGC_O5_OZYOjFaf9X2b3IGFI2pMPPPILGE2rzzUWfYxgxFatcP81ZTa6BPMn4xLUPjASDJX41whJGBZgGuMefddh-OXbKLzeChjUF2K4uQaVMMEI1A__HSnsL1LfRbxFQm2RdSt-4RLcGAXqokw5E54pW4i8OXTsScuMdgeSLkDAVtuiwpOxXMyWl9E/s1500/wolfvsdog.jpg)\] and a wild boar into a domesticated pig \[[link](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgT_wCGxsxJY-7-NPKEliqxVFLud2sWiXE_wFQr7tS1G3-hqk2kmZzoy1UaKbN8kq8RCrFb6SygHVRWNGMjCC93zNc7w1nYX0oQypFf-sEenu_XjIE-GVHUU7uLXydpcjQKdilC2zmowNn4yGvsO8MqAwYyjdQgUpem4CjnFFaF7D_47oI42wyzaagTRnI/s1536/wild-boar-vs-pig-collage.jpg)\]
 
-In Christianity, and its secularized variant of leftism, all these behavioral traits of domestication become virtues. See: [Christianity as a Slave Morality Religion and its Modern Secularized Variants: A Jewish Conspiracy and Hoax on the Gentiles](https://christcuck.org/christianity-and-its-secularized-variants/).
+In Christianity, and its secularized variant of leftism, all these behavioral traits of domestication become virtues. See: [Christianity as a Slave Morality Religion and its Modern Secularized Variants: A Jewish Conspiracy and Hoax on the Gentiles](https://christcuck.org/christianity-and-its-secularized-variants/). 
 
-  
 
 So, has the Christian domestication system (2) completely changed the genotype of billions of people?
 
-  
-
-Studies:
-
-[The Church, intensive kinship, and global psychological variation by Schulz et al. (2019)](https://archive.ph/o/IhiVD/https://science.sciencemag.org/content/366/6466/eaau5141)
-
-https://www.sciencenews.org/article/medieval-catholic-church-may-have-helped-spark-western-individualism (another study that came to the same conclusion).
-
-https://journals.plos.org/plosone/article?id=10.1371/journal.pone.0183015 (study that tested implicit and explicit intergroup race bias among Native Americans. They found that Native Americans showed a strong implicit preference for their own group over other groups, but this preference was totally eliminated when they were primed with christianity).
-
-https://www.cato.org/public-opinion-brief/religious-trump-voters-how-faith-moderates-attitudes-about-immigration-race
 
 1\. There's a theory that supports the "autistic brain" (as of the extreme male brain theory) is a brain with a tendency to be undomesticated or "failed domestication" [[link](https://www.psychologytoday.com/gb/blog/the-imprinted-brain/201608/autism-and-domestication-syndrome-in-humans)\]. Undomesticated people are socialized to a lesser degree therefore fall less for propaganda. Schizophrenia is the opposite of this and is a form of hyper-domestication syndrome [[link](https://www.psychologytoday.com/us/blog/the-imprinted-brain/201609/schizophrenics-hyper-domesticated-humans)] (see also: testosterone supplementation reverses symptoms of schizophrenia [[link](https://pubmed.ncbi.nlm.nih.gov/18626263/)\]), so is Down's Syndrome (see: Down's Syndrome is treated with testosterone supplementation [[link](https://www.theguardian.com/society/2022/sep/01/hormone-therapy-may-boost-brain-function-for-people-with-downs-syndrome-study-finds)]), and homosexuality is another expression of domestication syndrome [[link](https://www.frontiersin.org/journals/psychology/articles/10.3389/fpsyg.2019.02955/full)] (see: exposure to a high concentration of testosterone during a critical phase of development leads to a male-typical orientation [[link](https://pmc.ncbi.nlm.nih.gov/articles/PMC3739566/)]). On this topic, see: Liberal men turn Conservative after testosterone supplementation [[link](https://www.openicpsr.org/openicpsr/project/155441/version/V1/view)\]. \
 \--People who identify as conservative have a larger amygdala \[[link](https://phys.org/news/2024-09-political-ideology-differences-brain-previously.html)\]  
@@ -61,4 +50,4 @@ Read more
 
 https://en.wikipedia.org/wiki/R/K_selection_theory \
 https://en.wikipedia.org/wiki/Ressentiment \
-https://en.metapedia.org/wiki/The_Revolt_Against_Civilization:_The_Menace_of_the_Under-Man \
+https://en.metapedia.org/wiki/The_Revolt_Against_Civilization:_The_Menace_of_the_Under-Man 
