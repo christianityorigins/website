@@ -7,6 +7,12 @@ updated: 2018-11-23 21:40:58 +0100
 category: essays
 ---
 
+<p align="center">
+<img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgHWOQYKN1dT7B0H6x8Sx2WLDtHViTUdyDCkLIh0XC71lNNAnmbToY6zUUapq9bKu-LLidHY0NwLejEaLSC0DDDq1HgO8aereBZk3mWs4OcbxiUUIcEJqX6BCktLNA7XGehlrMAt9C2InwTKN3BmOHs-MCyfxaTICSg-dOHMeMvsUniH3MH5zQWOya8NKY/s4000/collage.jpg" width="400">
+</p>
+
+<p align="center">Fig. 1. A quick image search for "prominent liberals" yields this result. The pig look predominates</p>
+
 Did Christianity Cause Domestication Syndrome \[[link](https://en.wikipedia.org/wiki/Domestication_syndrome)\] \[[link](https://www.ncbi.nlm.nih.gov/pmc/articles/PMC5646786/#!po=8.25243)\] and Human Self-Domestication \[[link](https://en.wikipedia.org/wiki/Self-domestication)\] in the West?
 
 Traits of domestication syndrome:
@@ -30,7 +36,7 @@ Phenotype:
 *   Incompletely developed neural crest which leads to craniofacial abnormalities, neurological problems, lower intelligence, vision problems ([ref](https://pmc.ncbi.nlm.nih.gov/articles/PMC8633094/)) ([ref](https://www.sciencedaily.com/releases/2014/07/140714100122.htm/))
 *   Notice how the entirety of the working classes in every western country has the domesticated phenotype \[[link](http://humanphenotypes.net/basic/Alpinid.html)\] or else the pig phenotype? \[[link](http://humanphenotypes.net/Borreby.html)\] (including pink skin tone \[[link](https://en.wikipedia.org/wiki/Piebald)\]). This is the same species-specific domestication process that turned a wolf into a dog \[[link](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgeSGC_O5_OZYOjFaf9X2b3IGFI2pMPPPILGE2rzzUWfYxgxFatcP81ZTa6BPMn4xLUPjASDJX41whJGBZgGuMefddh-OXbKLzeChjUF2K4uQaVMMEI1A__HSnsL1LfRbxFQm2RdSt-4RLcGAXqokw5E54pW4i8OXTsScuMdgeSLkDAVtuiwpOxXMyWl9E/s1500/wolfvsdog.jpg)\] and a wild boar into a domesticated pig \[[link](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgT_wCGxsxJY-7-NPKEliqxVFLud2sWiXE_wFQr7tS1G3-hqk2kmZzoy1UaKbN8kq8RCrFb6SygHVRWNGMjCC93zNc7w1nYX0oQypFf-sEenu_XjIE-GVHUU7uLXydpcjQKdilC2zmowNn4yGvsO8MqAwYyjdQgUpem4CjnFFaF7D_47oI42wyzaagTRnI/s1536/wild-boar-vs-pig-collage.jpg)\]
 
-In Christianity, and its secularized variant of leftism, all these behavioral traits of domestication become virtues. See: [Christianity as a Slave Morality Religion and its Modern Secularized Variants: A Jewish Conspiracy and Hoax on the Gentiles](https://www.christcuck.org/p/christianity-and-its-modern-secularized.html). Self-hate, out-group preference, pacifism, self-policing "heretics", monotheism/moral absolutism/thinking in absolute binary terms, etc.
+In Christianity, and its secularized variant of leftism, all these behavioral traits of domestication become virtues. See: [Christianity as a Slave Morality Religion and its Modern Secularized Variants: A Jewish Conspiracy and Hoax on the Gentiles](https://www.christcuck.org/p/christianity-and-its-modern-secularized.html).
 
   
 
