@@ -28,7 +28,7 @@ Behavioral:
 Phenotype:
 
 *   Neoteny ([ref](https://www.ncbi.nlm.nih.gov/pmc/articles/PMC4096361/)) ([ref](https://www.ncbi.nlm.nih.gov/pmc/articles/PMC5646786/)) ([ref](https://incels.wiki/w/Neoteny)) and feminization ([ref](https://incels.wiki/w/Feminization)) in males (neotony and feminization comes from hormonal adaptation to domestication. I.e. no pressure for epigenetic expression of high testosterone)
-*   Brachycephaly (short and round skulls which leads to a reduction of the back of the brain and a smaller amygdala (1))
+*   Brachycephaly (short and round skulls) which leads to a reduction of the back of the brain and a smaller amygdala (1). This express in political affiliation: people who identify as conservative have a larger amygdala \[[link](https://phys.org/news/2024-09-political-ideology-differences-brain-previously.html)\]  
 *   Weak jaws
 *   Low muscle mass in males
 *   Lower testosterone in men
@@ -43,7 +43,6 @@ So, has the Christian domestication system (2) completely changed the genotype o
 
 
 1\. There's a theory that supports the "autistic brain" (as of the extreme male brain theory) is a brain with a tendency to be undomesticated or "failed domestication" [[link](https://www.psychologytoday.com/gb/blog/the-imprinted-brain/201608/autism-and-domestication-syndrome-in-humans)\]. Undomesticated people are socialized to a lesser degree therefore fall less for propaganda. Schizophrenia is the opposite of this and is a form of hyper-domestication syndrome [[link](https://www.psychologytoday.com/us/blog/the-imprinted-brain/201609/schizophrenics-hyper-domesticated-humans)] (see also: testosterone supplementation reverses symptoms of schizophrenia [[link](https://pubmed.ncbi.nlm.nih.gov/18626263/)\]), so is Down's Syndrome (see: Down's Syndrome is treated with testosterone supplementation [[link](https://www.theguardian.com/society/2022/sep/01/hormone-therapy-may-boost-brain-function-for-people-with-downs-syndrome-study-finds)]), and homosexuality is another expression of domestication syndrome [[link](https://www.frontiersin.org/journals/psychology/articles/10.3389/fpsyg.2019.02955/full)] (see: exposure to a high concentration of testosterone during a critical phase of development leads to a male-typical orientation [[link](https://pmc.ncbi.nlm.nih.gov/articles/PMC3739566/)]). On this topic, see: Liberal men turn Conservative after testosterone supplementation [[link](https://www.openicpsr.org/openicpsr/project/155441/version/V1/view)\]. \
-\--People who identify as conservative have a larger amygdala \[[link](https://phys.org/news/2024-09-political-ideology-differences-brain-previously.html)\]  
 2\. It is important to note that feudalism was invented simultaneously as institutional Christianity. Both by Constantine, one to enforce the other and vice versa. For 2000 years, Europeans have lived, and evolved, within this domestication system.
 
 Read more
