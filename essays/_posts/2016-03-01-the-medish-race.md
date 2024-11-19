@@ -44,7 +44,7 @@ The so-called Nordics (Indo-Aryans) were in fact originally brunet -- and medium
   
 Subdivided into Nordids, Borrebids, Baltids and Uralids. Characterized by pig faces and pink pig skin; yellow, orange or white hair; and significant assimilation of mongolid elements. 
 
-They are the products of hyper-Domestication Syndrome \[[link](https://en.wikipedia.org/wiki/Domestication_syndrome)\] \[[link](https://www.ncbi.nlm.nih.gov/pmc/articles/PMC5646786/#!po=8.25243)\] and Human Self-Domestication \[[link](https://en.wikipedia.org/wiki/Self-domestication)\] 
+They are borealized and depigmented neolithics who were subjected to hyper-domestication syndrome \[[link](https://en.wikipedia.org/wiki/Domestication_syndrome)\] \[[link](https://www.ncbi.nlm.nih.gov/pmc/articles/PMC5646786/#!po=8.25243)\] and human self-domestication \[[link](https://en.wikipedia.org/wiki/Self-domestication)\]. Basically, they are a slave-race science project who were created by a neolithic aristocracy.  
 
 <p align="center">
 <img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgHWOQYKN1dT7B0H6x8Sx2WLDtHViTUdyDCkLIh0XC71lNNAnmbToY6zUUapq9bKu-LLidHY0NwLejEaLSC0DDDq1HgO8aereBZk3mWs4OcbxiUUIcEJqX6BCktLNA7XGehlrMAt9C2InwTKN3BmOHs-MCyfxaTICSg-dOHMeMvsUniH3MH5zQWOya8NKY/s4000/collage.jpg" width="400">
