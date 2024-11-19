@@ -11,7 +11,7 @@ category: essays
 <img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgHWOQYKN1dT7B0H6x8Sx2WLDtHViTUdyDCkLIh0XC71lNNAnmbToY6zUUapq9bKu-LLidHY0NwLejEaLSC0DDDq1HgO8aereBZk3mWs4OcbxiUUIcEJqX6BCktLNA7XGehlrMAt9C2InwTKN3BmOHs-MCyfxaTICSg-dOHMeMvsUniH3MH5zQWOya8NKY/s4000/collage.jpg" width="400">
 </p>
 
-<p align="center">Fig. 1. A quick image search for "prominent liberals" yields this result. The pig look predominates</p>
+<p align="center">Fig. 1. A quick image search for "prominent liberals" yields this result. Note how the pig look predominates</p>
 
 Did Christianity Cause Domestication Syndrome \[[link](https://en.wikipedia.org/wiki/Domestication_syndrome)\] \[[link](https://www.ncbi.nlm.nih.gov/pmc/articles/PMC5646786/#!po=8.25243)\] and Human Self-Domestication \[[link](https://en.wikipedia.org/wiki/Self-domestication)\] in the West?
 
