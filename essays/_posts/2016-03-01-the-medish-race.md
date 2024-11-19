@@ -13,20 +13,20 @@ category: essays
 
 ***TABLE  OF  CONTENTS***  
 
-**[Introduction](#intro)** 
+**Introduction** 
   
-[Inferior Races](#races): \
+Inferior Races: \
 Nordish \
 Sudish \
-[The Great Medish Race](#medish) \
-[Medish Distribution](#distribution) \
-[Medish Aesthetics](#aesthetics)  \
-[Photographic Supplement](#gallery) \
-[Medish Eugenics](#eugenics) \
-[Medish Achievement](#achievement) \
-[Medish Decline](#decline) \
-[Medish Preservation](#preservation) \
-[Footnotes](#footnotes) 
+The Great Medish Race \
+Medish Distribution \
+Medish Aesthetics  \
+Photographic Supplement(gallery) \
+Medish Eugenics \
+Medish Achievement \
+Medish Decline \
+Medish Preservation \
+Footnotes 
 
 **Introduction**
   
