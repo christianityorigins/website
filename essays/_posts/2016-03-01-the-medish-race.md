@@ -34,7 +34,7 @@ Once upon a time the greater part of the Caucasian world of Europe, North Africa
 
 **The Medish Race**
     
-Medish peoples are descended primarily from Neolithic agriculturalists. Neolithic people originated in the Caucuses region and moved into Europe and south into the Middle East and North Africa in successive waves roughly from 12,000 to 6,400 years ago. They became the Early Anatolian Farmers (EAF) who became the Iranian Hunter-Gatherers/Caucasus hunter-gatherers (CHG)/West Anatolians who became proto-Sardinian peoples (EEF) and East Anatolians migrated further east and went extinct as a minority among unrelated groups who became Iranians, however, a segment of them moved onto India and became the Harappan civilization. All of the ancient Middle Eastern, North African, and Indus Valley civilizations were founded by these Neolithic people. 
+Medish peoples are descended primarily from Neolithic agriculturalists. Neolithic people originated in the Caucuses region and moved into Europe and south into the Middle East and North Africa in successive waves roughly from 12,000 to 6,400 years ago. They became the Early Anatolian Farmers (EAF) who became the Iranian Hunter-Gatherers/Caucasus hunter-gatherers (CHG)/West Anatolians who became proto-Sardinian peoples (Early European Farmers (EEF)) and East Anatolians migrated further east and went extinct as a minority among unrelated groups who became Iranians, however, a segment of them moved onto India and became the Harappan civilization. All of the ancient Middle Eastern, North African, and Indus Valley civilizations were founded by these Neolithic people. 
 
 The so-called Nordics (Indo-Aryans) were in fact originally brunet -- and medium-skinned, brunet dolichocephals = Medish peoples. They belonged to an old Paleo-Centrid stratum of intermediate evolutionary development, which also includes other periphery types in the area as well as in Asia Minor (the only Medish land bordering Sudish territory). It wasn't until the absorption of blond East Baltic elements in Northern Europe that these unfortunate supermen became Nordic and disappeared forever into the Nordish race.    
   
@@ -44,7 +44,7 @@ The so-called Nordics (Indo-Aryans) were in fact originally brunet -- and medium
   
 Subdivided into Nordids, Borrebids, Baltids and Uralids. Characterized by pig faces and pink pig skin; yellow, orange or white hair; and significant assimilation of mongolid elements. 
 
-They are borealized and depigmented neolithics who were subjected to hyper-domestication syndrome \[[link](https://en.wikipedia.org/wiki/Domestication_syndrome)\] \[[link](https://www.ncbi.nlm.nih.gov/pmc/articles/PMC5646786/#!po=8.25243)\] and human self-domestication \[[link](https://en.wikipedia.org/wiki/Self-domestication)\]. Basically, they are a slave-race science project who were created by a neolithic aristocracy.  
+They are borealized and depigmented neolithics who were subjected to hyper-domestication syndrome \[[link](https://en.wikipedia.org/wiki/Domestication_syndrome)\] \[[link](https://www.ncbi.nlm.nih.gov/pmc/articles/PMC5646786/#!po=8.25243)\] and human self-domestication \[[link](https://en.wikipedia.org/wiki/Self-domestication)\].  
 
 <p align="center">
 <img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgHWOQYKN1dT7B0H6x8Sx2WLDtHViTUdyDCkLIh0XC71lNNAnmbToY6zUUapq9bKu-LLidHY0NwLejEaLSC0DDDq1HgO8aereBZk3mWs4OcbxiUUIcEJqX6BCktLNA7XGehlrMAt9C2InwTKN3BmOHs-MCyfxaTICSg-dOHMeMvsUniH3MH5zQWOya8NKY/s4000/collage.jpg" width="400">
