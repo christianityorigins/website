@@ -13,7 +13,8 @@ Cosmology: the cosmology is similar to Plato's monism. Monism is the philosophic
 
 Beliefs: that there is an evolutionary universe, with an evolution toward ever higher and higher states of self-consciousness. Self-deification. 
 
-<iframe id="odysee-iframe" style="width:50%; aspect-ratio:16 / 9;" src="https://odysee.com/$/embed/@JustAudiobooks:0/Cosmotheism-Trilogy---Dr.-William-Luther-Pierce:d?r=9V6dCfZT6b1k6dJSYdpkCnPsZWCgWThv" allowfullscreen></iframe>
+<iframe id="odysee-iframe" style="width:30%; aspect-ratio:16 / 9;" src="https://odysee.com/$/embed/@JustAudiobooks:0/Cosmotheism-Trilogy---Dr.-William-Luther-Pierce:d?r=9V6dCfZT6b1k6dJSYdpkCnPsZWCgWThv" allowfullscreen></iframe>
 
 
-https://en.metapedia.org/wiki/Cosmotheism
+https://en.metapedia.org/wiki/Cosmotheism \[[link](https://en.metapedia.org/wiki/Cosmotheism)\]
+
