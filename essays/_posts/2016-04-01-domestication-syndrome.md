@@ -30,11 +30,11 @@ Phenotype:
 *   Neoteny ([ref](https://www.ncbi.nlm.nih.gov/pmc/articles/PMC4096361/)) ([ref](https://www.ncbi.nlm.nih.gov/pmc/articles/PMC5646786/)) ([ref](https://incels.wiki/w/Neoteny)) and feminization ([ref](https://incels.wiki/w/Feminization)) in males (neotony and feminization comes from hormonal adaptation to domestication. I.e. no pressure for epigenetic expression of high testosterone)
 *   Brachycephaly (short and round skulls) which leads to a reduction of the back of the brain and a smaller amygdala (1). This express in political affiliation: people who identify as conservative have a larger amygdala \[[link](https://phys.org/news/2024-09-political-ideology-differences-brain-previously.html)\]  
 *   Weak jaws
-*   Low muscle mass in males
-*   Lower testosterone in men
+*   Lower muscle mass in males
+*   Lower testosterone in males
+*   Smaller penis sizes in males
 *   Poor eyesight ([ref](https://books.google.ca/books?id=hEy4AAAAIAAJ&redir_esc=y))
 *   Incompletely developed neural crest which leads to craniofacial abnormalities, neurological problems, lower intelligence, and vision problems ([ref](https://pmc.ncbi.nlm.nih.gov/articles/PMC8633094/)) ([ref](https://www.sciencedaily.com/releases/2014/07/140714100122.htm/))
-*   Smaller penis sizes in males
 *   Notice how the majority of people in every western country has the domesticated phenotype \[[link](http://humanphenotypes.net/basic/Alpinid.html)\] or else the pig phenotype? \[[link](http://humanphenotypes.net/Borreby.html)\] (including pink skin tone \[[link](https://en.wikipedia.org/wiki/Piebald)\]). This is the same species-specific domestication process that turned a wolf into a dog \[[link](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgeSGC_O5_OZYOjFaf9X2b3IGFI2pMPPPILGE2rzzUWfYxgxFatcP81ZTa6BPMn4xLUPjASDJX41whJGBZgGuMefddh-OXbKLzeChjUF2K4uQaVMMEI1A__HSnsL1LfRbxFQm2RdSt-4RLcGAXqokw5E54pW4i8OXTsScuMdgeSLkDAVtuiwpOxXMyWl9E/s1500/wolfvsdog.jpg)\] and a wild boar into a domesticated pig \[[link](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgT_wCGxsxJY-7-NPKEliqxVFLud2sWiXE_wFQr7tS1G3-hqk2kmZzoy1UaKbN8kq8RCrFb6SygHVRWNGMjCC93zNc7w1nYX0oQypFf-sEenu_XjIE-GVHUU7uLXydpcjQKdilC2zmowNn4yGvsO8MqAwYyjdQgUpem4CjnFFaF7D_47oI42wyzaagTRnI/s1536/wild-boar-vs-pig-collage.jpg)\]
 
 In Christianity, and its secularized variant of leftism, all these behavioral traits of domestication become virtues. See: [Christianity as a Slave Morality Religion and its Modern Secularized Variants: A Jewish Conspiracy and Hoax on the Gentiles](https://christcuck.org/christianity-and-its-secularized-variants/). 
