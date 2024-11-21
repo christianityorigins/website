@@ -28,7 +28,8 @@ Behavioral:
 Phenotype:
 
 *   Neoteny ([ref](https://www.ncbi.nlm.nih.gov/pmc/articles/PMC4096361/)) ([ref](https://www.ncbi.nlm.nih.gov/pmc/articles/PMC5646786/)) ([ref](https://incels.wiki/w/Neoteny)) and feminization ([ref](https://incels.wiki/w/Feminization)) in males (neotony and feminization comes from hormonal adaptation to domestication. I.e. no pressure for epigenetic expression of high testosterone)
-*   Brachycephaly (short and round skulls) which leads to a reduction of the back of the brain and a smaller amygdala (1). This express in political affiliation: people who identify as conservative have a larger amygdala \[[link](https://phys.org/news/2024-09-political-ideology-differences-brain-previously.html)\]  
+*   Brachycephaly (short and round skulls) which leads to a reduction of the back of the brain and a smaller amygdala (1). This expresses in political affiliation: people who identify as conservative have a larger amygdala \[[link](https://phys.org/news/2024-09-political-ideology-differences-brain-previously.html)\] 
+*   Smaller skull in volume ([ref](https://www.ncbi.nlm.nih.gov/pmc/articles/PMC5646786/#!po=8.25243/))
 *   Weak jaws
 *   Lower muscle mass in males
 *   Lower testosterone in males
