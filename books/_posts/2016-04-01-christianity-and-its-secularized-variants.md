@@ -34,11 +34,11 @@ Footnotes
 
 Preface
 
-Every successful race in history has had a religion that served the practical purpose of cultivating a shared identity and culture. Christianity does the opposite of this. It is a foreign and all-encompassing religion that demands the complete erasure of native gods, cultures, traditions, and instills a slave morality into all the people it is forced onto. It is single-handidly responsibile for the destruction of Rome, the Dark Ages, and the death of billions of people. 
+Every successful race in history has had a religion that served the practical purpose of cultivating a shared identity and culture. Christianity does the opposite of this. It is a foreign and all-encompassing religion that demands the complete erasure of native gods, cultures, traditions, and instills a slave morality into all the people it is forced onto. It is single-handedly responsible for the destruction of Rome, the Dark Ages, unceasing wars, and the death of billions of people. 
 
-        The christian system is designed to transvaluate a groups ethnic values so that the weak, debased, and traitorous become the nobility. Weaponizing the outcastes is how the system gaisn power, and is why it is such a powerful divide-and-conquer Trojan Horse religion.
+        The christian system is designed to transvaluate a groups ethnic values so that the weak, debased, and traitorous become the nobility. Weaponizing the outcastes is how the system gains power, and is why it is such a powerful divide-and-conquer Trojan Horse religion.
 
-        The first part of this book explains how the slave morality works, through universalism and the transvaluation of a groups ethnic values and is heavily dependent upon the work of Friedrich Nietzsche. The second part explains how Leftism and Marxism are Christianity's atheist-compatible sects. 
+        The first part of this book explains how the slave morality works, through universalism and the transvaluation of a groups ethnic values and is heavily dependent upon the work of Friedrich Nietzsche, and the second part explains how Leftism and Marxism are Christianity's atheist-compatible sects. 
 
   
 
@@ -145,7 +145,7 @@ Marxism, Critical Theory, Critical Race Theory, Leftism/Wokeism all incorporate 
 *   Race/IQ/gender/genetics denialism ("Boasian anthropology") = "all equal in Jesus".
 *   Political Correctness = Heresy.
 *   Cancel culture = witch-hunts/excommunicated for heresy.
-*   Adopting labels and slogans (BLM, trans ally, etc.) = bearing the mark, or taking up the cross. Equivalent to wearing a cross or crucifix as a visible sign of one's faith and signaling to others that they are a member of the community.
+*   Adopting labels and slogans (BLM, trans ally, etc.) = bearing the mark, or taking up the cross. This is equivalent to wearing a cross or crucifix as a visible sign of one's faith and signaling to others that they are a member of the community.
 *   Government = God. An omnipresent entitlement and benefactor giver.
 
 What is the end goal of these divide-and-conquer slave-morality systems? (Christianity/Marxism/Cultural Marxism/Race Marxism/Gender Marxism). "Progress" (deconstruction/abolition) is the weaponizing the poor, outcastes, racial groups and women to get them to overthrow the dominant group in society and then create a slave class controlled by a tiny elite. Why? Friedrich Nietzsche claimed that all these slave-moralities were the manifestations of a Jewish group strategy/essentialist racial instincts operating below the level of real consciousness \[[link](https://en.wikipedia.org/wiki/Philosophy_of_Friedrich_Nietzsche#Jews,_nationalism_and_European_identity)\].
