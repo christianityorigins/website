@@ -36,13 +36,13 @@ Preface
 
 Every successful race in history has had a religion that served the practical purpose of cultivating a shared identity and culture and set values to strive toward. Christianity serves none of these purposes. It is a foreign and all-encompassing religion that demands the complete erasure of native gods, cultures, traditions, and instills a slave morality into all the people it is forced onto. Furthermore, as well as destroying native religions and cultures, Christianity breaks the tribal social contract and replaces it with universalism which was its most destructive innovation. 
 
-        Christianity is also designed to transvaluate a groups ethnic values so that the weak, debased, and traitorous become the nobility. Weaponizing the outcastes is how the system works, and is why it is such a powerful divide-and-conquer Trojan Horse religion.
+        Christianity is designed to transvaluate a groups ethnic values so that the weak, debased, and traitorous become the nobility. Weaponizing the outcastes is how the system works, and is why it is such a powerful divide-and-conquer Trojan Horse religion.
 
         The first part of this book explains how the slave morality works, through universalism and the transvaluation of a groups ethnic values and is heavily dependent upon the work of Friedrich Nietzsche. The second part explains how Leftism and Marxism are Christianity's atheist-compatible sects. 
 
   
 
-Chapter 1. The Christian System [Top ↑](#)  
+Chapter 1. The Christian System
   
 Christianity is a sophisticated divide-and-conquer millenarianist (1) slave morality (2) system that is packaged as a religion. The system works by weaponizing the lowest "chandala" (3) (outcastes and untouchables in the Hindu caste system) of society (4) to attack and overthrow the aristocratic and warrior castes; and secondly, the christian system contains within it a pacifist slave morality system that is designed to transvaluate a groups aristocratic and warrior values while turning these aristocratic and warrior castes into obedient and submissive slaves.  
   
@@ -145,6 +145,7 @@ Marxism, Critical Theory, Critical Race Theory, Leftism/Wokeism all incorporate 
 *   Race/IQ/gender/genetics denialism ("Boasian anthropology") = "all equal in Jesus".
 *   Political Correctness = Heresy.
 *   Cancel culture = witch-hunts/excommunicated for heresy.
+*   Adopting labels and slogans (BLM, trans ally, etc.) = bearing the mark, or taking up the cross. Equivalent to wearing a cross or crucifix as a visible sign of one's faith and signaling to others that they are a member of the community.
 *   Government = God. An omnipresent entitlement and benefactor giver.
 
 What is the end goal of these divide-and-conquer slave-morality systems? (Christianity/Marxism/Cultural Marxism/Race Marxism/Gender Marxism). "Progress" (deconstruction/abolition) is the weaponizing the poor, outcastes, racial groups and women to get them to overthrow the dominant group in society and then create a slave class controlled by a tiny elite. Why? Friedrich Nietzsche claimed that all these slave-moralities were the manifestations of a Jewish group strategy/essentialist racial instincts operating below the level of real consciousness \[[link](https://en.wikipedia.org/wiki/Philosophy_of_Friedrich_Nietzsche#Jews,_nationalism_and_European_identity)\].
@@ -155,7 +156,7 @@ See also: [What Is ‘Liberalism’?](https://www.revilo-oliver.com/news/2010/0
 
   
 
-Chapter 4. Judaism vs. Christianity: What do the Jews Believe? [Top ↑](#)
+Chapter 4. Judaism vs. Christianity: What do the Jews Believe?
 
   
 
@@ -184,7 +185,7 @@ Over the past 2000 years, every group that had the christian psyop forced on the
 
   
 
-Footnotes [Top ↑](#)  
+Footnotes
   
 1\. Millenarianism. Wikipedia. https://en.wikipedia.org/wiki/Millenarianism \[[link](https://en.wikipedia.org/wiki/Millenarianism)\]  
 2\. Master–slave morality. Wikipedia. https://en.wikipedia.org/wiki/Master%E2%80%93slave\_morality \[[link](https://en.wikipedia.org/wiki/Master–slave_morality)\]  
