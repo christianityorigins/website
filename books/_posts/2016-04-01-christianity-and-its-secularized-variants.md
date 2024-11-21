@@ -34,9 +34,9 @@ Footnotes
 
 Preface
 
-Every successful race in history has had a religion that served the practical purpose of cultivating a shared identity and culture and set values to strive toward. Christianity serves none of these purposes. It is a foreign and all-encompassing religion that demands the complete erasure of native gods, cultures, traditions, and instills a slave morality into all the people it is forced onto. Furthermore, as well as destroying native religions and cultures, Christianity breaks the tribal social contract and replaces it with universalism which was its most destructive innovation. 
+Every successful race in history has had a religion that served the practical purpose of cultivating a shared identity and culture. Christianity does the opposite of this. It is a foreign and all-encompassing religion that demands the complete erasure of native gods, cultures, traditions, and instills a slave morality into all the people it is forced onto. It is single-handidly responsibile for the destruction of Rome, the Dark Ages, and the death of billions of people. 
 
-        Christianity is designed to transvaluate a groups ethnic values so that the weak, debased, and traitorous become the nobility. Weaponizing the outcastes is how the system works, and is why it is such a powerful divide-and-conquer Trojan Horse religion.
+        The christian system is designed to transvaluate a groups ethnic values so that the weak, debased, and traitorous become the nobility. Weaponizing the outcastes is how the system gaisn power, and is why it is such a powerful divide-and-conquer Trojan Horse religion.
 
         The first part of this book explains how the slave morality works, through universalism and the transvaluation of a groups ethnic values and is heavily dependent upon the work of Friedrich Nietzsche. The second part explains how Leftism and Marxism are Christianity's atheist-compatible sects. 
 
@@ -110,7 +110,7 @@ See also: [Tschandala](https://en.wikipedia.org/wiki/Tschandala), [Master–sl
 
   
 
-Chapter 2. Secularization of Christianity [Top ↑](#)  
+Chapter 2. Secularization of Christianity
   
 As well as Christianity being a slave-morality system, Fredrich Nietzsche wrote that Liberalism is a secularized Christian political-theological religion (16). The Reformation coincided with the invention of the Gutenberg printing press which increased literacy and this is when a myriad of Protestant sects sprung forth: the Anabaptists, the Mennonites, the Amish, the Digger Movement, the Ranters, etc., all of whom adhered to a system of communism and preached about universalism and a utopia on earth. Marxism was one of these sects. The only difference is that Marxism was the first secularized Christian sect where the belief in a supernatural god was replaced with a belief in an omnipresent government. 
 
@@ -177,7 +177,7 @@ You can prove that Christianity is a slave morality system that is designed to s
 *   The Old Testament is filled with hatred, violence, killing, and war. The New Testament is filled with love, unconditional tolerance, and anti-rebellion: "for all who draw the sword will die by the sword".
 *   Jews loath Christians, but Christians believe that Jews are "God's chosen" and they exist to serve Israel.
 
-Chapter 5. Conclusion [Top ↑](#)
+Chapter 5. Conclusion
 
   
 Over the past 2000 years, every group that had the christian psyop forced on them had their societies overthrown through a revolution of the lowest outcastes of society and then had their evolutionary group strategy evolve under constant pressure to conform to this dysgenic suicide system. All of your patterns of perception, logic, symbol formation, thought, speech, action, and emotional response have evolved to operate subconsciously within the dynamics of this system. This system stripped you of identity, pride, tribal spirit, and the will to power with the ultimate goal of turning you into a guilt-ridden and self-loathing slave.  
