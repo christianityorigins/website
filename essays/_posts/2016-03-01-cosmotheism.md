@@ -15,8 +15,7 @@ Beliefs: that there is an evolutionary universe, and mankind can take part in hi
 
 Think of it as Platonism (cosmology) combined with Nietzscheanism (philosophy).
 
-<iframe id="odysee-iframe" style="width:30%; aspect-ratio:16 / 9;" src="https://odysee.com/$/embed/@JustAudiobooks:0/Cosmotheism-Trilogy---Dr.-William-Luther-Pierce:d?r=9V6dCfZT6b1k6dJSYdpkCnPsZWCgWThv" allowfullscreen></iframe>
-
+<iframe id="odysee-iframe" style="width:30%; aspect-ratio:16 / 9;" src="https://odysee.com/$/embed/@SiegeCannon:a/Dr.-William-Pierce-Cosmotheism-is-the-Meaning-of-Life-Our-Cause:3?r=FmtuSbjBNsqkJQ1ypw58SoDSkUamCjcT" allowfullscreen></iframe>
 
 https://en.metapedia.org/wiki/Cosmotheism \[[link](https://en.metapedia.org/wiki/Cosmotheism)\]
 
