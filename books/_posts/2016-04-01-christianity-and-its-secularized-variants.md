@@ -34,10 +34,8 @@ Footnotes
 
 Preface
 
-Every successful race in history has had a religion that served the practical purpose of cultivating a shared identity and culture. Christianity does the opposite of this. It is a foreign and all-encompassing religion that demands the complete erasure of native gods, cultures, traditions, and instills a slave morality into all the people it is forced onto. It is single-handedly responsible for the destruction of Rome, the Dark Ages, unceasing wars, and the death of billions of people. 
-
-        The christian system is designed to transvaluate a groups ethnic values so that the weak, debased, and traitorous become the nobility. Weaponizing the outcastes is how the system gains power, and is why it is such a powerful divide-and-conquer Trojan Horse religion.
-
+Every successful race in history has had a religion that served the practical purpose of cultivating a shared identity and culture. Christianity does the opposite of this. It is a foreign and all-encompassing religion that demands the complete erasure of native gods, cultures, traditions, and instills a slave morality into all the people it is forced onto. It is single-handedly responsible for the destruction of Rome, the Dark Ages, unceasing wars, and the death of billions of people. \
+        The christian system is designed to transvaluate a groups ethnic values so that the weak, debased, and traitorous become the nobility. Weaponizing the outcastes is how the system gains power, and is why it is such a powerful divide-and-conquer Trojan Horse religion. \
         The first part of this book explains how the slave morality works, through universalism and the transvaluation of a groups ethnic values and is heavily dependent upon the work of Friedrich Nietzsche, and the second part explains how Leftism and Marxism are Christianity's atheist-compatible sects. 
 
   
@@ -50,8 +48,7 @@ Christianity is a sophisticated divide-and-conquer millenarianist (1) slave mora
 
   
 
-The collectivization of divine authority reinforces a universal morality. Everything becomes collectivized with the centralization of power. This makes a group easier to control.
-
+The collectivization of divine authority reinforces a universal morality. Everything becomes collectivized with the centralization of power. This makes a group easier to control. \
         Monotheism traces back to the slave morality of Zoroastrianism at the time when Cyrus the Great assumes total power of Persia, and in Rome as the Roman Republic turns into the Roman Empire headed by a singular dictator, Julius Caesar.  
 
   
@@ -75,8 +72,7 @@ Friedrich Nietzsche's concept of the "transvaluation of values" is central to un
 
 1.4. Weaponizing the "Chandala" Castes  
   
-Universalism, the transvaluation of traditional ethnic values, monotheism (good vs. evil), and the concept of sin exist to self-deify and weaponize the lowest castes. 
-
+Universalism, the transvaluation of traditional ethnic values, monotheism (good vs. evil), and the concept of sin exist to self-deify and weaponize the lowest castes. \
         Friedrich Nietzsche, in his book 'On the Genealogy of Morality' (1887), wrote that the jews (5), who he claimed are motivated by deep resentment and hatred (6), create these "slave morality" systems (7) (Christianity and its secularized variants of Marxism/Bolshevism/Leftism/Progressivism), which, through monotheism (good vs evil), universalism, the 'transvaluation of values', and the concept of sin is designed to empower the lowest "chandala" castes (8). This is what makes the system self-policing and self-regulating. The savior complex (9) is a subset of christian self-deification and is a heritage of monotheism and messianism (10). Self-deification (11) is the foundation for attacking heretics (12) and redeeming others.
 
   
@@ -100,8 +96,7 @@ While Christianity empowers the "chandala" caste through universalism and the t
 *   Prayer: The purpose of prayer is to reinforce the brainwashing (guilt, shame, fear) by continually repeating directed affirmations.
 *   Confession: To further reinforce the guilt and shame complexes by continually confessing guilt. Confession also creates a religious commandment that turns its followers into informants, exposes traitors to the church or state, exposes rebellions, and makes the system self-regulating. 
 
-This was a clever divide-and-conquer strategy. Build a coalition of the outcastes of society and then weaponize them to attack the warrior and aristocratic castes while simultaneously transvaluating their aristocratic cultural values to subvert them. This was the formula that was used in Rome, the French Revolution \[[link](https://en.metapedia.org/wiki/French_Revolution)\], Revolutions of 1848 \[[link](https://www.jstor.org/stable/4615300)\], Russian Revolution \[[link](https://en.wikipedia.org/wiki/Russian_Revolution)\], and attempted in the German Revolution \[[link](https://en.wikipedia.org/wiki/German_Revolution_of_1918%E2%80%931919)\]. Each of these revolutions empowered and weaponized the outcastes of society with a unifying slave-morality ideology (Marxism/Bolshevism/Leftism are simply secular variants of christianity). 
-
+This was a clever divide-and-conquer strategy. Build a coalition of the outcastes of society and then weaponize them to attack the warrior and aristocratic castes while simultaneously transvaluating their aristocratic cultural values to subvert them. This was the formula that was used in Rome, the French Revolution \[[link](https://en.metapedia.org/wiki/French_Revolution)\], Revolutions of 1848 \[[link](https://www.jstor.org/stable/4615300)\], Russian Revolution \[[link](https://en.wikipedia.org/wiki/Russian_Revolution)\], and attempted in the German Revolution \[[link](https://en.wikipedia.org/wiki/German_Revolution_of_1918%E2%80%931919)\]. Each of these revolutions empowered and weaponized the outcastes of society with a unifying slave-morality ideology (Marxism/Bolshevism/Leftism are simply secular variants of christianity). \
         This system was also integral to European colonialism. Before the colonial powers sent the military they sent the missionaries. Through christianity, they weaponized the outcastes to fight the warrior castes. Then, christianity placated the native populations by preventing any rebellion (the lowest outcastes self-policed the warrior castes who had their warrior values "transvaluated" and the population eventually succumbed to the thought that they would be rewarded when they die if they submitted).
 
   
@@ -209,9 +204,7 @@ Footnotes
 \--Martin Luther was also behind the invention of the Prussian educational system \[[link](https://en.wikipedia.org/wiki/Prussian_education_system)\], i.e. the western system of education. A teacher at the front of the class replicates a priest, a classroom replicates a church, constant tests to show that you memorized the teaching (never tested on your ability to apply learned information in creative ways), this is all designed to strip students of critical thinking ability and turn them into stupid and obedient slaves. See also: Luther's Large Catechism \[[link](https://en.wikipedia.org/wiki/Luther%27s_Large_Catechism)\]  
 \--The catholic church even banned the teaching of philosophy in Europe as it was deemed "heretical" \[[link](https://en.wikipedia.org/wiki/Index_Librorum_Prohibitorum)\] \[[link](https://en.wikipedia.org/wiki/Condemnations_of_1210–1277)\]  
 14\. Myth of Er. Wikipedia. https://en.wikipedia.org/wiki/Myth\_of\_Er \[[link](https://en.wikipedia.org/wiki/Myth_of_Er)\]
-
 \--Biblical hell also refers to Gehenna in Israel where they did child sacrifices \[[link](https://en.wikipedia.org/wiki/Gehenna)\]
-
 15\. Friedrich Nietzsche claimed that slave moralities \[[link](https://en.wikipedia.org/wiki/Master%E2%80%93slave_morality)\] (xtianity, Buddhism, liberalism, etc.) allowed the chandala castes to triumph over the aristocratic and warrior castes in ancient India and in Rome and he predicted that they would eventually allow them to overtake the entire west which is what you see today \[[link](https://en.wikipedia.org/wiki/Last_man)\]. Ex. the lowest scum chandala are empowered to destroy all progress in their attempt to gain moral and social supremacy over the higher castes. See: Master–slave morality \[[link](https://en.wikipedia.org/wiki/Master%E2%80%93slave_morality)\], Tschandala \[[link](https://en.wikipedia.org/wiki/Tschandala)\], Transvaluation of values \[[link](https://en.wikipedia.org/wiki/Transvaluation_of_values)\], Nietzschean affirmation \[[link](https://en.wikipedia.org/wiki/Nietzschean_affirmation)\], and Ressentiment \[[link](https://en.wikipedia.org/wiki/Ressentiment)\]. See also: Last Man \[[link](https://en.wikipedia.org/wiki/Last_man)\]  
 Quotes from Friedrich Nietzsche:  
 \--"Christianity, sprung from Jewish roots and comprehensible only as a growth on this soil, represents the counter-movement to any morality of breeding, of race, privilege:—it is the anti-Aryan religion par excellence. Christianity, the revaluation of all Aryan values, the victory of chandala values, the gospel preached to the poor and base, the general revolt of all the downtrodden, the wretched, the failures, the less favored, against race: the undying chandala hatred as the religion of love".  
