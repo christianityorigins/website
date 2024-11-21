@@ -21,7 +21,7 @@ BOOK II. ON THE SLAVE MORALITY SYSTEM\
 Chapter 1. The Christian System\
 1.1. Monotheism\
 1.2. Universalism\
-1.3. Transvaluation of Values\ 
+1.3. Transvaluation of Values\
 1.4. Weaponizing the "Chandala" Castes\
 1.5. Slave Morality System\
 Chapter 2. Secularization of Christianity\
