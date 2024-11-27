@@ -118,7 +118,8 @@ Marxism is a secularized Christian sect that replaces god with the government. T
 
   
 
-Marxism is a secularized sect of Christianity that sees class as the main cause for inequality. Critical Theory is a Marxist sect that replaces class with culture as the main cause of inequality (i.e., "Cultural Marxism"). Critical Race Theory is a Marxist sect that replaces class with race as the main cause of inequality (i.e., "Race Marxism"), and Third Wave Feminism is a Marxist sect that replaces class with gender as the main cause of inequality (i.e., "Gender Marxism"). There is overlap between these Marxist sects, and this is called "intersectionality" in academia. For example, feminists teach that class, culture, race and gender all combined (usually encapsulated through "White") are the structural causes of inequality.
+Marxism is a secularized sect of Christianity that sees class as the main cause for inequality. Critical Theory is a Marxist sect that replaces class with culture as the main cause of inequality (i.e., "Cultural Marxism"). Critical Race Theory is a Marxist sect that replaces class with race as the main cause of inequality (i.e., "Race Marxism"), and Third Wave Feminism is a Marxist sect that replaces class with gender as the main cause of inequality (i.e., "Gender Marxism"). There is overlap between these Marxist sects, and this is called "intersectionality" in academia. For example, feminists teach that class, culture, race and gender all combined (usually encapsulated through "White") are the structural causes of inequality. \
+        In the 1960s, the 'New Left' social movement, conceived by former students of the Frankfurt School, is when the lefts focus on individual liberty and economics was replaced with identity politics and social justice (cultural marxism). But the conditions that allowed for this movement to grow were already present in the culture with roots christianity.
 
   
 
