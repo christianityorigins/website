@@ -34,9 +34,10 @@ Footnotes
 
 Preface
 
-Every successful race in history has had a religion that served the practical purpose of cultivating a shared identity and culture. Christianity does the opposite of this. It is a foreign and all-encompassing religion that demands the complete erasure of native gods, cultures, traditions, and instills a slave morality into all the people it is forced onto. It is single-handedly responsible for the destruction of Rome, the Dark Ages, unceasing wars, and the death of billions of people. \
-        The christian system is designed to transvaluate a groups ethnic values so that the weak, debased, and traitorous become the nobility. Weaponizing the outcastes is how the system gains power, and is why it is such a powerful divide-and-conquer Trojan Horse religion. \
-        The first part of this book explains how the slave morality works, through universalism and the transvaluation of a groups ethnic values and is heavily dependent upon the work of Friedrich Nietzsche, and the second part explains how Leftism and Marxism are Christianity's atheist-compatible sects. 
+Every single species on earth works towards the preservation and strengthening of its bloodline, from bonobos to pin oaks to jellyfish. Every single one. It is only through the domesticating forces of universal religions (Buddhism, Christianity, and Islam) that man has been able to 'overcome' these natural and deep biological drives and act in ways that are neutral or actually harm the reproductive success of his genes and offspring. Because of these universalizing religions, western man is an animal in the process of domestication. \
+        The first part of this book explains how the slave morality works, through universalism and the transvaluation of a groups ethnic values and is heavily dependent upon the work of Friedrich Nietzsche, and the second part explains how Leftism and Marxism are Christianity's atheist-compatible sects.  \
+&nbsp;&nbsp; &nbsp;&nbsp;&nbsp;&nbsp;         Essentially, the christian slave morality system is designed to transvaluate a groups ethnic values so that the weak, debased, and traitorous become the nobility. Weaponizing the outcastes is how the system gains power, and is why it is such a powerful divide-and-conquer Trojan Horse religion. 
+        
 
   
 
