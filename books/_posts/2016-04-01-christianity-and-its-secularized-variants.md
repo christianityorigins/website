@@ -178,8 +178,9 @@ You can prove that Christianity is a slave morality system that is designed to s
 Chapter 5. Conclusion
 
   
-Over the past 2000 years, every group that had the christian psyop forced on them had their societies overthrown through a revolution of the lowest outcastes of society and then had their evolutionary group strategy evolve under constant pressure to conform to this dysgenic suicide system. All of your patterns of perception, logic, symbol formation, thought, speech, action, and emotional response have evolved to operate subconsciously within the dynamics of this system. This system stripped you of identity, pride, tribal spirit, and the will to power with the ultimate goal of turning you into a guilt-ridden and self-loathing slave.  
-        It is horrifying to think of the scale that this psyop grew to, how this system became institutionalized, how it changed the evolutionary group strategy of billions of people, how it created hell on earth for the entire planet for centuries, and how it is the system that is responsible for the needless destruction of billions of people.
+Christianity is a slave morality and domestication protocol that has been in effect for millenia, even if you stop believing in the magical rabbi you still have the slave morality deeply ingrained in you. All of your patterns of perception, logic, symbol formation, thought, speech, action, and emotional response have evolved to operate subconsciously within the dynamics of this system. This system stripped you of identity, pride, tribal spirit, vril, and the will to power with the ultimate goal of turning you into a guilt-ridden and self-loathing slave.  
+&nbsp;&nbsp; &nbsp;&nbsp;&nbsp;&nbsp;It took 2000 years of domestication to reach the point where Europeans would sacrifice their nations and the future of their children on the altar of equality, but the seeds for this was inculcated through this system. \
+   &nbsp;&nbsp; &nbsp;&nbsp;&nbsp;&nbsp;It is horrifying to think of the scale that this psyop grew to, how this system became institutionalized, how it changed the evolutionary group strategy of billions of people, how it created hell on earth for the entire planet for centuries, and how it is the system that is responsible for the needless destruction of billions of people.
 
   
 
