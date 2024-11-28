@@ -124,7 +124,7 @@ Characters
 
 *   Alexander (son of King Herod and grandson of Simon Boethus) = Juba II who was married to Cleopatra Selene II (daughter of Mark Antony and Cleopatra VII) aka Queen Thea Muse Ourania. Alexander and his wife were adopted by Julius Caesar and raised in Rome.
 *   Alexander (grandson of King Herod and great-grandson of Simon Boethus) = (King/Tetrarch) Ptolemy (Alexander) bar Menneus aka Ptolemy of Mauretania (aka 'Joseph Panthera', the name for jesus's father in the Talmud; Panthera is a corruption of Cantheras, or Cleopatros) aka Tiberius Julius Alexander Major aka Alexander the Alabarch.
-*   Cleopatra (Thea Philopator) of Mauretania aka Cleopatra IX aka Helene aka Drusilla of Mauretania aka Julia Ourania of Parthia = Philo of Alexandria, the sister-wife of Alexander (grandson of King Herold). She was also Claudius and Nero's secretary 'Pallas', and 'Antonia Caenis' who was Vespasian's first cousin and mistress.
+*   Cleopatra (Thea Philopator) of Mauretania aka Cleopatra IX aka Helene aka Drusilla of Mauretania aka Julia Ourania of Parthia = Philo of Alexandria, the sister-wife of Alexander (grandson of King Herold). She was also Claudius and Nero's secretary 'Pallas', and 'Antonia Caenis' who was Vespasian's first cousin and mistress.(See: 'Following Philo to Pallas (the Freedman): The Most Powerful Man in First Century Rome, also known as Goddess (the Mother)' (2019) by P.J. Gott \[[link](https://www.amazon.com/Following-Philo-Pallas-Freedman-Powerful-ebook/dp/B07PXKQGYG/ )\])
 *   Bartholemew ('Bar Ptolemy') = son of Simon Boethus.
 *   Eleazar ben Boethus = Lazarus of Bethany, son of Simon Boethus.
 *   Gautama Buddha = Gaumata Bardya, son of Cyrus the Great.
