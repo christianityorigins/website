@@ -8,7 +8,7 @@ category: essays
 
 Christianity is a subversion of Celtic Druidism, filtered through an imperial cult were Julius Caesar took on the Esus \[[link](https://en.wikipedia.org/wiki/Esus)\] role. This cult was subverted after the Bar Kohiba revolt. See: On the Origins of Christianity \[[link](https://christcuck.org/on-the-origins-of-christianity)\]
 
-So, christians coming to Paganism, specifically Celtic-Druidism, can continue worshiping Esus/Esos/Hesus/Aisus/Iesus and all the other Pagan traditions and rituals that christianity stole \[[link](https://en.wikipedia.org/wiki/Christianity_and_paganism#Pagan_influences_on_early_Christianity)\] .
+So, christians coming to Paganism, specifically Celtic Druidism, can continue worshiping Esus/Esos/Hesus/Aisus/Iesus and all the other Pagan traditions and rituals that christianity stole \[[link](https://en.wikipedia.org/wiki/Christianity_and_paganism#Pagan_influences_on_early_Christianity)\] .
 
 Quick introduction to Polytheistic Ethnic European ('Pagan') Religions 
 
@@ -24,7 +24,7 @@ You can learn more about your specific "Pagan" traditions and rituals here: \[[l
 
 Footnotes:
 
-1\. Dyaus Pita (Vedic), Zeus (Greek), Jupiter (Roman), Odin (Nordic), Wotan (German), Esus (Celtic), Wotanaz (Slavic), Ukko and Väinämöinen (Finnish), and so on are all derived from the Aryan allfather Dyeus Pter which translates to Sky Father. The name Zeus comes from the pronunciation of Dyeus, and Jupiter comes from the pronunciation of 'Dyeus Pter'. Wotan is derived from Proto-Germanic Wodanaz, which itself comes from the Proto-Indo-European root Dyeus. Odin comes from Old Norse and is related to the earlier Proto-Germanic Wodanaz, etc.
+1\. Dyaus Pita (Vedic), Zeus (Greek), Jupiter (Roman), Odin (Nordic), Wotan (German), Esus (Celtic), Wotanaz (Slavic), Ukko and Väinämöinen (Finnish), and so on are all derived from the Aryan allfather Dyeus Pter which translates to Sky Father. The name Zeus comes from the pronunciation of Dyeus, and Jupiter comes from the pronunciation of 'Dyeus Pter'. Wotan is derived from Proto-Germanic Wodanaz, which itself comes from the Proto-Indo-European root Dyeus. Odin comes from Old Norse and is related to the earlier Proto-Germanic Wodanaz.
 2\. https://en.wikipedia.org/wiki/Charvaka \[[link](https://en.wikipedia.org/wiki/Charvaka)\]\
 3\. These Pagans don't worship a particular thing, they just appreciate the unity of existence, or seek to understand the ultimate nature of reality. Ancestor veneration is the only worship they do.\
 4\. https://en.wikipedia.org/wiki/Secular\_paganism \[[link](https://en.wikipedia.org/wiki/Secular_paganism)\]\
