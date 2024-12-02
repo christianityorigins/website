@@ -18,7 +18,7 @@ There are only two things that you need to know to understand Polytheistic Ethni
 
 You can learn more about your specific "Pagan" traditions and rituals here: \[[link](https://ecer-org.eu/organisations/)\] and here: \[[link](https://salonvert.eu)\]
 
-*Christianity is a subversion of Celtic Druidism, filtered through an imperial cult where Julius Caesar took on the Esus \[[link](https://en.wikipedia.org/wiki/Esus)\] role. This cult was subverted after the Bar Kohiba revolt. See: On the Origins of Christianity \[[link](https://christcuck.org/on-the-origins-of-christianity)\]. So, christians coming to Paganism, specifically Celtic Druidism, can continue worshiping Esus/Esos/Hesus/Aisus/Iesus and all the other Pagan traditions and rituals that christianity stole \[[link](https://en.wikipedia.org/wiki/Christianity_and_paganism#Pagan_influences_on_early_Christianity)\] .
+*Christianity is a subversion of Celtic Druidism, filtered through an imperial cult where Julius Caesar took on the Esus \[[link](https://en.wikipedia.org/wiki/Esus)\] role. This cult was subverted after the Bar Kohiba revolt. See: On the Origins of Christianity \[[link](https://christcuck.org/on-the-origins-of-christianity)\]. So, christians coming to Paganism, specifically Celtic Druidism, can continue worshiping Esus/Esos/Hesus/Aisus/Iesus and all the other Pagan traditions and rituals that christianity stole \[[link](https://en.wikipedia.org/wiki/Christianity_and_paganism#Pagan_influences_on_early_Christianity)\]. Converting christians to Druidism should be easy as it is the foundation for their religion with the same deity and traditions but without the old testament and proto-bolshevism slave-morality.
 
 Footnotes:
 
