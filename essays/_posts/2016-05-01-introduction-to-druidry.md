@@ -8,7 +8,7 @@ category: essays
 
 CONTENTS
 
-1 Introduction to Druidry\
+1 Druidry\
 1.1 Cosmology\
 1.2 Rituals\
 2 Footnotes
