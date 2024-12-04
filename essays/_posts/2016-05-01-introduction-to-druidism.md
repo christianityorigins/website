@@ -1,14 +1,14 @@
 ---
 layout: post
 open_links_in_new_tab: true
-title:  "Introduction to Druidry"
+title:  "Introduction to Druidism"
 date:   2016-05-01 09:00:00 +0200
 category: essays
 ---
 
 CONTENTS
 
-1 Druidry\
+1 Druidism\
 1.1 Cosmology\
 1.2 Rituals\
 2 Footnotes
