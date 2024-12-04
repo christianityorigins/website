@@ -15,7 +15,7 @@ CONTENTS
 
 1 Druidism
 
-Christianity is a subversion of Celtic Druidism, filtered through an imperial cult where Asander of Bosphorus aka Julius Caesar took on the Esus/Esos/Hesus/Aisus/Iesus \[[link](https://en.wikipedia.org/wiki/Esus)\] role. The Galatians of Anatolia were Celtics who followed Druidism and this religion was subverted by jews after the Bar Kohiba revolt. See: On the Origins of Christianity \[[link](https://christcuck.org/on-the-origins-of-christianity)\]. Converting christians to Druidism should be easy as it is the foundation for their religion with the same deity, traditions, and rituals (1), but without the old testament and proto-bolshevism slave-morality.
+Christianity is a subversion of Celtic Druidism, filtered through an imperial cult where Asander of Bosphorus aka Julius Caesar took on the Esus/Esos/Hesus/Aisus/Iesus \[[link](https://en.wikipedia.org/wiki/Esus)\] role. The Galatians of Anatolia were Celtics who followed Druidism and this religion was subverted by a group of rabbi's headed by rabbi Akiva after the Bar Kohiba revolt. See: On the Origins of Christianity \[[link](https://christcuck.org/on-the-origins-of-christianity)\]. Converting christians to Druidism should be easy as it is the foundation for their religion with the same deity, traditions, and rituals (1), but without the old testament and proto-bolshevism slave-morality.
 
 There are only two things that you need to know to understand Druidry
 
