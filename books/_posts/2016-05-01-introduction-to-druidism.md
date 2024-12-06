@@ -27,7 +27,7 @@ So, the Druid cosmology was Pythagorian monism \[[link](https://en.wikipedia.org
 
 1.2 Rituals
 
-Rituals are about manifesting the deities/forces of nature/laws of physics into your daily life. In the case of the Eleusinian Mysteries (10), the rituals were believed to provide initiates with profound insights into the nature of reality, the cycle of life and death, and the interconnectedness of all things. The Druids were the western Brahman caste so philosophical inquiry and intellectual exploration was a bases of their beliefs. To secular Druids who are inspired by Carl Jung, rituals could be ways of manifesting the Jungian archetypes into your life, inducing 'active imagination' (11), or a part of the process of 'individuation' (12)
+Rituals are about manifesting the deities/forces of nature/laws of physics into your daily life. In the case of the Eleusinian Mysteries (10), the rituals were believed to provide initiates with profound insights into the nature of reality, the cycle of life and death, and the interconnectedness of all things. The Druids were the western Brahman caste so philosophical inquiry and intellectual exploration was at the core of their beliefs. To secular Druids who are inspired by Carl Jung, rituals could be ways of manifesting the Jungian archetypes into your life, inducing 'active imagination' (11), or a part of the process of 'individuation' (12)
 
 2 Footnotes
 
