@@ -3,7 +3,7 @@ layout: default
 open_links_in_new_tab: true
 title: "On the Origins of Christianity"
 date: 2024-08-13
-categories: books
+categories: essays
 ---
 
 On the Origins of Christianity
