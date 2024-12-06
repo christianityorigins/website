@@ -14,7 +14,3 @@ email: christcuck@christcuck.org
 
 timezone: Europe/Madrid
 google_analytics_tracking_id:
-exclude:
-  - books
-  - essays
-
