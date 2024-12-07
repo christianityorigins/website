@@ -10,7 +10,8 @@ CONTENTS
 
 1 Druidism\
 1.1 Cosmology\
-1.2 Rituals\
+1.2 Beliefs\
+1.3 Rituals\
 2 Footnotes
 
 1 Druidism
@@ -25,9 +26,19 @@ The founder of Druidry was Pythagoras (5) who learned from a philosopher named A
 
 So, the Druid cosmology was Pythagorian monism \[[link](https://en.wikipedia.org/wiki/Monism)\]. Monism is the philosophical view that all of reality is ultimately one, or that reality is fundamentally unified and that all things are interconnected through a single underlying essence or principle (i.e. materialist/agnostic monists believe this to be energy or matter). Everything in the universe is then seen as emanations or manifestations of this ultimate reality. As for the polytheistic deities, some polytheistic monists see the polytheistic deities as sentient personal gods who eminate from the divine, others see them as symbolic representations of natural forces (numen/animism), others are atheists (7) who are attracted to tradition, ancestor veneration, and ancestry. Some atheistic Pagans are inspired by Carl Jung who combined psychoanalysis with Heathenry; the polytheistic deities = 'archetypes (8) of the collective unconscious (9)' to these Pagans.
 
-1.2 Rituals
+1.2 Beleifs
 
-Rituals are about manifesting the deities/forces of nature/laws of physics into your daily life. In the case of the Eleusinian Mysteries (10), the rituals were believed to provide initiates with profound insights into the nature of reality, the cycle of life and death, and the interconnectedness of all things. The Druids were the western Brahman caste so philosophical inquiry and intellectual exploration was at the core of their beliefs. To secular Druids who are inspired by Carl Jung, rituals could be ways of manifesting the Jungian archetypes into your life, inducing 'active imagination' (11), or a part of the process of 'individuation' (12)
+Monist cosmology posits that the universe is composed of a single, fundamental substance or reality, meaning that the divine is not a separate, transcendent entity but rather an inherent aspect of the universe, and humans are not separate from the divine but rather an unfolding or manifestation of it.Therefore, in monist cosmologies, self-realization or self-actualization is often seen as the process of recognizing and embodying one's true nature as an expression of the divine. This self-realization can be understood as a form of self-deification, where the individual recognizes their inherent divinity.
+
+The Druids were the western Brahman caste so philosophical inquiry and intellectual exploration was also at the core of their beliefs.
+
+1.3 Rituals
+
+So, in monist relgions, rituals are about bringing someone to self-realization or self-deification.
+
+Examples: In some Tantric traditions, rituals and practices like yoga, meditation, and mantra recitation are designed to help the individual realize their true nature as a manifestation of the divine. The goal is to awaken the individual's inner divinity and experience union with the ultimate reality. Advaita Vedanta: In this non-dualistic Hindu tradition, rituals and practices like meditation, self-inquiry, and devotion are aimed at helping the individual realize their true nature as the ultimate reality (Brahman). The goal is to transcend the ego and realize one's inherent divinity.
+
+In the case of the Eleusinian Mysteries (10), it served to allow initiates to see themselves as part of the divine, connected to the natural world and the cycle of life, death, and rebirth. To secular Druids who are inspired by Carl Jung, rituals could be ways of manifesting the Jungian archetypes into your life, inducing 'active imagination' (11), or a part of the process of 'individuation' (12)
 
 2 Footnotes
 
