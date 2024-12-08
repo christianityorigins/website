@@ -26,7 +26,7 @@ The founder of Druidry was Pythagoras (5) who was a student of a philosopher nam
 
 So, the Druid cosmology was Pythagorian monism \[[link](https://en.wikipedia.org/wiki/Monism)\]. Monism is the philosophical view that all of reality is ultimately one, or that reality is fundamentally unified and that all things are interconnected through a single underlying essence or principle (i.e. materialist/agnostic monists believe this to be energy or matter). Everything in the universe is then seen as emanations or manifestations of this ultimate reality. As for the polytheistic deities, some polytheistic monists see them as sentient personal gods who eminate from the divine, others see them as symbolic representations of natural forces (numen/animism), others are atheists (7) who are attracted to tradition, ancestor veneration, and ancestry. Some atheistic Pagans are inspired by Carl Jung who combined psychoanalysis with Heathenry; the polytheistic deities = 'archetypes (8) of the collective unconscious (9)' to these Pagans.
 
-1.2 Beleifs
+1.2 Beliefs
 
 Monist cosmology posits that the universe is composed of a single fundamental substance or reality. This means that the divine is not a separate and transcendent entity but rather an inherent aspect of the universe, and humans are not separate from the divine but rather an unfolding or manifestation of it. Therefore, in monist cosmologies, self-realization or self-actualization is often seen as the process of recognizing and embodying one's true nature as an expression of the divine. This self-realization can be understood as a form of self-deification where the individual recognizes their inherent divinity.
 
