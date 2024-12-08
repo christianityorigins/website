@@ -12,7 +12,8 @@ CONTENTS
 1.1 Cosmology\
 1.2 Beliefs\
 1.3 Rituals\
-2 Footnotes
+2. Appendix\
+3 Footnotes
 
 1 Druidism
 
@@ -38,7 +39,11 @@ Examples: In some Tantric traditions, rituals and practices like yoga, meditatio
 
 In the case of the Eleusinian Mysteries (10), they served to allow initiates to see themselves as part of the divine, connected to the natural world and the cycle of life, death, and rebirth. To secular Druids who are inspired by Carl Jung, rituals could be ways of manifesting the Jungian archetypes into your life, inducing 'active imagination' (11), or a part of the process of 'individuation' (12)
 
-2 Footnotes
+2 Appendix
+
+Drudry, like it's eastern branch of Vedism, was heirarchal and divided people into four hierarchical castes: priestly or intellectual caste (Druid = Brahman), warriors (Fláith = Kshatriya), merchants (Bó-Aire  = Vaishya), workers (Fuidir = Shudra). Unlike Christianity's concept of equality before God, this religion didn't promote universal equality, but instead atomized people into castes. Rulers or warriors derived their authority from intelligence, strength and lineage, not a universal god. Any so-called Druid who tries to use this relgion to preach about things like equality is a role-playing christian universalist. 
+
+3 Footnotes
 
 1\. The etymology of "Druid" stems from the Celtic root Dru-Uides (pl. of Dru-Uis) for "firm knowers".
 Same as Celtic Uidta||Uidtu = Science, Knowledge, a cognate of the Sanskrit Veda. Druid = Drvo (Slavic) = Dhruva (Sanskrit).The Druids were the Brahmans of the West, and the Vedas are Druidism that was brought to India by the Ram the Druid [[link](https://www.angelfire.com/folk/boutios/Dhruveda.html)\]\
