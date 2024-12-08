@@ -12,7 +12,7 @@ CONTENTS
 1.1 Cosmology\
 1.2 Beliefs\
 1.3 Rituals\
-2. Appendix\
+2 Appendix\
 3 Footnotes
 
 1 Druidism
