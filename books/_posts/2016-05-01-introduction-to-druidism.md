@@ -41,7 +41,7 @@ To secular Druids who are inspired by Carl Jung, rituals could be ways of manife
 
 2 Appendix
 
-Drudry, like it's eastern branch of Vedism, was heirarchal and divided people into four hierarchical castes: priestly or intellectual caste (Druid = Brahman), warriors (Fláith = Kshatriya), merchants (Bó-Aire  = Vaishya), workers (Fuidir = Shudra). Unlike Christianity's concept of equality before God, this religion didn't promote universal equality, but instead atomized people into castes. Rulers or warriors derived their authority from intelligence, strength and lineage, not a universal god. Any so-called Druid who tries to use this relgion to preach about things like equality is a role-playing christian universalist. 
+Drudry, like it's eastern branch of Vedism, was heirarchal and divided people into four hierarchical castes: priestly or intellectual caste (Druid = Brahman), warriors (Fláith = Kshatriya), merchants (Bó-Aire  = Vaishya), workers (Fuidir = Shudra). Unlike Christianity's concept of equality before God, this religion didn't promote universal equality, but instead atomized people into castes (12). Rulers or warriors derived their authority from intelligence, strength and lineage, not a universal god. Any so-called Druid who tries to use this relgion to preach about things like equality is a role-playing christian universalist. 
 
 3 Footnotes
 
@@ -63,6 +63,7 @@ Stonehenge builders used Pythagoras’ theorem 2,000 years before he was born \[
 9\. https://en.wikipedia.org/wiki/Collective_unconscious \[[link](https://en.wikipedia.org/wiki/Collective_unconscious)\]\
 10\. https://en.wikipedia.org/wiki/Active_imagination#Carl_Gustav_Jung \[[link](https://en.wikipedia.org/wiki/Active_imagination#Carl_Gustav_Jung)\]  
 11\. https://en.wikipedia.org/wiki/Individuation#In_Jungian_psychology \[[link](https://en.wikipedia.org/wiki/Individuation#In_Jungian_psychology)\]\
+12\. https://en.wikipedia.org/wiki/Trifunctional_hypothesis \[[link](https://en.wikipedia.org/wiki/Trifunctional_hypothesis)\]
 
   
 Read more:  
