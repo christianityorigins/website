@@ -37,7 +37,7 @@ In monist relgions, rituals are about bringing someone to self-realization.
 
 Examples: In some Tantric traditions, rituals and practices like yoga, meditation, and mantra recitation are designed to help the individual realize their true nature as a manifestation of the divine. The goal is to awaken the individual's inner divinity and experience union with the ultimate reality. Advaita Vedanta: In this non-dualistic Hindu tradition, rituals and practices like meditation, self-inquiry, and devotion are aimed at helping the individual realize their true nature as the ultimate reality (Brahman). The goal is to transcend the ego and realize one's inherent divinity.
 
-In the case of the Eleusinian Mysteries (10), they served to allow initiates to see themselves as part of the divine, connected to the natural world and the cycle of life, death, and rebirth. To secular Druids who are inspired by Carl Jung, rituals could be ways of manifesting the Jungian archetypes into your life, inducing 'active imagination' (11), or a part of the process of 'individuation' (12)
+To secular Druids who are inspired by Carl Jung, rituals could be ways of manifesting the Jungian archetypes into your life, inducing 'active imagination' (10), or a part of the process of 'individuation' (11)
 
 2 Appendix
 
@@ -61,9 +61,8 @@ Stonehenge builders used Pythagoras’ theorem 2,000 years before he was born \[
 --https://en.wikipedia.org/wiki/Secular_paganism \[[link](https://en.wikipedia.org/wiki/Secular_paganism)\]\
 8\. https://en.wikipedia.org/wiki/Jungian_archetypes \[[link](https://en.wikipedia.org/wiki/Jungian_archetypes)\]  \
 9\. https://en.wikipedia.org/wiki/Collective_unconscious \[[link](https://en.wikipedia.org/wiki/Collective_unconscious)\]\
-10\. https://en.wikipedia.org/wiki/Eleusinian_Mysteries \[[link](https://en.wikipedia.org/wiki/Eleusinian_Mysteries)\]\
-11\. https://en.wikipedia.org/wiki/Active_imagination#Carl_Gustav_Jung \[[link](https://en.wikipedia.org/wiki/Active_imagination#Carl_Gustav_Jung)\]  
-12\. https://en.wikipedia.org/wiki/Individuation#In_Jungian_psychology \[[link](https://en.wikipedia.org/wiki/Individuation#In_Jungian_psychology)\]\
+10\. https://en.wikipedia.org/wiki/Active_imagination#Carl_Gustav_Jung \[[link](https://en.wikipedia.org/wiki/Active_imagination#Carl_Gustav_Jung)\]  
+11\. https://en.wikipedia.org/wiki/Individuation#In_Jungian_psychology \[[link](https://en.wikipedia.org/wiki/Individuation#In_Jungian_psychology)\]\
 
   
 Read more:  
