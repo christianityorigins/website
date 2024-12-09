@@ -25,7 +25,7 @@ There are only three things that you need to know to understand Druidry:
 
 The founder of Druidry was Pythagoras (5) who was a student of a philosopher named Abaris the Hyperborean \[[link](https://en.wikipedia.org/wiki/Abaris_the_Hyperborean)\] (probably the same person) who was a Scythian who hailed from Hyperborea (6): _"And the Celtic Druids investigated to the very highest point the Pythagorean philosophy, after Zamolxis, by birth a Thracian, a servant of Pythagoras, became to them the originator of this philosophy"_ -- 'The Refutation of All Heresies', Chapter XXII.--The Druids; Progenitors of their System by St. Hippolytus. 
 
-So, the Druid cosmology was Pythagorian monism \[[link](https://en.wikipedia.org/wiki/Monism)\]. Monism is the philosophical view that all of reality is ultimately one, or that reality is fundamentally unified and that all things are interconnected through a single underlying essence or principle (i.e. materialist/agnostic monists believe this to be energy or matter). Everything in the universe is then seen as emanations or manifestations of this ultimate reality.
+So, the Druid cosmology was Pythagorian monism \[[link](https://en.wikipedia.org/wiki/Monism)\]. Monism is the philosophical view that all of reality is ultimately one, or that reality is fundamentally unified and that all things are interconnected through a single underlying essence or principle (i.e. materialist/agnostic monists believe this to be energy or matter (7)). Everything in the universe is then seen as emanations or manifestations of this ultimate reality.
 
 1.2 Beliefs
 
@@ -40,7 +40,7 @@ Examples: In some Tantric traditions, rituals and practices like yoga, meditatio
 
 2 Appendix
 
-Drudry, like it's eastern branch of Vedism, was heirarchal and divided people into four hierarchical castes: priestly or intellectual caste (Druid = Brahman), warriors (Fláith = Kshatriya), merchants (Bó-Aire  = Vaishya), workers (Fuidir = Shudra). Unlike Christianity's concept of equality before God, this religion didn't promote universal equality, but instead atomized people into castes (7). Rulers or warriors derived their authority from intelligence, strength and lineage, not a universal god. Any so-called Druid who tries to use this relgion to preach about things like equality is a role-playing christian universalist. 
+Drudry, like it's eastern branch of Vedism, was heirarchal and divided people into four hierarchical castes: priestly or intellectual caste (Druid = Brahman), warriors (Fláith = Kshatriya), merchants (Bó-Aire  = Vaishya), workers (Fuidir = Shudra). Unlike Christianity's concept of equality before God, this religion didn't promote universal equality, but instead atomized people into castes (8). Rulers or warriors derived their authority from intelligence, strength and lineage, not a universal god. Any so-called Druid who tries to use this relgion to preach about things like equality is a role-playing christian universalist. 
 
 3 Footnotes
 
@@ -55,12 +55,11 @@ Same as Celtic Uidta||Uidtu = Science, Knowledge, a cognate of the Sanskrit Veda
 --See: The Platonic Lambda Is the Key to Stonehenge. \[[link](https://antiquitasviva.com/wp-content/uploads/2021/06/29.1.23.-kurent-t.-the-platonic-lambda-is-the-key-to-the-stonehenge-composition.pdf)\] (The Platonic Lambda is a mathematical concept that appears in Plato's dialogue Timaeus. It is a geometric representation of the harmony of the universe, and it is based on the idea that the universe is composed of a series of geometric shapes, including triangles, squares, and cubes.The Platonic Lambda is thought to have been influenced by the Pythagorean concept of the "tetractys," which is a geometric diagram that consists of a series of dots or points arranged in a triangular pattern. The tetractys was seen as a representation of the fundamental harmony of the universe, and it was used by the Pythagoreans to illustrate the relationships between different numbers and shapes). Also: 
 Stonehenge builders used Pythagoras’ theorem 2,000 years before he was born \[[link](https://www.sciencealert.com/pythagoras-triangle-used-construction-stonehenge)\]\
 6\. Hyperborea, which just like Atlantis, was another name for Ireland. The word Atlantis means ‘The Island of Atlas’. The titan Atlas was a key figure in Greek mythology and is depicted as being the  bearer of the heavens. According to early Greek mythology, Atlas lived  on the sacred island of Hyperborea. Over time Hyperborea became Hybernia or Hibernia, the Roman name for Ireland.\
-7\. https://en.wikipedia.org/wiki/Trifunctional_hypothesis \[[link](https://en.wikipedia.org/wiki/Trifunctional_hypothesis)\]
+7\. Note on secular or atheistic Pagans: many are inspired by Carl Jung who combined psychoanalysis with Heathenry; the polytheistic deities = 'archetypes' \[[link](https://en.wikipedia.org/wiki/Jungian_archetypes)\]  of the 'collective unconscious' \[[link](https://en.wikipedia.org/wiki/Collective_unconscious)\] and rituals are ways of manifesting the Jungian archetypes into your life, inducing 'active imagination' \[[link](https://en.wikipedia.org/wiki/Active_imagination#Carl_Gustav_Jung)\], or a part of the process of 'individuation' \[[link](https://en.wikipedia.org/wiki/Individuation#In_Jungian_psychology)\]\. This is applicable to Druidism because Carl Jung promoted a monist cosmology and the archetypes (polytheistic deities) where eminations from the divine. See: \[[link](https://en.wikipedia.org/wiki/Double-aspect_theory#Pauli-Jung_conjecture)\]  \
+8\. https://en.wikipedia.org/wiki/Trifunctional_hypothesis \[[link](https://en.wikipedia.org/wiki/Trifunctional_hypothesis)\]
 
   
 Read more:  
   
 https://www.academia.edu/13113385/Druidism_and_Vedism_Compared \[[link](https://www.academia.edu/13113385/Druidism_and_Vedism_Compared)\]  
-https://en.wikipedia.org/wiki/Jungian_interpretation_of_religion \[[link](https://en.wikipedia.org/wiki/Jungian_interpretation_of_religion
-)\]  
 https://www.youtube.com/watch?v=_c7zzZeT-ws \[[link](https://www.youtube.com/watch?v=_c7zzZeT-ws)\])
