@@ -25,7 +25,7 @@ There are only three things that you need to know to understand Druidry:
 
 The founder of Druidry was Pythagoras (5) who was a student of a philosopher named Abaris the Hyperborean \[[link](https://en.wikipedia.org/wiki/Abaris_the_Hyperborean)\] (probably the same person) who was a Scythian who hailed from Hyperborea (6): _"And the Celtic Druids investigated to the very highest point the Pythagorean philosophy, after Zamolxis, by birth a Thracian, a servant of Pythagoras, became to them the originator of this philosophy"_ -- 'The Refutation of All Heresies', Chapter XXII.--The Druids; Progenitors of their System by St. Hippolytus. 
 
-So, the Druid cosmology was Pythagorian monism \[[link](https://en.wikipedia.org/wiki/Monism)\]. Monism is the philosophical view that all of reality is ultimately one, or that reality is fundamentally unified and that all things are interconnected through a single underlying essence or principle (i.e. materialist/agnostic monists believe this to be energy or matter). Everything in the universe is then seen as emanations or manifestations of this ultimate reality. As for the polytheistic deities, some polytheistic monists see them as sentient personal gods who eminate from the divine, others see them as symbolic representations of natural forces (numen/animism), others are atheists (7) who are attracted to tradition, ancestor veneration, and ancestry. Some atheistic Pagans are inspired by Carl Jung who combined psychoanalysis with Heathenry; the polytheistic deities = 'archetypes (8) of the collective unconscious (9)' to these Pagans.
+So, the Druid cosmology was Pythagorian monism \[[link](https://en.wikipedia.org/wiki/Monism)\]. Monism is the philosophical view that all of reality is ultimately one, or that reality is fundamentally unified and that all things are interconnected through a single underlying essence or principle (i.e. materialist/agnostic monists believe this to be energy or matter). Everything in the universe is then seen as emanations or manifestations of this ultimate reality.
 
 1.2 Beliefs
 
@@ -37,11 +37,10 @@ In monist relgions, rituals are about bringing someone to self-realization.
 
 Examples: In some Tantric traditions, rituals and practices like yoga, meditation, and mantra recitation are designed to help the individual realize their true nature as a manifestation of the divine. The goal is to awaken the individual's inner divinity and experience union with the ultimate reality. Advaita Vedanta: In this non-dualistic Hindu tradition, rituals and practices like meditation, self-inquiry, and devotion are aimed at helping the individual realize their true nature as the ultimate reality (Brahman). The goal is to transcend the ego and realize one's inherent divinity.
 
-To secular Druids who are inspired by Carl Jung, rituals could be ways of manifesting the Jungian archetypes into your life, inducing 'active imagination' (10), or a part of the process of 'individuation' (11)
 
 2 Appendix
 
-Drudry, like it's eastern branch of Vedism, was heirarchal and divided people into four hierarchical castes: priestly or intellectual caste (Druid = Brahman), warriors (Fláith = Kshatriya), merchants (Bó-Aire  = Vaishya), workers (Fuidir = Shudra). Unlike Christianity's concept of equality before God, this religion didn't promote universal equality, but instead atomized people into castes (12). Rulers or warriors derived their authority from intelligence, strength and lineage, not a universal god. Any so-called Druid who tries to use this relgion to preach about things like equality is a role-playing christian universalist. 
+Drudry, like it's eastern branch of Vedism, was heirarchal and divided people into four hierarchical castes: priestly or intellectual caste (Druid = Brahman), warriors (Fláith = Kshatriya), merchants (Bó-Aire  = Vaishya), workers (Fuidir = Shudra). Unlike Christianity's concept of equality before God, this religion didn't promote universal equality, but instead atomized people into castes (7). Rulers or warriors derived their authority from intelligence, strength and lineage, not a universal god. Any so-called Druid who tries to use this relgion to preach about things like equality is a role-playing christian universalist. 
 
 3 Footnotes
 
@@ -56,14 +55,7 @@ Same as Celtic Uidta||Uidtu = Science, Knowledge, a cognate of the Sanskrit Veda
 --See: The Platonic Lambda Is the Key to Stonehenge. \[[link](https://antiquitasviva.com/wp-content/uploads/2021/06/29.1.23.-kurent-t.-the-platonic-lambda-is-the-key-to-the-stonehenge-composition.pdf)\] (The Platonic Lambda is a mathematical concept that appears in Plato's dialogue Timaeus. It is a geometric representation of the harmony of the universe, and it is based on the idea that the universe is composed of a series of geometric shapes, including triangles, squares, and cubes.The Platonic Lambda is thought to have been influenced by the Pythagorean concept of the "tetractys," which is a geometric diagram that consists of a series of dots or points arranged in a triangular pattern. The tetractys was seen as a representation of the fundamental harmony of the universe, and it was used by the Pythagoreans to illustrate the relationships between different numbers and shapes). Also: 
 Stonehenge builders used Pythagoras’ theorem 2,000 years before he was born \[[link](https://www.sciencealert.com/pythagoras-triangle-used-construction-stonehenge)\]\
 6\. Hyperborea, which just like Atlantis, was another name for Ireland. The word Atlantis means ‘The Island of Atlas’. The titan Atlas was a key figure in Greek mythology and is depicted as being the  bearer of the heavens. According to early Greek mythology, Atlas lived  on the sacred island of Hyperborea. Over time Hyperborea became Hybernia or Hibernia, the Roman name for Ireland.\
-7\. https://en.wikipedia.org/wiki/Charvaka \[[link](https://en.wikipedia.org/wiki/Charvaka)\]\
---These Pagans don't worship a particular thing, they just appreciate the unity of existence, or seek to understand the ultimate nature of reality. Ancestor veneration is the only worship they do.\
---https://en.wikipedia.org/wiki/Secular_paganism \[[link](https://en.wikipedia.org/wiki/Secular_paganism)\]\
-8\. https://en.wikipedia.org/wiki/Jungian_archetypes \[[link](https://en.wikipedia.org/wiki/Jungian_archetypes)\]  \
-9\. https://en.wikipedia.org/wiki/Collective_unconscious \[[link](https://en.wikipedia.org/wiki/Collective_unconscious)\]\
-10\. https://en.wikipedia.org/wiki/Active_imagination#Carl_Gustav_Jung \[[link](https://en.wikipedia.org/wiki/Active_imagination#Carl_Gustav_Jung)\]  
-11\. https://en.wikipedia.org/wiki/Individuation#In_Jungian_psychology \[[link](https://en.wikipedia.org/wiki/Individuation#In_Jungian_psychology)\]\
-12\. https://en.wikipedia.org/wiki/Trifunctional_hypothesis \[[link](https://en.wikipedia.org/wiki/Trifunctional_hypothesis)\]
+7\. https://en.wikipedia.org/wiki/Trifunctional_hypothesis \[[link](https://en.wikipedia.org/wiki/Trifunctional_hypothesis)\]
 
   
 Read more:  
