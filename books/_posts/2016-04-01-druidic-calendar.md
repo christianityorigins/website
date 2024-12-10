@@ -1,7 +1,7 @@
 ---
 layout: post
 open_links_in_new_tab: true
-title:  "Druidic Calender"
+title:  "Druidic Calendar"
 date:   2016-04-01 09:00:00 +0200
 category: druidism
 ---
