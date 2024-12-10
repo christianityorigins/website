@@ -13,11 +13,11 @@ Celebrate the rebirth of the sun with fires, decorated trees, and feasting. Hono
 	* Christian Equivalent: Christmas (December 25)
 
 2. **Imbolc - February 1/2**
-Mark the midpoint between Yule and the spring equinox with rituals to purify and renew. Honor the goddess Brigid, patron of poetry, healing, and smithcraft.
+Mark the midpoint between Yule and the spring equinox with rituals to purify and renew.
 	* Christian Equivalent: Candlemas (February 2)
 
 3. **Ostara (Spring Equinox) - March 20/21**
-Welcome the return of spring with eggs, rabbits, and feasting. Honor the goddess Eostre, patron of fertility and new life.
+Welcome the return of spring with eggs, rabbits, and feasting.
 	* Christian Equivalent: Easter (movable date, typically in March or April)
 
 4. **Beltane - May 1/2**
