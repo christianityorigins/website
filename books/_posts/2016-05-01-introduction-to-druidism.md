@@ -3,7 +3,7 @@ layout: post
 open_links_in_new_tab: true
 title:  "Introduction to Druidism"
 date:   2016-05-01 09:00:00 +0200
-category: druidism
+category: essays
 ---
 
 CONTENTS
