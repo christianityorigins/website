@@ -38,7 +38,7 @@ In monist relgions, rituals are about bringing someone to self-realization. For 
 
 2 Appendix
 
-Drudry, like it's eastern branch of Vedism, was heirarchal and divided people into four hierarchical castes: priestly or intellectual caste (Druid = Brahman), warriors (Fláith = Kshatriya), merchants (Bó-Aire  = Vaishya), workers (Fuidir = Shudra). Unlike Christianity's concept of equality before God, this religion didn't promote universal equality, but instead atomized people into castes 78). Rulers or warriors derived their authority from intelligence, strength, and lineage, not a universal god. Any so-called Druid who tries to use this relgion to preach about things like equality is a role-playing christian universalist. 
+Drudry, like it's eastern branch of Vedism, was heirarchal and divided people into four hierarchical castes: priestly or intellectual caste (Druid = Brahman), warriors (Fláith = Kshatriya), merchants (Bó-Aire  = Vaishya), workers (Fuidir = Shudra). Unlike Christianity's concept of equality before God, this religion didn't promote universal equality, but instead atomized people into castes (7). Rulers or warriors derived their authority from intelligence, strength, and lineage, not a universal god. Any so-called Druid who tries to use this relgion to preach about things like equality is a role-playing christian universalist. 
 
 3 Footnotes
 
@@ -53,9 +53,9 @@ Drudry, like it's eastern branch of Vedism, was heirarchal and divided people in
 Stonehenge builders used Pythagoras’ theorem 2,000 years before he was born \[[link](https://www.sciencealert.com/pythagoras-triangle-used-construction-stonehenge)\]\
 5\. Hyperborea, which just like Atlantis, was another name for Ireland. The word Atlantis means ‘The Island of Atlas’. The titan Atlas was a key figure in Greek mythology and is depicted as being the  bearer of the heavens. According to early Greek mythology, Atlas lived  on the sacred island of Hyperborea. Over time Hyperborea became Hybernia or Hibernia, the Roman name for Ireland.\
 6\. Note on secular or atheistic Pagans: many are inspired by Carl Jung who combined psychoanalysis with Heathenry; the polytheistic deities = 'archetypes' \[[link](https://en.wikipedia.org/wiki/Jungian_archetypes)\]  of the 'collective unconscious' \[[link](https://en.wikipedia.org/wiki/Collective_unconscious)\] and rituals are ways of manifesting the Jungian archetypes into your life, inducing 'active imagination' \[[link](https://en.wikipedia.org/wiki/Active_imagination#Carl_Gustav_Jung)\], or a part of the process of 'individuation' \[[link](https://en.wikipedia.org/wiki/Individuation#In_Jungian_psychology)\]\. This is applicable to Druidism because Carl Jung promoted a monist cosmology. See: \[[link](https://en.wikipedia.org/wiki/Double-aspect_theory#Pauli-Jung_conjecture)\] Also: \[[link](https://www.youtube.com/watch?v=_c7zzZeT-ws)\] \
-7\. https://en.wikipedia.org/wiki/Trifunctional_hypothesis \[[link](https://en.wikipedia.org/wiki/Trifunctional_hypothesis)\]
+7\. https://en.wikipedia.org/wiki/Trifunctional_hypothesis \[[link](https://en.wikipedia.org/wiki/Trifunctional_hypothesis)\] \
+--In modern and pragmatic terms these castes could cognate to grades of initiation in Freemasonry (apprentice, fellowcraft, master mason, etc.). 
 
-  
 Read more:  
   
 https://www.academia.edu/13113385/Druidism_and_Vedism_Compared \[[link](https://www.academia.edu/13113385/Druidism_and_Vedism_Compared)\]  
