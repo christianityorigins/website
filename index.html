@@ -9,7 +9,7 @@ Welcome to the homepage of independent researcher and historian Hugo Pepe (BA. P
 {% for category in site.categories %}
   {% assign cat = category | first %}
   {% if cat == "books" or cat == "papers" %}
-    <h3>New {{ cat | capitalize }}</h3>
+    <h3>{{ cat | capitalize }}</h3>
     <ul>
     {% for post in site.categories[cat] limit:5 %}
       {% unless post.draft %}
