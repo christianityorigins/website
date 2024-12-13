@@ -7,9 +7,10 @@ updated: 2018-11-22 16:01:26 +0100
 Welcome to the homepage of independent researcher and historian Hugo Pepe (BA. Philosophy). On this website you will find working drafts of my first two books, academic research articles, and resources.
 
 {% for category in site.categories %}
-{% assign categories_to_show = "books, papers" | split: "," %}  <h3>{{ cat }}</h3>
+  {% assign cat = category | first %}
+  <h3>{{ cat }}</h3>
   <ul>
-  {% for post in site.categories[cat] limit:2 %}
+  {% for post in site.categories[cat] limit:5 %}
     {% unless post.draft %}
       <li><a href="{{ post.url }}">{{ post.title }}</a></li>
     {% endunless %}
