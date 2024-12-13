@@ -50,7 +50,6 @@ Correlations from the Bible:
 * "Train up a child in the way he should go, and when he is old he will not depart from it" (Proverbs 22:6)
 * "Children, obey your parents in the Lord, for this is right" (Ephesians 6:1)
 * "Let every person be subject to the governing authorities. For there is no authority except from God, and those that exist have been instituted by God" (Romans 13:1)
-* "Do not be conformed to the pattern of this world, but be transformed by the renewing of your mind" (Romans 12:2) - This verse reflects the idea that education should be designed to promote conformity and obedience, rather than critical thinking or creativity.
 
 References:
 
