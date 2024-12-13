@@ -54,7 +54,7 @@ Correlations from the Bible:
 
 References:
 
-* Horace Mann, "Annual Reports of the Secretary of the Board of Education" (1844-1848)
+* Horace Mann, "Annual Reports of the Secretary of the Board of Education" (1844-1848
 * Henry Barnard, "American Journal of Education" (1855-1880)
 * Calvin Stowe, "The Prussian System of Education" (1860)
 * Andrew Carnegie, "The Gospel of Wealth" (1889)
@@ -84,3 +84,4 @@ Read more:
 
 * Against School (2003) by John Taylor Gatto: https://www.cs.mcgill.ca/~abatko/interests/teaching/essays/Against_Schools/
 * Greek to Us: The Death of Classical Education and Its Consequences (2008) by E. Christian Kopff: https://www.takimag.com/article/greek_to_us_the_death_of_classical_education_and_its_consequences/
+* Classical education movement: https://en.wikipedia.org/wiki/Classical_education_movement
