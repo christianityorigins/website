@@ -27,8 +27,6 @@ The Prussian system was also promoted by the American industrialist and philanth
 
 The American branch of the Prussian system was designed to suppress critical thinking and creativity, and it emphasized obedience, discipline, and standardization. The system was based on the idea that children should be trained to follow rules and authority, rather than to think independently or critically.
 
-As the Bible says, "Train up a child in the way he should go, and when he is old he will not depart from it" (Proverbs 22:6). This verse reflects the idea that children should be trained to follow a specific path, rather than being encouraged to think critically or explore different options, and "Children, obey your parents in the Lord, for this is right" (Ephesians 6:1). This verse emphasizes the importance of obedience to authority, and it reflects the idea that children should be trained to follow rules and authority without question.
-
 Alexander Inglis's 1918 book Principles of Secondary Education breaks down the actual purpose of modern schooling into six basic functions:
  
 1) The adjustive or adaptive function. Schools are to establish fixed habits of reaction to authority. This, of course, precludes critical judgment completely. It also pretty much destroys the idea that useful or interesting material should be taught, because you can't test for reflexive obedience until you know whether you can make kids learn, and do, foolish and boring things.\
