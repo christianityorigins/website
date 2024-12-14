@@ -6,13 +6,13 @@ layout: none
   {% for post in site.posts %}
   <url>
     <loc>{{ site.url }}{{ post.url }}</loc>
-    <lastmod>{{ post.date | strftime: "%Y-%m-%d" }}</lastmod>
+    <lastmod>{{ post.date | default: site.time | strftime: "%Y-%m-%d" }}</lastmod>
   </url>
   {% endfor %}
   {% for page in site.pages %}
   <url>
     <loc>{{ site.url }}{{ page.url }}</loc>
-    <lastmod>{{ page.date | strftime: "%Y-%m-%d" }}</lastmod>
+    <lastmod>{{ page.date | default: site.time | strftime: "%Y-%m-%d" }}</lastmod>
   </url>
   {% endfor %}
 </urlset>
