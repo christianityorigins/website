@@ -20,3 +20,6 @@ If you appreciate my work please consider supporting me!<br /><br />
   });
 </script>
 
+
+
+You can also support my work by <a href="https://www.addtoany.com/share#url=https://www.newchronology.net&amp;title=" rel="nofollow" target="_blank">sharing my website</a> with your friends and family!
