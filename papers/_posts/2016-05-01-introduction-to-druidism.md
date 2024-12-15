@@ -55,8 +55,8 @@ Drudry, like it's eastern branch of Vedism, was heirarchal and divided people in
 Stonehenge builders used Pythagoras’ theorem 2,000 years before he was born \[[link](https://www.sciencealert.com/pythagoras-triangle-used-construction-stonehenge)\]\
 5\. Hyperborea, which just like Atlantis, was another name for Ireland. The word Atlantis means ‘The Island of Atlas’. The titan Atlas was a key figure in Greek mythology and is depicted as being the  bearer of the heavens. According to early Greek mythology, Atlas lived  on the sacred island of Hyperborea. Over time Hyperborea became Hybernia or Hibernia, the Roman name for Ireland.\
 6\. Note on secular or atheistic Pagans: many are inspired by Carl Jung who combined psychoanalysis with Heathenry; the polytheistic deities = 'archetypes' \[[link](https://en.wikipedia.org/wiki/Jungian_archetypes)\]  of the 'collective unconscious' \[[link](https://en.wikipedia.org/wiki/Collective_unconscious)\] and rituals are ways of manifesting the Jungian archetypes into your life, inducing 'active imagination' \[[link](https://en.wikipedia.org/wiki/Active_imagination#Carl_Gustav_Jung)\], or a part of the process of 'individuation' \[[link](https://en.wikipedia.org/wiki/Individuation#In_Jungian_psychology)\]\. This is applicable to Druidism because Carl Jung promoted a monist cosmology. See: \[[link](https://en.wikipedia.org/wiki/Double-aspect_theory#Pauli-Jung_conjecture)\] Also: \[[link](https://www.youtube.com/watch?v=_c7zzZeT-ws)\] \
-7\. European societies were always statified, universalism came with christianity \[[link](https://en.wikipedia.org/wiki/Trifunctional_hypothesis)\]\
---A modern and practical application these caste system could be similar to the grades of initiation in Freemasonry (Apprentice, Fellow Craft, Master Mason).
+7\. European societies were always statified, universalism came with christianity. See: Trifunctional hypothesis \[[link](https://en.wikipedia.org/wiki/Trifunctional_hypothesis)\]\
+--A modern and practical application of this caste system could be similar to the grades of initiation in Freemasonry (Apprentice, Fellow Craft, Master Mason).
 
 Read more:  
   
