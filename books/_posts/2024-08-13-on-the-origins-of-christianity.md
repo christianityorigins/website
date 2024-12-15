@@ -53,7 +53,7 @@ Appendix B. Expulsions from Rome for Trying to Spread Religions
 Preface
 -------
 
-Modern christianity was developed in two phases: 1)with its the foundation as an imperial cult, and 2)then with the subversion of this imperial cult after the Bar Kokhba revolt (132–136 CE).
+Modern christianity was developed in two phases: 1)with its the foundation as an imperial cult, and then 2)with the subversion of this imperial cult after the Bar Kokhba revolt (132–136 CE).
 
 Imperial Cult
 
