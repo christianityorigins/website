@@ -29,7 +29,7 @@ So, the Druid cosmology was Pythagorian monism \[[link](https://en.wikipedia.org
 
 1.2 Beliefs
 
-Monist cosmology posits that the universe is composed of a single fundamental substance or reality. This means that the divine is not a separate and transcendent entity but rather an inherent aspect of the universe, and humans are not separate from the divine but rather an unfolding or manifestation of it. Therefore, in monist cosmologies, self-realization or self-actualization is often seen as the process of recognizing and embodying one's true nature as an expression of the divine.
+Monist cosmology posits that the universe is composed of a single fundamental substance or reality. This means that the divine is not a separate and transcendent entity but rather an inherent aspect of the universe, and humans are not separate from the divine but rather an unfolding or manifestation of it. Therefore, in monist cosmologies, self-realization or self-actualization is often seen as the process of recognizing and embodying one's true nature as an expression of the divine. This can be seen as a form of self-deification.
 
 1.3 Rituals
 
