@@ -1,7 +1,7 @@
 ---
 layout: post
 open_links_in_new_tab: true
-title:  "Pythagoreanism"
+title:  "Introduction to Pythagoreanism"
 date:   2016-05-01 09:00:00 +0200
 category: papers
 ---
