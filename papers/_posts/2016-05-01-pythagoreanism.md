@@ -30,7 +30,7 @@ Monist cosmology posits that the universe is composed of a single fundamental su
 
 1.3 Rituals
 
-In monist religions, rituals are about bringing someone to self-realization. For example, in some Tantric traditions, rituals and practices like yoga, meditation, self-inquiry, and mantra recitation are designed to help the individual realize their true nature as a manifestation of the divine. The goal is to awaken the individual's inner divinity and are aimed at helping the individual realize their true nature as the ultimate reality. The goal is to transcend the ego and realize one's inherent divinity.
+In monist religions, rituals are about bringing someone to self-realization. For example, rituals and practices like yoga, meditation, self-inquiry, and mantra recitation are used to help the individual realize their true nature as a manifestation of the divine. The goal is to awaken the individual's inner divinity and are aimed at helping the individual realize their true nature as the ultimate reality. The goal is to transcend the ego and realize one's inherent divinity.
 
 2 Footnotes
 
