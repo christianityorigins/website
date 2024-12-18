@@ -39,4 +39,5 @@ In monist religions, rituals are about bringing someone to self-realization. For
 Read more:  
   
 https://en.wikipedia.org/wiki/Monism
+
 https://en.wikipedia.org/wiki/Pythagoreanism
