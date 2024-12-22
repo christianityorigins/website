@@ -4,22 +4,22 @@ title: Home
 updated: 2018-11-22 16:01:26 +0100
 ---
 
-Welcome to the homepage of independent researcher and historian Hugo Pepe (BA. Philosophy). On this website you will find working drafts of my first two books, academic research articles, and resources.
+Welcome to the homepage of independent researcher Pepe (BA. Philosophy). On this website you will find working drafts of my first two books, academic research articles, and resources.
 
-<!-- Books Section -->
-<h3>Books</h3>
+<!-- Writing Section -->
+<h3>Writing</h3>
 <ul>
-{% for post in site.categories.books limit:5 %}
+{% for post in site.categories.writing limit:5 %}
   {% unless post.draft %}
     <li><a href="{{ post.url }}">{{ post.title }}</a></li>
   {% endunless %}
 {% endfor %}
 </ul>
 
-<!-- Papers Section -->
-<h3>Papers</h3>
+<!-- Photography Section -->
+<h3>Photography</h3>
 <ul>
-{% for post in site.categories.papers limit:5 %}
+{% for post in site.categories.photography limit:5 %}
   {% unless post.draft %}
     <li><a href="{{ post.url }}">{{ post.title }}</a></li>
   {% endunless %}
