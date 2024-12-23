@@ -4,7 +4,7 @@ open_links_in_new_tab: true
 title:  "The Prussian Educational System"
 date:   2016-03-01 09:00:00 +0200
 updated: 2018-11-23 21:40:58 +0100
-category: papers
+category: writing
 ---
 
 The Prussian Educational System
