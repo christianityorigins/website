@@ -38,8 +38,6 @@ Alexander Inglis's 1918 book Principles of Secondary Education breaks down the a
 
 That, unfortunately, is the purpose of mandatory public education in the west. To dumb people down, to demoralize them, to divide them from one another, and to discard them if they don't conform. This is why Woodrow Wilson, then president of Princeton University, said the following to the New York City School Teachers Association in 1909: "We want one class of persons to have a liberal education, and we want another class of persons, a very much larger class, of necessity, in every society, to forgo the privileges of a liberal education and fit themselves to perform specific difficult manual tasks". 
 
-Western countries have a control system where non-pliable men are identified at a very young age and systematically beat down until they conform. Religion (christianity), education, social norms, are all designed to do this. There is a system in place, and how well you succeed within it is entirely based on determinate factors (6). The only way to win is to take yourself out of this system; keep your kids out of churches, homeschool them, find communities that are focused on creating parallel economies, etc.
-
 Key figures in the exportation of the Prussian education system to America include:
 
 * Horace Mann: A prominent American educator and politician who traveled to Prussia to study the education system and introduced it to America.
@@ -80,8 +78,7 @@ Footnotes:
 3. Luther's Large Catechism: https://en.wikipedia.org/wiki/Luther%27s_Large_Catechism
 4. Index Librorum Prohibitorum: https://en.wikipedia.org/wiki/Index_Librorum_Prohibitorum
 5. Condemnations of 1210-1277: https://en.wikipedia.org/wiki/Condemnations_of_1210%E2%80%931277
-6. Environment/family wealth/social network/looks are things that take you out of the system: https://incels.wiki/w/Matthew_effect
-
+   
 Read more:
 
 * Against School (2003) by John Taylor Gatto: https://www.cs.mcgill.ca/~abatko/interests/teaching/essays/Against_Schools/
