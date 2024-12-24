@@ -22,7 +22,7 @@ Chapter 1. The Christian System\
 1.1. Monotheism\
 1.2. Universalism\
 1.3. Transvaluation of Values\
-1.4. Weaponizing the "Chandala" Castes (Nietzschean 'Ressentiment')\
+1.4. Nietzschean 'Ressentiment' (Weaponizing the "Chandala" Castes)\
 1.5. Slave Morality System\
 Chapter 2. Secularization of Christianity\
 Chapter 3. Marxism is Secularized Christianity\
@@ -71,7 +71,7 @@ Friedrich Nietzsche's concept of the "transvaluation of values" is central to un
 
   
 
-1.4. Weaponizing the "Chandala" Castes (Nietzschean Ressentiment)
+1.4. Nietzschean 'Ressentiment' (Weaponizing the "Chandala" Castes)
   
 Universalism, the transvaluation of traditional ethnic values, monotheism (good vs. evil), and the concept of sin exist to self-deify and weaponize the lowest castes. This is why Friedrich Nietzsche called christiantiy and it's secularized variant of leftism "slave-moralities", because it allowed the slaves to feel morally and socially to the higher castes based on the concept of sin.
 \
