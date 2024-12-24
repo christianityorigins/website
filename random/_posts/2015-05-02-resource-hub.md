@@ -46,6 +46,5 @@ Underwater Cities |
 <a href="https://ufostalker.com" target="_blank" rel="nofollow">UFO Stalker</a>
 
 ### WWII Data:
-<a href="https://en.metapedia.org/wiki/Bombing_of_Dresden_in_World_War_II" target="_blank" rel="nofollow">Bombing of Dresden in World War II</a> |
 <a href="http://www.ihr.org/jhr/v10/v10p161_Brech.html" target="_blank" rel="nofollow">A US Soldier Remembers Eisenhower's Monstrous Genocide</a> | 
 <a href="http://library.flawlesslogic.com/ike.htm" target="_blank" rel="nofollow">Eisenhower's Starvation Order And Genocide</a>
