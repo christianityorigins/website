@@ -740,12 +740,15 @@ The jews were expelled at least three times from Rome after being accused of mis
 
 –Emperor Caligula Brought an End to the Illustrious Ptolemies, but Why?. Ancient Origins Reconstructing the Story of Humanity’s Past. www.ancient-origins.net/history-famous-people/emperor-caligula-brought-end-illustrious-ptolemies-why-007591
 
-**Additional Sources**
+**Main Sources Used**
 
-_Christianity Exposed_ (1843) by Bruno Bauer \[[link](https://play.google.com/store/books/details?id=mrP4MDmYNXkC&rdid=book-mrP4MDmYNXkC&rdot=1)\]  
-_Christ and the Caesars_ (1879) by Bruno Bauer \[[link](http://www.sidneyrigdon.com/vern/1879BaurEng.htm)\]  
-_History: Fiction or Science? Chronology volumes 1–7_ (2007-2024) by Anatoly Fomenko \[[link](https://archive.org/details/AnatolyFomenkoBooks/DatingPtolemysAlmagestByAnatolyFomenko/page/n3/mode/1up)\]\
-_Cleopatra to Christ_ (2010) by Ralph Ellis \[[link](https://www.google.com/books/edition/Cleopatra_to_Christ/T7sqfHyWPuQC?hl=en&gbpv=1&dq=cleopatra+to+christ&printsec=frontcover)\] (_reveals that the biblical Jesus was based on King Izates of Adiabene who was directly descended from Cleopatra VII_)  
-_Jesus Among the Julio-Claudians_ (2017) by Charles N. Pope \[[link](https://books.google.se/books/about/Jesus_Among_the_Julio_Claudians.html?id=c7A3DwAAQBAJ&redir_esc=y)\]   
-_Creating Christianity: A Weapon Of Ancient Rome_ (2018) by Henry Davis \[[link](https://books.google.com/books/about/Creating_Christianity_A_Weapon_Of_Ancien.html?id=-M1VEAAAQBAJ)\] (_reveals that the Flavians were crypto-jewish descendants of King Herod_)  
+_Christianity Exposed_ (1843) by Bruno Bauer \[[link](https://play.google.com/store/books/details?id=mrP4MDmYNXkC&rdid=book-mrP4MDmYNXkC&rdot=1)\]  \
+_Christ and the Caesars_ (1879) by Bruno Bauer \[[link](http://www.sidneyrigdon.com/vern/1879BaurEng.htm)\]  \
+_On the Genealogy of Morality_ (1887) by Friedrich Nietzsche [<a href="https://en.wikipedia.org/wiki/On_the_Genealogy_of_Morality" rel="nofollow" target="_blank">link</a>] \
+_Christianity: A Religion for Sheep_ (1980) by Revilo P. Oliver [<a href="https://nationalvanguard.org/2018/06/christianity-a-religion-for-sheep/" rel="nofollow" target="_blank">link</a>] \
+_A Forgery of Our Own_ (1991) by Revilo P. Oliver [<a href="http://www.revilo-oliver.com/rpo/Forgery_of_Our_Own.html" rel="nofollow" target="_blank">link</a>] \
+_The Origins of Christianity_ (1994) by Revilo P. Oliver [<a href="https://archive.org/details/the-origins-of-christianity-by-revilo-p-oliver-z-lib.org" rel="nofollow" target="_blank">link</a>] \
+_Reflections on the Christ Myth_ (1994) by Revilo P. Oliver [link] \
+_Cleopatra to Christ_ (2010) by Ralph Ellis \[[link](https://www.google.com/books/edition/Cleopatra_to_Christ/T7sqfHyWPuQC?hl=en&gbpv=1&dq=cleopatra+to+christ&printsec=frontcover)\] (_reveals that the biblical Jesus was based on King Izates of Adiabene who was directly descended from Cleopatra VII_)  \
+_Jesus Among the Julio-Claudians_ (2017) by Charles N. Pope \[[link](https://books.google.se/books/about/Jesus_Among_the_Julio_Claudians.html?id=c7A3DwAAQBAJ&redir_esc=y)\]   \
 _Following Philo to Pallas (the Freedman): The Most Powerful Man in First Century Rome, also known as Goddess (the Mother)_ (2019) by P.J. Gott \[[link](https://www.amazon.com/Following-Philo-Pallas-Freedman-Powerful-ebook/dp/B07PXKQGYG/)\] (_reveals that Philo of Alexandria was a pen-name for Cleopatra of Mauretania who was married to her brother Alexander (grandson of King Herod)/Ptolemy of Mauretania, therefore, she was the mother of Tiberius Julius Alexander/Arrius Piso. Also, that she was Claudius and Nero's secretary 'Pallas' and Vespasian's first cousin and mistress Antonia Caenis_)
