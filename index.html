@@ -18,10 +18,10 @@ I am an independent researcher who has a general interest in heterodox ideas, od
 {% endfor %}
 </ul>
 
-<!-- Photography Section -->
-<h3>Photography</h3>
+<!-- Random Section -->
+<h3>Random</h3>
 <ul>
-{% for post in site.categories.photography limit:5 %}
+{% for post in site.categories.random limit:5 %}
   {% unless post.draft %}
     <li><a href="{{ post.url }}">{{ post.title }}</a></li>
   {% endunless %}
