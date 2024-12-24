@@ -11,6 +11,7 @@ category: Random
 _Christianity Exposed_ (1843) by Bruno Bauer [<a href="https://play.google.com/store/books/details?id=mrP4MDmYNXkC&amp;rdid=book-mrP4MDmYNXkC&amp;rdot=1" rel="nofollow" target="_blank">link</a>] |
 _Christ and the Caesars_ (1879) by Bruno Bauer [<a href="http://www.sidneyrigdon.com/vern/1879BaurEng.htm" rel="nofollow" target="_blank">link</a>] |
 _On the Genealogy of Morality_ (1887) by Friedrich Nietzsche [<a href="https://en.wikipedia.org/wiki/On_the_Genealogy_of_Morality" rel="nofollow" target="_blank">link</a>] |
+_Christianity and the Survival of the West_ (1973) by Revilo P. Oliver [<a href="https://ia601306.us.archive.org/15/items/ChristianityAndTheSurvivalOfTheWest/ChristianityAndTheSurvivalOfTheWest.pdf" rel="nofollow" target="_blank">link</a>] |
 _Christianity: A Religion for Sheep_ (1980) by Revilo P. Oliver [<a href="https://archive.org/details/christianity-a-religion-for-sheep-by-ralph-perrier-revilo-p.-oliver-z-lib.org" rel="nofollow" target="_blank">link</a>] |
 _A Forgery of Our Own_ (1991) by Revilo P. Oliver [<a href="http://www.revilo-oliver.com/rpo/Forgery_of_Our_Own.html" rel="nofollow" target="_blank">link</a>] |
 _The Origins of Christianity_ (1994) by Revilo P. Oliver [<a href="https://archive.org/details/the-origins-of-christianity-by-revilo-p-oliver-z-lib.org" rel="nofollow" target="_blank">link</a>] |
