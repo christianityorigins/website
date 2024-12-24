@@ -745,8 +745,7 @@ The jews were expelled at least three times from Rome after being accused of mis
 _Christianity Exposed_ (1843) by Bruno Bauer \[[link](https://play.google.com/store/books/details?id=mrP4MDmYNXkC&rdid=book-mrP4MDmYNXkC&rdot=1)\]  \
 _Christ and the Caesars_ (1879) by Bruno Bauer \[[link](http://www.sidneyrigdon.com/vern/1879BaurEng.htm)\]  \
 _On the Genealogy of Morality_ (1887) by Friedrich Nietzsche [<a href="https://en.wikipedia.org/wiki/On_the_Genealogy_of_Morality" rel="nofollow" target="_blank">link</a>] \
-_Christianity: A Religion for Sheep_ (1980) by Revilo P. Oliver [<a href="https://nationalvanguard.org/2018/06/christianity-a-religion-for-sheep/" rel="nofollow" target="_blank">link</a>] \
-_A Forgery of Our Own_ (1991) by Revilo P. Oliver [<a href="http://www.revilo-oliver.com/rpo/Forgery_of_Our_Own.html" rel="nofollow" target="_blank">link</a>] \
+_A Forgery of Our Own_ (1991) by Revilo P. Oliver [<a href="http://www.revilo-oliver.com/rpo/Forgery_of_Our_Own.html" rel="nofollow" target="_blank">link</a>] (_short article where professor Revilo P. Oliver points the finger at Rabbi Akiva as being the center piece of the conspiracy to create a psy-op religion to subjugte the Romans._) \
 _The Origins of Christianity_ (1994) by Revilo P. Oliver [<a href="https://archive.org/details/the-origins-of-christianity-by-revilo-p-oliver-z-lib.org" rel="nofollow" target="_blank">link</a>] \
 _Reflections on the Christ Myth_ (1994) by Revilo P. Oliver [link] \
 _Cleopatra to Christ_ (2010) by Ralph Ellis \[[link](https://www.google.com/books/edition/Cleopatra_to_Christ/T7sqfHyWPuQC?hl=en&gbpv=1&dq=cleopatra+to+christ&printsec=frontcover)\] (_reveals that the biblical Jesus was based on King Izates of Adiabene who was directly descended from Cleopatra VII_)  \
