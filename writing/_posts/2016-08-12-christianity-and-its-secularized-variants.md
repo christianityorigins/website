@@ -22,7 +22,7 @@ Chapter 1. The Christian System\
 1.1. Monotheism\
 1.2. Universalism\
 1.3. Transvaluation of Values\
-1.4. Weaponizing the "Chandala" Castes\
+1.4. Weaponizing the "Chandala" Castes (Nietzschean 'Ressentiment')\
 1.5. Slave Morality System\
 Chapter 2. Secularization of Christianity\
 Chapter 3. Marxism is Secularized Christianity\
@@ -71,10 +71,11 @@ Friedrich Nietzsche's concept of the "transvaluation of values" is central to un
 
   
 
-1.4. Weaponizing the "Chandala" Castes  
+1.4. Weaponizing the "Chandala" Castes (Nietzschean Ressentiment)
   
-Universalism, the transvaluation of traditional ethnic values, monotheism (good vs. evil), and the concept of sin exist to self-deify and weaponize the lowest castes. \
-        Friedrich Nietzsche, in his book 'On the Genealogy of Morality' (1887), wrote that the jews (5), who he claimed are motivated by deep resentment and hatred (6), create these "slave morality" systems (7) (Christianity and its secularized variants of Marxism/Bolshevism/Leftism/Progressivism), which, through monotheism (good vs evil), universalism, the 'transvaluation of values', and the concept of sin is designed to empower the lowest "chandala" castes (8). This is what makes the system self-policing and self-regulating. The savior complex (9) is a subset of christian self-deification and is a heritage of monotheism and messianism (10). Self-deification (11) is the foundation for attacking heretics (12) and redeeming others.
+Universalism, the transvaluation of traditional ethnic values, monotheism (good vs. evil), and the concept of sin exist to self-deify and weaponize the lowest castes. This is why Friedrich Nietzsche called christiantiy and it's secularized variant of leftism "slave-moralities", because it allowed the slaves to feel morally and socially to the higher castes based on the concept of sin.
+\
+ &nbsp;&nbsp; &nbsp;&nbsp;&nbsp;&nbsp;       In his book 'On the Genealogy of Morality' (1887) Friedrich Nietzsche wrote that the jews (5), who he claimed are motivated by deep resentment and hatred (6), create these "slave morality" systems (7) to empower the lowest "chandala" castes (8). This is what makes the system self-policing and self-regulating. The savior complex (9) is a subset of christian self-deification and is a heritage of monotheism and messianism (10). Self-deification (11) is the foundation for attacking those that are identified as heretics (12) and redeeming others.
 
   
 
