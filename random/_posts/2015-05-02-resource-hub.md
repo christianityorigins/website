@@ -29,6 +29,7 @@ _Reflections on the Christ Myth_ (1994) by Revilo P. Oliver [<a href="https://ia
 <a href="https://archive.org/details/oldtimeradio" target="_blank" rel="nofollow">Old Time Radio Broadcasts</a>
 
 ### Vintage Newspapers and Magazines:
+<a href="https://www.gutenberg.org/ebooks/subjects/search/?query=PERIODICALS&sort_order=release_date" target="_blank" rel="nofollow">Project Gutenberg's Periodicals</a> |
 <a href="https://en.wikipedia.org/wiki/List_of_18th-century_British_periodicals" target="_blank" rel="nofollow">List of 18th-century British Periodicals</a> | 
 <a href="https://www.victorianresearch.org/openaccessperiodicals.html" target="_blank" rel="nofollow">19th-century British Periodicals</a> | 
 <a href="https://en.wikipedia.org/wiki/List_of_19th-century_British_periodicals" target="_blank" rel="nofollow">List of 19th-century British Periodicals</a> | 
