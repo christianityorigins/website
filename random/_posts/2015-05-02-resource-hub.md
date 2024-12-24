@@ -14,7 +14,7 @@ _On the Genealogy of Morality_ (1887) by Friedrich Nietzsche [<a href="https://e
 _Christianity: A Religion for Sheep_ (1980) by Revilo P. Oliver [<a href="https://archive.org/details/christianity-a-religion-for-sheep-by-ralph-perrier-revilo-p.-oliver-z-lib.org" rel="nofollow" target="_blank">link</a>] |
 _A Forgery of Our Own_ (1991) by Revilo P. Oliver [<a href="http://www.revilo-oliver.com/rpo/Forgery_of_Our_Own.html" rel="nofollow" target="_blank">link</a>] |
 _The Origins of Christianity_ (1994) by Revilo P. Oliver [<a href="https://archive.org/details/the-origins-of-christianity-by-revilo-p-oliver-z-lib.org" rel="nofollow" target="_blank">link</a>] |
-_Reflections on the Christ Myth_ (1994) by Revilo P. Oliver [link] 
+_Reflections on the Christ Myth_ (1994) by Revilo P. Oliver [<a href="https://ia600201.us.archive.org/22/items/ReflectionsOnTheChristMyth_518/ReflectionsOnTheChristMyth-Oliver.pdf" rel="nofollow" target="_blank">link</a>]
 
 ### Classic Movies and Television:
 <a href="https://wikiflix.toolforge.org/#" target="_blank" rel="nofollow">WikiFlix</a> |
@@ -42,7 +42,7 @@ Solutrean |
 Gobekli Tepe | 
 Megalith buildings/Stonehenge | 
 Underwater Cities | 
-<a href="https://en.wikipedia.org/wiki/Seven_Sages_of_Greece" target="_blank" rel="nofollow">Seven Sages of Greece</a> | 
+<a href="https://en.wikipedia.org/wiki/Seven_Sages_of_Greece" target="_blank" rel="nofollow">Seven Sages of Greece</a> (see also: <a href="https://www.academia.edu/41982447/The_Seven_Seers_of_the_Northern_World" target="_blank" rel="nofollow">Seven Druidic Seers of Northern Europe</a>) | 
 <a href="https://ufostalker.com" target="_blank" rel="nofollow">UFO Stalker</a>
 
 ### WWII Data:
