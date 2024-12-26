@@ -88,6 +88,7 @@ While Christianity empowers the "chandala" caste through universalism and the t
   
 
 *   Fear and punishment/trauma based mind-control programming: the concept of "hell" that they plagiarized from Plato's Republic (the 'Myth of Er' (14)); the lifelong fear of death (Pagans equated death with glory). Also, reward. The concept of "heaven" for asceticism/suffering/obedience.
+*   Omniscient god: the concept of a self-existant god who can read your thoughts and judge your behavior becomes a behavior regulating mechanism.
 *   Emphasis on Suffering: Christian narratives focus on the suffering of Christ and the martyrs which glorifies weakness and passivity making it seem more virtuous to endure suffering than to overcome it. This is a way for the the oppressed to find validation in their hardships.
 *   Group polarization (15).
 *   Guilt and shame: Instilling guilt and shame complexes from birth and then offering a program of "salvation" to cleanse you of that guilt and shame (through working against your own tribal and familial interests). Christians are brainwashed into believing that they are sinners (there are dozens of types) and that they were born with Original Sin (sin you inherit from simply being born).
