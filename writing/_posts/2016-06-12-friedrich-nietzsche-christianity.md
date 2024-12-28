@@ -42,5 +42,5 @@ Quotes
 
 Read more
 
-Index of The Project Gutenberg Works of Friedrich Nietzsche
+Index of The Project Gutenberg Works of Friedrich Nietzsche\
 https://www.gutenberg.org/files/58025/58025-h/58025-h.htm \[[link](https://www.gutenberg.org/files/58025/58025-h/58025-h.htm)\]
