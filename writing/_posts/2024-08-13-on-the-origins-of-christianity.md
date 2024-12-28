@@ -116,7 +116,7 @@ This conspiracy was so elaborate that this group even rewrote history to make it
 *https://en.wikipedia.org/wiki/Letter\_to\_Flora (the Letter to Flora and the Tripartite Tractate write about a Gnostic teacher called "Ptolemy" who I identify as Ptolemy Menneus aka Simon Boethus aka Simon Magus).\
 *Kabbalists believe that Rabbi Akiba was a gilgul (reincarnation) of Zimri, a prince of the Tribe of Simeon who participated in the Heresy of Peor. \
 *Flavius Josephus in the 'Antiquities of the Jews'. Book I. Chapter 1: "For Gomer founded those whom the Greeks now call Galatians [Galls], but were then called Gomerites. Magog founded those that from him were named Magogites; but who are by the Greeks called Scythians". Josephus is suggesting that the Hebrew word "Goy" (meaning "nation" or "people") is related to the Greek word "Galatae" (meaning "Gauls" or "Galatians"), and that both words are ultimately derived from a common root. \
-*The Celtic languages are also surprisingly Semitic with a verb-subject-object word order and a shocking amount of vocabulary overlap, just look at the name of Irish deities, Balor and his holiday Beltaine are cognate to Bal and Elatha the Irish Uranus is cognate to Hebrew El. The jews stole their entire identity from their time in Anatolia.
+*The Celtic languages are also surprisingly Semitic with a verb-subject-object word order and a shocking amount of vocabulary overlap, just look at the name of Irish deities, Balor and his holiday Beltaine are cognate to Bal and Elatha the Irish Uranus is cognate to Hebrew El. The Celtic Gauls made it to israel. 'Gaulinitis' = Golan Heights. The jews stole their entire identity and religion from the Celts in Galatia and Gaulinitis.
 
 Characters
 ----------
