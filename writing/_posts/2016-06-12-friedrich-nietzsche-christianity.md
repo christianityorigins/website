@@ -28,8 +28,6 @@ Quotes
 
 -_The democratic movement is a result of Christian morality, which has created the idea of the equality of all men. This idea is the root of modern socialism and democracy, which are both secular forms of Christian equality._ - Friedrich Nietzsche
 
--_Liberalism is the transformation of mankind into cattle._ - Friedrich Nietzsche
-
 -_The modern age is characterized by a general degeneration, where the values of Christianity have been secularized and transformed into political and social doctrines. The egalitarian impulse that characterizes modern socialism and democracy has its roots in Christian morality._  - Friedrich Nietzsche
 
 -_The modern democratic state is the reincarnation of Christian morality in secular form._ - Friedrich Nietzsche
