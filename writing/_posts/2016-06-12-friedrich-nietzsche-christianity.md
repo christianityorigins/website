@@ -28,7 +28,21 @@ Quotes
 
 -_The democratic movement is a result of Christian morality, which has created the idea of the equality of all men. This idea is the root of modern socialism and democracy, which are both secular forms of Christian equality._ - Friedrich Nietzsche
 
+-_Liberalism is the transformation of mankind into cattle._ - Friedrich Nietzsche
+
 -_The modern age is characterized by a general degeneration, where the values of Christianity have been secularized and transformed into political and social doctrines. The egalitarian impulse that characterizes modern socialism and democracy has its roots in Christian morality._  - Friedrich Nietzsche
+
+-_The modern democratic state is the reincarnation of Christian morality in secular form._ - Friedrich Nietzsche
+
+-_Leftism is the last refuge of the weak, a secularized form of Christian charity._ - Friedrich Nietzsche
+
+-_The secularized Christianity of the modern world is the most insidious and the most perfidious form of Christianity._ - Friedrich Nietzsche
+
+-_The modern world is a secularized Christianity, and it is this that makes it so difficult to understand._ - Friedrich Nietzsche
+
+-_The Christian resolution to find the world ugly and bad has made the world ugly and bad._ - Friedrich Nietzsche
+
+-_What is bad? But I have already answered: all that proceeds from weakness, from envy, from revenge.—The anarchist and the Christian have the same ancestry_ - Friedrich Nietzsche
 
 -_Christianity has taken the side of everything weak, base, and lowly; it has made a virtue of these qualities and has made them a tool for the overthrow of the powerful._  - Friedrich Nietzsche
 
