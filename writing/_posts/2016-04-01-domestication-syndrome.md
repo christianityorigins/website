@@ -51,4 +51,4 @@ Read more
 
 https://en.wikipedia.org/wiki/Ressentiment [[link](https://en.wikipedia.org/wiki/Ressentiment)] \
 https://en.wikipedia.org/wiki/Last_man [[link](hhttps://en.wikipedia.org/wiki/Last_man)] \
-https://en.metapedia.org/wiki/The_Revolt_Against_Civilization:_The_Menace_of_the_Under-Man [[link](https://en.wikipedia.org/wiki/R/K_selection_theory)]
+https://en.metapedia.org/wiki/The_Revolt_Against_Civilization:_The_Menace_of_the_Under-Man [[link](https://en.metapedia.org/wiki/The_Revolt_Against_Civilization:_The_Menace_of_the_Under-Man)]
