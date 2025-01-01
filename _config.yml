@@ -4,13 +4,13 @@ plugins:
   - jekyll-seo-tag
   - jekyll-minifier
   
-title: newchronology.net
-url: https://newchronology.net
+title: lunalucifera.org
+url: https://www.lunalucifera.org
 baseurl: ""
 description: "Personal website of Hugo Pepe"
 author: Hugo
 twitter: 
-email: christcuck@christcuck.org
+email: admin@lunalucifera.org
 
 timezone: Europe/Madrid
 google_analytics_tracking_id: G-FD37YDYVR1
