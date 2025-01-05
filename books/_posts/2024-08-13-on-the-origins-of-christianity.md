@@ -65,7 +65,7 @@ Dynamis's grandfather was Mithridates VI Eupator who carried the title ‘king o
 <img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgkg6HruekpVy4HBBuLQSuMiuGOR2wu3EZ76AfMbs-6IwmFJ-vz4vyT_oWC0auWEf-hb3-OOXjsrcPBXi97b0FHy0w75CfU4u6Y7TpDAEKqpvzDD00Yzv1HkrYWJ1ARGblqY3_B8U_KVfgx9lAx1h7ghnU42xnq9LNMlmXFWvHR_6gjGP7EzM2BE12JEK4/s1163/coin-abgar-phraates-imageonline.co-merged.png" width="400"></p>
 
 
-<p align="center">Fig. 1.1. King Izates of Monobazus wearing a crown of thorns. The middle image source: The Alexander Mosaic, Huqoq, Israel.</p>
+<p align="center">Fig. 1.1. (L) and (R) show King Izates of Monobazus wearing a crown of thorns. The middle image source: The Alexander Mosaic, Huqoq, Israel.</p>
 
 Cleopatra aka Dynamis's son with Julius Caesar aka Asander = Tiberius Julius Aspurgus Philoromaios, who was born about the same time as Caesarion and Emperor Tiberius Julius Caesar.
 
