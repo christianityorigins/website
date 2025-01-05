@@ -97,7 +97,7 @@ The Galatians of Anatolia were Celtic \[[link](https://en.wikipedia.org/wiki/Gal
 
 Religious syncretism was a social engineering tool designed to turn people into agents or pawns of the ruling class, serving as a soft-power control system for the imperial elite. These elites used religion, as well as an incredible number of aliases, locations, fictional stories, and faked deaths for their family members to control the population. They role-played as deities, religious figures, and different characters, as if they were actors in a play. 
 
-Then, after the Bar Kokhba Revolt (132–136 CE), this imperial slave-morality cult was subverted by a confederation of rabbi's that were headed by a rabbi named Akiva.
+Then, after the Bar Kokhba Revolt (132–136 CE), this imperial slave-morality cult was subverted by a confederation of rabbi's who were headed by a rabbi named Akiva.
 
   
 The Cult of Antinous and the Bar Kokhba Revolt (132–136 CE)
