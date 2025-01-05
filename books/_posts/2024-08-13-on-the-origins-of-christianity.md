@@ -81,7 +81,7 @@ Cleopatra aka Dynamis's other grandson with Mark Antony (Tiberius Julius Alexand
 <img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgkg6HruekpVy4HBBuLQSuMiuGOR2wu3EZ76AfMbs-6IwmFJ-vz4vyT_oWC0auWEf-hb3-OOXjsrcPBXi97b0FHy0w75CfU4u6Y7TpDAEKqpvzDD00Yzv1HkrYWJ1ARGblqY3_B8U_KVfgx9lAx1h7ghnU42xnq9LNMlmXFWvHR_6gjGP7EzM2BE12JEK4/s1163/coin-abgar-phraates-imageonline.co-merged.png" width="400"></p>
 
 
-<p align="center">Fig. 1.2. (L) and (R) show King Izates of Monobazus wearing a crown of thorns. The middle image source: The Alexander Mosaic, Huqoq, Israel.</p>
+<p align="center">Fig. 1.2. (L) and (R) show King Izates Monobazus of Adiabene wearing a crown of thorns. The middle image source: The Alexander Mosaic, Huqoq, Israel.</p>
 
 One name that shows up in the family trees of all the people listed above is Simon Boethus who I identify as (king/Tetrarch) Ptolemy (Alexander) bar Menneus aka Simon Magus. The name Boethus comes from Sabazios which is a translation of Zeus (Jupiter to the Romans) in the dialect and tradition of Phrygians and Thracians of Anatolia. Ma'nu is likely a diminutive of Menneus and then Manu-Sabazios becomes Monobazus which becomes 'Bazus' or 'Bar Izates' shortened to 'baYZTus' (or bar YZT) through frequent oral repetition which becomes 'bOETHus'. The name Simon probably denoted that he was of the tribe of Simon/Simeon which was one of the twelve tribes of Israel. He was likely also Simon the Essene the founder of the Essene sect and Simon Peter in the bible (the term 'Peter' is derived from the Latin 'Pater' meaning 'father', denoting the Essene High Priest. The Essenes called themselves 'the Sons of Zadok' and Simon was the heir of the Zadokite High Priest dynasty). His daughter Mariamne Boethus was the fifth wife of King Herod and this line produced the Flavian emperors. He was the uncle of Jesus ben Fabus, father-in-law of Jesus ben Gamla/Gamaliel aka King Izas Monobazus (the Talmud (Bereshit Rabbah 46:10) calls Izates and Monobazus the "Sons of Ptolemy"), and I identify Juba II as Alexander (son of King Herod) below which makes him the grandson of Simon Boethus, and he was the great-great-grandfather of Vespasian.
 
@@ -452,7 +452,7 @@ Every Roman Emperor from Hadrian (likely an acronym for Herodian (77)) onward de
   
 
 <p align="center">
-Fig.  Fig. 1.10. (L) Constantius Chlorus. The father of emperor Constantine (R) Emperor Flavius Constantine/Constantinus who carried the Flavian title.</p>
+Fig. 1.10. (L) Constantius Chlorus. The father of emperor Constantine (R) Emperor Flavius Constantine/Constantinus who carried the Flavian title.</p>
 
   
 
