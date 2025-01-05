@@ -743,14 +743,25 @@ The jews were expelled at least three times from Rome after being accused of mis
 **Main Sources Used**
 
 _Christianity Exposed_ (1843) by Bruno Bauer \[[link](https://play.google.com/store/books/details?id=mrP4MDmYNXkC&rdid=book-mrP4MDmYNXkC&rdot=1)\]  \
+
 _Christ and the Caesars_ (1879) by Bruno Bauer \[[link](http://www.sidneyrigdon.com/vern/1879BaurEng.htm)\]  \
+
 _On the Genealogy of Morality_ (1887) by Friedrich Nietzsche [<a href="https://en.wikipedia.org/wiki/On_the_Genealogy_of_Morality" rel="nofollow" target="_blank">link</a>] \
+
 _Christianity and the Survival of the West_ (1973) by Revilo P. Oliver [<a href="https://ia601306.us.archive.org/15/items/ChristianityAndTheSurvivalOfTheWest/ChristianityAndTheSurvivalOfTheWest.pdf" rel="nofollow" target="_blank">link</a>] \
+
 _Christianity: A Religion for Sheep_ (1980) by Revilo P. Oliver [<a href="https://archive.org/details/christianity-a-religion-for-sheep-by-ralph-perrier-revilo-p.-oliver-z-lib.org" rel="nofollow" target="_blank">link</a>] \
+
 _A Forgery of Our Own_ (1991) by Revilo P. Oliver [<a href="http://www.revilo-oliver.com/rpo/Forgery_of_Our_Own.html" rel="nofollow" target="_blank">link</a>] (_short article where professor Revilo P. Oliver points the finger at Rabbi Akiva as being the center piece of the conspiracy to create a psy-op religion to subjugte the Romans_) \
+
 _The Origins of Christianity_ (1994) by Revilo P. Oliver [<a href="https://archive.org/details/the-origins-of-christianity-by-revilo-p-oliver-z-lib.org" rel="nofollow" target="_blank">link</a>] \
+
 _Reflections on the Christ Myth_ (1994) by Revilo P. Oliver [<a href="https://ia600201.us.archive.org/22/items/ReflectionsOnTheChristMyth_518/ReflectionsOnTheChristMyth-Oliver.pdf" rel="nofollow" target="_blank">link]</a> \
+
 _Cleopatra to Christ_ (2010) by Ralph Ellis \[[link](https://www.google.com/books/edition/Cleopatra_to_Christ/T7sqfHyWPuQC?hl=en&gbpv=1&dq=cleopatra+to+christ&printsec=frontcover)\] (_reveals that the biblical Jesus was based on King Izates of Adiabene who was directly descended from Cleopatra VII_)  \
+
 _Jesus Among the Julio-Claudians_ (2017) by Charles N. Pope \[[link](https://books.google.se/books/about/Jesus_Among_the_Julio_Claudians.html?id=c7A3DwAAQBAJ&redir_esc=y)\]   \
+
 _Following Philo to Pallas (the Freedman): The Most Powerful Man in First Century Rome, also known as Goddess (the Mother)_ (2019) by P.J. Gott \[[link](https://www.amazon.com/Following-Philo-Pallas-Freedman-Powerful-ebook/dp/B07PXKQGYG/)\] (_reveals that Philo of Alexandria was a pen-name for Cleopatra of Mauretania who was married to her brother Alexander (grandson of King Herod)/Ptolemy of Mauretania, therefore, she was the mother of Tiberius Julius Alexander/Arrius Piso. Also, that she was Claudius and Nero's secretary 'Pallas' and Vespasian's first cousin and mistress Antonia Caenis_) \
+
 _Magdalene's Men. The historic identities of the many men in Mary Magdalene's life._ by P.J Gott \[[link](https://web.archive.org/web/20240113043329/https://thenazareneway.com/MM%20Chart.htm)\] (_reference guide to the many aliases of Alexander (grandson of King Herod) aka Gaius Julius Alexander, Herodian Prince of Judaea aka Alexander Lysimachus aka Alexander the Alabarch aka Ptolemy (Alexander) bar Menneus aka Ptolemy of Mauretania aka Phraates V aka Monobazus I King of Adiabene, as well as his sister wife Cleopatra (Thea Philopator) of Mauretania aka Cleopatra IX aka Pythodorida Philometor aka Helene aka Drusilla of Mauretania aka Julia Ourania of Parthia aka 'Philo of Alexandria', and their two sons Tiberius Julius Alexander and Marcus Julius Alexander._)
