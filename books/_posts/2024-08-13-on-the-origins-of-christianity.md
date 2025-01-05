@@ -73,7 +73,7 @@ Cleopatra aka Dynamis's grandson with Mark Antony (aka King Herod aka Tiberius C
 <img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEikChO0ZBc91tmTcx-Uj9xf7LUCH5SxzLDFJII1MZAOrwYwZ-tslrScPHQs20c8WhOW_GJvpfZ8eEYkUeAYtxJrjl18Spq9GhxILCl4wX4w1VlCNMZmlVfAel0Cr1GEICQPHQsIlDNY917lglrPrC1rxmgVhVzzU6150S1ZQBvRmHaBheNUGKy4QFfON28/s674/image.jpg" width="400"></p>
 
 
-<p align="center">Fig. 1.1. Tiberius Julius Sauromates II, who was the son of Tiberius Julius Cotys (aka Tiberius Julius Alexander aka Arrius Calpernius Piso aka Arrius Varus aka Emperor Nerva), great-grandson of Dynamis. Does he look familiar?</p>
+<p align="center">Fig. 1.1. Tiberius Julius Sauromates II, who was the son of Tiberius Julius Cotys (aka Tiberius Julius Alexander aka Arrius Calpernius Piso aka Arrius Varus aka Emperor Nerva), great-grandson of Dynamis aka Cleopatra and Mark Antony. Does he look familiar?</p>
 
 Cleopatra aka Dynamis's other grandson with Mark Antony (Tiberius Julius Alexander's brother) = Marcus Julius Alexander aka King Izates of Monobazus (Jesus Emmanuel) aka Monobazus of Adiabene aka Yeshua Cleopatros (Cantheras/Panthera) ben Josephus bar Menneus aka Ptolemy aka Yakov Zu Tolomoy (4)
 
