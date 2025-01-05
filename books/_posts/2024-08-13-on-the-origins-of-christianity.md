@@ -68,7 +68,7 @@ Cleopatra aka Dynamis's other son with Julius Caesar aka Asander = Juba II of Ma
 Cleopatra aka Dynamis's grandson with Mark Antony (aka King Herod aka Tiberius Claudius Nero aka Phraates IV of Parthia) = Gaius Julius Alexander, Herodian Prince of Judaea aka Alexander the Alabarch aka (King/Tetrarch) Ptolemy (Alexander) bar Menneus aka Ptolemy of Mauretania, who was married to his half sister (through Julius Caesar/Asander and Cleopatra/Dynamis) Cleopatra (Thea Philopator) of Mauretania aka Cleopatra IX aka Pythodorida Philometor aka Helene aka Drusilla of Mauretania aka Julia Ourania of Parthia aka 'Philo of Alexandria'. Their son was Tiberius Julius Alexander aka Arrius Calpernius Piso aka Arrius Varus aka Tiberius Julius Cotys aka Emperor Nerva.
 
 <p align="center">
-<img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEh7328wBEhsuyJPlbENv32qF1iDwfxP_jWwDGTjw3rTBUnWSA4KUcMvq-c5NKDJBSPPsibHeDHxCootAChnpAfrafwaHOKBaafsyFub20Sk22luNcp1OHa7uDZd8JTOaOUOovvCYBNxvmyadhtZDIHka88z0rcLfOBW-lEyzZKBW_1Ce-c1zdvO-8Koi3Q/s927/Tiberius_Julius_Sauromates_II.jpeg" width="200"></p>
+<img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEikChO0ZBc91tmTcx-Uj9xf7LUCH5SxzLDFJII1MZAOrwYwZ-tslrScPHQs20c8WhOW_GJvpfZ8eEYkUeAYtxJrjl18Spq9GhxILCl4wX4w1VlCNMZmlVfAel0Cr1GEICQPHQsIlDNY917lglrPrC1rxmgVhVzzU6150S1ZQBvRmHaBheNUGKy4QFfON28/s674/image.jpg" width="200"></p>
 
 
 
