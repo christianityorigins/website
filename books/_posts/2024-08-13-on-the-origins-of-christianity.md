@@ -68,11 +68,11 @@ Cleopatra aka Dynamis's other son with Julius Caesar aka Asander = Juba II of Ma
 Cleopatra aka Dynamis's grandson with Mark Antony (aka King Herod aka Tiberius Claudius Nero aka Phraates IV of Parthia) = Gaius Julius Alexander, Herodian Prince of Judaea aka Alexander the Alabarch aka (King/Tetrarch) Ptolemy (Alexander) bar Menneus aka Ptolemy of Mauretania, who was married to his half sister (through Julius Caesar/Asander and Cleopatra/Dynamis) Cleopatra (Thea Philopator) of Mauretania aka Cleopatra IX aka Pythodorida Philometor aka Helene aka Drusilla of Mauretania aka Julia Ourania of Parthia aka 'Philo of Alexandria'. Their son was Tiberius Julius Alexander aka Arrius Calpernius Piso aka Arrius Varus aka Tiberius Julius Cotys aka Emperor Nerva.
 
 <p align="center">
-<img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEikChO0ZBc91tmTcx-Uj9xf7LUCH5SxzLDFJII1MZAOrwYwZ-tslrScPHQs20c8WhOW_GJvpfZ8eEYkUeAYtxJrjl18Spq9GhxILCl4wX4w1VlCNMZmlVfAel0Cr1GEICQPHQsIlDNY917lglrPrC1rxmgVhVzzU6150S1ZQBvRmHaBheNUGKy4QFfON28/s674/image.jpg" width="200"></p>
+<img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEikChO0ZBc91tmTcx-Uj9xf7LUCH5SxzLDFJII1MZAOrwYwZ-tslrScPHQs20c8WhOW_GJvpfZ8eEYkUeAYtxJrjl18Spq9GhxILCl4wX4w1VlCNMZmlVfAel0Cr1GEICQPHQsIlDNY917lglrPrC1rxmgVhVzzU6150S1ZQBvRmHaBheNUGKy4QFfON28/s674/image.jpg" width="400"></p>
 
 
 
-<p align="center">Fig. 1.1. Tiberius Julius Sauromates II, son of Tiberius Julius Cotys (Tiberius Julius Alexander aka Arrius Calpernius Piso aka Arrius Varus aka Emperor Nerva), great-grandson of Asander of Bosphorus and Dynamis.</p>
+<p align="center">Fig. 1.1. Tiberius Julius Sauromates II, son of Tiberius Julius Cotys (Tiberius Julius Alexander aka Arrius Calpernius Piso aka Arrius Varus aka Emperor Nerva), great-grandson of Asander of Bosphorus and Dynamis. Does he look familiar?</p>
 
 Vespassian was a great-grandson of Cleopatra and Mark Antony (King Herod) \[[link](https://www.henryhdavis.com/theroyalancestryofemperorvespasian)\]
 
@@ -359,7 +359,7 @@ Christianity is subverion of the imprial cult with Gnosticism, the Roman myth of
   
 
 <p align="center">
-Fig. 1.5. Romulus. Does he look familiar? He was born to a virgin, the son of god, hailed as a King, crucified (67) by a conniving elite and rose from the dead. See: 'Romulus' (75AC) by Plutarch.</p>
+Fig. 1.5. Romulus. He was born to a virgin, the son of god, hailed as a King, crucified (67) by a conniving elite and rose from the dead. See: 'Romulus' (75AC) by Plutarch.</p>
 
   
 
