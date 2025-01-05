@@ -72,7 +72,7 @@ Cleopatra aka Dynamis's grandson with Mark Antony (aka King Herod aka Tiberius C
 
 
 
-<p align="center">Fig. 1.1. Tiberius Julius Sauromates II, son of Tiberius Julius Cotys (Tiberius Julius Alexander aka Arrius Calpernius Piso aka Arrius Varus aka Emperor Nerva), great-grandson of Asander of Bosphorus and Dynamis. Does he look familiar?</p>
+<p align="center">Fig. 1.1. Tiberius Julius Sauromates II, who was the son of Tiberius Julius Cotys (Tiberius Julius Alexander aka Arrius Calpernius Piso aka Arrius Varus aka Emperor Nerva), great-grandson of Asander of Bosphorus and Dynamis. Does he look familiar?</p>
 
 Vespassian was a great-grandson of Cleopatra and Mark Antony (King Herod) \[[link](https://www.henryhdavis.com/theroyalancestryofemperorvespasian)\]
 
