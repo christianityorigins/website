@@ -1,13 +1,13 @@
 ---
 layout: post
 open_links_in_new_tab: true
-title:  "Original Sin: Ritual Child Rape & The Church (2012) by David C. A. Hillman"
+title:  "Original Sin: Ritual Child Rape & The Church (2012) by Ammon Hillman"
 date:   2016-03-01 09:00:00 +0200
 category: journal
 ---
 
 
-Ammon Hillman is a professor of classics and a Koine Greek translator who read the earliest codex's of the bible in its original Koine and discovered a lot of disturbing things that were covered up in later translations. Essentially, in his book _Original Sin: Ritual Child Rape & The Church_ (2012) \[[link](https://www.amazon.com/Original-Sin-Ritual-Child-church/dp/1579511449)\] he writes that Christinaity started out as a pedophile cult and priests targeted Pagan children, orphans, and homeless children. The goal of the church wasn't just pedophilic desire, but also to use child rape as a shock tool, to spoil the youth of the children, emasculate and ruin a generation of boys to ensure submission, and to strike fear into the hearts of young boys. Child rape was at the root of their program and they even recuited pedophiles among the population to become priests for this purpose. 
+Ammon Hillman is a professor of classics and a Koine Greek translator who read the earliest codex's of the bible in its original Koine and discovered a lot of disturbing things that were covered up in later translations. Essentially, in his book _Original Sin: Ritual Child Rape & The Church_ (2012) \[[link](https://www.amazon.com/Original-Sin-Ritual-Child-church/dp/1579511449)\] he writes that Christinaity started out as a pedophile cult and priests targeted Pagan children, orphans, and homeless children. The goal of the church wasn't just to give pedophie priests access to children, but also to use child rape as a shock tool, to spoil the youth of the children, emasculate and ruin multiple generations of boys to ensure submission, and to strike fear into the hearts of young boys. Child rape was at the root of their program and they even recuited pedophiles among the population to become priests for this purpose. 
 
 The insitutional and ritualized rape of children over the past two thousand years (1) by the church wasn't a bug, it was a feature (2).
 
@@ -15,7 +15,7 @@ Some quotes:
 
 _"In a strange twist of history, the first rape of children by Christian priests was a means of asserting political and social dominance over pagan religions that venerated the beauty of sexual attraction. Christian priests justified this act as the replication of a mystery performed originally by Jesus himself. Ritual child rape was an integral element of early Christian religion._
 
-Christianity fostered a religious hatred of women while the priests were raping the boys.
+Christianity fostered a religious hatred of women while the priests were raping the boys:
 
 _The leadership of the early Church clearly recognized the value of ritual sodomy as a successful means of rooting out the influence of female allure on pubescent boys. Raping young men was a highly effective means of combating more-popular, sexcentered pagan religions; these mystery rites were meant to prevent young converts from ever following the cults of Aphrodite and Dionysus, but they also established a degree of exclusivity not present in competing mystery cults. When early Christians were born again, they were psychologically unique, as a direct result of the ritual rape they endured."_
 
@@ -31,7 +31,7 @@ _The ritual sodomizing of young boys was undertaken as a response to the pagan v
 
 _Ritual rape committed by the Church was very much an attempt to stifle the veneration of pubertal development, and the potential contribution of young boys and girls to society._
 
-The church paralyzed child protection. The Church Fathers replaced females as guadians of children, as was the norm in Pagan socieities, so that they had access to children.
+The church paralyzed child protection. The Church Fathers replaced females as guadians of children, as was the norm in Pagan socieities, so that they had access to children:
 
 _By attacking the concept of women as Nature’s nurturers, the Church asserted a single-minded vision of masculine authority that cut to the quick of the psyche of its initiates. This war against the image of the mothering goddess was dangerous, because it undercut much of the bedrock of civilization—and also gave priests more authority to abuse young boys._
 
