@@ -3,7 +3,7 @@ layout: post
 open_links_in_new_tab: true
 title:  "Original Sin: Ritual Child Rape & The Church (2012) by Ammon Hillman"
 date:   2016-03-01 09:00:00 +0200
-category: journal
+category: blog
 ---
 
 Book Review: _Original Sin: Ritual Child Rape & The Church_ (2012) by Ammon Hillman
