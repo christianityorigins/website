@@ -79,7 +79,7 @@ Alexander (grandson of King Herod) and his sister wife  Cleopatra (Thea Philopat
 <img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEikChO0ZBc91tmTcx-Uj9xf7LUCH5SxzLDFJII1MZAOrwYwZ-tslrScPHQs20c8WhOW_GJvpfZ8eEYkUeAYtxJrjl18Spq9GhxILCl4wX4w1VlCNMZmlVfAel0Cr1GEICQPHQsIlDNY917lglrPrC1rxmgVhVzzU6150S1ZQBvRmHaBheNUGKy4QFfON28/s674/image.jpg" width="400"></p>
 
 
-<p align="center">Fig. 1.1. Tiberius Julius Sauromates II, who was the son of Tiberius Julius Cotys (aka Tiberius Julius Alexander aka Arrius Calpernius Piso aka Arrius Varus aka Emperor Nerva), great-grandson of Dynamis aka Cleopatra and Mark Antony. Does he look familiar?</p>
+<p align="center">Fig. 1.1. Tiberius Julius Sauromates II, who was the son of Tiberius Julius Cotys (aka Tiberius Julius Alexander aka Arrius Calpernius Piso aka Arrius Varus aka Emperor Nerva), great-grandson of Dynamis aka Cleopatra and Mark Antony. Does he look familiar? Sauromates is a Greek rendering of "Sarmatian".</p>
 
 <p align="center">
 <img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgkg6HruekpVy4HBBuLQSuMiuGOR2wu3EZ76AfMbs-6IwmFJ-vz4vyT_oWC0auWEf-hb3-OOXjsrcPBXi97b0FHy0w75CfU4u6Y7TpDAEKqpvzDD00Yzv1HkrYWJ1ARGblqY3_B8U_KVfgx9lAx1h7ghnU42xnq9LNMlmXFWvHR_6gjGP7EzM2BE12JEK4/s1163/coin-abgar-phraates-imageonline.co-merged.png" width="400"></p>
