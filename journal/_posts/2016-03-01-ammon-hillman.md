@@ -6,10 +6,13 @@ date:   2016-03-01 09:00:00 +0200
 category: journal
 ---
 
+Book Review: _Original Sin: Ritual Child Rape & The Church_ (2012) by Ammon Hillman
 
-Ammon Hillman is a professor of classics and a Koine Greek translator who read the earliest codex's of the bible in its original Koine and discovered a lot of disturbing things that were covered up in later translations. In his book _Original Sin: Ritual Child Rape & The Church_ (2012) \[[link](https://www.amazon.com/Original-Sin-Ritual-Child-church/dp/1579511449)\] he writes that Christinaity started out as a pedophile cult and priests targeted Pagan children, orphans, and homeless children. The goal of the church wasn't just to give pedophile priests access to children, but also to use child rape as a shock tool, to spoil the youth of the children, emasculate and ruin multiple generations of boys to ensure submission, and to strike fear into the hearts of young boys. Child rape was at the root of their program and they even recuited pedophiles among the population to become priests for this purpose. 
+In his thought-provoking and disturbing book, _Original Sin: Ritual Child Rape & The Church_ \[[link](https://www.amazon.com/Original-Sin-Ritual-Child-church/dp/1579511449)\], Ammon Hillman, a professor of classics and Koine Greek translator, sheds light on the dark underbelly of Christianity's early history. Through his meticulous research and analysis of the earliest codex's of the Bible in their original Koine, Hillman uncovers a shocking narrative that challenges the conventional understanding of the Church's origins.
 
-The insitutional and ritualized rape of children over the past two thousand years (1) by the church wasn't a bug, it was a feature (2).
+According to Hillman, Christianity began as a pedophile cult, with priests targeting vulnerable individuals, including Pagan children, orphans, and homeless children. The author argues that the Church's primary objective was not only to provide pedophile priests with access to children but also to utilize child rape as a tool for psychological manipulation. This heinous practice aimed to spoil the youth of children, emasculate and ruin multiple generations of boys, and instill fear in the hearts of young boys.
+
+Hillman's research suggests that the institutional and ritualized rape of children over the past two thousand years (1) was not an aberration but a deliberate feature of the Church's program (2). The author even goes so far as to claim that the Church actively recruited pedophiles from the population to become priests, further solidifying this disturbing practice.
 
 Some quotes:
 
