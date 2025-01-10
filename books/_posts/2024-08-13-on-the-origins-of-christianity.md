@@ -55,7 +55,7 @@ Preface
 
 Religious syncretism was a social engineering tool designed to turn people into agents or pawns of the ruling class, serving as a soft-power control system for the imperial elite. These elites used religion, as well as an incredible number of regional aliases, locations, fictional stories, and faked deaths for their family members to control the population. They role-played as deities, religious figures, and different characters as if they were actors in a play. The figure of Jesus Christ (of Nazareth) was a literary creation of these elites, incorporating elements of various historical and mythological figures to appeal to a wide audience. This character then became an avatar for several historical figures in an imperial cult.
 
-Christianity was developed in two phases: 1)with its the foundation as an imperial cult, and then 2)with the subversion of this imperial cult by a group of rabbi's who were headed by a rabbi named Akiva after the Bar Kokhba revolt (132–136 CE).
+The development of Christianity can be divided into two phases. The first phase was the foundation of Christianity as an imperial cult, while the second phase saw the subversion of this imperial cult by a group of rabbis headed by Rabbi Akiva after the Bar Kokhba revolt (132–136 CE).
 
 Imperial Cult
 
