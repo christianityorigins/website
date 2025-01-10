@@ -65,8 +65,6 @@ Dynamis's grandfather was Mithridates VI Eupator who carried the title ‘king o
 
 Jesus ben Fabus aka Isa Amen (Jesus Amen of Rev. iii. 14) aka Amyntas of Galatia aka Amyntas Nikator (3) was the husband of Stratonice, who was the sister of Asander.
 
-Cleopatra aka Dynamis's son with Julius Caesar aka Asander = Ptolemy XIII Theos Philopator aka Gaius Octavius aka Emperor Gaius Julius Caesar Augustus?
-
 Cleopatra aka Dynamis's son with Julius Caesar aka Asander = Tiberius Julius Aspurgus Philoromaios, who was born about the same time as Caesarion and Emperor Tiberius Julius Caesar.
 
 Cleopatra aka Dynamis's son with Mark Antony (aka King Herod aka Tiberius Claudius Nero aka Phraates IV of Parthia) = Alexander Helios aka Alexander (son of King Herod) aka Juba II who was married to his twin sister Cleopatra Selene II aka Queen Thea Muse Ourania. Juba II of Mauritania's full name was Gaius Iulius Iuba, prenomen and nomen after his adopted father Gaius Iulius Caesar, and 'Iuba' is most likely a diminutive of 'Iehuva'. He was the claimed royal heir of the Massylii tribe, which is the 'Messiah' lineage from David's firstborn son with Saul's daughter Michal ('Helio' and Celtic 'Hesus' both derive from the Proto-Indo-European root 'sawel-', meaning 'sun', and 'Selene' translates to 'moon' in Greek).
@@ -125,7 +123,8 @@ Endnotes (Preface)
 *Kabbalists believe that Rabbi Akiba was a gilgul (reincarnation) of Zimri, a prince of the Tribe of Simeon who participated in the Heresy of Peor. \
 *Flavius Josephus in the 'Antiquities of the Jews'. Book I. Chapter 1: "For Gomer founded those whom the Greeks now call Galatians [Galls], but were then called Gomerites. Magog founded those that from him were named Magogites; but who are by the Greeks called Scythians". Josephus is suggesting that the Hebrew word "Goy" (meaning "nation" or "people") is related to the Greek word "Galatae" (meaning "Gauls" or "Galatians"), and that both words are ultimately derived from a common root. \
 *The Celtic languages are also surprisingly Semitic with a verb-subject-object word order and a shocking amount of vocabulary overlap, just look at the name of Irish deities, Balor and his holiday Beltaine are cognate to Bal and Elatha the Irish Uranus is cognate to Hebrew El. The Celtic Gauls made it to israel. 'Gaulinitis' = Golan Heights. The jews stole their entire identity and religion from the Celts in Galatia and Gaulinitis. \
-*Vespassian was also a great-grandson of Cleopatra and Mark Antony (King Herod) \[[link](https://www.henryhdavis.com/theroyalancestryofemperorvespasian)\]
+*Vespassian was also a great-grandson of Cleopatra and Mark Antony (King Herod) \[[link](https://www.henryhdavis.com/theroyalancestryofemperorvespasian)\] \
+*Speculative: Cleopatra aka Dynamis's son with Julius Caesar aka Asander = Ptolemy XIII Theos Philopator aka Gaius Octavius aka Emperor Gaius Julius Caesar Augustus?
 
 Characters
 ----------
