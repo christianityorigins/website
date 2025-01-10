@@ -100,7 +100,7 @@ The connection between Simon Boethus/Magus/Ptolemy X Alexander I/Ptolemy (Alexan
 
 The Galatians of Anatolia were Celtic \[[link](https://en.wikipedia.org/wiki/Galatians_(people))\]. A member of this family took on the regional role of Amyntas, King of Galatia. The Celtic religion was Druidism, and the Druids worshipped a diety called Esus/Esos/Hesus/Aisus \[[link](https://en.wikipedia.org/wiki/Esus)\] who was the Celtic equivilent of Dyeus Pter/Zeus/I(J)upiter. So, it is likely that this aristocratic family took on the Esus title for their regional identities. He was the human personification of Esus, Iupiter, and Zeus (same deity), and Esus -> Izeus -> Iesus.
 
-Then, after the Bar Kokhba Revolt (132–136 CE), this imperial slave-morality cult was subverted by a confederation of rabbi's who were headed by a rabbi named Akiva.
+Then, a couple centuries later after the Bar Kokhba Revolt (132–136 CE), this imperial slave-morality cult was subverted by a confederation of rabbi's who were headed by a rabbi named Akiva.
 
   
 The Cult of Antinous and the Bar Kokhba Revolt (132–136 CE)
