@@ -17,9 +17,9 @@ Welcome to the homepage of Hugo Pepe (B.A. Philosophy). I am an independent rese
 </ul>
 
 <!-- Blog Section -->
-<h3>Journal</h3>
+<h3>Blog</h3>
 <ul>
-{% for post in site.categories.journal limit:5 %}
+{% for post in site.categories.blog limit:5 %}
   {% unless post.draft %}
     <li><a href="{{ post.url }}">{{ post.title }}</a></li>
   {% endunless %}
