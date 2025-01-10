@@ -60,7 +60,7 @@ My theory is that there was a Byzantine imperial cult where Julius Caesar = Asan
 
 <iframe width="560" height="315" src="https://www.youtube.com/embed/uMwi-JH3DrA?si=LkYdcED11rgbbnkY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 
-1. https://en.wikipedia.org/wiki/Catholic_sexual_abuse_scandal_in_the_United_States\
+[1] https://en.wikipedia.org/wiki/Catholic_sexual_abuse_scandal_in_the_United_States\
 https://en.wikipedia.org/wiki/Sexual_abuse_scandal_in_the_Catholic_archdiocese_of_Boston\
 https://en.wikipedia.org/wiki/Sexual_abuse_scandal_in_the_Catholic_archdiocese_of_Chicago\
 https://en.wikipedia.org/wiki/Sexual_abuse_scandal_in_Davenport_diocese\
@@ -136,7 +136,7 @@ https://en.wikipedia.org/wiki/Catholic_Church_sexual_abuse_cases_by_country#Norw
 https://en.wikipedia.org/wiki/Catholic_Church_sexual_abuse_cases_in_Poland\
 https://en.wikipedia.org/wiki/Catholic_Church_sexual_abuse_cases_by_country#Portugal\
 https://en.wikipedia.org/wiki/Catholic_Church_sexual_abuse_cases_by_country#Slovenia\
-2. https://en.wikipedia.org/wiki/Naked_fugitive (Mark 14:51-52)
+[2] https://en.wikipedia.org/wiki/Naked_fugitive (Mark 14:51-52)
 
 Read more
 
