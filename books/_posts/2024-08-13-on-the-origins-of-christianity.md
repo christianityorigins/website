@@ -65,6 +65,8 @@ Dynamis's grandfather was Mithridates VI Eupator who carried the title ‘king o
 
 Jesus ben Fabus aka Isa Amen (Jesus Amen of Rev. iii. 14) aka Amyntas of Galatia aka Amyntas Nikator (3) was the husband of Stratonice, who was the sister of Asander.
 
+Cleopatra aka Dynamis's son with Julius Caesar aka Asander = Ptolemy XIII Theos Philopator aka Gaius Octavius aka Emperor Gaius Julius Caesar Augustus?
+
 Cleopatra aka Dynamis's son with Julius Caesar aka Asander = Tiberius Julius Aspurgus Philoromaios, who was born about the same time as Caesarion and Emperor Tiberius Julius Caesar.
 
 Cleopatra aka Dynamis's son with Mark Antony (aka King Herod aka Tiberius Claudius Nero aka Phraates IV of Parthia) = Alexander Helios aka Alexander (son of King Herod) aka Juba II who was married to his twin sister Cleopatra Selene II aka Queen Thea Muse Ourania. Juba II of Mauritania's full name was Gaius Iulius Iuba, prenomen and nomen after his adopted father Gaius Iulius Caesar, and 'Iuba' is most likely a diminutive of 'Iehuva'. He was the claimed royal heir of the Massylii tribe, which is the 'Messiah' lineage from David's firstborn son with Saul's daughter Michal ('Helio' and Celtic 'Hesus' both derive from the Proto-Indo-European root 'sawel-', meaning 'sun', and 'Selene' translates to 'moon' in Greek).
