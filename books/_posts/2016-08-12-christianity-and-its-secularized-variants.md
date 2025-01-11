@@ -12,7 +12,7 @@ Christianity as a Slave Morality Religion and its Modern Secularized Variants: A
 
 By Hugo Pepe
 
-_This eternal accusation against Christianity I shall write upon all walls, wherever walls are to be found--I have letters that even the blind will be able to see. . . . I call Christianity the one great curse, the one great intrinsic depravity, the one great instinct of revenge, for which no means are venomous enough, or secret, subterranean and small enough--I call it the one immortal blemish upon the human race._  -- Friedrich Nietzsche
+_"Do not suppose that I have come to bring peace to the earth. I did not come to bring peace, but a sword. For I have come to turn a man against his father, a daughter against her mother, a daughter-in-law against her mother-in-law, a man’s enemies will be the members of his own household"_ -- Matthew 10:34-36
 
 CONTENTS
 
