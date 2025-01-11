@@ -63,7 +63,7 @@ There was a Byzantine (1) imperial cult where Julius Caesar (2) took on the role
 
 Dynamis's grandfather was Mithridates VI Eupator who carried the title ‘king of kings’. Her uncle was Mithridates ‘Chrestus'. 
 
-Jesus ben Fabus aka Isa Amen (Jesus Amen of Rev. iii. 14) aka Amyntas of Galatia aka Amyntas Nikator (3) was the husband of Stratonice, who was the sister of Asander.
+Amyntas Nikator aka Amyntas of Galatia aka Jesus ben Fabus aka Isa Amen (Jesus Amen of Rev. iii. 14) (3) was the brother of Asander.
 
 Cleopatra aka Dynamis's son with Julius Caesar aka Asander = Tiberius Julius Aspurgus Philoromaios, who was born about the same time as Caesarion and Emperor Tiberius Julius Caesar.
 
