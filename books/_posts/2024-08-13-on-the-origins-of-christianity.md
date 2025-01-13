@@ -383,7 +383,7 @@ Christianity was one branch of the slave morality that originates with the Zoroa
 
 #### 9.1 The Role of the Boethians and Herodians in Rome ####
 
-Julius Caesar and Emperor Augustus adopted members of many royal families and got them to intermarry so that their countries would be easier to control through proxy, but King Herod's father Antipater the Idumaean apparently provided troops for Julius Caesar and helped him during the Battle of the Nile (47 BC) (68) and because of this Antipater the Idumean's descendants were given an elevated position even within Rome. They were raised in the same household as Caesar Augustus (69) and even became emperors.  
+King Herod was the likely regional alias of Mark Antony (aka Tiberius Claudius Nero aka Phraates IV of Parthia) (68) and his descendants were given an elevated position within Rome. They were raised in the same household as Caesar Augustus (69) and even became emperors.  
   
 Herodians in Rome to take note of:  
   
@@ -698,7 +698,7 @@ The jews were expelled at least three times from Rome after being accused of mis
 
 \[67\] https://en.wikipedia.org/wiki/Roman\_imperial\_cult#The\_imperial\_cult\_and\_Christianity
 
-\[68\] https://en.wikipedia.org/wiki/Battle\_of\_the\_Nile
+\[68\] 'Jesus Among the Julio-Claudians' (2017) by Charles N. Pope '\[[link](https://books.google.se/books/about/Jesus_Among_the_Julio_Claudians.html?id=c7A3DwAAQBAJ&redir_esc=y)\]
 
 \[69\] Josephus, Antiquities, 15.342-3, 16.86-7, 17.20-1 and 52-3
 
