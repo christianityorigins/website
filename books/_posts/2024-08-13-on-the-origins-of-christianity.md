@@ -262,7 +262,7 @@ Other similarities: according to the first-century A.D. historian Plutarch, Alex
 
 Endnotes (Chapter 5)  
 
-\*Alexander indirectly became the Jesus prototype. Julius Caesar called himself the Roman Alexander and stole a lot of Alexander's mythology for his religion called the Divine Julius Cult which was plagiarized to make Christianity more appealing to the Romans. See: Chapter 9. The origins of Christianity. \
+\*Alexander indirectly became the Jesus prototype. Julius Caesar called himself the Roman Alexander and stole a lot of Alexander's mythology for his religion called the Divine Julius Cult which was plagiarized to make Christianity more appealing to the Romans. See: Chapter 9. Rome. \
 \*A non-mainstream version of history, but one that is recorded in Persian and Islamic sources (17), is that Alexander the Great was a Persian prince (Bupares) who was the son of Kai Bahman (Artaxerxes II Memnon), half brother of "Dara" (Darius III), and that Macedon was a province of Persia that his father was governor of. Alexander's father Philip of Macedon was Artaxerxes II Memnon's regional alias. The book 'The Life of Alexander of Macedon' (18) also claims that he didn't die in Babylon in 232 BC at the age of 33 (same as Jesus) but was only forced from power and he had a posthumous birth/'resurrection'. He resurrected in India with the regional alias of Chandragupta (Alexander is Iksander in Persian and "Alakshandra" in Sanskrit and Gupta means 'guardian' or 'protector' in Sanskrit, the exact meaning of Alexander). Evidence of this is that the Sanskrit language might be a dialect of Avestan, or a Hellenized variant of Avestan, and the similarities of customs and religions (19). Also, there is strong evidence that Alexander's successor to Bactria, Diodotus I Soter, ruled India with the regional identity of Ashoka the Great (20). See: Alexander Romance (21), The life of Alexander of Macedon (22), and Alexander the Great: Beyond the Divide by Charles N. Pope (23).  \
 \*Alexander is also identified as the Islamic prophet Dhu al-Qurnayn (He of Two Horns). His name comes from coins depicting him as Zeus Ammon, a two-horned pagan god (see: Fig 1.3.).  
 
@@ -362,7 +362,7 @@ Endnotes (Chapter 8)
 
 ### Chapter 9: Rome
 
-Christianity is the combination of several religions and myths that were amalgamated. The Roman imprial cult, Gnosticism, the Roman myth of Quirinus aka Romulus (64), the Divine Julius cult (65), and the messianic archetype of Alexander the Great and Scipio Africanus (66) that most ancient Roman leaders, but especially Julius Caesar, modelled themselves after.  
+Christianity is the combination of several religions and myths that were amalgamated. The Ptolemaic cult of Alexander the Great, Serapis cult, Roman imprial cult, Gnosticism, the Roman myth of Quirinus aka Romulus (64), the Divine Julius cult (65), and the messianic archetypes of Alexander the Great and Scipio Africanus (66) who most ancient Roman leaders, but especially Julius Caesar, modelled themselves after.  
 
   
 
