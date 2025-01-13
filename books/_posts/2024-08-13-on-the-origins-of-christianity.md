@@ -446,7 +446,7 @@ Fig. 1.9. Note how the Roman emperor phenotype changes dramatically after Otho</
   
 
   
-Every Roman Emperor from Hadrian (likely an acronym for Herodian (77)) onward descends from King Herod mainly through two jewish women: Arria the Younger and Cleopatra of Mauretania or Cleopatra IX ("Philo"), and by my count 37 Roman and Byzantine emperors bore the title "Flavius" and it's later Greek->Latin transliteration "Phlabios" ("Shabbos").
+Every Roman Emperor from Hadrian (likely an acronym for Herodian (77)) onward descends from King Herod mainly through two women: Arria the Younger and Cleopatra of Mauretania or Cleopatra IX ("Philo"), and by my count 37 Roman and Byzantine emperors bore the title "Flavius" and it's later Greek->Latin transliteration "Phlabios" ("Shabbos").
 
   
 <p align="center">
@@ -460,7 +460,7 @@ Fig. 1.10. (L) Constantius Chlorus. The father of emperor Constantine (R) Empero
 
   
 
-The origins of Christianity become clear when you realize that the Herodians, Alexandrian elites, and the Flavians were the same incestuous (78) Jewish family who used over a dozen aliases, agnomens, regional/ethnic names, and different biographies and mythologies for each persona (79).  
+The origins of Christianity become clear when you realize that the Herodians, Alexandrian elites, and the Flavians were the same incestuous (78) family who used over a dozen aliases, agnomens, regional/ethnic names, and different biographies and mythologies for each persona (79).  
   
 **9.2. Alexandria, Egypt. 1st Century**
 
