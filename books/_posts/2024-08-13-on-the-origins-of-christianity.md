@@ -362,7 +362,7 @@ Endnotes (Chapter 8)
 
 ### Chapter 9: Rome
 
-Christianity is the combination of several religions and myths that were amalgamated. The Roman imprial cult, Gnosticism, the Roman myth of Quirinus aka Romulus (64), the Divine Julius cult (65), and the messianic archetype of Alexander the Great and Scipio Africanus (66) thrown in.  
+Christianity is the combination of several religions and myths that were amalgamated. The Roman imprial cult, Gnosticism, the Roman myth of Quirinus aka Romulus (64), the Divine Julius cult (65), and the messianic archetype of Alexander the Great and Scipio Africanus (66) that most ancient Roman leaders, but especially Julius Caesar, modelled themselves after.  
 
   
 
