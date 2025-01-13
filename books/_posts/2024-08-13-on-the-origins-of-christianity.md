@@ -43,7 +43,7 @@ Chapter 7: The Alexandrian School
 Chapter 8: The Origins of Gnosticism  
 8.1 Simon Magus and the Creation of Gnosticism  
 8.2 Gnosticism's Influence on Early Christianity  
-Chapter 9: The Origins of Christianity  
+Chapter 9: Rome  
 9.1 The Role of the Boethians and Herodians in Rome  
 9.2 Alexandria, Egypt. 1st Century  
 APPENDICES  
@@ -360,9 +360,9 @@ Endnotes (Chapter 8)
 
 \*Matrilineally, Alexander (grandson of King Herod) and his sister wife "Philo" descend from Mark Antony and Cleopatra. The Talmud says that Mark Antony was born to a jewish mother. His first wife Fulva was jewish, and Cleopatra was a Ptolemaic ruler and her family had a long history of intermarriage with Jews, so this family was almost fully jewish. The bust attributed to Mark Antony that is housed in the Vatican Museum was made over a century after he died during the Flavian dynasty. This: https://imgur.com/7RnVvRv is the only bust of him that is believed to have been made during his lifetime.
 
-### Chapter 9: The Origins of Christianity
+### Chapter 9: Rome
 
-Christianity is subverion of the imprial cult with Gnosticism, the Roman myth of Quirinus aka Romulus (64), and the Divine Julius cult (65) thrown in, and then targeted at Rome with some jewish rabbi as the Romulus/Iulius figure (66) to subconsciously connect the Romans to jews.  
+Christianity is the combination of several religions and myths that were amalgamated. The Roman imprial cult, Gnosticism, the Roman myth of Quirinus aka Romulus (64), the Divine Julius cult (65), and the messianic archetype of Alexander the Great and Scipio Africanus (66) thrown in.  
 
   
 
@@ -378,8 +378,6 @@ Fig. 1.6. Romulus. He was born to a virgin, the son of god, hailed as a King, cr
   
 
 Christianity was one branch of the slave morality that originates with the Zoroastrian conspiracy in Babylon and was spread in Rome because members of this priestly Zadokite jewish family were able to amass power within Rome.
-
-\*Scipio Africanus and Julius Caesar were both claimed to be the 'new Romulus'.
 
   
 
@@ -696,7 +694,7 @@ The jews were expelled at least three times from Rome after being accused of mis
 
 –https://thenazareneway.com/MM%20Chart.htm
 
-\[66\] https://en.wikipedia.org/wiki/The\_World%27s\_Sixteen\_Crucified\_Saviors
+\[66\] Scipio Africanus was the first high priest in the Flammen Dialis cult which made him the claimed son of Jupiter Optimus Maximus. He was also the Salian Priest of Mars, 'second Romulus' (founder of Rome), and Consul of the Republic and Censor. He was the 'messiah' of Rome. Julius Caesar modeled himself off of Alexander the Great and Scipio.  
 
 \[67\] https://en.wikipedia.org/wiki/Roman\_imperial\_cult#The\_imperial\_cult\_and\_Christianity
 
