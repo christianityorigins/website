@@ -44,7 +44,7 @@ Chapter 8: The Origins of Gnosticism
 8.1 Simon Magus and the Creation of Gnosticism  
 8.2 Gnosticism's Influence on Early Christianity  
 Chapter 9: Rome  
-9.1 The Role of the Boethians and Herodians in Rome  
+9.1 The Role of the Herodians in Rome  
 9.2 Alexandria, Egypt. 1st Century  
 APPENDICES  
 Appendix A. How Did Christianity Spread So Rapidly?  
@@ -376,12 +376,9 @@ Christianity is the combination of several religions and myths that were amalgam
 Fig. 1.6. Romulus. He was born to a virgin, the son of god, hailed as a King, crucified (67) by a conniving elite and rose from the dead. See: 'Romulus' (75AC) by Plutarch.</p>
 
   
-
-Christianity was one branch of the slave morality that originates with the Zoroastrian conspiracy in Babylon and was spread in Rome because members of this priestly Zadokite jewish family were able to amass power within Rome.
-
   
 
-#### 9.1 The Role of the Boethians and Herodians in Rome ####
+#### 9.1 The Role of the Herodians in Rome ####
 
 King Herod was the likely regional alias of Mark Antony (aka Tiberius Claudius Nero aka Phraates IV of Parthia) (68) and his descendants were given an elevated position within Rome. They were raised in the same household as Caesar Augustus (69) and even became emperors.  
   
@@ -485,7 +482,7 @@ The jews were expelled at least three times from Rome after being accused of mis
 
   
 
-\[1\] See: 'History: Fiction or Science? Russia. Britain. Byzantium. Rome. New Chronology Vol.IV' (2008) by Anatoly T. Fomenko, 'Jesus Among the Julio-Claudians' (2017) by Charles N. Pope '\[[link](https://books.google.se/books/about/Jesus_Among_the_Julio_Claudians.html?id=c7A3DwAAQBAJ&redir_esc=y)\], and 'How Fake Is Roman Antiquity?' \[[link](https://www.unz.com/article/how-fake-is-roman-antiquity/)\] for a few authors who make the claim that the "first Rome" was based out of Anatolia. I subscribe to this theory as well. The Latin language likely derives from the Dacian language which was spoken by the Thracians and Phrygians who hailed from the region of modern Romania. Also, the word Byzantine is a modern invention and the area of modern Byzantine (modern-day Istanbul) was once called 'Basileía tôn Rhômaíôn' ('Kingdom of the Romans'), the people of that region called themsevles Rhōmaîoi (Romans), and they hailed from Romania (meaning Romanus, or Roman). Anatoly T. Fomenko also claims that Jerusalem was located on the Bosphorus river.
+\[1\] See: 'History: Fiction or Science? Russia. Britain. Byzantium. Rome. New Chronology Vol.IV' (2008) by Anatoly T. Fomenko, 'Jesus Among the Julio-Claudians' (2017) by Charles N. Pope '\[[link](https://books.google.se/books/about/Jesus_Among_the_Julio_Claudians.html?id=c7A3DwAAQBAJ&redir_esc=y)\], and 'How Fake Is Roman Antiquity?' \[[link](https://www.unz.com/article/how-fake-is-roman-antiquity/)\] for a few authors who make the claim that the "first Rome" was based out of Anatolia. I subscribe to this theory as well. The Latin language likely derives from the Dacian language which was spoken by the Thracians and Phrygians who hailed from the region of modern Romania. Also, the word Byzantine is a modern invention and the area of modern Byzantine (modern-day Istanbul) was once called 'Basileía tôn Rhômaíôn' ('Kingdom of the Romans'), the people of that region called themsevles Rhōmaîoi (Romans), and they hailed from Romania (meaning Romanus, or Roman). Most of the 'new History' that we accept as fact today was created by the Jesuits and Joseph Justus Scaliger.
 
 \[2\] Julius Caesar was his title (Caesar is etymologically similar to the Indo-Aryan word for 'king' and Julius (Iulius) is similar to both (I)Jupiter and to the Indo-Aryan word for 'sun'). Julius Caesar was deified in two religions: in the Flamen Dialis cult (Dialis is related to Diespiter, an Old Latin form of the name Jupiter) which made him the claimed son of (I)Jupiter (There was no letter J in Latin and (I)Jupiter is the Roman equivalent of Zeus and they both derive from the Aryan allfather Dyeus Pter which translates to Sky Father. The name Zeus comes from the pronunciation of 'Dyeus', and (I)Jupiter comes from the pronunciation of 'Dyeus Pter' -> Diespiter -> Iupiter), and he was deified posthumously in the Divus Iulius cult (Divus is synonymous to Dyeus, and as aforemented, Iulius derives from (I)Jupiter). He had a claimed divine birth, was put on trial, betrayed, sacrificed, and was a pontifex maximus (high priest) in his religion. \
 
@@ -694,7 +691,7 @@ The jews were expelled at least three times from Rome after being accused of mis
 
 –https://thenazareneway.com/MM%20Chart.htm
 
-\[66\] Scipio Africanus was the first high priest in the Flammen Dialis cult which made him the claimed son of Jupiter Optimus Maximus. He was also the Salian Priest of Mars, 'second Romulus' (founder of Rome), and Consul of the Republic and Censor. He was the 'messiah' of Rome. Julius Caesar modeled himself off of Alexander the Great and Scipio.  
+\[66\] Scipio Africanus was the first high priest in the Flammen Dialis cult which made him the claimed son of Jupiter Optimus Maximus. His mother was divinely impregnanted by Jupiter. He was also the Salian Priest of Mars, 'second Romulus' (founder of Rome), and Consul of the Republic and Censor. He was the 'messiah' of Rome. Julius Caesar modeled himself off of Alexander the Great and Scipio.  
 
 \[67\] https://en.wikipedia.org/wiki/Roman\_imperial\_cult#The\_imperial\_cult\_and\_Christianity
 
