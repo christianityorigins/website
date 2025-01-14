@@ -32,8 +32,6 @@ Quotes
 
 -_In the democratic movement, we see the completion of the Christian movement; it is Christianity minus the God._ - The Will to Power (section 358)
 
--_Leftism is the last refuge of the weak, a secularized form of Christian charity._ - Friedrich Nietzsche
-
 -_Liberal institutions straightway cease from being liberal, the moment they are soundly established: once this is attained no more grievous and more thorough enemies of freedom exist than liberal institutions! One knows, of course, what they bring about: they undermine the Will to Power, they are the levelling of mountain and valley exalted to a morality, they make people small, cowardly and pleasure-loving,—by means of them the gregarious animal invariably triumphs. Liberalism, or, in plain English, the transformation of mankind into cattle… Freedom is the will to be responsible for ourselves. It is to preserve the distance which separates us from other men. To grow more indifferent to hardship, to severity, to privation, and even to life itself. To be ready to sacrifice men for one’s cause, one’s self included. Freedom denotes that the virile instincts which rejoice in war and in victory, prevail over other instincts; for instance, over the instincts of “happiness.” The man who has won his freedom, and how much more so, therefore, the spirit that has won its freedom, tramples ruthlessly upon that contemptible kind of comfort which tea—grocers, Christians, cows, women, Englishmen and other democrats worship in their dreams. The free man is a warrior._ - Twilight of the Idols
 
 -_The whole of the West has been Christianized, and the whole of the West has been infected with the Christian disease... The democratic movement is the heir of the Christian movement._ - Twilight of the Idols (section 5 in the "Skirmishes of an Untimely Man" chapter)
@@ -41,12 +39,6 @@ Quotes
 -_The Christian resolution to find the world ugly and bad has made the world ugly and bad._ - The Antichrist, Section 15.
 
 -_What is bad? But I have already answered: all that proceeds from weakness, from envy, from revenge.—The anarchist and the Christian have the same ancestry_ - Twilight of the Idols, "Morality as Anti-Nature", Aphorism 2.
-
--_Christianity has taken the side of everything weak, base, and lowly; it has made a virtue of these qualities and has made them a tool for the overthrow of the powerful._  - Friedrich Nietzsche
-
--_The Christian movement was the victory of the weak and lowly; it was a revolt against everything noble and strong._ - Friedrich Nietzsche
-
--_Christianity is a rebellion against the natural instincts of life and strength. It is the weapon of the oppressed against the strong, a means for the weak to overcome the powerful._ - Friedrich Nietzsche
 
 -_The Christian concept of God—God as a sick man, God as a spider, God as a vilely injured and overthrown man—is merely a projection of the sick and impotent instinct of the Christian. To talk of the will to power in connection with such a concept is a contradiction._- The Antichrist, Section 18.
 
