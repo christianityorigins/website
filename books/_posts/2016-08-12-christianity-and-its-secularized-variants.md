@@ -23,7 +23,7 @@ Chapter 1. The Christian System\
 1.2. Universalism\
 1.3. Nietzschean 'Transvaluation of Values'\
 1.4. Nietzschean 'Ressentiment' (Weaponizing the "Chandala" Castes)\
-1.5. Slave Morality System\
+1.5. Control Mechanisms\
 Chapter 2. Secularization of Christianity\
 Chapter 3. Marxism is Secularized Christianity\
 3.1. Marxist Denominations\
@@ -81,7 +81,7 @@ Universalism, the transvaluation of traditional ethnic values, monotheism (good 
 
 See also: [Ressentiment](https://en.wikipedia.org/wiki/Ressentiment), [Conflict Theory](https://en.wikipedia.org/wiki/Conflict_theories), and [Class Conflict](https://en.wikipedia.org/wiki/Class_conflict)
 
-1.5. Slave Morality  
+1.5. Control Mechanisms  
   
 While Christianity empowers the "chandala" caste through universalism and the transvaluation of a group's traditional values so that they can be elevated to the position of policing the aristocratic and warrior castes relative to their socially constructed rules of behavior so that the system becomes self-regulating, it is also a domestication system that is designed to fill a group with fear (trauma-based mind-control programming), self-hate, strip them of their will to power, fill them with guilt and shame complexes, rob them of their connection to ancestry and genetic memory, make them stupid (intellectual curiosity and critical thinking are not only threats to faith/fideism but are sins, and this is the reason why every Christian white trash town is filled with people whose culture is built around a contempt for learning) (13), instill into a group a slave-like mentality of obedience, while subconsciously connecting a population to jews. It does this through:
 
