@@ -62,10 +62,10 @@ Imperial Cult
 There was a Byzantine (1) imperial cult where Julius Caesar (2) took on the role of Asander of Bosphorus \[[link](https://www.thenazareneway.com/Gospel%20of%20Jesus%20Wife%20Papyrus.htm)\] (the city of Byzantine, later called Constantinople and now Istanbul was/is located in the area called Bosphorus), and his wife Cleopatra used the regional alias of Dynamis Ourania (translates to 'heavenly power'), queen of Bosporus \[[link](http://thenazareneway.com/Gospel%20of%20Jesus%20Wife%20Papyrus.htm)\].
 
 <p align="center">
-<img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiBl-vZ88HEXk48wd92i6xLnhLF3ShG33U1-cz5DqjK7iv3nNxwN01ZP8BuiWTRWkVZSMOxhpDmofwunme0_T0FcDtjvM5HwlIlv6Vcg5C8-z5Ll1YzE9J5WayMoRsVMM_w_4-dZdn24c5P3jR7aGBeeIHJgFK4VB5sQc5Uiicvxfe44pLEMS-vH1Ec19s/s1170/Untitled.jpeg" width="400"></p>
+<img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEheXzAC8bPODhydV-gZSV8Y8I7CilocHlQ50e-FHFmVuGp5cJnpLlqvRoil6ILgdTB010J-m588hDCcwkjxv9ctgof0NGXGh9aXalYFaXSRXuUGt0eoYeYea9UhPq-L1bHVR5e1BBGKUoqAOQir8FZrb62n-Bad1wm3UBwCKLe5ClhEjnJBUIGheGTksyU/s1056/a3ed47f8d85287b1d26e6ba5f6c21ee3_irviy06hfzs.jpeg" width="400"></p>
 
 
-<p align="center">Fig. 1.1. (L) Dynamis, Queen of Bosporus, (M) Julia Mamaea, Queen of Pontus, (R) Cleopatra VII</p>
+<p align="center">Fig. 1.1. (L) Julia Mamaea, Queen of Pontus, (M) Cleopatra VII, Queen of Egypt (R) Dynamis, Queen of Bosporus</p>
 
 Dynamis's grandfather was Mithridates VI Eupator who carried the title ‘King of Kings’. Her uncle was Mithridates ‘Chrestus'. 
 
