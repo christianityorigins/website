@@ -61,6 +61,12 @@ Imperial Cult
 
 There was a Byzantine (1) imperial cult where Julius Caesar (2) took on the role of Asander of Bosphorus \[[link](https://www.thenazareneway.com/Gospel%20of%20Jesus%20Wife%20Papyrus.htm)\] (the city of Byzantine, later called Constantinople and now Istanbul was/is located in the area called Bosphorus), and his wife Cleopatra used the regional alias of Dynamis Ourania (translates to 'heavenly power'), queen of Bosporus \[[link](http://thenazareneway.com/Gospel%20of%20Jesus%20Wife%20Papyrus.htm)\].
 
+<p align="center">
+<img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiBl-vZ88HEXk48wd92i6xLnhLF3ShG33U1-cz5DqjK7iv3nNxwN01ZP8BuiWTRWkVZSMOxhpDmofwunme0_T0FcDtjvM5HwlIlv6Vcg5C8-z5Ll1YzE9J5WayMoRsVMM_w_4-dZdn24c5P3jR7aGBeeIHJgFK4VB5sQc5Uiicvxfe44pLEMS-vH1Ec19s/s1170/Untitled.jpeg" width="400"></p>
+
+
+<p align="center">Fig. 1.1. (L) Dynamis, Queen of Bosporus, (M) Julia Mamaea, Queen of Pontus, (R) Cleopatra VII</p>
+
 Dynamis's grandfather was Mithridates VI Eupator who carried the title ‘King of Kings’. Her uncle was Mithridates ‘Chrestus'. 
 
 Amyntas Nikator aka Amyntas of Galatia aka Jesus ben Fabus aka Isa Amen (Jesus Amen of Rev. iii. 14) (3) was married to Stratonice who was the sister of Asander. He was also a cousin of Dynamis.
@@ -79,13 +85,13 @@ Alexander (grandson of King Herod) and his sister wife  Cleopatra (Thea Philopat
 <img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEikChO0ZBc91tmTcx-Uj9xf7LUCH5SxzLDFJII1MZAOrwYwZ-tslrScPHQs20c8WhOW_GJvpfZ8eEYkUeAYtxJrjl18Spq9GhxILCl4wX4w1VlCNMZmlVfAel0Cr1GEICQPHQsIlDNY917lglrPrC1rxmgVhVzzU6150S1ZQBvRmHaBheNUGKy4QFfON28/s674/image.jpg" width="400"></p>
 
 
-<p align="center">Fig. 1.1. Tiberius Julius Sauromates II, who was the son of Tiberius Julius Cotys (aka Tiberius Julius Alexander aka Arrius Calpernius Piso aka Arrius Varus aka Emperor Nerva), great-grandson of Dynamis aka Cleopatra and Mark Antony. Does he look familiar? Sauromates is a Greek rendering of "Sarmatian".</p>
+<p align="center">Fig. 1.2. Tiberius Julius Sauromates II, who was the son of Tiberius Julius Cotys (aka Tiberius Julius Alexander aka Arrius Calpernius Piso aka Arrius Varus aka Emperor Nerva), great-grandson of Dynamis aka Cleopatra and Mark Antony. Does he look familiar? Sauromates is a Greek rendering of "Sarmatian".</p>
 
 <p align="center">
 <img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgkg6HruekpVy4HBBuLQSuMiuGOR2wu3EZ76AfMbs-6IwmFJ-vz4vyT_oWC0auWEf-hb3-OOXjsrcPBXi97b0FHy0w75CfU4u6Y7TpDAEKqpvzDD00Yzv1HkrYWJ1ARGblqY3_B8U_KVfgx9lAx1h7ghnU42xnq9LNMlmXFWvHR_6gjGP7EzM2BE12JEK4/s1163/coin-abgar-phraates-imageonline.co-merged.png" width="400"></p>
 
 
-<p align="center">Fig. 1.2. (L) and (R) show King Izates Monobazus of Adiabene wearing a crown of thorns. The middle image source: The Alexander Mosaic, Huqoq, Israel.</p>
+<p align="center">Fig. 1.3. (L) and (R) show King Izates Monobazus of Adiabene wearing a crown of thorns. The middle image source: The Alexander Mosaic, Huqoq, Israel.</p>
 
 One name that shows up in the family trees of all the people listed above is Simon Boethus who I identify as (king/Tetrarch) Ptolemy (Alexander) bar Menneus aka Simon Magus. The name Boethus comes from Sabazios which is a translation of Zeus (Jupiter to the Romans) in the dialect and tradition of Phrygians and Thracians of Anatolia. Ma'nu is likely a diminutive of Menneus ('son of man') and then Manu-Sabazios becomes Monobazus which becomes 'Bazus' or 'Bar Izates' shortened to 'baYZTus' (or bar YZT) through frequent oral repetition which becomes 'bOETHus'. He was likely also Simon the Essene the founder of the Essene sect and Simon Peter in the bible (the term 'Peter' is derived from the Latin 'Pater' meaning 'father', denoting the Essene High Priest. The Essenes called themselves 'the Sons of Zadok' and Simon was the heir of the Zadokite High Priest dynasty). His daughter Mariamne Boethus was the fifth wife of King Herod. He was the uncle of Jesus ben Fabus, great-great-great-grandfather of Jesus ben Gamla/Gamaliel aka King Izas Monobazus (the Talmud (Bereshit Rabbah 46:10) calls Izates and Monobazus the "Sons of Ptolemy"), and I identify Juba II as Alexander (son of King Herod) below which makes him the grandson of Simon Boethus, and he was the great-great-grandfather of Vespasian.
 
@@ -255,7 +261,7 @@ YHWH = Jehova = Jove (Yoweh is similar to Latin Iove) = Jupiter = Ye-Zeus (YHWH 
 
 
 <p align="center">
-Fig. 1.3. Alexander the Great as Zeus Ammon (or Jupiter Ammon), the ram god. The Greeks had identified the Egyptian god Ammon with Zeus, the Romans identified Ammon with Jupiter.</p>
+Fig. 1.4. Alexander the Great as Zeus Ammon (or Jupiter Ammon), the ram god. The Greeks had identified the Egyptian god Ammon with Zeus, the Romans identified Ammon with Jupiter.</p>
 
 #### 5.2 Alexander as a Prototype for the Jesus Figure
 
@@ -343,7 +349,7 @@ Simon's line of descent to focus on is through his grandson Alexander (son of Ki
 <img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjFSLLYvMZx3v6PQyiK_xcyAb0dO-6tAfrLxLYhNlgyFuc18Vld7oXgKlw4dDbtSFV2S19UlpQxoE1d8IVMaiN9k_e0_uhhFTTM8EiJH1gXNX8M5qFrg4X7I4dUeygNml6W2QR4KWXkSIwDfosiif7EBJoMHU0K2NM1yVAdS-oUxbzoNrNxsOZUybrqJlc/s1800/combined.jpg" width="400">
 </p>
 
- <p align="center">Fig 1.4. (L) Alexander (son of King Herod) aka Juba II. (R) Cleopatra Selene II aka Queen Thea Muse Ourania </p>
+ <p align="center">Fig 1.5. (L) Alexander (son of King Herod) aka Juba II. (R) Cleopatra Selene II aka Queen Thea Muse Ourania </p>
 
 Alexander (son of King Herod) aka Juba II and Cleopatra Selene II had two prominent children who were married to each other:
 
@@ -355,7 +361,7 @@ Alexander (son of King Herod) aka Juba II and Cleopatra Selene II had two promin
 </p>  
 
 <p align="center">
-Fig. 1.5. (L) Alexander (grandson of King Herod) aka Gaius Julius Alexander, Herodian Prince of Judaea aka Alexander the Alabarch aka (King/Tetrarch) Ptolemy (Alexander) bar Menneus aka Ptolemy of Mauretania aka "Jesus" in the bible. (R) Cleopatra (Thea Philopator) of Mauretania aka Cleopatra IX aka Pythodorida Philometor aka Helene aka Drusilla of Mauretania aka Julia Ourania of Parthia aka "Philo of Alexandria".</p>
+Fig. 1.6. (L) Alexander (grandson of King Herod) aka Gaius Julius Alexander, Herodian Prince of Judaea aka Alexander the Alabarch aka (King/Tetrarch) Ptolemy (Alexander) bar Menneus aka Ptolemy of Mauretania aka "Jesus" in the bible. (R) Cleopatra (Thea Philopator) of Mauretania aka Cleopatra IX aka Pythodorida Philometor aka Helene aka Drusilla of Mauretania aka Julia Ourania of Parthia aka "Philo of Alexandria".</p>
 
 Endnotes (Chapter 8)
 
@@ -374,7 +380,7 @@ Christianity is the combination of several religions and myths that were amalgam
   
 
 <p align="center">
-Fig. 1.6. Romulus. He was born to a virgin, the son of god, hailed as a King, crucified (67) by a conniving elite and rose from the dead. See: 'Romulus' (75AC) by Plutarch.</p>
+Fig. 1.7. Romulus. He was born to a virgin, the son of god, hailed as a King, crucified (67) by a conniving elite and rose from the dead. See: 'Romulus' (75AC) by Plutarch.</p>
 
   
   
@@ -402,7 +408,7 @@ Alexander (grandson of King Herod), who was the richest man in the world at the 
   
 
 <p align="center">
-Fig. 1.7. Erroneously identified 'Josephus' bust which I identify as Tiberius Julius Alexander. Compare it to Nerva's depictions</p>
+Fig. 1.8. Erroneously identified 'Josephus' bust which I identify as Tiberius Julius Alexander. Compare it to Nerva's depictions</p>
 
   
 
@@ -419,7 +425,7 @@ Emperor Vespasian was another likely grandson of King Herod. He was Herod Pollio
   
 
 <p align="center">
-Fig. 1.8. Compare Vespasian's depiction to Herod Agrippa I</p>
+Fig. 1.9. Compare Vespasian's depiction to Herod Agrippa I</p>
 
   
 
@@ -439,7 +445,7 @@ So, five emperors in a row were King Herod's grandsons or great-grandsons: Vitel
   
 
 <p align="center">
-Fig. 1.9. Note how the Roman emperor phenotype changes dramatically after Otho</p>
+Fig. 1.10. Note how the Roman emperor phenotype changes dramatically after Otho</p>
 
   
 
@@ -454,7 +460,7 @@ Every Roman Emperor from Hadrian (likely an acronym for Herodian (77)) onward de
   
 
 <p align="center">
-Fig. 1.10. (L) Constantius Chlorus. The father of emperor Constantine (R) Emperor Flavius Constantine/Constantinus who carried the Flavian title.</p>
+Fig. 1.11. (L) Constantius Chlorus. The father of emperor Constantine (R) Emperor Flavius Constantine/Constantinus who carried the Flavian title.</p>
 
   
 
