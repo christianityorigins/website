@@ -188,15 +188,9 @@ As Friedrich Nietzsche keenly observed, almost all of the persons who think they
 
 Addendum
 
-Modern political ideologies like conservatism and leftism are secularized versions of Catholicism and Protestantism.
+Modern political ideologies like conservatism and leftism are secularized versions of Catholicism and Protestantism. Conservatism = Catholicism, Leftism = Protestantism. The binary of Right vs. Left dichotomy = monotheism. Modern left vs. right politics is a secularized variant of Catholic vs. Protestant wars in Europe. 
 
-Conservatism = Catholicism (Catholic doctrine aligns with conservative ideas of hierarchical structure, fixed moral truths, advocating for preservation of traditional values, family structures, and moral codes).
-
-Leftism = Protestantism (Social justice, focus on personal salvation that was secularized into left-wing efforts for social justice).
-
-The binary of Right vs. Left dichotomy = monotheism. Modern left vs. right politics is a secularized variant of Catholic vs. Protestant wars in Europe. 
-
-My critique of the left as a secularized variant of Protestantism wasn't an implication that I personally hold conservative views, nor was it a critique offered from a conservative perspective.  
+My critique of the left as a secularized variant of Protestantism wasn't an implication that I personally hold conservative views, nor was it a critique offered from a conservative perspective.
 
 Footnotes
   
