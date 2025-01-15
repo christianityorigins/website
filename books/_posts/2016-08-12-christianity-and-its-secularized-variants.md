@@ -186,7 +186,17 @@ As Friedrich Nietzsche keenly observed, almost all of the persons who think they
 &nbsp;&nbsp; &nbsp;&nbsp;&nbsp;&nbsp;It took 2000 years of domestication to reach the point where Europeans would sacrifice their nations and the future of their children on the altar of equality, but the seeds for this was inculcated through this system. \
    &nbsp;&nbsp; &nbsp;&nbsp;&nbsp;&nbsp;It is horrifying to think of the scale that this psyop grew to, how this system became institutionalized, how it changed the evolutionary group strategy of billions of people, how it created hell on earth for the entire planet for centuries, and how it is the system that is responsible for the needless destruction of billions of people.
 
-  
+Addendum
+
+Modern political ideologies like conservatism and leftism are secularized versions of Catholicism and Protestantism.
+
+Conservatism = Catholicism (Catholic doctrine aligns with conservative ideas of hierarchical structure, fixed moral truths, advocating for preservation of traditional values, family structures, and moral codes).
+
+Leftism = Protestantism (Social justice, focus on personal salvation that was secularized into left-wing efforts for social justice).
+
+The binary of Right vs. Left dichotomy = monotheism. Modern left vs. right politics is a secularized variant of Catholic vs. Protestant wars in Europe. 
+
+My critique of the left as a secularized variant of Protestantism wasn't an implication that I personally hold conservative views, nor was it a critique offered from a conservative perspective.  
 
 Footnotes
   
