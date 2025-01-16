@@ -65,7 +65,7 @@ There was a Byzantine (1) imperial cult where Julius Caesar (2) took on the role
 <img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjZBJMJdUc27tr0Op57UIgh1sL0NtWlW5JA-6RJtIlmnnBDbJR3yR9D0B4KfefhVX_yTo7zIwQo1mEEdtwjI2HWmUR67wNKKSYnoVcdib5o2srvsgrC9WLxAYp6paX9yTuuk6XHYmQeVrx9fkw039Nu8CmeOH2HZ4FHW5hgERyxj0AmVAtw42tMVJKJFVs/s947/image.png" width="400"></p>
 
 
-<p align="center">Fig. 1.1. (L) Julia Avita Mamaea of Emessa, (R) Cleopatra VII. If Polemon Pythodoros, King of Pontus was Julius Caesar's regional alias, and he also played the religious role of Gaius Julius Sohaemus of Emesa, Priest-King of Emesa, and Cleopatra played the regional role of Pythodorida Philometor, then Julia Avita Mamaea of Emessa would have been their daughter. Do you see a resemblance? She would have been married to her half-brother Polemon II, king of Pontus aka Sampsiceramus I?</p>
+<p align="center">Fig. 1.1. (L) Julia Avita Mamaea of Emessa, (R) Cleopatra VII. If Polemon Pythodoros, King of Pontus was Julius Caesar's regional alias, and he also played the religious role of Gaius Julius Sohaemus of Emesa, Priest-King of Emesa, and Cleopatra played the regional role of Pythodorida Philometor, then Julia Avita Mamaea of Emessa would have been their daughter. Do you see a resemblance? She would have been married to her half-brother Polemon II, king of Pontus aka Ptolemy Philadelphus aka Sampsiceramus I?</p>
 
 Dynamis's grandfather was Mithridates VI Eupator who carried the title ‘King of Kings’. Her uncle was Mithridates ‘Chrestus'. 
 
