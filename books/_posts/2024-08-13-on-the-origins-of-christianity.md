@@ -65,7 +65,7 @@ There was a Byzantine (1) imperial cult where Julius Caesar (2) took on the role
 <img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEheXzAC8bPODhydV-gZSV8Y8I7CilocHlQ50e-FHFmVuGp5cJnpLlqvRoil6ILgdTB010J-m588hDCcwkjxv9ctgof0NGXGh9aXalYFaXSRXuUGt0eoYeYea9UhPq-L1bHVR5e1BBGKUoqAOQir8FZrb62n-Bad1wm3UBwCKLe5ClhEjnJBUIGheGTksyU/s1056/a3ed47f8d85287b1d26e6ba5f6c21ee3_irviy06hfzs.jpeg" width="400"></p>
 
 
-<p align="center">Fig. 1.1. (L) Julia Mamaea, Queen of Pontus, (M) Cleopatra VII, Queen of Egypt (R) Dynamis, Queen of Bosporus</p>
+<p align="center">Fig. 1.1. (L) Julia Mamaea, Queen of Pontus, daughter of Julius Caesar and Cleopatra (Polemon I of Pontus = Julius Caesar's regional alias, Pythodorida of Pontus = Cleopatra's regional alias), (M) Cleopatra VII, Queen of Egypt (R) Dynamis, Queen of Bosporus</p>
 
 Dynamis's grandfather was Mithridates VI Eupator who carried the title ‘King of Kings’. Her uncle was Mithridates ‘Chrestus'. 
 
