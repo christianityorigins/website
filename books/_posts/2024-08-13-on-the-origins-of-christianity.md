@@ -746,12 +746,6 @@ The jews were expelled at least three times from Rome after being accused of mis
 
 **Main Sources Used**
 
-_Christianity Exposed_ (1843) by Bruno Bauer \[[link](https://play.google.com/store/books/details?id=mrP4MDmYNXkC&rdid=book-mrP4MDmYNXkC&rdot=1)\]  \
-
-_Christ and the Caesars_ (1879) by Bruno Bauer \[[link](http://www.sidneyrigdon.com/vern/1879BaurEng.htm)\]  \
-
-_On the Genealogy of Morality_ (1887) by Friedrich Nietzsche [<a href="https://en.wikipedia.org/wiki/On_the_Genealogy_of_Morality" rel="nofollow" target="_blank">link</a>] \
-
 _Christianity and the Survival of the West_ (1973) by Revilo P. Oliver [<a href="https://ia601306.us.archive.org/15/items/ChristianityAndTheSurvivalOfTheWest/ChristianityAndTheSurvivalOfTheWest.pdf" rel="nofollow" target="_blank">link</a>] \
 
 _Christianity: A Religion for Sheep_ (1980) by Revilo P. Oliver [<a href="https://archive.org/details/christianity-a-religion-for-sheep-by-ralph-perrier-revilo-p.-oliver-z-lib.org" rel="nofollow" target="_blank">link</a>] \
@@ -763,8 +757,6 @@ _The Origins of Christianity_ (1994) by Revilo P. Oliver [<a href="https://archi
 _Reflections on the Christ Myth_ (1994) by Revilo P. Oliver [<a href="https://ia600201.us.archive.org/22/items/ReflectionsOnTheChristMyth_518/ReflectionsOnTheChristMyth-Oliver.pdf" rel="nofollow" target="_blank">link]</a> \
 
 _Cleopatra to Christ_ (2010) by Ralph Ellis \[[link](https://www.google.com/books/edition/Cleopatra_to_Christ/T7sqfHyWPuQC?hl=en&gbpv=1&dq=cleopatra+to+christ&printsec=frontcover)\] (_reveals that the biblical Jesus was based on King Izates of Adiabene who was directly descended from Cleopatra VII_)  \
-
-_Jesus Among the Julio-Claudians_ (2017) by Charles N. Pope \[[link](https://books.google.se/books/about/Jesus_Among_the_Julio_Claudians.html?id=c7A3DwAAQBAJ&redir_esc=y)\]   \
 
 _Following Philo to Pallas (the Freedman): The Most Powerful Man in First Century Rome, also known as Goddess (the Mother)_ (2019) by P.J. Gott \[[link](https://www.amazon.com/Following-Philo-Pallas-Freedman-Powerful-ebook/dp/B07PXKQGYG/)\] (_reveals that Philo of Alexandria was a pen-name for Cleopatra of Mauretania who was married to her brother Alexander (grandson of King Herod)/Ptolemy of Mauretania, therefore, she was the mother of Tiberius Julius Alexander/Arrius Piso. Also, that she was Claudius and Nero's secretary 'Pallas' and Vespasian's first cousin and mistress Antonia Caenis_) \
 
