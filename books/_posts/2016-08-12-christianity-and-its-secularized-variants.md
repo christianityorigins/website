@@ -190,8 +190,6 @@ Addendum
 
 My critique of leftism was not coming from a conservative perspective. Leftism is a secularized variant of protestantism (puritanism), but conservatism is secularized catholicism with its focus on hierarcy and tradtion. Western left vs. right politics is a relict of abrahamic monotheism.
 
-Also, I don't claim all jews are responsible for this. Jews in academia (including Karl Marx) who have advocated for forms of 'cultural Marxism' are Jews who gave up their faith and assimilated into liberal Christian values which were combined with 'tikkun olum'. The Jews that resisted assimilation, Orthodox Jews, are a solidly Conservative bloc. 
-
 Footnotes
   
 1\. Millenarianism. Wikipedia. https://en.wikipedia.org/wiki/Millenarianism \[[link](https://en.wikipedia.org/wiki/Millenarianism)\]  
