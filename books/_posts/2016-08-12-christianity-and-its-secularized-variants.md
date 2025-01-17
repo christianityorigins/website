@@ -186,6 +186,12 @@ As Friedrich Nietzsche keenly observed, almost all of the persons who think they
 &nbsp;&nbsp; &nbsp;&nbsp;&nbsp;&nbsp;It took 2000 years of domestication to reach the point where Europeans would sacrifice their nations and the future of their children on the altar of equality, but the seeds for this was inculcated through this system. \
    &nbsp;&nbsp; &nbsp;&nbsp;&nbsp;&nbsp;It is horrifying to think of the scale that this psyop grew to, how this system became institutionalized, how it changed the evolutionary group strategy of billions of people, how it created hell on earth for the entire planet for centuries, and how it is the system that is responsible for the needless destruction of billions of people.
 
+Addendum
+
+My critique of leftism was not coming from a conservative perspective. Leftistism is a secularized variant of protestantism (puritanism), but conservatism is secularized caholicism with its focus on hierarcy and tradtion. Western left vs. right politics is a relict of abrahamic monotheism.
+
+Also, I don't claim all jews are responsible for this. Jews in academia (including Karl Marx) who have advocated for forms of 'cultural Marxism' are Jews who gave up their faith and assimilated into liberal Christian values which were combined with 'tikkun olum'. The Jews that resisted assimilation, Orthodox Jews, are a solidly Conservative bloc. 
+
 Footnotes
   
 1\. Millenarianism. Wikipedia. https://en.wikipedia.org/wiki/Millenarianism \[[link](https://en.wikipedia.org/wiki/Millenarianism)\]  
