@@ -138,16 +138,17 @@ Marxism, Critical Theory, Critical Race Theory, Leftism/Wokeism all incorporate 
   
 
 *   White guilt/privilege/fragility/et.al. = Christian Original Sin.
-*   Monotheism = the binary opposition between good and evil (left vs. right). The moral superiority that white leftists often claim is rooted in this dualistic worldview.
+*   Monotheism = the binary opposition between good and evil (left vs. right). A singular truth in Christianity (one God, one truth) mirrors the left's ideological stance where there's often a clear delineation of right vs. wrong, good vs. evil, progressive vs. regressive. The moral superiority that white leftists often claim is rooted in this dualistic worldview.
 *   White saviorism = Messianism: The idea of white people as moral saviors or messianic figures echoes religious concepts of a redeemer or savior. Many white leftists see themselves as engaging in a divine mission to eradicate racism or save or redeem non-white people.
+*   Social activism = Christian mission. The cultural exportation of "Western values" where "whiteness" is the new gospel.
 *   Virtue signaling = Christian penance.
 *   Publicly exhibiting self-hate/self-flagellating = christian piety signaling. In christianity, genuflection, self-abasement, and self-abnegation are necessary prerequisites for spiritual purity and cleansing. This is expressed as "mortification of the flesh". For 2000 years, Europeans have been rewarded for piety signaling, i.e., displaying self-hate, confession, self-flagellation, etc., and punished for not displaying these things. This is also a form of narcissistic self-sacrifice that is inspired by a suffering servant deity.
 *   Salvation/atonement (through accepting jesus and admitting sin) = accepting Leftism and admitting privilege.
-*   "Whiteness" = Christian Universalism. The idea that self-identifying as "white" makes one a representative, spokesperson, or judge of the behavior of the entire group aligns with universalist ideologies where a single entity or belief system is seen as encompassing all humanity. "White" is downstream from the universalist christian identity of "christendom".
+*   "Whiteness" = Christian Universalism ("Christendom"). The idea that self-identifying as "white" makes one a representative, spokesperson, or judge of the behavior of the entire group aligns with universalist ideologies where a single entity or belief system is seen as encompassing all humanity. "White" is downstream from the universalist christian identity of "christendom".
 *   Race/IQ/gender/genetics denialism ("Boasian anthropology") = "all equal in Jesus".
 *   Political Correctness = Heresy.
 *   Cancel culture = witch-hunts/excommunicated for heresy.
-*   Adopting labels and slogans (pronouns, BLM, trans ally, etc.) = bearing the mark, or taking up the cross. This is equivalent to wearing a cross or crucifix as a visible sign of one's faith and signaling to others that they are a member of the community.
+*   Adopting labels and slogans (pronouns, BLM, trans ally, etc.) = bearing the mark, or taking up the cross. This is equivalent to wearing a cross or crucifix as a visible sign of one's faith and signaling to others that they are a member of the community. They gain social capital in progressive circles through this. 
 *   Government = God. An omnipresent entitlement and benefactor giver.
 
 What is the end goal of these divide-and-conquer slave-morality systems? (Christianity/Marxism/Cultural Marxism/Race Marxism/Gender Marxism). "Progress" (deconstruction/abolition) is the weaponizing the poor, outcastes, racial groups and women to get them to overthrow the dominant group in society and then create a slave class controlled by a tiny elite. Why? Friedrich Nietzsche claimed that all these slave-moralities were the manifestations of a Jewish group strategy/essentialist racial instincts operating below the level of real consciousness \[[link](https://en.wikipedia.org/wiki/Philosophy_of_Friedrich_Nietzsche#Jews,_nationalism_and_European_identity)\].
