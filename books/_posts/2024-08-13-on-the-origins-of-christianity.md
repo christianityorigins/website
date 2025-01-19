@@ -753,10 +753,6 @@ The jews were expelled at least three times from Rome after being accused of mis
 
 **Main Sources Used**
 
-_Christianity and the Survival of the West_ (1973) by Revilo P. Oliver [<a href="https://ia601306.us.archive.org/15/items/ChristianityAndTheSurvivalOfTheWest/ChristianityAndTheSurvivalOfTheWest.pdf" rel="nofollow" target="_blank">link</a>] \
-
-_Christianity: A Religion for Sheep_ (1980) by Revilo P. Oliver [<a href="https://archive.org/details/christianity-a-religion-for-sheep-by-ralph-perrier-revilo-p.-oliver-z-lib.org" rel="nofollow" target="_blank">link</a>] \
-
 _A Forgery of Our Own_ (1991) by Revilo P. Oliver [<a href="http://www.revilo-oliver.com/rpo/Forgery_of_Our_Own.html" rel="nofollow" target="_blank">link</a>] (_short article where professor Revilo P. Oliver points the finger at Rabbi Akiva as being the center piece of the conspiracy to create a psy-op religion to subjugte the Romans_) \
 
 _The Origins of Christianity_ (1994) by Revilo P. Oliver [<a href="https://archive.org/details/the-origins-of-christianity-by-revilo-p-oliver-z-lib.org" rel="nofollow" target="_blank">link</a>] \
