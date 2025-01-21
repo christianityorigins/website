@@ -31,9 +31,10 @@ Phenotype:
 *   Neoteny ([ref](https://www.ncbi.nlm.nih.gov/pmc/articles/PMC4096361/)) ([ref](https://www.ncbi.nlm.nih.gov/pmc/articles/PMC5646786/)) ([ref](https://incels.wiki/w/Neoteny)) and feminization ([ref](https://incels.wiki/w/Feminization)) in males (neotony and feminization comes from hormonal adaptation to domestication. I.e. no pressure for epigenetic expression of high testosterone)
 *   Brachycephaly. Short and round skulls that lack an occipital bun (occipital bun = larger craniovolume and a higher IQ). Brachycephaly leads to a reduction of the back of the brain and a smaller amygdala (2). This expresses in political affiliation: people who identify as conservative have a larger amygdala ([ref](https://phys.org/news/2024-09-political-ideology-differences-brain-previously.html)) 
 *   Smaller skull in volume ([ref](https://www.ncbi.nlm.nih.gov/pmc/articles/PMC5646786/#!po=8.25243/))
+*   Androgyny and emasculation in males ([ref](https://link.springer.com/article/10.1007/s40750-019-00126-z))
 *   Weak jaws
 *   Lower muscle mass in males
-*   Lower testosterone in males
+*   Lower testosterone in males ([ref](https://www.biorxiv.org/content/biorxiv/early/2018/08/01/143875.full.pdf))
 *   Smaller penis sizes in males
 *   Poor eyesight ([ref](https://books.google.ca/books?id=hEy4AAAAIAAJ&redir_esc=y))
 *   Incompletely developed neural crest which leads to craniofacial abnormalities, neurological problems, lower intelligence, and vision problems ([ref](https://pmc.ncbi.nlm.nih.gov/articles/PMC8633094/)) ([ref](https://www.sciencedaily.com/releases/2014/07/140714100122.htm/))
@@ -45,6 +46,7 @@ Most people's political affiliation is determined by biological process, brain c
 2\. There's a theory that supports the "autistic brain" (as of the extreme male brain theory) is a brain with a tendency to be undomesticated or "failed domestication" [[link](https://www.psychologytoday.com/gb/blog/the-imprinted-brain/201608/autism-and-domestication-syndrome-in-humans)\]. Undomesticated people are socialized to a lesser degree therefore fall less for propaganda. Schizophrenia is the opposite of this and is a form of hyper-domestication syndrome [[link](https://www.psychologytoday.com/us/blog/the-imprinted-brain/201609/schizophrenics-hyper-domesticated-humans)] (see also: testosterone supplementation reverses symptoms of schizophrenia [[link](https://pubmed.ncbi.nlm.nih.gov/18626263/)\]), so is Down's Syndrome (see: Down's Syndrome is treated with testosterone supplementation [[link](https://www.theguardian.com/society/2022/sep/01/hormone-therapy-may-boost-brain-function-for-people-with-downs-syndrome-study-finds)]).  \
 --Aggression and fear responses are mediated by the amygdala. \
 3\. Liberal men turn Conservative after testosterone supplementation [[link](https://www.openicpsr.org/openicpsr/project/155441/version/V1/view)\] \
+--https://en.wikipedia.org/wiki/Biology_and_political_orientation \
 4\. Feudalism was invented simultaneously as institutional Christianity. Both by Constantine, one to enforce the other and vice versa. Also, the Prussian Educational system (public educational system) was designed by the Cathoic Church and Martin Luther to strip critical thinking abilities from students so that they become pious slaves. See: Against School (2003) by John Taylor Gatto: https://www.cs.mcgill.ca/~abatko/interests/teaching/essays/Against_Schools/ [[link](https://www.cs.mcgill.ca/~abatko/interests/teaching/essays/Against_Schools/)\]. 
 
 Read more
