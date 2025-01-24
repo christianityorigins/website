@@ -137,7 +137,7 @@ Characters
 
 *   Alexander (son of King Herod and grandson of Simon Boethus) = Juba II who was married to Cleopatra Selene II (daughter of Mark Antony and Cleopatra VII) aka Queen Thea Muse Ourania. Alexander and his wife were adopted by Julius Caesar and raised in Rome.
 *   Alexander (grandson of King Herod and great-grandson of Simon Boethus) = (King/Tetrarch) Ptolemy (Alexander) bar Menneus aka Ptolemy of Mauretania (aka 'Joseph Panthera', the name for jesus's father in the Talmud; Panthera is a corruption of Cantheras, or Cleopatros) aka Tiberius Julius Alexander Major aka Alexander the Alabarch.
-*   Cleopatra (Thea Philopator) of Mauretania aka Cleopatra IX aka Helene aka Drusilla of Mauretania aka Julia Ourania of Parthia = Philo of Alexandria, the sister-wife of Alexander (grandson of King Herold). She was also Claudius and Nero's secretary 'Pallas', and 'Antonia Caenis' who was Vespasian's first cousin and mistress.(See: 'Following Philo to Pallas (the Freedman): The Most Powerful Man in First Century Rome, also known as Goddess (the Mother)' (2019) by P.J. Gott \[[link](https://www.amazon.com/Following-Philo-Pallas-Freedman-Powerful-ebook/dp/B07PXKQGYG/ )\])
+*   Cleopatra (Thea Philopator) of Mauretania aka Cleopatra IX aka Helene aka Drusilla of Mauretania aka Julia Ourania of Parthia = Philo of Alexandria, the sister-wife of Alexander (grandson of King Herold). She was also Claudius and Nero's secretary 'Pallas', and 'Antonia Caenis' who was Vespasian's first cousin and mistress.(See: 'Following Philo to Pallas (the Freedman): The Most Powerful Man in First Century Rome, also known as Goddess (the Mother)' (2019) by P.J. Gott https://www.amazon.com/Following-Philo-Pallas-Freedman-Powerful-ebook/dp/B07PXKQGYG \[[link](https://www.amazon.com/Following-Philo-Pallas-Freedman-Powerful-ebook/dp/B07PXKQGYG/ )\])
 *   Bartholemew ('Bar Ptolemy') = son of Simon Boethus.
 *   Eleazar ben Boethus = Lazarus of Bethany, son of Simon Boethus.
 *   Gautama Buddha = Gaumata Bardya, son of Cyrus the Great.
@@ -149,7 +149,7 @@ Characters
 *   Onias II = Simeon the Righteous aka Simeon the Just aka Shimon HaTzaddik who was the Kohen Gadol High Priest.
 *   Onias III = Qumran Teacher of Righteousness in the Dead Sea Scrolls. 'The Anointed One' which in Hebrew is 'moshiach' and often translated as 'messiah'. In Greek, 'The Anointed One' is Chréstos/Christ.
 *   Paul the Apostle = four options:1)Gaius Asinius Pollio (who was the maternal grandfather? of Vespasian who raised Caesar Augustus and at least five of King Herod's sons, 2)Saulus ben Antipater who was the son of Antipater/Herod Antipas the Tetrarch, grandson of King Herod (Josephus, Antiquities of the Jews, Chapter 9, section 211), great-grandson of Simon Boethus, brother of Costobarus, and adopted grandson of Gaius Asinius Pollio, or 3)Saulos Thaddeus Alexander Herod, another grandson of King Herod, 4)rabbi Akiva (it is possible he took on the role of this characther as an avatar). The character Paul/Saul's life story was stolen from the ancient Egyptian story 'Tale of the Shipwrecked Sailor' (was one of these people Apollonius of Tyana? Apollos -> Pol, or Paul). Josephus in Antiquities of the Jews, Book XX (CH 9.4) refers to Paul (Saulus) as related to Herod Agrippa.
-*   Pontius Pilate: two options: 1)Aulus Avillius Flaccus, the prefect (governor) of Roman Egypt. The island of Ponza (Pontia) is were where high level political prisoners were kept and he was allegedly sent there after Philo's embassy to Caligula in 38CE). Was he also Polemon II of Pontus? Polemon II became the king of Pontius the same year (38AD) that Aulus Avillius Flaccus was alleged to have been sent to Ponza island to be killed. Polemon II of Pontus was married to King Herod's granddaughter Berenice who eventually married emperor Titus. Berenice was also married to King Herod's grandson/Julius Caesar's adopted grandson and her cousin, Herod, King of Chalcis. \[*Edit: Aulus Avillius Flaccus and Polemon II of Pontus were the likely regional aliases of emperor Titus who was Herod, King of Chalcis, the great-great-grandson of King Herod (The Royal Ancestry of Emperor Vespasian (The Royal Ancestry of Emperor Vespasian. Henry Davis, https://www.henryhdavis.com/theroyalancestryofemperorvespasian \[[link](https://henrydavis-cc.medium.com/the-royal-ancestry-of-the-roman-emperor-vespasian-72e144335299)\]). He was sent to the Kingdom of Pontus (in modern day Turkey) to become king, not the Ponza (Pontia) islands], and 2)Quintus Tineius Rufus aka Turnus Rufus the Evil [[link](https://en.wikipedia.org/wiki/Quintus_Tineius_Rufus_(consul_127))\] who was the Roman governor of Judea during the reign of Emperor Hadrian (117-138 CE), and who was responsible for killing Simon bar Kokhba and rabbi Akiva. Josephus, Wars vii.ii.§ 1 writes that Terentius Rufus is the same Turanus-Rufus as mentioned in the Talmud, Tractate Taanit who is the one who plowed over the Temple. 
+*   Pontius Pilate: two options: 1)Aulus Avillius Flaccus, the prefect (governor) of Roman Egypt. The island of Ponza (Pontia) is were where high level political prisoners were kept and he was allegedly sent there after Philo's embassy to Caligula in 38CE). Was he also Polemon II of Pontus? Polemon II became the king of Pontius the same year (38AD) that Aulus Avillius Flaccus was alleged to have been sent to Ponza island to be killed. Polemon II of Pontus was married to King Herod's granddaughter Berenice who eventually married emperor Titus. Berenice was also married to King Herod's grandson/Julius Caesar's adopted grandson and her cousin, Herod, King of Chalcis. \[*Edit: Aulus Avillius Flaccus and Polemon II of Pontus were the likely regional aliases of emperor Titus who was Herod, King of Chalcis, the great-great-grandson of King Herod (The Royal Ancestry of Emperor Vespasian (The Royal Ancestry of Emperor Vespasian. Henry Davis, https://www.henryhdavis.com/theroyalancestryofemperorvespasian \[[link](https://henrydavis-cc.medium.com/the-royal-ancestry-of-the-roman-emperor-vespasian-72e144335299)\]). He was sent to the Kingdom of Pontus (in modern day Turkey) to become king, not the Ponza (Pontia) islands], and 2)Quintus Tineius Rufus aka Turnus Rufus the Evil who was the Roman governor of Judea during the reign of Emperor Hadrian (117-138 CE), and who was responsible for killing Simon bar Kokhba and rabbi Akiva. Josephus, Wars vii.ii.§ 1 writes that Terentius Rufus is the same Turanus-Rufus as mentioned in the Talmud, Tractate Taanit who is the one who plowed over the Temple. 
 *   Simon Boethus (great-great-great? grandson of Onias III and heir of the Zadokite line) = (king/Tetrarch) Ptolemy (Alexander) bar Menneus aka Simon Magus. Likely also Simon the Essene the founder of the Essene sect and Simon Peter in the bible (the term 'Peter' is derived from the Latin 'Pater' meaning "father," denoting the Essene High Priest. The Essenes called themselves 'the Sons of Zadok' and Simon was the heir of the Zadokite High Priest dynasty). After Hellenization many jews adopted Greek names. Matthew became Menelaus in honor of the celebrated husband of Helen, etc., so was he St. Matthew as well?
 *   Vespasian = Herod Pollio aka Herod Agrippa I, grandson of King Herod's son Aristobulus IV. Great-grandson of King Herod.
 *   Vitellius = Vespasian's older brother Titus Flavius Sabinus. Great-grandson of King Herod.
@@ -157,9 +157,9 @@ Characters
 
 Speculative
 
-*   Alexander the Great = Chandragupta (Alakshandra is a Sanskritized translation of Alexander and Gupta means guardian or protector in Sanskrit, the exact meaning of Alexander). (See: 'Alexander and Chandragupta in Sanskrit Drama' by Ranajit Pal \[[link](https://www.academia.edu/40074507/ALEXANDER_AND_CHANDRAGUPTA_IN_A_SANSKRIT_DRAMA)\])
+*   Alexander the Great = Chandragupta (Alakshandra is a Sanskritized translation of Alexander and Gupta means guardian or protector in Sanskrit, the exact meaning of Alexander). (See: 'Alexander and Chandragupta in Sanskrit Drama' by Ranajit Pal https://www.academia.edu/40074507/ALEXANDER_AND_CHANDRAGUPTA_IN_A_SANSKRIT_DRAMA \[[link](https://www.academia.edu/40074507/ALEXANDER_AND_CHANDRAGUPTA_IN_A_SANSKRIT_DRAMA)\])
 *   Bishop Ignatius of Antioch = Polycarp? (Ignatius means 'fiery one' and Polycarp was famous for setting himself on fire).
-*   Diodotus I Soter = Ashoka the Great. (See: 'Diodotus I was Ashoka' by Ranajit Pal \[[link](https://www.academia.edu/695219/Diodotus_I_was_Ashoka_An_Altar_of_Alexander_Now_Standing_Near_Delhi)\])
+*   Diodotus I Soter = Ashoka the Great. (See: 'Diodotus I was Ashoka' by Ranajit Pal https://www.academia.edu/695219/Diodotus_I_was_Ashoka_An_Altar_of_Alexander_Now_Standing_Near_Delhi \[[link](https://www.academia.edu/695219/Diodotus_I_was_Ashoka_An_Altar_of_Alexander_Now_Standing_Near_Delhi)\])
 *   Gamaliel/St. Gamaliel (Paul's teacher) = Tiberius Gemellus, grandson of Emperor Tiberius and a cousin of Emperor Caligula. (The Aramaic word Gemel means "twin", in Latin it is Gemellus, and in Hebrew it's Gamaliel). He was a student of Herod Agrippa who was King Herod's grandson (Antiquities of the Jews, Flavius Josephus. Chapter 6).
 *   James, brother of Jesus = Rabbi Akiva (the name Akiva is related to Jacob/James). Theory:  Simon of Cyrene was Lukuas Andreas, with his "sons" being Julian/John (Simon bar Kochba) and Pappus/James (R. Akiva)?
 *   John the Baptist = Yohanan ben Zakkai. Father of Gamaliel and grandfather of Jesus ben Gamla/Gamaliel.
@@ -490,7 +490,7 @@ The jews were expelled at least three times from Rome after being accused of mis
 
   
 
-\[1\] See: 'History: Fiction or Science? Russia. Britain. Byzantium. Rome. New Chronology Vol.IV' (2008) by Anatoly T. Fomenko, 'Jesus Among the Julio-Claudians' (2017) by Charles N. Pope '\[[link](https://books.google.se/books/about/Jesus_Among_the_Julio_Claudians.html?id=c7A3DwAAQBAJ&redir_esc=y)\], and 'How Fake Is Roman Antiquity?' \[[link](https://www.unz.com/article/how-fake-is-roman-antiquity/)\] for a few authors who make the claim that the "first Rome" was based out of Anatolia. I subscribe to this theory as well. The Latin language likely derives from the Dacian language which was spoken by the Thracians and Phrygians who hailed from the region of modern Romania. Also, the word Byzantine is a modern invention and the area of modern Byzantine (modern-day Istanbul) was once called 'Basileía tôn Rhômaíôn' ('Kingdom of the Romans'), the people of that region called themsevles Rhōmaîoi (Romans), and they hailed from Romania (meaning Romanus, or Roman). Most of the 'new History' that we accept as fact today was created by the Church Fathers, Jesuits (including all non-European history), and Joseph Justus Scaliger.
+\[1\] See: 'History: Fiction or Science? Russia. Britain. Byzantium. Rome. New Chronology Vol.IV' (2008) by Anatoly T. Fomenko, 'Jesus Among the Julio-Claudians' (2017) by Charles N. Pope '\[[link](https://books.google.se/books/about/Jesus_Among_the_Julio_Claudians.html?id=c7A3DwAAQBAJ&redir_esc=y)\], and 'How Fake Is Roman Antiquity?' https://www.unz.com/article/how-fake-is-roman-antiquity \[[link](https://www.unz.com/article/how-fake-is-roman-antiquity/)\] for a few authors who make the claim that the "first Rome" was based out of Anatolia. I subscribe to this theory as well. The Latin language likely derives from the Dacian language which was spoken by the Thracians and Phrygians who hailed from the region of modern Romania. Also, the word Byzantine is a modern invention and the area of modern Byzantine (modern-day Istanbul) was once called 'Basileía tôn Rhômaíôn' ('Kingdom of the Romans'), the people of that region called themsevles Rhōmaîoi (Romans), and they hailed from Romania (meaning Romanus, or Roman). Most of the 'new History' that we accept as fact today was created by the Church Fathers, Jesuits (including all non-European history), and Joseph Justus Scaliger.
 
 \[2\] Julius Caesar was his title (Caesar is etymologically similar to the Indo-Aryan word for 'king' and Julius (Iulius) is similar to both (I)Jupiter and to the Indo-Aryan word for 'sun'). Julius Caesar was deified in two religions: in the Flamen Dialis cult (Dialis is related to Diespiter, an Old Latin form of the name Jupiter) which made him the claimed son of (I)Jupiter (There was no letter J in Latin and (I)Jupiter is the Roman equivalent of Zeus and they both derive from the Aryan allfather Dyeus Pter which translates to Sky Father. The name Zeus comes from the pronunciation of 'Dyeus', and (I)Jupiter comes from the pronunciation of 'Dyeus Pter' -> Diespiter -> Iupiter), and he was deified posthumously in the Divus Iulius cult (Divus is synonymous to Dyeus, and as aforemented, Iulius derives from (I)Jupiter). He had a claimed divine birth, was put on trial, betrayed, sacrificed, and was a pontifex maximus (high priest) in his religion. \
 
@@ -517,11 +517,11 @@ The jews were expelled at least three times from Rome after being accused of mis
 
 \[10\] https://en.wikipedia.org/wiki/Gehenna
 
-\[11\] https://en.wikipedia.org/wiki/Blood\_libel
+\[11\] https://en.wikipedia.org/wiki/Blood_libel
 
 \--Blood Passover - The Jews Of Europe And Ritual Murder by Ariel Toaff
 
-–https://ru.wikipedia.org/wiki/Paзыcкaниe\_oб\_yбиeнии\_eвpeями\_хpиcтиaнcких\_млaдeнцeв\_и\_yпoтpeблeнии\_кpoви\_их
+–https://ru.wikipedia.org/wiki/Paзыcкaниe_oб_yбиeнии_eвpeями_хpиcтиaнcких_млaдeнцeв_и_yпoтpeблeнии_кpoви_их
 
 –https://www.jrbooksonline.com/PDFs/Jewish%20Ritual%20Murder%20JR.pdf
 
@@ -529,11 +529,11 @@ The jews were expelled at least three times from Rome after being accused of mis
 
 \[12\] The Lost Apocrypha of the Old Testament. Fragments: Baruch (1920) by Montague Rhodes James: "In Solomon of Basrah's Book of the Bee (ed. E. A. W. Budge, 1886: c. xxxvii. p. 81) we read, "The Prophecy of Zaradosht concerning our Lord. This Zaradosht is Baruch the scribe." The prophecy is uttered to the disciples of Zaradosht, the King Gushnasp (Hystaspes) and Sasan and Mahmad. The Virgin-birth, crucifixion, descent into hell, resurrection, ascension, and second coming are predicted, and in answer to a question of Gushnasp, Zaradosht says, "He shall descend from my family. I am he and he is I; he is in me and I am in him."
 
-\--https://en.wikipedia.org/wiki/Baruch\_ben\_Neriah#Christian\_traditions
+\--https://en.wikipedia.org/wiki/Baruch_ben_Neriah#Christian_traditions
 
 \--https://web.archive.org/web/20230101000000\*/https://britam.org/zarathustra.html
 
-\--https://www.tertullian.org/rpearse/mithras\_body\_and\_blood/mithras\_myth1.htm
+\--https://www.tertullian.org/rpearse/mithras_body_and_blood/mithras\_myth1.htm
 
 \--Josephus,The Antiquities of the Jews., x. 9, 1. claims that Baruch belonged to "a most distinguished family", and to have been exceedingly well educated. According to the Easton's Bible Dictionary (1897) his father was 'Maaseiah', the "king's son', probably one of the sons of king Ahaz, killed by Zichri in the invasion of Judah by Pekah, king of Israel (2 Chr. 28:7).
 
@@ -541,27 +541,27 @@ The jews were expelled at least three times from Rome after being accused of mis
 
 \[13\] The last King of Babylon, Nabonidus, installed jews in the commercially strategic oases of the Arabian Peninsula shortly before they betrayed him and his nation into the hands of Cyrus the Great, the founder of the Persian Empire in the sixth century B.C. Cyrus then rewarded the jews by destroying Babylon, spreading Zoroastrianism, and giving them Judea. See: Edict of Cyrus \[link\], Ezra 1 \[link\], and Reflections on the Christ Myth by Revilo P. Oliver
 
-\[14\] https://en.wikipedia.org/wiki/Scythian\_campaign\_of\_Darius\_I
+\[14\] https://en.wikipedia.org/wiki/Scythian_campaign_of_Darius_I
 
 \[15\] https://en.wikipedia.org/wiki/Greco-Buddhism
 
 \[16\] The creation of 'Hinduism' (the British term) or 'Vaishanavism' was undergone during the Ashoka regime. Buddhism was spread during Ashoka's reign. The Hindu epics are all corrupted versions of Greek epic poems \[link\]. Hari-Krishna is Herakles. The Ramayana contains a skeletal structure similar to the epic of Gilgamesh with many elements from the works of Homer, etc. The Greeks and English re-wrote and romanticized a large part of history from that region.
 
-\[17\] https://en.wikipedia.org/wiki/Kay\_Bahman
+\[17\] https://en.wikipedia.org/wiki/Kay_Bahman
 
 \[18\] https://babel.hathitrust.org/cgi/pt?id=mdp.39015046413939&seq=7
 
-\[19\] https://web.archive.org/web/20240118080032/https://www.hindupedia.com/en/Zoroastrianism\_and\_Hinduism
+\[19\] https://web.archive.org/web/20240118080032/https://www.hindupedia.com/en/Zoroastrianism_and_Hinduism
 
-\[20\] \[https://www.academia.edu/695219/Diodotus\_I\_was\_Ashoka\_An\_Altar\_of\_Alexander\_Now\_Standing\_Near\_Delhi\](https://www.academia.edu/695219/Diodotus\_I\_was\_Ashoka\_An\_Altar\_of\_Alexander\_Now\_Standing\_Near\_Delhi)
+\[20\] \[https://www.academia.edu/695219/Diodotus_I_was_Ashoka_An_Altar_of_Alexander_Now_Standing_Near_Delhi](https://www.academia.edu/695219/Diodotus_I_was_Ashoka_An_Altar_of_Alexander_Now_Standing_Near_Delhi)
 
-–https://en.wikipedia.org/wiki/Kandahar\_Greek\_Edicts\_of\_Ashoka
+–https://en.wikipedia.org/wiki/Kandahar_Greek_Edicts_of_Ashoka
 
-\[21\] https://en.wikipedia.org/wiki/Category:Alexander\_Romance
+\[21\] https://en.wikipedia.org/wiki/Category:Alexander_Romance
 
 \[22\] https://babel.hathitrust.org/cgi/pt?id=mdp.39015046413939&seq=7
 
-\[23\] https://books.google.se/books?id=8qZ2DAAAQBAJ&pg=PA2&hl=sv&source=gbs\_selected\_pages&cad=1#v=onepage&q&f=false
+\[23\] https://books.google.se/books?id=8qZ2DAAAQBAJ&pg=PA2&hl=sv&source=gbs_selected_pages&cad=1#v=onepage&q&f=false
 
 \[24\] https://www.heraldgoa.in/Edit/Opinions/Are-Brahmins-Jews/79561
 
@@ -571,27 +571,27 @@ The jews were expelled at least three times from Rome after being accused of mis
 
 \[27\] "Alexander had 'planted' a colony of Jews who had increased in number until at the beginning of the Christian era they occupied two-fifths of the city and held some of the highest offices." ... "With its character largely determined by Jewish elements" -- Encyclopedia Britannica article on the Alexandrian School (1911)
 
-\[28\] https://en.wikipedia.org/wiki/Ptolemaic\_cult\_of\_Alexander\_the\_Great
+\[28\] https://en.wikipedia.org/wiki/Ptolemaic_cult_of_Alexander_the_Great
 
 \[29\] https://www.jesusneverexisted.com/syncretism.html
 
-\[30\] https://en.wikipedia.org/wiki/Letter\_of\_Aristeas
+\[30\] https://en.wikipedia.org/wiki/Letter_of_Aristeas
 
 \[31\] Berossus and Genesis, Manetho and Exodus: Hellenistic Histories and the Date of the Pentateuch (The Library of Hebrew Bible/Old Testament Studies, 433) by Russell Gmirkin
 
-\[32\] https://en.wikisource.org/wiki/Page%3AWorks\_Translated\_by\_William\_Whiston.djvu/546
+\[32\] https://en.wikisource.org/wiki/Page%3AWorks_Translated_by_William_Whiston.djvu/546
 
-\[33\] https://en.wikipedia.org/wiki/Land\_of\_Onias
+\[33\] https://en.wikipedia.org/wiki/Land_of_Onias
 
-\[34\] https://en.wikipedia.org/wiki/Land\_of\_Onias#Jewish\_temple\_at\_Leontopolis
+\[34\] https://en.wikipedia.org/wiki/Land_of_Onias#Jewish_temple_at_Leontopolis
 
 \[35\] https://discoveringancienthistory.wordpress.com/2017/10/24/the-jews-of-sparta-diplomatic-origins-of-religious-synchronization/
 
-\--https://en.wikipedia.org/wiki/Areus\_I#Areus\_and\_the\_Jews
+\--https://en.wikipedia.org/wiki/Areus_I#Areus_and_the_Jews
 
-\[36\] https://en.wikipedia.org/wiki/Great\_Assembly
+\[36\] https://en.wikipedia.org/wiki/Great_Assembly
 
-\[37\] https://en.wikipedia.org/wiki/Simeon\_the\_Just
+\[37\] https://en.wikipedia.org/wiki/Simeon_the_Just
 
 \[38\] http://www.biblesearchers.com/yahshua/davidian/dynasty4.shtml#SimonJesus
 
@@ -603,13 +603,13 @@ The jews were expelled at least three times from Rome after being accused of mis
 
 \--The name "Boethus" is a misrecorded name from oral tradition. It was Bayztus originally, or bar YZT or bar Izates. YZT being the original Aramaic and Izates a Greek sounding variant. It meant "Yakov zu Tolomy" or Jacob aka Ptolemy.
 
-\--https://en.wikipedia.org/wiki/Letter\_to\_Flora (the Letter to Flora and the Tripartite Tractate write about a Gnostic teacher called "Ptolemy" who I identify as Ptolemy Menneus aka Simon Boethus aka Simon Magus).
+\--https://en.wikipedia.org/wiki/Letter_to_Flora (the Letter to Flora and the Tripartite Tractate write about a Gnostic teacher called "Ptolemy" who I identify as Ptolemy Menneus aka Simon Boethus aka Simon Magus).
 
-\--https://en.wikipedia.org/wiki/Zadok#Other\_Zadoks
+\--https://en.wikipedia.org/wiki/Zadok#Other_Zadoks
 
 \--Does the bust depicting a late Ptolemaic leader sometimes attributed to Ptolemy IX actually depict Ptolemy Menneus aka Simon Boethus aka Simon Magus? The bust depicts a jewish physiognomy and a beard shaved in a jewish style. https://collections.mfa.org/objects/151135/portrait-head-of-a-late-ptolemaic-ruler-ptolemy-ix
 
-\[40\] https://en.wikipedia.org/wiki/Menelaus\_%28High\_Priest%29
+\[40\] https://en.wikipedia.org/wiki/Menelaus_%28High_Priest%29
 
 \[41\] https://en.wikipedia.org/wiki/Therapeutae
 
@@ -617,17 +617,17 @@ The jews were expelled at least three times from Rome after being accused of mis
 
 –https://www.jesusneverexisted.com/buddha.html
 
-\[42\] 20. https://en.wikipedia.org/wiki/Sibylline\_Oracles%20
+\[42\] 20. https://en.wikipedia.org/wiki/Sibylline_Oracles%20
 
-\[43\] https://en.wikipedia.org/wiki/History\_of\_the\_Jews\_in\_Alexandria
+\[43\] https://en.wikipedia.org/wiki/History_of_the_Jews_in_Alexandria
 
-\[44\] https://en.wikipedia.org/wiki/Simon\_Magus
+\[44\] https://en.wikipedia.org/wiki/Simon_Magus
 
 \[45\] https://fabpedigree.com/s046/f010384.htm
 
 \[46\] https://www.geni.com/people/Elizabeth-of-Jerusalem-Queen-Alexandra-II/6000000005790348026
 
-\[47\] https://en.wikipedia.org/wiki/Helena\_of\_Adiabene
+\[47\] https://en.wikipedia.org/wiki/Helena_of_Adiabene
 
 \[48\] https://earlywritings.com/forum/viewtopic.php?t=8155
 
@@ -647,27 +647,27 @@ The jews were expelled at least three times from Rome after being accused of mis
 
 \[53\] https://www.geni.com/people/Joshua-ben-Gamla-Gamaliel-High-Priest-of-Iudaea/6000000016324909410
 
-\[54\] https://en.wikipedia.org/wiki/Simeon\_ben\_Hillel
+\[54\] https://en.wikipedia.org/wiki/Simeon_ben_Hillel
 
 \[55\] https://www.geni.com/people/Saulos/6000000019966732612
 
 \[56\] https://www.geni.com/people/Mariamne-King-Herod-5th-wife/6000000007479707449
 
-\[57\] Alexander (grandson of Herod the Great). Wikipedia. en.wikipedia.org/wiki/Alexander\_(grandson\_of\_Herod\_the\_Great%29).
+\[57\] Alexander (grandson of Herod the Great). Wikipedia. en.wikipedia.org/wiki/Alexander\_(grandson_of_Herod_the_Great%29).
 
 \--MM Chart: The Nazarene Way. https://thenazareneway.com/MM%20Chart.htm
 
-\--Gaius Julius Alexander. Wikipedia. en.wikipedia.org/wiki/Gaius\_Julius\_Alexander
+\--Gaius Julius Alexander. Wikipedia. en.wikipedia.org/wiki/Gaius_Julius_Alexander
 
 \--Gaius Julius Alexander, Herodian Prince of Judaea. https://www.geni.com/people/Gaius-Julius-Alexander-Herodian-Prince-of-Judaea/6000000011707342171
 
-\--Alexander the Alabarch. Wikipedia. en.wikipedia.org/wiki/Alexander\_the\_Alabarch.
+\--Alexander the Alabarch. Wikipedia. en.wikipedia.org/wiki/Alexander_the_Alabarch.
 
 \--King Tetrarch Ptolemy Alexander bar Menneus. Geni. https://www.geni.com/people/king-Tetrarch-Ptolemy-Alexander-bar-Menneus/6000000069960460873
 
 \--Ptolemy II, King of Mauretania. Geni. https://www.geni.com/people/Ptolemy-II-King-of-Mauretania/6000000003645853518
 
-\--Apollonius of Tyana. Wikipedia. en.wikipedia.org/wiki/Apollonius\_of\_Tyana#Comparisons\_with\_Jesus.
+\--Apollonius of Tyana. Wikipedia. en.wikipedia.org/wiki/Apollonius_of_Tyana#Comparisons_with_Jesus.
 
 \--"Mary Magdalene Sinner or Queen.". The Nazarene Way. https://www.thenazareneway.com/MaryMagdaleneSinnerorQueen.htm
 
@@ -683,7 +683,7 @@ The jews were expelled at least three times from Rome after being accused of mis
 
 \[58\] MM Chart. The Nazarene Way. https://thenazareneway.com/MM%20Chart.htm
 
-\[59\] https://en.wikipedia.org/wiki/Son\_of\_God
+\[59\] https://en.wikipedia.org/wiki/Son_of_God
 
 \[60\] "Archiereus megistos" could be an expansion/backronym for "Christos".
 
@@ -693,7 +693,7 @@ The jews were expelled at least three times from Rome after being accused of mis
 
 \[63\] Philo's Exegesis. The Nazarene Way. https://www.thenazareneway.com/Philo%27s%20Exegesis.htm
 
-\[64\] Fig. 1.1 https://upload.wikimedia.org/wikipedia/commons/6/6b/Denarius\_C.\_Memmius\_C.\_F.\_Romulus.jpg.
+\[64\] Fig. 1.1 https://upload.wikimedia.org/wikipedia/commons/6/6b/Denarius_C._Memmius_C._F._Romulus.jpg.
 
 \[65\] https://web.archive.org/web/20110807082345/http://truthbeknown.com/apollonius.html
 
@@ -701,7 +701,7 @@ The jews were expelled at least three times from Rome after being accused of mis
 
 \[66\] Scipio Africanus was the first high priest in the Flammen Dialis cult which made him the claimed son of Jupiter Optimus Maximus. His mother was divinely impregnanted by Jupiter. He was also the Salian Priest of Mars, 'second Romulus' (founder of Rome), and Consul of the Republic and Censor. He was the 'messiah' of Rome. Julius Caesar modeled himself off of Alexander the Great and Scipio.  
 
-\[67\] https://en.wikipedia.org/wiki/Roman\_imperial\_cult#The\_imperial\_cult\_and\_Christianity
+\[67\] https://en.wikipedia.org/wiki/Roman_imperial_cult#The_imperial_cult_and_Christianity
 
 \[68\] 'Jesus Among the Julio-Claudians' (2017) by Charles N. Pope '\[[link](https://books.google.se/books/about/Jesus_Among_the_Julio_Claudians.html?id=c7A3DwAAQBAJ&redir_esc=y)\]
 
@@ -711,7 +711,7 @@ The jews were expelled at least three times from Rome after being accused of mis
 
 \[71\] Jesus Among the Julio Claudians. Charles N. Pope. Pg.108
 
-\[72\] Arrius Varus. Wikipedia. https://en.wikipedia.org/wiki/Arrius\_Varus
+\[72\] Arrius Varus. Wikipedia. https://en.wikipedia.org/wiki/Arrius_Varus
 
 \[73\] Jesus Among the Julio-Claudians. Charles N. Pope. Pg.107
 
@@ -721,7 +721,7 @@ The jews were expelled at least three times from Rome after being accused of mis
 
 \[76\] Juvenal, Saturae 6.155–158. Josephus, Antiquities, 20.145–146
 
-\[77\] https://www.google.nl/books/edition/Jesus\_Among\_the\_Julio\_Claudians/c7A3DwAAQBAJ?hl=en&gbpv=1&pg=PA115&printsec=frontcover&dq=hadrian
+\[77\] https://www.google.nl/books/edition/Jesus_Among_the_Julio_Claudians/c7A3DwAAQBAJ?hl=en&gbpv=1&pg=PA115&printsec=frontcover&dq=hadrian
 
 \[78\] In the gospels "Paul the Apostle" even writes about his desire to have a sister-wife like all the other apostles: "Have we not a right to eat and drink? Have we not a right to take round a sister-wife, as even the rest of the apostles, and the brethren of the Lord, and Cephas?" Rotherham Bible. 1 Cor 9
 
@@ -733,34 +733,34 @@ The jews were expelled at least three times from Rome after being accused of mis
 
 \[81\] Philo: Legatio ad Gaium (Embassy to Gaius)
 
-\[82\] Rylands Papyri. Wikipedia. https://en.wikipedia.org/wiki/Rylands\_Papyri#:~:text=koine
+\[82\] Rylands Papyri. Wikipedia. https://en.wikipedia.org/wiki/Rylands_Papyri#:~:text=koine
 
-\--Septuagint manuscripts. Wikipedia. https://en.wikipedia.org/wiki/Septuagint\_manuscripts#:~:text=The%20Septuagint%20%28LXX%29%2C%20the,exists%20in%20various%20manuscript%20versions
+\--Septuagint manuscripts. Wikipedia. https://en.wikipedia.org/wiki/Septuagint_manuscripts#:~:text=The%20Septuagint%20%28LXX%29%2C%20the,exists%20in%20various%20manuscript%20versions
 
-\[83\] Language of the New Testament. Wikipedia. https://en.wikipedia.org/wiki/Language\_of\_the\_New\_Testament
+\[83\] Language of the New Testament. Wikipedia. https://en.wikipedia.org/wiki/Language_of_the_New_Testament
 
-\--Jewish Koine Greek. Wikipedia. https://en.wikipedia.org/wiki/Jewish\_Koine\_Greek
+\--Jewish Koine Greek. Wikipedia. https://en.wikipedia.org/wiki/Jewish_Koine_Greek
 
 \[84\] Josephus, Jewish War vi, 9
 
 \--How Yahweh Conquered Rome. Laurent Guyénot. https://www.unz.com/article/how-yahweh-conquered-rome/
 
-\[85\] https://en.wikipedia.org/wiki/Claudius%27\_expulsion\_of\_Jews\_from\_Rome
+\[85\] https://en.wikipedia.org/wiki/Claudius%27_expulsion_of_Jews_from_Rome
 
-–https://en.wikipedia.org/wiki/Sabazios#Jewish\_connection
+–https://en.wikipedia.org/wiki/Sabazios#Jewish_connection
 
 –Emperor Caligula Brought an End to the Illustrious Ptolemies, but Why?. Ancient Origins Reconstructing the Story of Humanity’s Past. www.ancient-origins.net/history-famous-people/emperor-caligula-brought-end-illustrious-ptolemies-why-007591
 
 **Main Sources Used**
 
-_A Forgery of Our Own_ (1991) by Revilo P. Oliver [<a href="http://www.revilo-oliver.com/rpo/Forgery_of_Our_Own.html" rel="nofollow" target="_blank">link</a>] (_short article where professor Revilo P. Oliver points the finger at Rabbi Akiva as being the center piece of the conspiracy to create a psy-op religion to subjugte the Romans_) \
+_A Forgery of Our Own_ (1991) by Revilo P. Oliver ttp://www.revilo-oliver.com/rpo/Forgery_of_Our_Own.html [<a href="http://www.revilo-oliver.com/rpo/Forgery_of_Our_Own.html" rel="nofollow" target="_blank">link</a>] (_short article where professor Revilo P. Oliver points the finger at Rabbi Akiva as being the center piece of the conspiracy to create a psy-op religion to subjugte the Romans_) \
 
-_The Origins of Christianity_ (1994) by Revilo P. Oliver [<a href="https://archive.org/details/the-origins-of-christianity-by-revilo-p-oliver-z-lib.org" rel="nofollow" target="_blank">link</a>] \
+_The Origins of Christianity_ (1994) by Revilo P. Oliver https://archive.org/details/the-origins-of-christianity-by-revilo-p-oliver-z-lib.org/ [<a href="https://archive.org/details/the-origins-of-christianity-by-revilo-p-oliver-z-lib.org" rel="nofollow" target="_blank">link</a>] \
 
-_Reflections on the Christ Myth_ (1994) by Revilo P. Oliver [<a href="https://ia600201.us.archive.org/22/items/ReflectionsOnTheChristMyth_518/ReflectionsOnTheChristMyth-Oliver.pdf" rel="nofollow" target="_blank">link]</a> \
+_Reflections on the Christ Myth_ (1994) by Revilo P. Oliver https://ia600201.us.archive.org/22/items/ReflectionsOnTheChristMyth_518/ReflectionsOnTheChristMyth-Oliver.pdf [<a href="https://ia600201.us.archive.org/22/items/ReflectionsOnTheChristMyth_518/ReflectionsOnTheChristMyth-Oliver.pdf" rel="nofollow" target="_blank">link]</a> \
 
-_Cleopatra to Christ_ (2010) by Ralph Ellis \[[link](https://www.google.com/books/edition/Cleopatra_to_Christ/T7sqfHyWPuQC?hl=en&gbpv=1&dq=cleopatra+to+christ&printsec=frontcover)\] (_reveals that the biblical Jesus was based on King Izates of Adiabene who was directly descended from Cleopatra VII_)  \
+_Cleopatra to Christ_ (2010) by Ralph Ellis https://www.amazon.com/Cleopatra-Christ-great-grandson-Cleopatra-Trilogy/dp/1508465886 \[[link](https://www.google.com/books/edition/Cleopatra_to_Christ/T7sqfHyWPuQC?hl=en&gbpv=1&dq=cleopatra+to+christ&printsec=frontcover)\] (_reveals that the biblical Jesus was based on King Izates of Adiabene who was directly descended from Cleopatra VII_)  \
 
-_Following Philo to Pallas (the Freedman): The Most Powerful Man in First Century Rome, also known as Goddess (the Mother)_ (2019) by P.J. Gott \[[link](https://www.amazon.com/Following-Philo-Pallas-Freedman-Powerful-ebook/dp/B07PXKQGYG/)\] (_reveals that Philo of Alexandria was a pen-name for Cleopatra of Mauretania who was married to her brother Alexander (grandson of King Herod)/Ptolemy of Mauretania, therefore, she was the mother of Tiberius Julius Alexander/Arrius Piso. Also, that she was Claudius and Nero's secretary 'Pallas' and Vespasian's first cousin and mistress Antonia Caenis_) \
+_Following Philo to Pallas (the Freedman): The Most Powerful Man in First Century Rome, also known as Goddess (the Mother)_ (2019) by P.J. Gott https://www.amazon.com/Following-Philo-Pallas-Freedman-Powerful-ebook/dp/B07PXKQGYG \[[link](https://www.amazon.com/Following-Philo-Pallas-Freedman-Powerful-ebook/dp/B07PXKQGYG/)\] (_reveals that Philo of Alexandria was a pen-name for Cleopatra of Mauretania who was married to her brother Alexander (grandson of King Herod)/Ptolemy of Mauretania, therefore, she was the mother of Tiberius Julius Alexander/Arrius Piso. Also, that she was Claudius and Nero's secretary 'Pallas' and Vespasian's first cousin and mistress Antonia Caenis_) \
 
-_Magdalene's Men. The historic identities of the many men in Mary Magdalene's life._ by P.J Gott \[[link](https://web.archive.org/web/20240113043329/https://thenazareneway.com/MM%20Chart.htm)\] (_reference guide to the many aliases of Alexander (grandson of King Herod) aka Gaius Julius Alexander, Herodian Prince of Judaea aka Alexander Lysimachus aka Alexander the Alabarch aka Ptolemy (Alexander) bar Menneus aka Ptolemy of Mauretania aka Phraates V aka Monobazus I King of Adiabene, as well as his sister wife Cleopatra (Thea Philopator) of Mauretania aka Cleopatra IX aka Pythodorida Philometor aka Helene aka Drusilla of Mauretania aka Julia Ourania of Parthia aka 'Philo of Alexandria', and their two sons Tiberius Julius Alexander and Marcus Julius Alexander. Note: Asander of Bosphorus = Julius Caesar, Dynamis = Cleopatra, Mark Antony = King Herod, so that chart confuses some of their aliases with those of Cleopatra and Mark Antony's grandchildren, but it was my starting point to understanding the many aliases this family used_)
+_Magdalene's Men. The historic identities of the many men in Mary Magdalene's life._ by P.J Gott https://web.archive.org/web/20240113043329/https://thenazareneway.com/MM%20Chart.htm \[[link](https://web.archive.org/web/20240113043329/https://thenazareneway.com/MM%20Chart.htm)\] (_reference guide to the many aliases of Alexander (grandson of King Herod) aka Gaius Julius Alexander, Herodian Prince of Judaea aka Alexander Lysimachus aka Alexander the Alabarch aka Ptolemy (Alexander) bar Menneus aka Ptolemy of Mauretania aka Phraates V aka Monobazus I King of Adiabene, as well as his sister wife Cleopatra (Thea Philopator) of Mauretania aka Cleopatra IX aka Pythodorida Philometor aka Helene aka Drusilla of Mauretania aka Julia Ourania of Parthia aka 'Philo of Alexandria', and their two sons Tiberius Julius Alexander and Marcus Julius Alexander. Note: Asander of Bosphorus = Julius Caesar, Dynamis = Cleopatra, Mark Antony = King Herod, so that chart confuses some of their aliases with those of Cleopatra and Mark Antony's grandchildren, but it was my starting point to understanding the many aliases this family used_)
