@@ -73,7 +73,7 @@ Friedrich Nietzsche's concept of the "transvaluation of values" is central to un
 
 1.4. Nietzschean 'Ressentiment' (Weaponizing the "Chandala" Castes)
   
-Universalism, the transvaluation of traditional ethnic values, monotheism (good vs. evil), and the concept of sin exist to self-deify and weaponize the lowest castes. This is why Friedrich Nietzsche called christiantiy and it's secularized variant of leftism "slave-moralities", because it allowed the slaves to feel morally and socially to the higher castes based on the concept of sin and set commandments of behavior.
+Universalism, the transvaluation of traditional ethnic values, monotheism (good vs. evil), and the concept of sin exist to self-deify and weaponize the lowest castes. This is why Friedrich Nietzsche called christiantiy and it's secularized variant of leftism "slave-moralities", because it allowed the slaves to feel morally and socially superior to the higher castes because of the concept of sin and set commandments of behavior.
 \
  &nbsp;&nbsp; &nbsp;&nbsp;&nbsp;&nbsp;       In his book 'On the Genealogy of Morality' (1887) Friedrich Nietzsche wrote that the jews (5), who he claimed are motivated by deep resentment and hatred (6), create these "slave morality" systems (7) to empower the lowest "chandala" castes (8). This is what makes the system self-policing and self-regulating. The savior complex (9) is a subset of christian self-deification and is a heritage of monotheism and messianism (10). Self-deification (11) is the foundation for attacking those that are identified as heretics (12) and redeeming others.
 
@@ -82,8 +82,8 @@ Universalism, the transvaluation of traditional ethnic values, monotheism (good 
 See also: [Ressentiment](https://en.wikipedia.org/wiki/Ressentiment), [Conflict Theory](https://en.wikipedia.org/wiki/Conflict_theories), and [Class Conflict](https://en.wikipedia.org/wiki/Class_conflict)
 
 1.5. Control Mechanisms  
-  
-While Christianity empowers the "chandala" caste through universalism and the transvaluation of a group's traditional values so that they can be elevated to the position of policing the aristocratic and warrior castes relative to their socially constructed rules of behavior so that the system becomes self-regulating, it is also a domestication system that is designed to fill a group with fear (trauma-based mind-control programming), self-hate, strip them of their will to power, fill them with guilt and shame complexes, rob them of their connection to ancestry and genetic memory, make them stupid (intellectual curiosity and critical thinking are not only threats to faith/fideism but are sins, and this is the reason why every Christian white trash town is filled with people whose culture is built around a contempt for learning) (13), instill into a group a slave-like mentality of obedience, while subconsciously connecting a population to jews. It does this through:
+
+While Christianity empowers the 'chandala' caste through universalism and the 'transvaluation of values', thereby elevating them to a position of authority over the aristocratic and warrior castes, it also functions as a system of domestication. This system is designed to instill fear, self-loathing, and a loss of autonomy in its adherents, while fostering feelings of guilt, shame, and intellectual apathy. By discouraging critical thinking and intellectual curiosity, which are seen as threats to faith, Christianity can create a culture that devalues learning and promotes a mentality of subservience (this is the reason why every Christian white trash town is filled with people whose culture is built around a contempt for learning) (13). Furthermore, this system can lead to a disconnection from one's ancestral heritage and genetic identity. Ultimately, it seeks to create a population that is obedient and submissive, with a subconscious affinity for Jewish culture. It does this through:
 
   
 
