@@ -266,7 +266,7 @@ Fig. 1.4. Alexander the Great as Zeus Ammon (or Jupiter Ammon), the ram god. The
 
 #### 5.2 Alexander as a Prototype for the Jesus Figure
 
-Other similarities: according to the first-century A.D. historian Plutarch, Alexander's mother Olympias told her son that he had been conceived when a thunderbolt -- interpreted as Zeus -- entered her womb, so he was divinely birthed. He died at 33. 'The Son of the Man' is a Koine->Aramaic->Koine mistranslation of Alexander and he was the "King of Kings" \[[link](https://en.wikipedia.org/wiki/King_of_Kings#Hellenic_usage)\].
+Other similarities: according to the first-century A.D. historian Plutarch, Alexander's mother Olympias told her son that he had been conceived when a thunderbolt -- interpreted as Zeus -- entered her womb, so he was divinely birthed. He died at 33. 'The Son of the Man' is a Koine->Aramaic->Koine mistranslation of Alexander and he was the "King of Kings" ("King of Kings." Wikipedia, en.wikipedia.org/wiki/King_of_Kings#Hellenic_usage \[[link](https://en.wikipedia.org/wiki/King_of_Kings#Hellenic_usage)\]).
 
 Endnotes (Chapter 5)  
 
