@@ -6,8 +6,8 @@ updated: 2018-11-22 16:01:26 +0100
 
 Welcome to the homepage of Hugo Pepe (B.A. Philosophy). I am an independent researcher who has a general interest in heterodox ideas, oddities, and mysteries. Recently, I have developed a particular focus on religion and its influence on Western civilization. On this website, you will find working drafts of my first two books, research articles, and various resources.
 
-<!-- Books Section -->
-<h3>Books</h3>
+<!-- Writing Section -->
+<h3>Writing</h3>
 <ul>
 {% for post in site.categories.writing limit:8 %}
   {% unless post.draft %}
@@ -16,12 +16,3 @@ Welcome to the homepage of Hugo Pepe (B.A. Philosophy). I am an independent rese
 {% endfor %}
 </ul>
 
-<!-- Blog Section -->
-<h3>Blog</h3>
-<ul>
-{% for post in site.categories.blog limit:5 %}
-  {% unless post.draft %}
-    <li><a href="{{ post.url }}">{{ post.title }}</a></li>
-  {% endunless %}
-{% endfor %}
-</ul>
