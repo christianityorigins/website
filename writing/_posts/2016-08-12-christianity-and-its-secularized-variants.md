@@ -10,7 +10,7 @@ category: writing
 
 Christianity as a Slave Morality Religion and its Modern Secularized Variants: A Jewish Conspiracy and Hoax on the Gentiles
 
-By Sebastian Pepe
+By Hugo Pepe
 
 _"Do not suppose that I have come to bring peace to the earth. I did not come to bring peace, but a sword. For I have come to turn a man against his father, a daughter against her mother, a daughter-in-law against her mother-in-law, a man’s enemies will be the members of his own household"_ -- Matthew 10:34-36
 
