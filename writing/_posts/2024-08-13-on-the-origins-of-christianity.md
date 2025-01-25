@@ -8,7 +8,7 @@ categories: writing
 
 On the Origins of Christianity
 
-By Sebastian Pepe
+By Hugo Pepe
 
 _The Jews, that priestly people of ressentiment who knew how to get final satisfaction from their enemies and conquerors through a radical transformation of their values, that is, through an act of the most spiritual revenge. This was appropriate only to a priestly people with the most deeply rooted priestly desire for revenge._ - Friedrich Nietzsche
 
