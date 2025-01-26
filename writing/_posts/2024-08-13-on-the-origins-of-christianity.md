@@ -82,16 +82,14 @@ Cleopatra aka Dynamis's grandson with Mark Antony (aka King Herod aka Tiberius C
 Alexander (grandson of King Herod) and his sister wife  Cleopatra (Thea Philopator) of Mauretania had two sons: Tiberius Julius Alexander aka Arrius Calpernius Piso aka Arrius Varus aka Tiberius Julius Cotys aka Emperor Nerva, and Marcus Julius Alexander aka Yeshua Cleopatros (Cantheras/Panthera) ben Josephus bar Menneus aka Ma'nu of Adiabene/Edessa aka Ptolemy aka Yakov Zu Tolomoy aka Izates aka Jesus Emmanuel aka Monobazus of Adiabene (4)
 
 <p align="center">
-<img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEikChO0ZBc91tmTcx-Uj9xf7LUCH5SxzLDFJII1MZAOrwYwZ-tslrScPHQs20c8WhOW_GJvpfZ8eEYkUeAYtxJrjl18Spq9GhxILCl4wX4w1VlCNMZmlVfAel0Cr1GEICQPHQsIlDNY917lglrPrC1rxmgVhVzzU6150S1ZQBvRmHaBheNUGKy4QFfON28/s674/image.jpg" width="400"></p>
-
-
-<p align="center">Fig. 1.2. Tiberius Julius Sauromates II, King of Bosphorus, who was the son of Tiberius Julius Cotys (aka Tiberius Julius Alexander aka Arrius Calpernius Piso aka Arrius Varus aka Emperor Nerva), great-grandson of Dynamis aka Cleopatra and Mark Antony. Does he look familiar? Sauromates is a Greek rendering of "Sarmatian".</p>
-
-<p align="center">
 <img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgkg6HruekpVy4HBBuLQSuMiuGOR2wu3EZ76AfMbs-6IwmFJ-vz4vyT_oWC0auWEf-hb3-OOXjsrcPBXi97b0FHy0w75CfU4u6Y7TpDAEKqpvzDD00Yzv1HkrYWJ1ARGblqY3_B8U_KVfgx9lAx1h7ghnU42xnq9LNMlmXFWvHR_6gjGP7EzM2BE12JEK4/s1163/coin-abgar-phraates-imageonline.co-merged.png" width="400"></p>
 
+<p align="center">Fig. 1.2. (L) and (R) show King Izates Monobazus of Edessa (known in Greek as the 'Kingdom of Ourania' or in English as the 'Kingdom of Heaven') wearing a crown of thorns. He was the uncle of Tiberius Julius Sauromates II, King of Bosphorus. The middle image source: The Alexander Mosaic, Huqoq, Israel.</p>
 
-<p align="center">Fig. 1.3. (L) and (R) show King Izates Monobazus of Edessa (known in Greek as the 'Kingdom of Ourania' or in English as the 'Kingdom of Heaven') wearing a crown of thorns. The middle image source: The Alexander Mosaic, Huqoq, Israel.</p>
+<p align="center">
+<img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEikChO0ZBc91tmTcx-Uj9xf7LUCH5SxzLDFJII1MZAOrwYwZ-tslrScPHQs20c8WhOW_GJvpfZ8eEYkUeAYtxJrjl18Spq9GhxILCl4wX4w1VlCNMZmlVfAel0Cr1GEICQPHQsIlDNY917lglrPrC1rxmgVhVzzU6150S1ZQBvRmHaBheNUGKy4QFfON28/s674/image.jpg" width="400"></p>
+
+<p align="center">Fig. 1.3. Tiberius Julius Sauromates II, King of Bosphorus, who was the son of Tiberius Julius Cotys (aka Tiberius Julius Alexander aka Arrius Calpernius Piso aka Arrius Varus aka Emperor Nerva), great-grandson of Dynamis aka Cleopatra and Mark Antony. Does he look familiar? Sauromates is a Greek rendering of "Sarmatian".</p>
 
 One name that shows up in the family trees of all the people listed above is Simon Boethus who I identify as (king/Tetrarch) Ptolemy (Alexander) bar Menneus aka Simon Magus. The name Boethus comes from Sabazios which is a translation of Zeus (Jupiter to the Romans) in the dialect and tradition of Phrygians and Thracians of Anatolia. Ma'nu is likely a diminutive of Menneus ('son of man') and then Manu-Sabazios becomes Monobazus which becomes 'Bazus' or 'Bar Izates' shortened to 'baYZTus' (or bar YZT) through frequent oral repetition which becomes 'bOETHus'. He was likely also Simon the Essene the founder of the Essene sect and Simon Peter in the bible (the term 'Peter' is derived from the Latin 'Pater' meaning 'father', denoting the Essene High Priest. The Essenes called themselves 'the Sons of Zadok' and Simon was the heir of the Zadokite High Priest dynasty). His daughter Mariamne Boethus was the fifth wife of King Herod. He was the uncle of Jesus ben Fabus, great-great-great-grandfather of Jesus ben Gamla/Gamaliel aka King Izas Monobazus (the Talmud (Bereshit Rabbah 46:10) calls Izates and Monobazus the "Sons of Ptolemy"), and I identify Juba II as Alexander (son of King Herod) which makes him the grandson of Simon Boethus, and he was the great-great-grandfather of Vespasian.
 
