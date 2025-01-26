@@ -88,7 +88,7 @@ While Christianity empowers the 'chandala' caste through universalism and the 't
   
 
 *   Fear and punishment/trauma based mind-control programming: the concept of "hell" that they plagiarized from Plato's Republic (the 'Myth of Er' (14)); the lifelong fear of death (Pagans equated death with glory). Also, reward. The concept of "heaven" for asceticism/suffering/obedience.
-*   Circumcision: children enduring the excruciating pain of circumcision immediately after birth instills a permanent psychological impact that predisposes one to fear and anxiety. 
+*   Ritual circumcision: children enduring the excruciating pain of circumcision immediately after birth imprints permanent psychological harm and predisposes a child to fear and anxiety. 
 *   Omniscient god: the concept of a self-existant god who can read your thoughts and judge your behavior becomes a behavior regulating mechanism.
 *   Emphasis on Suffering: Christian narratives focus on the suffering of Christ and the martyrs which glorifies weakness and passivity making it seem more virtuous to endure suffering than to overcome it. This is a way for the the oppressed to find validation in their hardships.
 *   Group polarization (15).
