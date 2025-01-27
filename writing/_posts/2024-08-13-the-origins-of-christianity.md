@@ -466,8 +466,7 @@ The jews were expelled at least three times from Rome after being accused of mis
 [4](#sdfootnote4anc)Jesus ben Fabus who was Isa Amen (Jesus Amen) of Rev. iii. 14 who was also Amyntas (Amen(tas)) of Galatia who was also Amyntas Nikator (the name Fabus may have been distorted by Josephus from Jesus ben Bagus. Amyntas was the son of Bogitarus. In Persian 'Bagus' means god. ‘Boga’ in Persian also means god and in the name Adobogiona 'Bog-' means god in Celtic. In Latin Nikator translates tro Invictus). His palace at Iśauria reveals his name as Iśa. (See: Jesus Christ Was Amyntas of Galatia (2010) by Ranajit Pal [[link](https://ranajitpal-jesus-from-asia-minor.blogspot.com/2011/06/jesus-christ-was-amyntas-of-galatia\_20.html)])
 
 [5](#sdfootnote5anc)Jesus ben Gamala/Gamaliel aka Jesus ben Sapphias was also King Izas Ma'nu (Jesus Emmanuel) Monobazus of Adiabene aka Yeshua Cleopatros (Cantheras/Panthera) ben Josephus bar Menneus aka Ptolemy aka Yakov Zu Tolomoy. (See: Jesus, King of Edessa (2012) by Ralph Ellis [[link](https://x.com/ralfellis/status/1809520320077803525)]). King Izates of Monobazus was married to the sister of Dynamis's mother.
-
-\--Cleopatros in Hebrew is QLPTRS and was shortened on inscriptions to QTRS or Katros, later mistakenly recorded as Cantheras. So the Jews for derogatory reasons called it as Panthera. ie. Jesus Panthera.
+--Cleopatros in Hebrew is QLPTRS and was shortened on inscriptions to QTRS or Katros, later mistakenly recorded as Cantheras. So the Jews for derogatory reasons called it as Panthera. ie. Jesus Panthera.
 
 [6](#sdfootnote6anc)Tiridates II, King of Parthia." Geni, https://www.geni.com/people/Tiridates-II-king-of-Parthia/6000000019000945876 [[link](https://www.geni.com/people/Tiridates-II-king-of-Parthia/6000000019000945876)]
 
@@ -498,11 +497,8 @@ The jews were expelled at least three times from Rome after being accused of mis
 [19](#sdfootnote19anc)https://historyaffairs.com/the-second-intermediate-period-of-egypt-c-1650-1550-bc/
 
 [20](#sdfootnote20anc)[https://www.nature.com/articles/s41598-024-70206-y](https://www.nature.com/articles/s41598-024-70206-y)
-
-\-https://slate.com/news-and-politics/1997/08/so-are-the-neanderthals-still-jews.html
-
+-https://slate.com/news-and-politics/1997/08/so-are-the-neanderthals-still-jews.html
 –https://www.haaretz.com/archaeology/2021-06-21/ty-article/.premium/did-modern-humans-and-neanderthals-really-meet-in-the-negev/
-
 –https://www.bbc.co.uk/news/science-environment-57586315
 
 [21](#sdfootnote21anc)https://www.science.org/content/article/modern-human-females-and-male-neandertals-had-trouble-making-babies-here-s-why
@@ -510,32 +506,23 @@ The jews were expelled at least three times from Rome after being accused of mis
 [22](#sdfootnote22anc)https://en.wikipedia.org/wiki/Gehenna
 
 [23](#sdfootnote23anc)https://en.wikipedia.org/wiki/Blood\_libel
-
-\\--Blood Passover - The Jews Of Europe And Ritual Murder by Ariel Toaff
-
+--Blood Passover - The Jews Of Europe And Ritual Murder by Ariel Toaff
 –https://ru.wikipedia.org/wiki/Paзыcкaниe_oб_yбиeнии_eвpeями_хpиcтиaнcких_млaдeнцe_и_yпoтpeблeнии_кpoви_их
-
 –https://www.jrbooksonline.com/PDFs/Jewish%20Ritual%20Murder%20JR.pdf
-
-\\--https://www.minds.com/ZUGZWANG1939/blog/2000-years-of-jewish-ritual-murder-1037775983227506688
+--https://www.minds.com/ZUGZWANG1939/blog/2000-years-of-jewish-ritual-murder-1037775983227506688
 
 [24](#sdfootnote24anc)The Lost Apocrypha of the Old Testament. Fragments: Baruch (1920) by Montague Rhodes James: "In Solomon of Basrah's Book of the Bee (ed. E. A. W. Budge, 1886: c. xxxvii. p. 81) we read, "The Prophecy of Zaradosht concerning our Lord. This Zaradosht is Baruch the scribe." The prophecy is uttered to the disciples of Zaradosht, the King Gushnasp (Hystaspes) and Sasan and Mahmad. The Virgin-birth, crucifixion, descent into hell, resurrection, ascension, and second coming are predicted, and in answer to a question of Gushnasp, Zaradosht says, "He shall descend from my family. I am he and he is I; he is in me and I am in him."
-
 \--https://en.wikipedia.org/wiki/Baruch_ben_Neriah#Christian_traditions
-
 \--https://web.archive.org/web/20230101000000*/https://britam.org/zarathustra.html
-
 \--https://www.tertullian.org/rpearse/mithras_body_and_blood/mithras_myth1.htm
-
 \--Josephus,The Antiquities of the Jews., x. 9, 1. claims that Baruch belonged to "a most distinguished family", and to have been exceedingly well educated. According to the Easton's Bible Dictionary (1897) his father was 'Maaseiah', the "king's son', probably one of the sons of king Ahaz, killed by Zichri in the invasion of Judah by Pekah, king of Israel (2 Chr. 28:7).
-
-\\--Seraiah ben Neriah, who must be Baruch's brother, was chief chamberlain (R.V.) to Zedekiah. According to the Old Latin Version of the Apocryphal Book of Baruch (i. 1) he was of the tribe of Simeon
+--Seraiah ben Neriah, who must be Baruch's brother, was chief chamberlain (R.V.) to Zedekiah. According to the Old Latin Version of the Apocryphal Book of Baruch (i. 1) he was of the tribe of Simeon
 
 [25](#sdfootnote25anc)The last King of Babylon, Nabonidus, installed jews in the commercially strategic oases of the Arabian Peninsula shortly before they betrayed him and his nation into the hands of Cyrus the Great, the founder of the Persian Empire in the sixth century B.C. Cyrus then rewarded the jews by destroying Babylon, spreading Zoroastrianism, and giving them Judea. See: Edict of Cyrus [link], Ezra 1 [link], and Reflections on the Christ Myth by Revilo P. Oliver
 
 [26](#sdfootnote26anc)https://en.wikipedia.org/wiki/Scythian_campaign_of_Darius_I
 
-[27](#sdfootnote27anc)\[[link](https://www.hindupedia.com/en/Zoroastrianism_and_Hinduism)]
+[27](#sdfootnote27anc)https://www.hindupedia.com/en/Zoroastrianism_and_Hinduism [[link](https://www.hindupedia.com/en/Zoroastrianism_and_Hinduism)]
 
 [28](#sdfootnote28anc)https://en.wikipedia.org/wiki/Greco-Buddhism
 
@@ -547,8 +534,7 @@ The jews were expelled at least three times from Rome after being accused of mis
 
 [32](#sdfootnote32anc)https://web.archive.org/web/20240118080032/https://www.hindupedia.com/en/Zoroastrianism_and_Hinduism
 
-[33](#sdfootnote33anc)\[https://www.academia.edu/695219/Diodotus_I_was_Ashoka_An_Altar_of_Alexander_Now_Standing_Near_Delhi](https://www.academia.edu/695219/Diodotus_I_was_Ashoka_An_Altar_of_Alexander_Now_Standing_Near_Delhi)
-
+[33](#sdfootnote33anc)https://www.academia.edu/695219/Diodotus_I_was_Ashoka_An_Altar_of_Alexander_Now_Standing_Near_Delhi [[link](https://www.academia.edu/695219/Diodotus_I_was_Ashoka_An_Altar_of_Alexander_Now_Standing_Near_Delhi)
 –https://en.wikipedia.org/wiki/Kandahar_Greek_Edicts_of_Ashoka
 
 [34](#sdfootnote34anc)https://en.wikipedia.org/wiki/Category:Alexander_Romance
@@ -590,17 +576,11 @@ The jews were expelled at least three times from Rome after being accused of mis
 [51](#sdfootnote51anc)http://www.biblesearchers.com/yahshua/davidian/dynasty4.shtml#SimonJesus
 
 [52](#sdfootnote52anc)Simon was also "Simon the Essene" the founder of the Essene sect and "Simon Peter" in the bible? The term "Peter" is derived from the Latin "Pater" meaning "father," denoting the Essene High Priest. The Essenes called themselves "the Sons of Zadok" and Simon was the heir of the Zadokite (High Priest) dynasty. One of Simon's sons used the title Zadok as his name (Josephus: Antiquities 18:1:1). Sadduc (Sadducean) and Zadok are the same word rendered respectively the Greek way and the Hebrew way in our alphabet. The Sons of Zadok are a family of priests (kohanim) that descended from Zadok and are the upper echelons of Judean society. Also, Ha-Simeon = Hasmoneans. The Kohanim were entrusted with carrying the Torah and other jewish writings and their status transferred from father to son.
-
 \--The name "Simon" probably denoted that he was of the tribe of Simon/Simeon
-
 \--In Hebrew, the house of Onias is "Beit Honniyah".
-
 \--The name "Boethus" is a misrecorded name from oral tradition. It was Bayztus originally, or bar YZT or bar Izates. YZT being the original Aramaic and Izates a Greek sounding variant. It meant "Yakov zu Tolomy" or Jacob aka Ptolemy.
-
 \--https://en.wikipedia.org/wiki/Letter_to_Flora (the Letter to Flora and the Tripartite Tractate write about a Gnostic teacher called "Ptolemy" who I identify as Ptolemy Menneus aka Simon Boethus aka Simon Magus).
-
 \--https://en.wikipedia.org/wiki/Zadok#Other_Zadoks
-
 \--Does the bust depicting a late Ptolemaic leader sometimes attributed to Ptolemy IX actually depict Ptolemy Menneus aka Simon Boethus aka Simon Magus? The bust depicts a jewish physiognomy and a beard shaved in a jewish style. https://collections.mfa.org/objects/151135/portrait-head-of-a-late-ptolemaic-ruler-ptolemy-ix
 
 [53](#sdfootnote53anc)https://en.wikipedia.org/wiki/Therapeutae
@@ -626,15 +606,12 @@ The jews were expelled at least three times from Rome after being accused of mis
 [61](#sdfootnote61anc)https://en.wikipedia.org/wiki/Simonians
 
 [62](#sdfootnote62anc)Sophia was just a repackaging of the Greek deity Athena who was the daughter of Zeus.
-
-\\--https://en.wikipedia.org/wiki/Sophia_%28Gnosticism%29
+--https://en.wikipedia.org/wiki/Sophia_%28Gnosticism%29
 
 [63](#sdfootnote63anc)https://en.wikipedia.org/wiki/Naassenes
 
 [64](#sdfootnote64anc)https://www.geni.com/people/Queen-Mariamne-Hasmonean/6000000002428793929
-
 –https://en.wikipedia.org/wiki/Mariamne
-
 –https://web.archive.org/web/20230525235841/https://www.thenazareneway.com/MaryMagdaleneSinnerorQueen.htm
 
 [65](#sdfootnote65anc)https://www.geni.com/people/Joshua-ben-Gamla-Gamaliel-High-Priest-of-Iudaea/6000000016324909410
@@ -646,31 +623,18 @@ The jews were expelled at least three times from Rome after being accused of mis
 [68](#sdfootnote68anc)https://www.geni.com/people/Mariamne-King-Herod-5th-wife/6000000007479707449
 
 [69](#sdfootnote69anc)Alexander (grandson of Herod the Great). Wikipedia. en.wikipedia.org/wiki/Alexander_(grandson_of_Herod_the_Great%29).
-
 \--MM Chart: The Nazarene Way. https://thenazareneway.com/MM%20Chart.htm
-
 \--Gaius Julius Alexander. Wikipedia. en.wikipedia.org/wiki/Gaius_Julius_Alexander
-
 \--Gaius Julius Alexander, Herodian Prince of Judaea. https://www.geni.com/people/Gaius-Julius-Alexander-Herodian-Prince-of-Judaea/6000000011707342171
-
 \--Alexander the Alabarch. Wikipedia. en.wikipedia.org/wiki/Alexander_the_Alabarch.
-
 \--King Tetrarch Ptolemy Alexander bar Menneus. Geni. https://www.geni.com/people/king-Tetrarch-Ptolemy-Alexander-bar-Menneus/6000000069960460873
-
 \--Ptolemy II, King of Mauretania. Geni. https://www.geni.com/people/Ptolemy-II-King-of-Mauretania/6000000003645853518
-
 \--Apollonius of Tyana. Wikipedia. en.wikipedia.org/wiki/Apollonius_of_Tyana#Comparisons_with_Jesus.
-
 \--"Mary Magdalene Sinner or Queen.". The Nazarene Way. https://www.thenazareneway.com/MaryMagdaleneSinnerorQueen.htm
-
 \--Alexander's (grandson of King Herod) father Alexander (son of King Herod) aka Alexandros III aka Juba II was supposed to have been killed by his father Herod, but this is obviously untrue. Josephus even has a story about a "spurious Alexander" that showed up in Rome claiming to be the son of Herod who faked his death [link]. Alexander (son of King Herod) was executed by Caligula (probably for spreading the psyop religion)
-
 \--Alexander (son of King Herod) aka Juba II was also "Monobazus" who was the king of the Parthian client state of Adiabene in the 20s and 30s of the 1st century AD. This is why the Muslims refer to jesus as "Isa" or "Iza" and in the Yazadi (Izadi) religion the prophet is Sultan Ezid.
-
 \--"for Alexander [son of King Herod] had two sons by Glaphyra". Josephus, Antiquities of the Jews, Book XVII. Containing The Interval Of Fourteen Years—From The Death Of Alexander And Aristobulus To The Banishment Of Archelaus [\[link\](https://gutenberg.org/files/2848/2848-h/2848-h.htm#link172H_4_0001)]
-
 \--Matrilineally, Alexander (grandson of King Herod) and his sister wife "Philo" descend from Mark Antony and Cleopatra. The Talmud says that Mark Antony was born to a jewish mother. His first wife Fulva was jewish, and Cleopatra was a Ptolemaic ruler and her family had a long history of intermarriage with Jews, so this family was almost fully jewish. The bust attributed to Mark Antony that is housed in the Vatican Museum was made over a century after he died during the Flavian dynasty. This: https://imgur.com/7RnVvRv is the only bust that is believed to have been made during his lifetime.
-
 \--Alexander (grandson of King Herod) was the controller of the Egyptian gold mines, shipping ports and warehouses, at least 1/3 of the imperial Roman revenue went through him. He was also the administrator for the extensive land estates in Egypt owned by his aunt Antonia Minor (Emperor Claudius's wife, Emperor Augustus niece, and she was Mark Anthony's youngest daughter) (Josephus, Jewish Antiquities, 19.276).
 
 [70](#sdfootnote70anc)MM Chart. The Nazarene Way. https://thenazareneway.com/MM%20Chart.htm
@@ -688,14 +652,13 @@ The jews were expelled at least three times from Rome after being accused of mis
 [76](#sdfootnote76anc)Fig. 1.1 https://upload.wikimedia.org/wikipedia/commons/6/6b/Denarius_C._Memmius_C._F._Romulus.jpg
 
 [77](#sdfootnote77anc)https://web.archive.org/web/20110807082345/http://truthbeknown.com/apollonius.html
-
 –https://thenazareneway.com/MM%20Chart.htm
 
 [78](#sdfootnote78anc)Scipio Africanus was the first high priest in the Flammen Dialis cult which made him the claimed son of Jupiter Optimus Maximus. His mother was divinely impregnanted by Jupiter. He was also the Salian Priest of Mars, 'second Romulus' (founder of Rome), and Consul of the Republic and Censor. He was the 'messiah' of Rome. Julius Caesar modeled himself off of Alexander the Great and Scipio.
 
 [79](#sdfootnote79anc)https://en.wikipedia.org/wiki/Roman_imperial_cult#The_imperial_cult_and\_Christianity
 
-[80](#sdfootnote80anc)'Jesus Among the Julio-Claudians' (2017) by Charles N. Pope '[[link](https://books.google.se/books/about/Jesus_Among_the_Julio_Claudians.html?id=c7A3DwAAQBAJ&redir\_esc=y)]
+[80](#sdfootnote80anc)'Jesus Among the Julio-Claudians' (2017) by Charles N. Pope' [[link](https://books.google.se/books/about/Jesus_Among_the_Julio_Claudians.html?id=c7A3DwAAQBAJ&redir\_esc=y)]
 
 [81](#sdfootnote81anc)Josephus, Antiquities, 15.342-3, 16.86-7, 17.20-1 and 52-3
 
@@ -718,7 +681,6 @@ The jews were expelled at least three times from Rome after being accused of mis
 [90](#sdfootnote90anc)In the gospels "Paul the Apostle" even writes about his desire to have a sister-wife like all the other apostles: "Have we not a right to eat and drink? Have we not a right to take round a sister-wife, as even the rest of the apostles, and the brethren of the Lord, and Cephas?" Rotherham Bible. 1 Cor 9
 
 [91](#sdfootnote91anc)The reason why the Roman aristocracy used so many aliases and acted as different characters as if they were actors in a play was to hide the fact that the population was ruled by an oligarchy because if they knew they would revolt. Also, multiple names hides the fact that these royal families were heavily into incest which would have repulsed the population.
-
 \--https://www.henryhdavis.com/about (more on aliases and nomenclature).
 
 [92](#sdfootnote92anc)He was sent to the island of Ponza (Pontia) (Tacitus, Annals, 14.59) where high level political prisoners were kept and was tortured to death in 38CE immediately after Philo's embassy to Caligula.
@@ -726,19 +688,14 @@ The jews were expelled at least three times from Rome after being accused of mis
 [93](#sdfootnote93anc)Philo: Legatio ad Gaium (Embassy to Gaius)
 
 [94](#sdfootnote94anc)Rylands Papyri. Wikipedia. https://en.wikipedia.org/wiki/Rylands_Papyri#:~:text=koine
-
 \--Septuagint manuscripts. Wikipedia. https://en.wikipedia.org/wiki/Septuagint_manuscripts#:~:text=The%20Septuagint%20%28LXX%29%2C%20the,exists%20in%20various%20manuscript%20versions
 
 [95](#sdfootnote95anc)Language of the New Testament. Wikipedia. https://en.wikipedia.org/wiki/Language_of_the_New_Testament
-
 \--Jewish Koine Greek. Wikipedia. https://en.wikipedia.org/wiki/Jewish_Koine_Greek
 
 [96](#sdfootnote96anc)Josephus, Jewish War vi, 9
-
 \--How Yahweh Conquered Rome. Laurent Guyénot. https://www.unz.com/article/how-yahweh-conquered-rome/
 
 [97](#sdfootnote97anc)https://en.wikipedia.org/wiki/Claudius%27_expulsion_of_Jews_from_Rome
-
 –https://en.wikipedia.org/wiki/Sabazios#Jewish_connection
-
 –Emperor Caligula Brought an End to the Illustrious Ptolemies, but Why?. Ancient Origins Reconstructing the Story of Humanity’s Past. www.ancient-origins.net/history-famous-people/emperor-caligula-brought-end-illustrious-ptolemies-why-007591
