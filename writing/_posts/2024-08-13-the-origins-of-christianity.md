@@ -6,6 +6,18 @@ date: 2024-08-13
 categories: writing
 ---
 
+<script>
+  var footnotes = document.querySelectorAll('a[href^="#sdfootnote"]');
+  footnotes.forEach(function(footnote) {
+    var id = footnote.href.substring(1);
+    footnote.href = '#' + id;
+    var target = document.querySelector('a[name="' + id + '"]');
+    if (target) {
+      target.id = id;
+    }
+  });
+</script>
+
 On the Origins of Christianity
 
 By Hugo Pepe
