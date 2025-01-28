@@ -461,8 +461,7 @@ The jews were expelled at least three times from Rome after being accused of mis
 
 [^3]: The Gospel of Jesus' Wife Papyrus." The Nazarene Way, https://www.thenazareneway.com/Gospel%20of%20Jesus%20Wife%20Papyrus.htm.[\[link](https://www.thenazareneway.com/Gospel%20of%20Jesus%20Wife%20Papyrus.htm)]
 
-[^4]: A coin of Dynamis, queen of Bosphorus, where she is depicted as Aphrodite 'Urania':
-https://www.forumancientcoins.com/gallery/displayimage.php?album=880&pid=2383#top_display_media \
+[^4]: A coin of Dynamis, queen of Bosphorus, where she is depicted as Aphrodite 'Urania': https://www.forumancientcoins.com/gallery/displayimage.php?album=880&pid=2383#top_display_media 
     --Another Dynamis coin depicting a Star and Crescent which was also the symbol of the royal house of Adiabene and later became a prominent symbol in Islam:
 https://rpc.ashmus.ox.ac.uk/coins/1/1864
 
