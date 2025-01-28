@@ -461,9 +461,9 @@ The jews were expelled at least three times from Rome after being accused of mis
 
 [^3]: The Gospel of Jesus' Wife Papyrus." The Nazarene Way, https://www.thenazareneway.com/Gospel%20of%20Jesus%20Wife%20Papyrus.htm.[\[link](https://www.thenazareneway.com/Gospel%20of%20Jesus%20Wife%20Papyrus.htm)]
 
-[^4]: A coin of Dynamis, queen of Bosphorus, where she is depicted as Aphrodite 'Urania': /
+[^4]: A coin of Dynamis, queen of Bosphorus, where she is depicted as Aphrodite 'Urania':
 https://www.forumancientcoins.com/gallery/displayimage.php?album=880&pid=2383#top_display_media \
-    --Another Dynamis coin depicting a Star and Crescent which was also the symbol of the royal house of Adiabene and later became a prominent symbol in Islam: \
+    --Another Dynamis coin depicting a Star and Crescent which was also the symbol of the royal house of Adiabene and later became a prominent symbol in Islam:
 https://rpc.ashmus.ox.ac.uk/coins/1/1864
 
 [^5]: Jesus ben Fabus who was Isa Amen (Jesus Amen) of Rev. iii. 14 who was also Amyntas (Amen(tas)) of Galatia who was also Amyntas Nikator (the name Fabus may have been distorted by Josephus from Jesus ben Bagus. Amyntas was the son of Bogitarus. In Persian 'Bagus' means god. ‘Boga’ in Persian also means god and in the name Adobogiona 'Bog-' means god in Celtic. In Latin Nikator translates tro Invictus). His palace at Iśauria reveals his name as Iśa. (See: Jesus Christ Was Amyntas of Galatia (2010) by Ranajit Pal [[link](https://ranajitpal-jesus-from-asia-minor.blogspot.com/2011/06/jesus-christ-was-amyntas-of-galatia\_20.html)])
@@ -537,7 +537,7 @@ https://rpc.ashmus.ox.ac.uk/coins/1/1864
 [^33]: https://web.archive.org/web/20240118080032/https://www.hindupedia.com/en/Zoroastrianism_and_Hinduism
 
 [^34]: https://www.academia.edu/695219/Diodotus_I_was_Ashoka_An_Altar_of_Alexander_Now_Standing_Near_Delhi [[link](https://www.academia.edu/695219/Diodotus_I_was_Ashoka_An_Altar_of_Alexander_Now_Standing_Near_Delhi)
-–https://en.wikipedia.org/wiki/Kandahar_Greek_Edicts_of_Ashoka
+    --https://en.wikipedia.org/wiki/Kandahar_Greek_Edicts_of_Ashoka
 
 [^35]:'Alexander Romance'. Wikipedia. https://en.wikipedia.org/wiki/Category:Alexander_Romance
 
@@ -651,7 +651,7 @@ https://rpc.ashmus.ox.ac.uk/coins/1/1864
 [^77]: Fig. 1.1 https://upload.wikimedia.org/wikipedia/commons/6/6b/Denarius_C._Memmius_C._F._Romulus.jpg
 
 [^78]: https://web.archive.org/web/20110807082345/http://truthbeknown.com/apollonius.html
-–https://thenazareneway.com/MM%20Chart.htm
+    -–https://thenazareneway.com/MM%20Chart.htm
 
 [^79]: Scipio Africanus was the first high priest in the Flammen Dialis cult which made him the claimed son of Jupiter Optimus Maximus. His mother was divinely impregnanted by Jupiter. He was also the Salian Priest of Mars, 'second Romulus' (founder of Rome), and Consul of the Republic and Censor. He was the 'messiah' of Rome. Julius Caesar modeled himself off of Alexander the Great and Scipio.
 
@@ -680,7 +680,7 @@ https://rpc.ashmus.ox.ac.uk/coins/1/1864
 [^91]: In the gospels "Paul the Apostle" even writes about his desire to have a sister-wife like all the other apostles: "Have we not a right to eat and drink? Have we not a right to take round a sister-wife, as even the rest of the apostles, and the brethren of the Lord, and Cephas?" Rotherham Bible. 1 Cor 9
 
 [^92]: The reason why the Roman aristocracy used so many aliases and acted as different characters as if they were actors in a play was to hide the fact that the population was ruled by an oligarchy because if they knew they would revolt. Also, multiple names hides the fact that these royal families were heavily into incest which would have repulsed the population.
-\--https://www.henryhdavis.com/about (more on aliases and nomenclature).
+    --https://www.henryhdavis.com/about (more on aliases and nomenclature).
 
 [^93]: He was sent to the island of Ponza (Pontia) (Tacitus, Annals, 14.59) where high level political prisoners were kept and was tortured to death in 38CE immediately after Philo's embassy to Caligula.
 
