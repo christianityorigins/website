@@ -6,18 +6,6 @@ date: 2024-08-13
 categories: writing
 ---
 
-<script>
-  var footnotes = document.querySelectorAll('a[href^="#sdfootnote"]');
-  footnotes.forEach(function(footnote) {
-    var id = footnote.href.substring(1);
-    footnote.href = '#' + id;
-    var target = document.querySelector('a[name="' + id + '"]');
-    if (target) {
-      target.id = id;
-    }
-  });
-</script>
-
 On the Origins of Christianity
 
 By Hugo Pepe
@@ -337,7 +325,7 @@ Alexander the Great's Egyptian heir Ptolemy I Soter apparently shared Alexander'
 
 Endnotes (Chapter 7)  
 
-(a) "Alexander had 'planted' a colony of Jews who had increased in number until at the beginning of the Christian era they occupied two-fifths of the city and held some of the highest offices." ... "With its character largely determined by Jewish elements" -- Encyclopedia Britannica article on the Alexandrian School (1911) \
+(a) "Alexander had 'planted' a colony of Jews who had increased in number until at the beginning of the Christian era they occupied two-fifths of the city and held some of the highest offices." ... "With its character largely determined by Jewish elements" -- Encyclopedia Britannica article on the Alexandrian School (1911) https://en.wikisource.org/wiki/1911_Encyclopædia_Britannica/Alexandrian_School \
 (b) Manetho in his book 'Aegyptiaca' wrote that the Hyksos or Habiru were lead by a priest named Osarseph and that Osarseph = Moses. Interestingly, Osarseph also = Ahmose Sipair or Serapis. The "Si" symbol in Si-pair, ie. "son of", is really "Ser". Also, pharaoh Thutmose who expelled jews to Jerusalem has been proposed as "Moses". Was the Serapis Cult invented by the same family of jewish high priests who invented Zoroastrianism as a way of connecting the Egyptian people to them and flattering Thutmose III and then was later retconned for Ptolemy Soter?
 
 ### Chapter 8: The Origins of Gnosticism  
@@ -486,23 +474,23 @@ The jews were expelled at least three times from Rome after being accused of mis
 
 [9](#sdfootnote9anc)Interpretatio Graeca." Wikipedia, https://en.wikipedia.org/wiki/Interpretatio_graeca. [[link](https://en.wikipedia.org/wiki/Interpretatio\_graeca)]
 
-[10](#sdfootnote10anc)Antinous." Wikipedia, https://en.wikipedia.org/wiki/Antinous. [[link](https://en.wikipedia.org/wiki/Antinous)]
+[10](#sdfootnote10anc)'Antinous'. Wikipedia. https://en.wikipedia.org/wiki/Antinous. [[link](https://en.wikipedia.org/wiki/Antinous)]
 
 [11](#sdfootnote11anc)Cassius Dio Cocceianus, Historiae Romanae, book 69, chapter 11 [[link](https://penelope.uchicago.edu/Thayer/e/roman/texts/cassius_dio/69*.html)]
 
 [12](#sdfootnote12anc)Priscilla and Aquila'. Wikipedia, https://en.wikipedia.org/wiki/Priscilla_and_Aquila [[link](https://en.wikipedia.org/wiki/Priscilla\_and\_Aquila)]
 
-[13](#sdfootnote13anc)https://en.wikipedia.org/wiki/Hagarism [[link](https://en.wikipedia.org/wiki/Hagarism)]
+[13](#sdfootnote13anc)'Hagarism'. Wikipedia, https://en.wikipedia.org/wiki/Hagarism [[link](https://en.wikipedia.org/wiki/Hagarism)]
 
 [14](#sdfootnote14anc)Encyclopaedia Judaica. https://www.jewishvirtuallibrary.org/keti-x0027-a-bar-shalom
 
-[15](#sdfootnote15anc)Secret Gospel of Mark. Wikipedia, https://en.wikipedia.org/wiki/Secret_Gospel_of_Mark [[link](https://en.wikipedia.org/wiki/Secret_Gospel_of_Mark)]
+[15](#sdfootnote15anc)'Secret Gospel of Mark'. Wikipedia, https://en.wikipedia.org/wiki/Secret_Gospel_of_Mark [[link](https://en.wikipedia.org/wiki/Secret_Gospel_of_Mark)]
 
 [16](#sdfootnote16anc)'Josephan Corpus Began Life as a Christian Forgery' by Stephan Huller [[link](https://stephanhuller.blogspot.com/2010/08/i-think-i-can-prove-that-our-josephan.html)
 
 [17](#sdfootnote17anc)Eezekiel 16:1-316: "The word of the Lord came to me: 2 “Son of man, confront Jerusalem with her detestable practices 3 and say, ‘This is what the Sovereign Lord says to Jerusalem: Your ancestry and birth were in the land of the Canaanites; your father was an Amorite and your mother a Hittite". The House of Omri (Kingdom of Israel), pronounced phonetically as "Ghomri" (Hebrew) or "Khumri" (Assyrian), and derivatives of those words "Gamera/Gimera" & "ga-me-ra-a-an" (Assyrian) and "Gimiri" (Babylonian) also show up in ancient records as root words for Cimmerian/Scythian. The Gimirri were also known as the Cimmerians to the ancient Greeks. 
 
-[18](#sdfootnote18anc)https://en.wikipedia.org/wiki/Apep
+[18](#sdfootnote18anc)'Apep'. Wikipedia. https://en.wikipedia.org/wiki/Apep
 
 [19](#sdfootnote19anc)https://historyaffairs.com/the-second-intermediate-period-of-egypt-c-1650-1550-bc/
 
@@ -513,9 +501,9 @@ The jews were expelled at least three times from Rome after being accused of mis
 
 [21](#sdfootnote21anc)https://www.science.org/content/article/modern-human-females-and-male-neandertals-had-trouble-making-babies-here-s-why
 
-[22](#sdfootnote22anc)https://en.wikipedia.org/wiki/Gehenna
+[22](#sdfootnote22anc)'Gehenna'. Wikipedia. https://en.wikipedia.org/wiki/Gehenna
 
-[23](#sdfootnote23anc)https://en.wikipedia.org/wiki/Blood_libel\
+[23](#sdfootnote23anc)'Blood libel'. Wikipedia. https://en.wikipedia.org/wiki/Blood_libel\
 --Blood Passover - The Jews Of Europe And Ritual Murder by Ariel Toaff\
 –https://ru.wikipedia.org/wiki/Paзыcкaниe_oб_yбиeнии_eвpeями_хpиcтиaнcких_млaдeнцe_и_yпoтpeблeнии_кpoви_их
 –https://www.jrbooksonline.com/PDFs/Jewish%20Ritual%20Murder%20JR.pdf\
@@ -530,7 +518,7 @@ The jews were expelled at least three times from Rome after being accused of mis
 
 [25](#sdfootnote25anc)The last King of Babylon, Nabonidus, installed jews in the commercially strategic oases of the Arabian Peninsula shortly before they betrayed him and his nation into the hands of Cyrus the Great, the founder of the Persian Empire in the sixth century B.C. Cyrus then rewarded the jews by destroying Babylon, spreading Zoroastrianism, and giving them Judea. See: Edict of Cyrus [link], Ezra 1 [link], and Reflections on the Christ Myth by Revilo P. Oliver
 
-[26](#sdfootnote26anc)https://en.wikipedia.org/wiki/Scythian_campaign_of_Darius_I
+[26](#sdfootnote26anc)'Scythian campaign of Darius I'. Wikipedia. https://en.wikipedia.org/wiki/Scythian_campaign_of_Darius_I
 
 [27](#sdfootnote27anc)https://www.hindupedia.com/en/Zoroastrianism_and_Hinduism [[link](https://www.hindupedia.com/en/Zoroastrianism_and_Hinduism)]
 
@@ -538,7 +526,7 @@ The jews were expelled at least three times from Rome after being accused of mis
 
 [29](#sdfootnote29anc)"King of Kings." Wikipedia, en.wikipedia.org/wiki/King_of_Kings#Hellenic_usage [[link](https://en.wikipedia.org/wiki/King_of_Kings#Hellenic_usage)]
 
-[30](#sdfootnote30anc)https://en.wikipedia.org/wiki/Kay_Bahman
+[30](#sdfootnote30anc)'Kay Bahman'. Wikipedia. https://en.wikipedia.org/wiki/Kay_Bahman
 
 [31](#sdfootnote31anc)https://babel.hathitrust.org/cgi/pt?id=mdp.39015046413939&seq=7
 
@@ -547,7 +535,7 @@ The jews were expelled at least three times from Rome after being accused of mis
 [33](#sdfootnote33anc)https://www.academia.edu/695219/Diodotus_I_was_Ashoka_An_Altar_of_Alexander_Now_Standing_Near_Delhi [[link](https://www.academia.edu/695219/Diodotus_I_was_Ashoka_An_Altar_of_Alexander_Now_Standing_Near_Delhi)
 –https://en.wikipedia.org/wiki/Kandahar_Greek_Edicts_of_Ashoka
 
-[34](#sdfootnote34anc)https://en.wikipedia.org/wiki/Category:Alexander_Romance
+[34](#sdfootnote34anc)'Alexander Romance'. Wikipedia. https://en.wikipedia.org/wiki/Category:Alexander_Romance
 
 [35](#sdfootnote35anc)https://babel.hathitrust.org/cgi/pt?id=mdp.39015046413939&seq=7
 
@@ -555,31 +543,31 @@ The jews were expelled at least three times from Rome after being accused of mis
 
 [37](#sdfootnote37anc)https://www.heraldgoa.in/Edit/Opinions/Are-Brahmins-Jews/79561
 
-[38](#sdfootnote38anc)https://en.wikipedia.org/wiki/Asura
+[38](#sdfootnote38anc)'Asura'. Wikipedia. https://en.wikipedia.org/wiki/Asura
 
 [39](#sdfootnote39anc)https://dienekes.blogspot.com/2018/04/r1ans-still-at-large-or-story-of-india.html
 
-[40](#sdfootnote40anc)https://en.wikipedia.org/wiki/Ptolemaic_cult_of_Alexander_the_Great
+[40](#sdfootnote40anc)'Ptolemaic cult of Alexander the Great'. Wikipedia. https://en.wikipedia.org/wiki/Ptolemaic_cult_of_Alexander_the_Great
 
 [41](#sdfootnote41anc)https://www.jesusneverexisted.com/syncretism.html
 
-[42](#sdfootnote42anc)https://en.wikipedia.org/wiki/Letter_of_Aristeas
+[42](#sdfootnote42anc)'Letter of Aristeas'. Wikipedia. https://en.wikipedia.org/wiki/Letter_of_Aristeas
 
 [43](#sdfootnote43anc)Berossus and Genesis, Manetho and Exodus: Hellenistic Histories and the Date of the Pentateuch (The Library of Hebrew Bible/Old Testament Studies, 433) by Russell Gmirkin
 
 [44](#sdfootnote44anc)https://en.wikisource.org/wiki/Page%3AWorks_Translated_by_William_Whiston.djvu/546
 
-[45](#sdfootnote45anc)https://en.wikipedia.org/wiki/Land_of_Onias
+[45](#sdfootnote45anc)'Land_of_Onias'. Wikipedia. https://en.wikipedia.org/wiki/Land_of_Onias
 
-[46](#sdfootnote46anc)https://en.wikipedia.org/wiki/Land_of_Onias#Jewish_temple_at_Leontopolis
+[46](#sdfootnote46anc)'Land_of_Onias#Jewish_temple_at_Leontopolis'. Wikipedia. https://en.wikipedia.org/wiki/Land_of_Onias#Jewish_temple_at_Leontopolis
 
 [47](#sdfootnote47anc)https://discoveringancienthistory.wordpress.com/2017/10/24/the-jews-of-sparta-diplomatic-origins-of-religious-synchronization/
 
-\--https://en.wikipedia.org/wiki/Areus_I#Areus_and_the_Jews
+\--'Areus I. Areus and the Jews'. Wikipedia. https://en.wikipedia.org/wiki/Areus_I#Areus_and_the_Jews
 
-[48](#sdfootnote48anc)https://en.wikipedia.org/wiki/Great_Assembly
+[48](#sdfootnote48anc)'Great_Assembly'. Wikipedia. https://en.wikipedia.org/wiki/Great_Assembly
 
-[49](#sdfootnote49anc)https://en.wikipedia.org/wiki/Simeon_the_Just
+[49](#sdfootnote49anc)'Simeon the Just'. Wikipedia. https://en.wikipedia.org/wiki/Simeon_the_Just
 
 [50](#sdfootnote50anc)Josephus. Antiquities, XI. 8. Talmud, Yoma 67b
 
@@ -593,30 +581,30 @@ The jews were expelled at least three times from Rome after being accused of mis
 --https://en.wikipedia.org/wiki/Zadok#Other_Zadoks \
 --Does the bust depicting a late Ptolemaic leader sometimes attributed to Ptolemy IX actually depict Ptolemy Menneus aka Simon Boethus aka Simon Magus? The bust depicts a jewish physiognomy and a beard shaved in a jewish style. https://collections.mfa.org/objects/151135/portrait-head-of-a-late-ptolemaic-ruler-ptolemy-ix
 
-[53](#sdfootnote53anc)https://en.wikipedia.org/wiki/Therapeutae \
-–https://en.wikipedia.org/wiki/Greco-Buddhism \
+[53](#sdfootnote53anc)'Therapeutae'. Wikipedia. https://en.wikipedia.org/wiki/Therapeutae \
+–Greco-Buddhism. Wikipedia. https://en.wikipedia.org/wiki/Greco-Buddhism \
 –https://www.jesusneverexisted.com/buddha.html
 
-[54](#sdfootnote54anc)https://en.wikipedia.org/wiki/Sibylline_Oracles%20
+[54](#sdfootnote54anc)'Sibylline_Oracles'. Wikipedia. https://en.wikipedia.org/wiki/Sibylline_Oracles
 
-[55](#sdfootnote55anc)https://en.wikipedia.org/wiki/History_of_the_Jews_in_Alexandria
+[55](#sdfootnote55anc)'History of the Jews in Alexandria'. Wikipedia. https://en.wikipedia.org/wiki/History_of_the_Jews_in_Alexandria
 
-[56](#sdfootnote56anc)https://en.wikipedia.org/wiki/Simon_Magus
+[56](#sdfootnote56anc)'Simon_Magus'. Wikipedia. https://en.wikipedia.org/wiki/Simon_Magus
 
 [57](#sdfootnote57anc)https://fabpedigree.com/s046/f010384.htm
 
 [58](#sdfootnote58anc)https://www.geni.com/people/Elizabeth-of-Jerusalem-Queen-Alexandra-II/6000000005790348026
 
-[59](#sdfootnote59anc)https://en.wikipedia.org/wiki/Helena_of_Adiabene
+[59](#sdfootnote59anc)'Helena of Adiabene'. Wikipedia. https://en.wikipedia.org/wiki/Helena_of_Adiabene
 
 [60](#sdfootnote60anc)https://earlywritings.com/forum/viewtopic.php?t=8155
 
-[61](#sdfootnote61anc)https://en.wikipedia.org/wiki/Simonians
+[61](#sdfootnote61anc)'Simonians'. Wikipedia. https://en.wikipedia.org/wiki/Simonians
 
 [62](#sdfootnote62anc)Sophia was just a repackaging of the Greek deity Athena who was the daughter of Zeus.
 --https://en.wikipedia.org/wiki/Sophia_%28Gnosticism%29
 
-[63](#sdfootnote63anc)https://en.wikipedia.org/wiki/Naassenes
+[63](#sdfootnote63anc)'Naassenes'. Wikipedia. https://en.wikipedia.org/wiki/Naassenes
 
 [64](#sdfootnote64anc)https://www.geni.com/people/Queen-Mariamne-Hasmonean/6000000002428793929
 –https://en.wikipedia.org/wiki/Mariamne
@@ -624,7 +612,7 @@ The jews were expelled at least three times from Rome after being accused of mis
 
 [65](#sdfootnote65anc)https://www.geni.com/people/Joshua-ben-Gamla-Gamaliel-High-Priest-of-Iudaea/6000000016324909410
 
-[66](#sdfootnote66anc)https://en.wikipedia.org/wiki/Simeon_ben_Hillel
+[66](#sdfootnote66anc)'Simeon ben Hillel'. Wikipedia. https://en.wikipedia.org/wiki/Simeon_ben_Hillel
 
 [67](#sdfootnote67anc)https://www.geni.com/people/Saulos/6000000019966732612
 
@@ -647,11 +635,11 @@ The jews were expelled at least three times from Rome after being accused of mis
 
 [70](#sdfootnote70anc)MM Chart. The Nazarene Way. https://thenazareneway.com/MM%20Chart.htm
 
-[71](#sdfootnote71anc)https://en.wikipedia.org/wiki/Son_of_God
+[71](#sdfootnote71anc)'Son of God'. Wikipedia. https://en.wikipedia.org/wiki/Son_of_God
 
 [72](#sdfootnote72anc)"Archiereus megistos" could be an expansion/backronym for "Christos"
 
-[73](#sdfootnote73anc)https://en.wikipedia.org/wiki/Julia_gens
+[73](#sdfootnote73anc)'Julia gens'. Wikipedia. https://en.wikipedia.org/wiki/Julia_gens
 
 [74](#sdfootnote74anc)Caesar's Messiah Commentary. The Nazarene Way. https://web.archive.org/web/20100313155615/http://www.thenazareneway.com/Caesar%27s%20Messiah%20Commentary.htm
 
@@ -664,7 +652,7 @@ The jews were expelled at least three times from Rome after being accused of mis
 
 [78](#sdfootnote78anc)Scipio Africanus was the first high priest in the Flammen Dialis cult which made him the claimed son of Jupiter Optimus Maximus. His mother was divinely impregnanted by Jupiter. He was also the Salian Priest of Mars, 'second Romulus' (founder of Rome), and Consul of the Republic and Censor. He was the 'messiah' of Rome. Julius Caesar modeled himself off of Alexander the Great and Scipio.
 
-[79](#sdfootnote79anc)https://en.wikipedia.org/wiki/The_World's_Sixteen_Crucified_Saviors
+[79](#sdfootnote79anc)'The World's Sixteen Crucified Saviors'. Wikipedia. https://en.wikipedia.org/wiki/The_World's_Sixteen_Crucified_Saviors
 
 [80](#sdfootnote80anc)'Jesus Among the Julio-Claudians' (2017) by Charles N. Pope' [[link](https://books.google.se/books/about/Jesus_Among_the_Julio_Claudians.html?id=c7A3DwAAQBAJ&redir\_esc=y)]
 
