@@ -177,6 +177,7 @@ Speculative
 \* James, brother of Jesus = Rabbi Akiva (the name Akiva is related to Jacob/James). Theory: Simon of Cyrene was Lukuas Andreas, with his "sons" being Julian/John (Simon bar Kochba) and Pappus/James (R. Akiva)? \
 \* John the Baptist = Yohanan ben Zakkai. Father of Gamaliel and grandfather of Jesus ben Gamla/Gamaliel. \
 \* Josephus = Hegesippus. \
+\* Titus Flavian Clemens = 'Clement of Rome'.
 
 BOOK I. THE ORIGINS OF CHRISTIANITY
 -----------------------------------
