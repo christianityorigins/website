@@ -52,7 +52,7 @@ Appendix B. Expulsions from Rome for Trying to Spread Religions\
 Preface
 -------
 
-Every year-zero religion since the Axial Age came from the same priestly family of jews who can be traced back to Babylon, and every one of the religions that they created were slave-morality suicide cults. Under the surface-level narratives of all these slave-morality religions lies the exact same system: they replace ethnic gods and pantheons with monotheism, transvaluate ethnic values, and subvert a population by weaponizing the 'ressentiment' of the outcastes so that they attack the warrior and aristocratic castes. Christianity is a slave morality that was created by the same line of Jewish High Priests (kohanim) who created Zoroastrianism and was grafted onto the Old Testament to subconsciously connect the Romans to Jews with Roman trappings added on (myth of Romulus, Divine Julius Cult) to make it more appealing to the Romans.
+Every year-zero religion since the Axial Age came from the same priestly family of jews who can be traced back to Babylon, and every one of the religions that they created were slave-morality suicide cults. Under the surface-level narratives of all these slave-morality religions lies the exact same system: they replace ethnic gods and pantheons with monotheism, transvaluate ethnic values, and subvert a population by weaponizing the 'ressentiment' of the outcastes so that they attack the warrior and aristocratic castes. Christianity is a slave morality that was created by the same line of Jewish High Priests (kohanim) who created Zoroastrianism and was grafted onto an imperial cult with the Old Testament added in to subconsciously connect the Romans to Jews.
 
 Characters
 ----------
