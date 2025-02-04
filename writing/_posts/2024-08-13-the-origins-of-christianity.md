@@ -138,7 +138,7 @@ Alexander (grandson of King Herod) and his sister wife Cleopatra (Thea Philopato
 <p align="center">
 <img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgkg6HruekpVy4HBBuLQSuMiuGOR2wu3EZ76AfMbs-6IwmFJ-vz4vyT_oWC0auWEf-hb3-OOXjsrcPBXi97b0FHy0w75CfU4u6Y7TpDAEKqpvzDD00Yzv1HkrYWJ1ARGblqY3_B8U_KVfgx9lAx1h7ghnU42xnq9LNMlmXFWvHR_6gjGP7EzM2BE12JEK4/s1163/coin-abgar-phraates-imageonline.co-merged.png" width="400"></p>
 
-<p align="center">Fig. 1.2. (L) and (R) show King Izates Monobazus of Edessa (known in Greek as the 'Kingdom of Ourania' or in English as the 'Kingdom of Heaven') wearing a crown of thorns. Izates or Izas is his title which is an ancient Greek translation of the Avestan word Yazatas (Persian: izad), meaning "lord". He is one of the Jesus avatars, "Isa'' in the Quran, and Sultan Ezid in the Yazadi ('Iza'di) religion. He was the uncle of Tiberius Julius Sauromates II, King of Bosphorus. The middle image source: The Alexander Mosaic, Huqoq, Israel.</p>
+<p align="center">Fig. 1.2. (L) and (R) show King Izates Monobazus of Edessa (known in Greek as the 'Kingdom of Ourania' or in English as the 'Kingdom of Heaven') wearing a crown of thorns. Izates or Izas is his title which is an ancient Greek translation of the Avestan word Yazatas (Persian: izad), meaning lord. He is one of the Jesus avatars, Isa in the Quran, and Sultan Ezid in the Yazadi ('Iza'di) religion. He was the uncle of Tiberius Julius Sauromates II, King of Bosphorus. The middle image source: The Alexander Mosaic, Huqoq, Israel.</p>
 
 <p align="center">
 <img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEikChO0ZBc91tmTcx-Uj9xf7LUCH5SxzLDFJII1MZAOrwYwZ-tslrScPHQs20c8WhOW_GJvpfZ8eEYkUeAYtxJrjl18Spq9GhxILCl4wX4w1VlCNMZmlVfAel0Cr1GEICQPHQsIlDNY917lglrPrC1rxmgVhVzzU6150S1ZQBvRmHaBheNUGKy4QFfON28/s674/image.jpg" width="400"></p>
@@ -451,7 +451,6 @@ _A Forgery of Our Own_ (1991) by Revilo P. Oliver ttp://www.revilo-oliver.com/rp
 _The Origins of Christianity_ (1994) by Revilo P. Oliver https://archive.org/details/the-origins-of-christianity-by-revilo-p-oliver-z-lib.org/ [<a href="https://archive.org/details/the-origins-of-christianity-by-revilo-p-oliver-z-lib.org" rel="nofollow" target="_blank">link</a>] \
 
 _Reflections on the Christ Myth_ (1994) by Revilo P. Oliver https://ia600201.us.archive.org/22/items/ReflectionsOnTheChristMyth_518/ReflectionsOnTheChristMyth-Oliver.pdf [<a href="https://ia600201.us.archive.org/22/items/ReflectionsOnTheChristMyth_518/ReflectionsOnTheChristMyth-Oliver.pdf" rel="nofollow" target="_blank">link]</a> \
-
 _Cleopatra to Christ_ (2010) by Ralph Ellis https://www.amazon.com/Cleopatra-Christ-great-grandson-Cleopatra-Trilogy/dp/1508465886 \[[link](https://www.google.com/books/edition/Cleopatra_to_Christ/T7sqfHyWPuQC?hl=en&gbpv=1&dq=cleopatra+to+christ&printsec=frontcover)\] (_reveals that the biblical Jesus was based on King Izates of Adiabene who was directly descended from Cleopatra VII_)  \
 
 _Following Philo to Pallas (the Freedman): The Most Powerful Man in First Century Rome, also known as Goddess (the Mother)_ (2019) by P.J. Gott https://www.amazon.com/Following-Philo-Pallas-Freedman-Powerful-ebook/dp/B07PXKQGYG \[[link](https://www.amazon.com/Following-Philo-Pallas-Freedman-Powerful-ebook/dp/B07PXKQGYG/)\] (_reveals that Philo of Alexandria was a pen-name for Cleopatra of Mauretania who was married to her brother Alexander (grandson of King Herod)/Ptolemy of Mauretania, therefore, she was the mother of Tiberius Julius Alexander/Arrius Piso. Also, that she was Claudius and Nero's secretary 'Pallas' and Vespasian's first cousin and mistress Antonia Caenis_) \
@@ -466,9 +465,9 @@ _Magdalene's Men. The historic identities of the many men in Mary Magdalene's li
 
 [^3]: The Gospel of Jesus' Wife Papyrus." The Nazarene Way, https://www.thenazareneway.com/Gospel%20of%20Jesus%20Wife%20Papyrus.htm.[\[link](https://www.thenazareneway.com/Gospel%20of%20Jesus%20Wife%20Papyrus.htm)]
 
-[^4]: A coin of Dynamis, queen of Bosphorus, where she is depicted as Aphrodite 'Urania': https://www.forumancientcoins.com/gallery/displayimage.php?album=880&pid=2383#top_display_media 
+[^4]: A coin of Dynamis, queen of Bosphorus, where she is depicted as Aphrodite 'Urania': https://www.forumancientcoins.com/gallery/displayimage.php?album=880&pid=2383#top_display_media  [[link](https://www.forumancientcoins.com/gallery/displayimage.php?album=880&pid=2383#top_display_media)] \
     --Another Dynamis coin depicting a Star and Crescent which was also the symbol of the royal house of Adiabene and later became a prominent symbol in Islam:
-https://rpc.ashmus.ox.ac.uk/coins/1/1864
+https://rpc.ashmus.ox.ac.uk/coins/1/1864 [[link](https://www.forumancientcoins.com/gallery/displayimage.php?album=880&pid=2383#top_display_media)] 
 
 [^5]: Jesus ben Fabus who was Isa Amen (Jesus Amen) of Rev. iii. 14 who was also Amyntas (Amen(tas)) of Galatia who was also Amyntas Nikator (the name Fabus may have been distorted by Josephus from Jesus ben Bagus. Amyntas was the son of Bogitarus. In Persian 'Bagus' means god. ‘Boga’ in Persian also means god and in the name Adobogiona 'Bog-' means god in Celtic. In Latin Nikator translates tro Invictus). His palace at Iśauria reveals his name as Iśa. (See: Jesus Christ Was Amyntas of Galatia (2010) by Ranajit Pal [[link](https://ranajitpal-jesus-from-asia-minor.blogspot.com/2011/06/jesus-christ-was-amyntas-of-galatia\_20.html)])
 
