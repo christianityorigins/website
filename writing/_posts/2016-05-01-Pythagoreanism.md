@@ -11,7 +11,7 @@ CONTENTS
 1 Pythagoreanism\
 1.1 Cosmology\
 1.2 Beliefs\
-1.3 Rituals\
+1.3 Rituals and Practices\
 2 Footnotes
 
 1 Pythagoreanism
@@ -28,9 +28,11 @@ The cosmology of Pythagoreanism is monism \[[link](https://en.wikipedia.org/wiki
 
 Monist cosmology posits that all phenomena reduces to one principle and the universe is composed of a single fundamental substance. This means that the divine is not a separate and transcendent entity but rather an inherent aspect of the universe, and humans are not separate from the divine but rather an unfolding or manifestation of it. Therefore, in monist cosmologies, self-realization or self-actualization is often seen as the process of recognizing and embodying one's true nature as an expression of the divine. This can be seen as a form of self-deification.
 
-1.3 Rituals
+1.3 Rituals and Practices
 
-In monist religions, rituals are about bringing someone to self-realization. For example, rituals and practices like yoga, meditation, self-inquiry, and mantra recitation are used to help the individual realize their true nature as a manifestation of the divine. The goal is to awaken the individual's inner divinity and are aimed at helping the individual realize their true nature as the ultimate reality.
+Rituals: In monist religions, rituals are about bringing someone to self-realization. For example, rituals like yoga, meditation, self-inquiry, and mantra recitation are used to help the individual realize their true nature as a manifestation of the divine. The goal is to awaken the individual's inner divinity and is aimed at helping the individual realize their true nature as the ultimate reality.
+
+Practices: The study of mathematics and music was essential to Pythagoras's teaching. He believed that mathematics was a way to access the underlying structure and harmony of the universe. By studying mathematics, the individual could gain insight into the fundamental principles and patterns that govern reality. Music was seen as a way to access the emotional and spiritual dimensions of human experience. By studying music, the individual could gain insight into the nature of harmony and balance, and could develop a deeper appreciation for the beauty and complexity of the universe. Music was also seen as a way to cultivate the emotions and to develop a sense of inner peace and tranquility.
 
 2 Footnotes
 
