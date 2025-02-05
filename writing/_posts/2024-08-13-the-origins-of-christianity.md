@@ -113,8 +113,7 @@ The development of Christianity can be divided into two phases. The first phase 
 There was a Byzantine [^1] imperial cult where Julius Caesar [^2] took on the role of Asander, King of Bosphorus [^3] (the city of Byzantine, later called Constantinople and now Istanbul was/is located in the area called Bosphorus), and his wife Cleopatra used the regional alias of Dynamis Ourania [^4] (translates to 'heavenly power'), queen of Bosporus
 
 
-<p align="center">
-<img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjZBJMJdUc27tr0Op57UIgh1sL0NtWlW5JA-6RJtIlmnnBDbJR3yR9D0B4KfefhVX_yTo7zIwQo1mEEdtwjI2HWmUR67wNKKSYnoVcdib5o2srvsgrC9WLxAYp6paX9yTuuk6XHYmQeVrx9fkw039Nu8CmeOH2HZ4FHW5hgERyxj0AmVAtw42tMVJKJFVs/s947/image.png" width="400"></p>
+![Fig. 1.1](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjZBJMJdUc27tr0Op57UIgh1sL0NtWlW5JA-6RJtIlmnnBDbJR3yR9D0B4KfefhVX_yTo7zIwQo1mEEdtwjI2HWmUR67wNKKSYnoVcdib5o2srvsgrC9WLxAYp6paX9yTuuk6XHYmQeVrx9fkw039Nu8CmeOH2HZ4FHW5hgERyxj0AmVAtw42tMVJKJFVs/s947/image.png)
 
 
 <p align="center">Fig. 1.1. (L) Julia Mamaea, Queen of Pontus (wife of Polemon II), (R) Cleopatra VII. If Polemon Pythodoros, King of Pontus was Julius Caesar's regional alias, and he also played the religious role of Gaius Julius Sohaemus of Emesa, Priest-King of Emesa, and Cleopatra played the regional role of Pythodorida Philometor, then Julia Avita Mamaea of Emessa would have been their daughter. Do you see a resemblance? She would have been married to her half-brother Polemon II, King of Pontus aka Ptolemy Philadelphus aka Sampsiceramus I?The The Bosphorus Kingdom, also known as the Kingdom of the Cimmerian Bosphorus, was located next to the Pontus Kingdom</p>
@@ -135,13 +134,11 @@ Cleopatra aka Dynamis's grandson with Mark Antony (aka King Herod aka Tiberius C
 
 Alexander (grandson of King Herod) and his sister wife Cleopatra (Thea Philopator) of Mauretania had two sons: Tiberius Julius Alexander aka Arrius Calpernius Piso aka Arrius Varus aka Tiberius Julius Cotys aka Emperor Nerva, and Marcus Julius Alexander aka Yeshua Cleopatros (Cantheras/Panthera) ben Josephus bar Menneus aka Ma'nu of Adiabene/Edessa aka Ptolemy aka Yakov Zu Tolomoy aka Izates aka Jesus Emmanuel aka Monobazus of Adiabene [^6]
 
-<p align="center">
-<img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgkg6HruekpVy4HBBuLQSuMiuGOR2wu3EZ76AfMbs-6IwmFJ-vz4vyT_oWC0auWEf-hb3-OOXjsrcPBXi97b0FHy0w75CfU4u6Y7TpDAEKqpvzDD00Yzv1HkrYWJ1ARGblqY3_B8U_KVfgx9lAx1h7ghnU42xnq9LNMlmXFWvHR_6gjGP7EzM2BE12JEK4/s1163/coin-abgar-phraates-imageonline.co-merged.png" width="400"></p>
+![Fig. 1.2](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgkg6HruekpVy4HBBuLQSuMiuGOR2wu3EZ76AfMbs-6IwmFJ-vz4vyT_oWC0auWEf-hb3-OOXjsrcPBXi97b0FHy0w75CfU4u6Y7TpDAEKqpvzDD00Yzv1HkrYWJ1ARGblqY3_B8U_KVfgx9lAx1h7ghnU42xnq9LNMlmXFWvHR_6gjGP7EzM2BE12JEK4/s1163/coin-abgar-phraates-imageonline.co-merged.png)
 
 <p align="center">Fig. 1.2. (L) and (R) show King Izates Monobazus of Edessa (known in Greek as the 'Kingdom of Ourania' or in English as the 'Kingdom of Heaven') wearing a crown of thorns. Izates or Izas is his title which is an ancient Greek translation of the Avestan word Yazatas (Persian: izad), meaning lord. He is one of the Jesus avatars, Isa in the Quran, and Sultan Ezid in the Yazadi ('Iza'di) religion. He was the uncle of Tiberius Julius Sauromates II, King of Bosphorus. The middle image source: The Alexander Mosaic, Huqoq, Israel.</p>
 
-<p align="center">
-<img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEikChO0ZBc91tmTcx-Uj9xf7LUCH5SxzLDFJII1MZAOrwYwZ-tslrScPHQs20c8WhOW_GJvpfZ8eEYkUeAYtxJrjl18Spq9GhxILCl4wX4w1VlCNMZmlVfAel0Cr1GEICQPHQsIlDNY917lglrPrC1rxmgVhVzzU6150S1ZQBvRmHaBheNUGKy4QFfON28/s674/image.jpg" width="400"></p>
+![Fig. 1.3](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEikChO0ZBc91tmTcx-Uj9xf7LUCH5SxzLDFJII1MZAOrwYwZ-tslrScPHQs20c8WhOW_GJvpfZ8eEYkUeAYtxJrjl18Spq9GhxILCl4wX4w1VlCNMZmlVfAel0Cr1GEICQPHQsIlDNY917lglrPrC1rxmgVhVzzU6150S1ZQBvRmHaBheNUGKy4QFfON28/s674/image.jpg)
 
 <p align="center">Fig. 1.3. Tiberius Julius Sauromates II, King of Bosphorus, who was the son of Tiberius Julius Cotys (aka Tiberius Julius Alexander aka Arrius Calpernius Piso aka Arrius Varus aka Emperor Nerva), great-grandson of Dynamis aka Cleopatra and Mark Antony. Does he look familiar? Sauromates is a Greek rendering of "Sarmatian", refering to the Scythian tribe who came from the Pontic steppe.</p>  
 
@@ -210,7 +207,7 @@ Endnotes (Chapter 2)
 (c) You can read more about the Jew-Neanderthal connection here: (Humans and Neanderthals likely interbred in the Middle East. Science Magazine, https://www.sciencemag.org/news/2015/01/humans-and-neandertals-likely-interbred-middle-east), (Remains of hybrid Neanderthal-Sapiens population found in Israel. Haaretz, https://www.haaretz.com/israel-news/2019-11-08/ty-article-magazine/.premium/remains-of-hybrid-neanderthal-sapiens-population-found-in-israel/0000017f-dbcf-db5a-a57f-dbef18940000), (Evidence of human-Neanderthal hybrids found in Israeli cave. Forward, https://forward.com/culture/434525/evidence-of-human-neanderthal-hybrids-found-in-israeli-cave), (The Chosen People: Caucasus, Deceptions, and Historical. Amazon, https://www.amazon.com/Chosen-People-Caucasus-Deceptions-Historical/dp/0883781476), (Genetic studies of Jews. National Center for Biotechnology Information, https://www.ncbi.nlm.nih.gov/pmc/articles/PMC6309227), (Genetic studies of Jews. Wikipedia, https://en.wikipedia.org/wiki/Genetic_studies_of_Jews), (Ashkenazi Jewish population history revealed by ancient DNA analysis. GenomeWeb, https://www.genomeweb.com/sequencing/ashkenazi-jewish-population-history-revealed-ancient-dna-analysis), (Ashkenazi gene increases schizophrenia. Haaretz, https://www.haaretz.com/2013-11-26/ty-article/.premium/ashkenazi-gene-increases-schizophrenia/0000017f-e04b-d75c-a7ff-fccfa3e10000), (Genetic studies of Jews. National Center for Biotechnology Information, https://www.ncbi.nlm.nih.gov/pmc/articles/PMC7465115/), (So, are the Neanderthals still Jews? Slate, https://slate.com/news-and-politics/1997/08/so-are-the-neanderthals-still-jews.html), (Did modern humans and Neanderthals really meet in the Negev? Haaretz, https://www.haaretz.com/archaeology/2021-06-21/ty-article/.premium/did-modern-humans-and-neanderthals-really-meet-in-the-negev/), (BBC News, https://www.bbc.co.uk/news/science-environment-57586315), (New America Government, https://archive.ph/2024.02.24-211636/https://newamericangovernment.org/ailink/802/), (Blogger, https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiyDzxbNmb6Oj5aDWOknO84-hwkdkoi \
 (d) John 8:44 in the New Testament, when Jesus speaks to the Pharisees, also refers to YHWH being the devil: _"You belong to your father, the devil, and you want to carry out your father’s desires. He was a murderer from the beginning, not holding to the truth, for there is no truth in him. When he lies, he speaks his native language, for he is a liar and the father of lies."_ \
 (e) The author of the Book of Kings speaks about passing one's son and daughter through fire (II Kings 16:3 [son], 17:17, 21:6 [son]. II Kings 23:10 speaks about "passing one's son or daughter through fire to Moloch.". \
-(f) There are multiple sections in the Torah, Midrash, and Talmud that condone cannibalism and eating their enemies: Bava Batra, II Samuel 161:8, Isiah 51:4, Midrash Leviticus Rabbi 13:3. _"And Rabba says that Rabbi Yoḥanan says: In the future, the Holy One, Blessed be He, will prepare a sukka for the righteous from the skin of the leviathan, as it is stated: “Can you fill his skin with barbed irons [besukkot]”"_ (Job 40:31). [[link](https://www.sefaria.org/Bava\_Batra.75a.6?lang=bi&with=all&lang2=en)] \
+(f) There are multiple sections in the Torah, Midrash, and Talmud that condone cannibalism and eating their enemies: Bava Batra, II Samuel 161:8, Isiah 51:4, Midrash Leviticus Rabbi 13:3. _"And Rabba says that Rabbi Yoḥanan says: In the future, the Holy One, Blessed be He, will prepare a sukka for the righteous from the skin of the leviathan, as it is stated: “Can you fill his skin with barbed irons besukkot"_ (Job 40:31). [[link](https://www.sefaria.org/Bava\_Batra.75a.6?lang=bi&with=all&lang2=en)] \
 _"Since the second century BC, Egyptians, Greeks, and Romans had identified the evil god Seth-Typhon (often depicted as a donkey-like creature) with the Jewish god Yahweh"._ 'The Donkey Deity' by M. David Litwa [[link](https://academic.oup.com/book/39211/chapter-abstract/338714124?redirectedFrom=fulltext)]. "Set" is the Egyptian god of violence and destruction and "Typhon" was the deadliest creature in Greek mythology.
 
 ### Chapter 3: The Origins of Zoroastrianism  
@@ -253,9 +250,7 @@ Alexander the Great was an archetype for the Jesus figure. The jews declared him
 
 YHWH = Jehova = Jove (Yoweh is similar to Latin Iove) = Jupiter = Ye-Zeus (YHWH + Zeus). Alexander claimed to be the son of Zeus (Zeus-Amun, Zeus-Ahura Mazda, Zeus-Yahweh, etc.).
 
-<p align="center">
-<img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEifs7dG7rR6ELZ0YN_bJRg1OnnZ_ZSuTjdSPbOEt3xI8n_SmQdUX9ZkN_wsNykEKob5zMFqZpKLTFuFn_jQmwPYpbfS4-dObo5gnyDgSnbe0IYeFnIFDCVAaQ2176qwn8CPIZ8Vq7pKFXB5NVFVrKkCnRHPKGujSVsrNB3zMbDvaliXt5Vmuameaz-z49I/s259/Alexander.png" width="400"></p>
-
+![Fig. 1.4](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEifs7dG7rR6ELZ0YN_bJRg1OnnZ_ZSuTjdSPbOEt3xI8n_SmQdUX9ZkN_wsNykEKob5zMFqZpKLTFuFn_jQmwPYpbfS4-dObo5gnyDgSnbe0IYeFnIFDCVAaQ2176qwn8CPIZ8Vq7pKFXB5NVFVrKkCnRHPKGujSVsrNB3zMbDvaliXt5Vmuameaz-z49I/s259/Alexander.png)
 
 <p align="center">
   
@@ -337,9 +332,7 @@ Simon had a couple Gnostic sects that worshiped him: the Simonians [^62], and a 
 
 Simon's line of descent to focus on is through his grandson Alexander (son of King Herod) aka Juba II ("Iuba" is most likely a diminutive of Iehuva, but "Iuba" also translates to "love" in the Berber languages of Mauretania that he was king of exactly like "Philo" translates to "love" in ancient Greek) who was Simon's grandson through his daughter Mariamne Boethus [^69]. Alexander (son of King Herod) was married to Cleopatra Selene II (daughter of Mark Antony and Cleopatra VII) aka Queen Thea Muse Ourania. Alexander (son of King Herod) and Cleopatra Selene II were both adopted by Julius Caesar and were raised in Rome (Julius Caesar and Augustus adopted heirs of many royal families and got them to intermarry because then every Roman client state would be ruled by a single family and they would then be easier to control through proxy)).
 
-<p align="center">
-<img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjFSLLYvMZx3v6PQyiK_xcyAb0dO-6tAfrLxLYhNlgyFuc18Vld7oXgKlw4dDbtSFV2S19UlpQxoE1d8IVMaiN9k_e0_uhhFTTM8EiJH1gXNX8M5qFrg4X7I4dUeygNml6W2QR4KWXkSIwDfosiif7EBJoMHU0K2NM1yVAdS-oUxbzoNrNxsOZUybrqJlc/s1800/combined.jpg" width="400">
-</p>
+![Fig. 1.5](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjFSLLYvMZx3v6PQyiK_xcyAb0dO-6tAfrLxLYhNlgyFuc18Vld7oXgKlw4dDbtSFV2S19UlpQxoE1d8IVMaiN9k_e0_uhhFTTM8EiJH1gXNX8M5qFrg4X7I4dUeygNml6W2QR4KWXkSIwDfosiif7EBJoMHU0K2NM1yVAdS-oUxbzoNrNxsOZUybrqJlc/s1800/combined.jpg)
 
 <p align="center">Fig 1.5. (L) Alexander (son of King Herod) aka Juba II. (R) Cleopatra Selene II aka Queen Thea Muse Ourania </p>
 
@@ -349,9 +342,7 @@ Alexander (son of King Herod) aka Juba II and Cleopatra Selene II had two promin
 
 * Philo Judaeus of Alexandria ("Julius Philo", of the Julia gens [^74], because she was the adopted granddaughter of Julius Caesar), which was an alias for King Herod's granddaughter (Salome III?) aka Cleopatra (Thea Philopator) of Mauretania aka Cleopatra IX aka Pythodorida Philometor aka Helene aka Drusilla of Mauretania aka Julia Ourania of Parthia aka Theophilus in the bible. She was also 'Pallas' (as in the ancient Greek goddess 'Pallas-Athena' who in mythology frequently disguised herself as a man) [^75] who was Claudius and Nero's secretary, and 'Antonia Caenis' ('Caenis' was the Greek goddess who was transformed into a man), who was Vespasian's mistress [^76]
 
-<p align="center">
-<img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhnuogIGVjK2GcbSQnbDi5NQzRAo7k4Rv5e7tev5RJLRqYVo6-GglMLiK8BJmXdIZVNbzINyAfjbaHdg6jwVHaF6GgddSVAp3fYjFn_3boTsQ6ie-jPR7PhwmdhM79ts9AD7a80bo5Q1DQLRb94z-bgs6-gb4KZbRsY_y-EqVlFeQlmJ0dPHI50Q6IXkhY/s1296/AlexanderPhilo.jpg" width="400">
-</p>  
+![Fig. 1.6](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhnuogIGVjK2GcbSQnbDi5NQzRAo7k4Rv5e7tev5RJLRqYVo6-GglMLiK8BJmXdIZVNbzINyAfjbaHdg6jwVHaF6GgddSVAp3fYjFn_3boTsQ6ie-jPR7PhwmdhM79ts9AD7a80bo5Q1DQLRb94z-bgs6-gb4KZbRsY_y-EqVlFeQlmJ0dPHI50Q6IXkhY/s1296/AlexanderPhilo.jpg)
 
 <p align="center">
 Fig. 1.6. (L) Alexander (grandson of King Herod) aka Gaius Julius Alexander, Herodian Prince of Judaea aka Alexander the Alabarch aka (King/Tetrarch) Ptolemy (Alexander) bar Menneus aka Ptolemy of Mauretania aka "Jesus" in the bible. (R) Cleopatra (Thea Philopator) of Mauretania aka Cleopatra IX aka Pythodorida Philometor aka Helene aka Drusilla of Mauretania aka Julia Ourania of Parthia aka "Philo of Alexandria".</p>
@@ -364,10 +355,7 @@ Endnotes (Chapter 8)
 
 Christianity is the combination of several religions and myths that were amalgamated. The Ptolemaic cult of Alexander the Great, Serapis cult, Roman imprial cult, Gnosticism, the Roman myth of Quirinus aka Romulus [^77], the Divine Julius cult [^78], and the messianic archetypes of Alexander the Great and Scipio Africanus [^79] who most ancient Roman leaders, but especially Julius Caesar, modelled themselves after.
 
-<p align="center">
-<img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhnq0jxzeQae7XTqCrtwXHdrZswqBc59cjLzPMcpmMAGrBRW6Sc4RrDmfh0zqri3liZggFDtHvok1Kx_4a_i_68YkiFHe2EqHLvqAY46ftMl9L42L5UEkSAUp-27WQgQjHhfBOACZev-y9Ducq-HV5tYc8rldWjOvXhbmeTSo3l7s9A42uBxGak-wwj5lM/s500/Denarius_C._Memmius_C._F._Romulus.jpg" width="400">
-</p>
-
+![Fig. 1.7](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhnq0jxzeQae7XTqCrtwXHdrZswqBc59cjLzPMcpmMAGrBRW6Sc4RrDmfh0zqri3liZggFDtHvok1Kx_4a_i_68YkiFHe2EqHLvqAY46ftMl9L42L5UEkSAUp-27WQgQjHhfBOACZev-y9Ducq-HV5tYc8rldWjOvXhbmeTSo3l7s9A42uBxGak-wwj5lM/s500/Denarius_C._Memmius_C._F._Romulus.jpg)
 
 <p align="center">
 Fig. 1.7. Romulus. He was born to a virgin, the son of god, hailed as a King, crucified [^80] by a conniving elite and rose from the dead. See: 'Romulus' (75AC) by Plutarch.</p>
@@ -384,9 +372,7 @@ Alexander (grandson of King Herod), who was the richest man in the world at the 
 
 * Tiberius Julius Alexander (Tiberius Julius Alexander's son was named 'Philopappos' and one of his mothers recorded maiden aliases was 'Alexandria bat Matthias' [^83] which is where the pseudonym 'Joseph bar Matthias' comes from. Also, drop the initial b and final s in the name "Bar Mathias" and you get (Joseph of) Arimathea) aka Arrius Calpernius Piso [^84] and Arrius comes from "Arrius Varus" [^85], one of his many alias, which in turn is probably a diminutive of his uncle's name Aristobulus) aka Emperor Nerva [^86].
 
-<p align="center">
-<img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjHHy4eICOzN66fUd19fh8yxL1kX3Ap939gBs0403VhSGVm3zQ5iJ84zIoC1Wc-33vWkrmf8yiZjgIn5ss_7MqoBYhbE9n92iffxgPOOWHD70F806umzCXu-4fTKrlvBo5IMko4jhudJ0Q1VaqzS76oeeEnyftYnZh87JldBVl1KG1eJwXS8Fz19ocJaL8/s1115/Josephus%20(1).jpg" width="400">
-</p>
+![Fig. 1.8](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjHHy4eICOzN66fUd19fh8yxL1kX3Ap939gBs0403VhSGVm3zQ5iJ84zIoC1Wc-33vWkrmf8yiZjgIn5ss_7MqoBYhbE9n92iffxgPOOWHD70F806umzCXu-4fTKrlvBo5IMko4jhudJ0Q1VaqzS76oeeEnyftYnZh87JldBVl1KG1eJwXS8Fz19ocJaL8/s1115/Josephus%20(1).jpg)
 
 <p align="center">
 Fig. 1.8. Erroneously identified 'Josephus' bust which I identify as Tiberius Julius Alexander. Compare it to Nerva's depictions</p>
@@ -394,9 +380,7 @@ Fig. 1.8. Erroneously identified 'Josephus' bust which I identify as Tiberius Ju
 Emperor Vespasian was another likely grandson of King Herod. He was Herod Pollio aka Herod Agrippa I, son of King Herod's son Aristobulus IV who was Julius Caesar's adopted son [^87] (ignore the elder busts of him which have idealized Julio-Claudian features and look at his youngest depictions [^88]. Vespasian was his title, not his name (Vas/Bas was the royal abbreviation for the Greek word Basilius which = King, and Pasius = Peace. 'Vespasian' = 'King Peace'). He was also 'Flavius Scaevinus' the conspirator who was involved in Nero's assassination. 'Philo of Alexandria' aka Salome III was also 'Antonia Caenis' who was Vespasian's first cousin and mistress and her son Tiberius Julius Alexander was Vespasian's son-in-law/adopted son and the Prefect (leader) of the Praetorian Guard which made him arguably the most powerful man in the empire during Vespasian's reign. Philo of Alexandria aka Salome III was also the first cousin and ex-mother-in-law to King Herod's granddaughter Berenice aka St. Veronica (Veronica is a transliteration of the Greek name Berenike meaning 'victory') who was empress of Rome through her relationship with Vespasian's son Titus. Berenice's brother, Marcus Julius Agrippa II, whom she was in an incestuous relationship with [^89] before moving on to her cousin, was the governor of all foreign Roman territories except Egypt (which was governed by Tiberius Julius Alexander) during the Flavian period..
 
 
-<p align="center">
-<img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjvwLJq_qm6wUPcu9rbi_x8aYUnfJ0BWuYROtV9FvUZ_f_LkITFbd67uS5vU7mh9pR7Oo1SxlRRcuZG7GDXtuT4xYbMw7a6RSieSaJBT7r2OAoa9pYZ5bNlMNj24SBxJEniQKGHc3Zc-QEjucpkb_CyJ7C_lUYkEHUe2RekRCiCf5cpdfMqsLRhJ5moggA/s3130/Vespasian%20(1).jpg" width="400">
-</p>
+![Fig. 1.9](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjvwLJq_qm6wUPcu9rbi_x8aYUnfJ0BWuYROtV9FvUZ_f_LkITFbd67uS5vU7mh9pR7Oo1SxlRRcuZG7GDXtuT4xYbMw7a6RSieSaJBT7r2OAoa9pYZ5bNlMNj24SBxJEniQKGHc3Zc-QEjucpkb_CyJ7C_lUYkEHUe2RekRCiCf5cpdfMqsLRhJ5moggA/s3130/Vespasian%20(1).jpg)
 
 <p align="center">
 Fig. 1.9. Compare Vespasian's depiction to Herod Agrippa I</p>  
@@ -405,19 +389,16 @@ Emperor Vitellius was probably an alias for Vespasian's older brother Titus Flav
 
 So, five emperors in a row were King Herod's grandsons or great-grandsons: Vitellius, Vespasian, Titus, Domitian, and Nerva.
 
-
-<p align="center">
-<img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgTVPKVkivFfMXq9MmCSCo-VUUt7i_a3lLYI1k4DLvRN2BqXjH1VlaXWpP-sSxgaLH2ri-BCZ82h9C9pp-J17X3RGfIWJLEiKf9NKj1emwmZgR_lxHEXSqAeITieZEr-e86v3Laf1hynvzbQhbYzW7dKrlElNTmJ4vNEFFiJRWuPrhYwWn6jWf3iR7y1ew/s2000/Emperors.jpeg" width="400">
-</p>
+![Fig. 1.10](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgTVPKVkivFfMXq9MmCSCo-VUUt7i_a3lLYI1k4DLvRN2BqXjH1VlaXWpP-sSxgaLH2ri-BCZ82h9C9pp-J17X3RGfIWJLEiKf9NKj1emwmZgR_lxHEXSqAeITieZEr-e86v3Laf1hynvzbQhbYzW7dKrlElNTmJ4vNEFFiJRWuPrhYwWn6jWf3iR7y1ew/s2000/Emperors.jpeg)
 
 <p align="center">
 Fig. 1.10. Note how the Roman emperor phenotype changes dramatically after Otho</p>
 
 Every Roman Emperor from Hadrian (likely an acronym for Herodian [^90] onward descends from King Herod mainly through two women: Arria the Younger and Cleopatra of Mauretania or Cleopatra IX ("Philo"), and by my count 37 Roman and Byzantine emperors bore the title "Flavius" and it's later Greek->Latin transliteration "Phlabios" ("Shabbos").
 
-<p align="center">
-<img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEioe0Mg4gfE727jr229mkCGA8ZNU2mBvL-gO2H1MPve6NStmuU4pK2l5a2jkNny_CG_p4S84r5KDuEPYwpsnpFbcFcX_apZOCthvqmA-whOay_cFsUe2iPJ9RwbsF60eZiwt2Q7ZPm3QAv6zWUjkIgWRwkOKCBp3UgI4ZWvxjKBMRkUB20Wgkc6bVk6tbY/s1306/constantineandfather.jpg" width="400">
-</p>
+
+![Fig. 1.11](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEioe0Mg4gfE727jr229mkCGA8ZNU2mBvL-gO2H1MPve6NStmuU4pK2l5a2jkNny_CG_p4S84r5KDuEPYwpsnpFbcFcX_apZOCthvqmA-whOay_cFsUe2iPJ9RwbsF60eZiwt2Q7ZPm3QAv6zWUjkIgWRwkOKCBp3UgI4ZWvxjKBMRkUB20Wgkc6bVk6tbY/s1306/constantineandfather.jpg")
+
 
 <p align="center">
 Fig. 1.11. (L) Constantius Chlorus. The father of emperor Constantine (R) Emperor Flavius Constantine/Constantinus who carried the Flavian title.</p>  
