@@ -56,17 +56,15 @@ Appendix B. Expulsions from Rome for Trying to Spread Religions\
 Preface
 ------------------
 
-Every year-zero religion since the Axial Age came from the same priestly
-family of jews who can be traced back to Babylon, and every one of the
-religions that they created were slave-morality suicide cults. Under the
-surface-level narratives of all these slave-morality religions lies the
-exact same system: they replace ethnic gods and pantheons with
-monotheism, transvaluate ethnic values, and subvert a population by
-weaponizing the 'ressentiment' of the outcastes so that they attack the
-warrior and aristocratic castes. Christianity is a slave morality that
-was created by the same line of Jewish High Priests (kohanim) who
-created Zoroastrianism and was grafted onto an imperial cult with the
-Old Testament added in to subconsciously connect the Romans to Jews.
+The central points of this books can be summarized as follows:
+
+1)There existed a Byzantine imperial cult where Julius Caesar took on the role of Asander of Bosphorus, and Cleopatra took on the role of Dynamis, queen of Bosphorus. \
+2)The elites of antiquity used numerous aliases and regional identities as part of their colonial program. \
+3)The imperial Byzantine cult mentioned above was subverted by a group of Jewish high priests (kohanim) who were headed by a rabbi named Akiva.\
+4)The same line of Jewish high priests who created Zoroastrianism created Christianity. \
+5)Converting people to a new religion is an impossible task. Instead, through syncretism - creating a new sect of an established religion - can facilitate a more gradual and palatable transition, that is why the Byzantine imperial cult remained at the core of the Christian religion.
+
+My thesis addresses the question of motive, and who benefitted from the invention of Christianity, and my methodologies are multi-faceted: revisionist historiography, counter-narrative analysis, and historical deconstruction. The main sources that inspired my research are listed in the 'further reading' section below. 
 
 Characters
 ---------------------
@@ -1524,6 +1522,7 @@ https://archive.org/details/the-origins-of-christianity-by-revilo-p-oliver-z-lib
 *Reflections on the Christ Myth* (1994) by Revilo P. Oliver
 https://ia600201.us.archive.org/22/items/ReflectionsOnTheChristMyth_518/ReflectionsOnTheChristMyth-Oliver.pdf
 [link]
+
 *Cleopatra to Christ* (2010) by Ralph Ellis
 https://www.amazon.com/Cleopatra-Christ-great-grandson-Cleopatra-Trilogy/dp/1508465886
 [[link](https://www.google.com/books/edition/Cleopatra_to_Christ/T7sqfHyWPuQC?hl=en&gbpv=1&dq=cleopatra+to+christ&printsec=frontcover)]
