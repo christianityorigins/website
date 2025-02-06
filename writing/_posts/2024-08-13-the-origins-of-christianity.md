@@ -257,7 +257,7 @@ later called Constantinople and now Istanbul was/is located in the area
 called Bosphorus), and his wife Cleopatra used the regional alias of
 Dynamis Ourania [^4] (translates to 'heavenly power'), queen of Bosporus
 
-![Fig.1.1](/images/cleopatra.png)
+![Fig.1.1](/images/cleopatra.png){:width="400px"}
 
 Fig. 1.1. (L) Julia Mamaea, Queen of Pontus (wife of Polemon II), (R)
 Cleopatra VII. If Polemon Pythodoros, King of Pontus was Julius Caesar's
@@ -319,7 +319,7 @@ Adiabene/Edessa aka Ptolemy aka Yakov Zu Tolomoy aka Izates aka Jesus
 Emmanuel aka Monobazus of Adiabene [^7]
 
 ![Fig.
-1.2](/images/coin-abgar-phraates.png)
+1.2](/images/coin-abgar-phraates.png){:width="400px"}
 
 Fig. 1.2. (L) and (R) show King Izates Monobazus of Edessa (known in
 Greek as the 'Kingdom of Ourania' or in English as the 'Kingdom of
@@ -330,7 +330,7 @@ and Sultan Ezid in the Yazadi ('Iza'di) religion. He was the uncle of
 Tiberius Julius Sauromates II, King of Bosphorus. The middle image
 source: The Alexander Mosaic, Huqoq, Israel.
 
-![Fig.1.3](/images/SauromatesII.jpg)
+![Fig.1.3](/images/SauromatesII.jpg){:width="400px"}
 
 Fig. 1.3. Tiberius Julius Sauromates II, King of Bosphorus, who was the
 son of Tiberius Julius Cotys (aka Tiberius Julius Alexander aka Arrius
@@ -950,7 +950,7 @@ Ye-Zeus (YHWH + Zeus). Alexander claimed to be the son of Zeus
 (Zeus-Amun, Zeus-Ahura Mazda, Zeus-Yahweh, etc.).
 
 ![Fig.
-1.4](/images/Alexander.png)
+1.4](/images/Alexander.png){:width="400px"}
 
 Fig. 1.4. Alexander the Great as Zeus Ammon (or Jupiter Ammon), the ram
 god. The Greeks had identified the Egyptian god Ammon with Zeus, the
@@ -1262,7 +1262,7 @@ because then every Roman client state would be ruled by a single family
 and they would then be easier to control through proxy)).
 
 ![Fig.
-1.5](/images/JubaIICleopatraSeleneIIakaQueenTheaMuseOurania.jpg)
+1.5](/images/JubaIICleopatraSeleneIIakaQueenTheaMuseOurania.jpg){:width="400px"}
 
 Fig 1.5. (L) Alexander (son of King Herod) aka Juba II. (R) Cleopatra
 Selene II aka Queen Thea Muse Ourania
@@ -1300,7 +1300,7 @@ two prominent children who were married to each other:
     Vespasian's mistress [^75]
 
 ![Fig.
-1.6](/images/AlexanderPhilo.jpg)
+1.6](/images/AlexanderPhilo.jpg){:width="400px"}
 
 Fig. 1.6. (L) Alexander (grandson of King Herod) aka Gaius Julius
 Alexander, Herodian Prince of Judaea aka Alexander the Alabarch aka
@@ -1332,7 +1332,7 @@ Alexander the Great and Scipio Africanus [^78] who most ancient Roman
 leaders, but especially Julius Caesar, modelled themselves after.
 
 ![Fig.
-1.7](/images/Denarius_C._Memmius_C._F._Romulus.jpg)
+1.7](/images/Denarius_C._Memmius_C._F._Romulus.jpg){:width="400px"}
 
 Fig. 1.7. Romulus. He was born to a virgin, the son of god, hailed as a
 King, crucified [^79] by a conniving elite and rose from the dead. See:
@@ -1365,7 +1365,7 @@ Alexandria" had two prominent sons:
     uncle's name Aristobulus) aka Emperor Nerva [^85].
 
 ![Fig.
-1.8](/images/Josephus.jpg)
+1.8](/images/Josephus.jpg){:width="400px"}
 
 Fig. 1.8. Erroneously identified 'Josephus' bust which I identify as
 Tiberius Julius Alexander. Compare it to Nerva's depictions
@@ -1393,7 +1393,7 @@ territories except Egypt (which was governed by Tiberius Julius
 Alexander) during the Flavian period..
 
 ![Fig.
-1.9](/images/Vespasian.jpg)
+1.9](/images/Vespasian.jpg){:width="400px"}
 
 Fig. 1.9. Compare Vespasian's depiction to Herod Agrippa I
 
@@ -1409,7 +1409,7 @@ So, five emperors in a row were King Herod's grandsons or
 great-grandsons: Vitellius, Vespasian, Titus, Domitian, and Nerva.
 
 ![Fig.
-1.10](/images/emperors.png)
+1.10](/images/emperors.png){:width="400px"}
 
 Fig. 1.10. Note how the Roman emperor phenotype changes dramatically
 after Otho
@@ -1421,7 +1421,7 @@ count 37 Roman and Byzantine emperors bore the title "Flavius" and it's
 later Greek->Latin transliteration "Phlabios" ("Shabbos").
 
 ![Fig.
-1.11](/images/constantineandfather.jpg)
+1.11](/images/constantineandfather.jpg){:width="400px"}
 
 Fig. 1.11. (L) Constantius Chlorus. The father of emperor Constantine
 (R) Emperor Flavius Constantine/Constantinus who carried the Flavian
