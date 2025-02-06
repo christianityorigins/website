@@ -257,7 +257,7 @@ later called Constantinople and now Istanbul was/is located in the area
 called Bosphorus), and his wife Cleopatra used the regional alias of
 Dynamis Ourania [^4] (translates to 'heavenly power'), queen of Bosporus
 
-![Fig.1.1](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjZBJMJdUc27tr0Op57UIgh1sL0NtWlW5JA-6RJtIlmnnBDbJR3yR9D0B4KfefhVX_yTo7zIwQo1mEEdtwjI2HWmUR67wNKKSYnoVcdib5o2srvsgrC9WLxAYp6paX9yTuuk6XHYmQeVrx9fkw039Nu8CmeOH2HZ4FHW5hgERyxj0AmVAtw42tMVJKJFVs/s947/image.png)
+![Fig.1.1](/images/cleopatra.png)
 
 Fig. 1.1. (L) Julia Mamaea, Queen of Pontus (wife of Polemon II), (R)
 Cleopatra VII. If Polemon Pythodoros, King of Pontus was Julius Caesar's
@@ -319,7 +319,7 @@ Adiabene/Edessa aka Ptolemy aka Yakov Zu Tolomoy aka Izates aka Jesus
 Emmanuel aka Monobazus of Adiabene [^7]
 
 ![Fig.
-1.2](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgkg6HruekpVy4HBBuLQSuMiuGOR2wu3EZ76AfMbs-6IwmFJ-vz4vyT_oWC0auWEf-hb3-OOXjsrcPBXi97b0FHy0w75CfU4u6Y7TpDAEKqpvzDD00Yzv1HkrYWJ1ARGblqY3_B8U_KVfgx9lAx1h7ghnU42xnq9LNMlmXFWvHR_6gjGP7EzM2BE12JEK4/s1163/coin-abgar-phraates-imageonline.co-merged.png)
+1.2](/images/coin-abgar-phraates.png)
 
 Fig. 1.2. (L) and (R) show King Izates Monobazus of Edessa (known in
 Greek as the 'Kingdom of Ourania' or in English as the 'Kingdom of
@@ -330,8 +330,7 @@ and Sultan Ezid in the Yazadi ('Iza'di) religion. He was the uncle of
 Tiberius Julius Sauromates II, King of Bosphorus. The middle image
 source: The Alexander Mosaic, Huqoq, Israel.
 
-![Fig.
-1.3](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEikChO0ZBc91tmTcx-Uj9xf7LUCH5SxzLDFJII1MZAOrwYwZ-tslrScPHQs20c8WhOW_GJvpfZ8eEYkUeAYtxJrjl18Spq9GhxILCl4wX4w1VlCNMZmlVfAel0Cr1GEICQPHQsIlDNY917lglrPrC1rxmgVhVzzU6150S1ZQBvRmHaBheNUGKy4QFfON28/s674/image.jpg)
+![Fig.1.3](/images/SauromatesII.jpg)
 
 Fig. 1.3. Tiberius Julius Sauromates II, King of Bosphorus, who was the
 son of Tiberius Julius Cotys (aka Tiberius Julius Alexander aka Arrius
@@ -951,7 +950,7 @@ Ye-Zeus (YHWH + Zeus). Alexander claimed to be the son of Zeus
 (Zeus-Amun, Zeus-Ahura Mazda, Zeus-Yahweh, etc.).
 
 ![Fig.
-1.4](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEifs7dG7rR6ELZ0YN_bJRg1OnnZ_ZSuTjdSPbOEt3xI8n_SmQdUX9ZkN_wsNykEKob5zMFqZpKLTFuFn_jQmwPYpbfS4-dObo5gnyDgSnbe0IYeFnIFDCVAaQ2176qwn8CPIZ8Vq7pKFXB5NVFVrKkCnRHPKGujSVsrNB3zMbDvaliXt5Vmuameaz-z49I/s259/Alexander.png)
+1.4](/images/Alexander.png)
 
 Fig. 1.4. Alexander the Great as Zeus Ammon (or Jupiter Ammon), the ram
 god. The Greeks had identified the Egyptian god Ammon with Zeus, the
@@ -1263,7 +1262,7 @@ because then every Roman client state would be ruled by a single family
 and they would then be easier to control through proxy)).
 
 ![Fig.
-1.5](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjFSLLYvMZx3v6PQyiK_xcyAb0dO-6tAfrLxLYhNlgyFuc18Vld7oXgKlw4dDbtSFV2S19UlpQxoE1d8IVMaiN9k_e0_uhhFTTM8EiJH1gXNX8M5qFrg4X7I4dUeygNml6W2QR4KWXkSIwDfosiif7EBJoMHU0K2NM1yVAdS-oUxbzoNrNxsOZUybrqJlc/s1800/combined.jpg)
+1.5](/images/JubaIICleopatraSeleneIIakaQueenTheaMuseOurania.jpg)
 
 Fig 1.5. (L) Alexander (son of King Herod) aka Juba II. (R) Cleopatra
 Selene II aka Queen Thea Muse Ourania
@@ -1301,7 +1300,7 @@ two prominent children who were married to each other:
     Vespasian's mistress [^75]
 
 ![Fig.
-1.6](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhnuogIGVjK2GcbSQnbDi5NQzRAo7k4Rv5e7tev5RJLRqYVo6-GglMLiK8BJmXdIZVNbzINyAfjbaHdg6jwVHaF6GgddSVAp3fYjFn_3boTsQ6ie-jPR7PhwmdhM79ts9AD7a80bo5Q1DQLRb94z-bgs6-gb4KZbRsY_y-EqVlFeQlmJ0dPHI50Q6IXkhY/s1296/AlexanderPhilo.jpg)
+1.6](/images/AlexanderPhilo.jpg)
 
 Fig. 1.6. (L) Alexander (grandson of King Herod) aka Gaius Julius
 Alexander, Herodian Prince of Judaea aka Alexander the Alabarch aka
@@ -1333,7 +1332,7 @@ Alexander the Great and Scipio Africanus [^78] who most ancient Roman
 leaders, but especially Julius Caesar, modelled themselves after.
 
 ![Fig.
-1.7](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhnq0jxzeQae7XTqCrtwXHdrZswqBc59cjLzPMcpmMAGrBRW6Sc4RrDmfh0zqri3liZggFDtHvok1Kx_4a_i_68YkiFHe2EqHLvqAY46ftMl9L42L5UEkSAUp-27WQgQjHhfBOACZev-y9Ducq-HV5tYc8rldWjOvXhbmeTSo3l7s9A42uBxGak-wwj5lM/s500/Denarius_C._Memmius_C._F._Romulus.jpg)
+1.7](/images/Denarius_C._Memmius_C._F._Romulus.jpg)
 
 Fig. 1.7. Romulus. He was born to a virgin, the son of god, hailed as a
 King, crucified [^79] by a conniving elite and rose from the dead. See:
@@ -1366,7 +1365,7 @@ Alexandria" had two prominent sons:
     uncle's name Aristobulus) aka Emperor Nerva [^85].
 
 ![Fig.
-1.8](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjHHy4eICOzN66fUd19fh8yxL1kX3Ap939gBs0403VhSGVm3zQ5iJ84zIoC1Wc-33vWkrmf8yiZjgIn5ss_7MqoBYhbE9n92iffxgPOOWHD70F806umzCXu-4fTKrlvBo5IMko4jhudJ0Q1VaqzS76oeeEnyftYnZh87JldBVl1KG1eJwXS8Fz19ocJaL8/s1115/Josephus%20(1).jpg)
+1.8](/images/Josephus.jpg)
 
 Fig. 1.8. Erroneously identified 'Josephus' bust which I identify as
 Tiberius Julius Alexander. Compare it to Nerva's depictions
@@ -1394,7 +1393,7 @@ territories except Egypt (which was governed by Tiberius Julius
 Alexander) during the Flavian period..
 
 ![Fig.
-1.9](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjvwLJq_qm6wUPcu9rbi_x8aYUnfJ0BWuYROtV9FvUZ_f_LkITFbd67uS5vU7mh9pR7Oo1SxlRRcuZG7GDXtuT4xYbMw7a6RSieSaJBT7r2OAoa9pYZ5bNlMNj24SBxJEniQKGHc3Zc-QEjucpkb_CyJ7C_lUYkEHUe2RekRCiCf5cpdfMqsLRhJ5moggA/s3130/Vespasian%20(1).jpg)
+1.9](/images/Vespasian.jpg)
 
 Fig. 1.9. Compare Vespasian's depiction to Herod Agrippa I
 
@@ -1410,7 +1409,7 @@ So, five emperors in a row were King Herod's grandsons or
 great-grandsons: Vitellius, Vespasian, Titus, Domitian, and Nerva.
 
 ![Fig.
-1.10](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgTVPKVkivFfMXq9MmCSCo-VUUt7i_a3lLYI1k4DLvRN2BqXjH1VlaXWpP-sSxgaLH2ri-BCZ82h9C9pp-J17X3RGfIWJLEiKf9NKj1emwmZgR_lxHEXSqAeITieZEr-e86v3Laf1hynvzbQhbYzW7dKrlElNTmJ4vNEFFiJRWuPrhYwWn6jWf3iR7y1ew/s2000/Emperors.jpeg)
+1.10](/images/emperors.png)
 
 Fig. 1.10. Note how the Roman emperor phenotype changes dramatically
 after Otho
@@ -1422,7 +1421,7 @@ count 37 Roman and Byzantine emperors bore the title "Flavius" and it's
 later Greek->Latin transliteration "Phlabios" ("Shabbos").
 
 ![Fig.
-1.11](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEioe0Mg4gfE727jr229mkCGA8ZNU2mBvL-gO2H1MPve6NStmuU4pK2l5a2jkNny_CG_p4S84r5KDuEPYwpsnpFbcFcX_apZOCthvqmA-whOay_cFsUe2iPJ9RwbsF60eZiwt2Q7ZPm3QAv6zWUjkIgWRwkOKCBp3UgI4ZWvxjKBMRkUB20Wgkc6bVk6tbY/s1306/constantineandfather.jpg%22)
+1.11](/images/constantineandfather.jpg)
 
 Fig. 1.11. (L) Constantius Chlorus. The father of emperor Constantine
 (R) Emperor Flavius Constantine/Constantinus who carried the Flavian
