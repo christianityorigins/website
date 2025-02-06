@@ -56,7 +56,9 @@ Appendix B. Expulsions from Rome for Trying to Spread Religions\
 Preface
 ------------------
 
-The central points of this books can be summarized as follows:
+Setting the stage. 
+
+The central points of this book can be summarized as follows:
 
 1)There existed a Byzantine imperial cult where Julius Caesar took on the role of Asander of Bosphorus, and Cleopatra took on the role of Dynamis, queen of Bosphorus. \
 2)The elites of antiquity used numerous aliases and regional identities as part of their colonial program. \
