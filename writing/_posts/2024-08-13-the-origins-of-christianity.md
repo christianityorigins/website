@@ -56,17 +56,13 @@ Appendix B. Expulsions from Rome for Trying to Spread Religions\
 Preface
 ------------------
 
-Setting the stage. 
-
 The central points of this book can be summarized as follows:
 
-1)There existed a Byzantine imperial cult where Julius Caesar took on the role of Asander of Bosphorus, and Cleopatra took on the role of Dynamis, queen of Bosphorus. \
-2)The elites of antiquity used numerous aliases and regional identities as part of their colonial program. \
-3)The imperial Byzantine cult mentioned above was subverted by a group of Jewish high priests (kohanim) who were headed by a rabbi named Akiva.\
-4)The same line of Jewish high priests who created Zoroastrianism created Christianity. \
-5)Converting people to a new religion is an impossible task. Instead, through syncretism - creating a new sect of an established religion - can facilitate a more gradual and palatable transition, that is why the Byzantine imperial cult remained at the core of the Christian religion.
+* There existed a Byzantine imperial cult where Julius Caesar took on the role of Asander of Bosphorus, and Cleopatra took on the role of Dynamis, queen of Bosphorus. \
+* The "Jesus" figure originates with Julius Caesar, I(J)upiter-Zeus (I-Zeus), and became an avatar for several later leaders.
+* Sometime after the Bar Kokhba Revolt (132--136 CE), Talmudic jews who were students of a rabbi named Akiva and who had connections to the 'Alexandrian School' in Egypt, and who were hiding out in the Himyarite Kingdom after Emperor Hadrian kicked them out of judea, cut-and-pasted from the aformentioned Byzantine-Roman imperial cult and repackaged it with two psy-ops: a slave morality for the Romans (Christianity), and warrior cult (Islam) to weaponize the Arabs to attack eastern Rome (Allah and Muhammad the red-headed warlord were parodies of Attila the Hun and his uncle Ruglia waging war against Rome ("Edom") because they wanted the Arabs to attack eastern Rome). Rabbi Akiva created modern Judaism to create ethnocentrism in the form of a religion, Markianos of Alexandria aka Marcion of Sinope did the slave-morality of Christianity, and Simon ben Yohai created the warrior-morality of Islam and The Secrects of Rabbi Simon ben Yohai. 
 
-My thesis addresses the question of motive, and who benefitted from the invention of Christianity, and my methodologies are multi-faceted: revisionist historiography, counter-narrative analysis, and historical deconstruction. The main sources that inspired my research are listed in the 'further reading' section below. 
+My research is focused on identifying the people who wrote the bible, the context in which they wrote it, and my thesis addresses the question of motive, specifically, who benefitted from the invention of Christianity. My methodologies are multi-faceted; revisionist historiography, counter-narrative analysis, and historical deconstruction. The main sources that inspired my research are listed in the 'further reading' section below. 
 
 Characters
 ---------------------
@@ -546,31 +542,12 @@ Endnotes (Chapter 1)
 (d) The Letter to Flora and the Tripartite Tractate write about a
     Gnostic teacher called "Ptolemy" who I identify as Ptolemy Menneus
     aka Simon Boethus aka Simon Magus.\
-(e) Basically, talmudic jews who were at some point scribes at the
-    'Alexandrian School' in Egypt and who were hiding out in the
-    Himyarite Kingdom after Emperor Hadrian kicked them out of judea,
-    and led by Rabbi Shimon bar Yochai, just cut-and-pasted from one of
-    the earliest versions of a Byzantine-Roman imperial cult and
-    repackaged it with two psy-ops: a slave morality/proto-bolshavism
-    for the Romans (Christianity), and warrior cult (Islam) to weaponize
-    the Arabs to attack eastern Rome. Allah and Muhammad the red-headed
-    warlord were parodies of Attila the Hun and his uncle Ruglia waging
-    war against Rome ("Edom") because they wanted the Arabs to attack
-    eastern Rome. Rabbi Akiva created modern Judaism to create
-    ethnocentrism in the form of a religion, Markianos of Alexandria aka
-    Marcion of Sinope did the slave-morality of Christianity, and Simon
-    ben Yohai created the warrior-morality of Islam and The Secrects of
-    Rabbi Simon ben Yohai. The Secrets of Rabbi Simon ben Yohai also
-    contains other strategies to destroy "Edom", for example, after
-    Ishmael (Arabs) weakened Edom through warfare, it advises that Rome
-    should be flooded with immigrants, specifically Indians ("four-arms"
-    or chaturbhuja).\
-(f) Modern judaism is not the Torah (Old Testament), and has not been
+(e) Modern judaism is not the Torah (Old Testament), and has not been
     for a long time. The Talmud was completed after the New Testiment
     and this is what modern jews follow. Essentially, jews follow the
     program that Rabbi Akiva and his students created (ethnocentrisim in
     the form of a religion).\
-(g) Kabbalists believe that Rabbi Akiba was a gilgul (reincarnation) of
+(f) Kabbalists believe that Rabbi Akiba was a gilgul (reincarnation) of
     Zimri, a prince of the Tribe of Simeon who participated in the
     Heresy of Peor.\
     (h)Vespassian was also a great-grandson of Cleopatra and Mark Antony
@@ -578,7 +555,7 @@ Endnotes (Chapter 1)
     Ancestry of Emperor Vespasian. Henry Davis,
     https://www.henryhdavis.com/theroyalancestryofemperorvespasian
     [[link](https://www.henryhdavis.com/theroyalancestryofemperorvespasian)])
-(h) Several members of this Egyptian-Persian-Anatolian-Greek-Roman
+(g) Several members of this Egyptian-Persian-Anatolian-Greek-Roman
     aristocratic family identified themselves as 'jewish' despite being
     ethnically Celtic Gauls or Aryan Sarmatians. Ptolemy (Alexander) bar
     Menneus/Ptolemy X Alexander I (Simon Boethus) played the role of
