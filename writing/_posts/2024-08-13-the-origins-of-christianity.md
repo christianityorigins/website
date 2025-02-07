@@ -551,7 +551,7 @@ Endnotes (Chapter 1)
     (King Herod) (The Royal Ancestry of Emperor Vespasian (The Royal
     Ancestry of Emperor Vespasian. Henry Davis,
     https://www.henryhdavis.com/theroyalancestryofemperorvespasian
-    [[link](https://www.henryhdavis.com/theroyalancestryofemperorvespasian)])
+    [[link](https://www.henryhdavis.com/theroyalancestryofemperorvespasian)]) \
 (g) Several members of this Egyptian-Persian-Anatolian-Greek-Roman
     aristocratic family identified themselves as 'jewish' despite being
     ethnically Celtic Gauls or Aryan Sarmatians. Ptolemy (Alexander) bar
@@ -1554,7 +1554,8 @@ Footnotes
     called themsevles Rhōmaîoi (Romans), and they hailed from Romania
     (meaning Romanus, or Roman). Most of the 'new History' that we
     accept as fact today was created by the Church Fathers, Jesuits
-    (including all non-European history), and Joseph Justus Scaliger.
+    (including all non-European history), and Joseph Justus Scaliger. \
+    --Sir Isaac Newton, in his book 'The Chronology of Ancient Kingdoms Amended' (1728), claimed that 711 years were added to our calender, and that history was retrofitted to the bible. Anatoly Fomenko increased this number to 1000 years in his books. Anatoly Fomenko claims that all of chronology rests on one guy, Joseph Scaliger (Scaligerian Chronology), the same guy is credited with re-descovery of 80% of the ancient authors and literature, most of the time on demand. Anatoly Fomenko also makes several other controversial claims in his work, specifically that Charlemagne was not a real person, but one of the phantom individuals Catholic Church made up to fill in their phantom 1000 years and Charlemagne is based on a real-life man known as Odoacer. Plato and Gemistus Plethon were one and the same. Genghis Khan and Attila The Hun were the same person. The Black Plague / Great Plague / Black Death / Bubonic Plague (it's a copy to fill in the phantom 1000 years of supposed "Dark Ages") is exactly the same event as the Justinian Plague. Also, the 'first Rome' was based out of Anatolia, in an area that is modern Istanbul. The last point I independently confirmed. Julius Caesar = Asander of Bosphorus, and all early Christianity traces back to to the Bosphorus. 
 
 [^2]: Julius Caesar was his title (Caesar is etymologically similar to
     the Indo-Aryan word for 'king' and Julius (Iulius) is similar to
