@@ -10,12 +10,7 @@ On the Origins of Christianity
 
 By Hugo Pepe
 
-*The Jews, that priestly people of ressentiment who knew how to get
-final satisfaction from their enemies and conquerors through a radical
-transformation of their values, that is, through an act of the most
-spiritual revenge. This was appropriate only to a priestly people with
-the most deeply rooted priestly desire for revenge.* - Friedrich
-Nietzsche
+*I will not presume to speak of anything except what Christ has accomplished through me in leading the Gentiles to obedience by word and deed* - Romans 15:18
 
 Table of Contents
 
@@ -58,11 +53,11 @@ Preface
 
 The central points of this book can be summarized as follows:
 
-* There existed a Byzantine imperial cult where Julius Caesar took on the role of Asander of Bosphorus, and Cleopatra took on the role of Dynamis, queen of Bosphorus. \
-* The "Jesus" figure originates with Julius Caesar, I(J)upiter-Zeus (I-Zeus), and became an avatar for several later leaders.
-* Sometime after the Bar Kokhba Revolt (132--136 CE), Talmudic jews who were students of a rabbi named Akiva and who had connections to the 'Alexandrian School' in Egypt, and who were hiding out in the Himyarite Kingdom after Emperor Hadrian kicked them out of judea, cut-and-pasted from the aformentioned Byzantine-Roman imperial cult and repackaged it with two psy-ops: a slave morality for the Romans (Christianity), and warrior cult (Islam) to weaponize the Arabs to attack eastern Rome (Allah and Muhammad the red-headed warlord were parodies of Attila the Hun and his uncle Ruglia waging war against Rome ("Edom") because they wanted the Arabs to attack eastern Rome). Rabbi Akiva created modern Judaism to create ethnocentrism in the form of a religion, Markianos of Alexandria aka Marcion of Sinope did the slave-morality of Christianity, and Simon ben Yohai created the warrior-morality of Islam and The Secrects of Rabbi Simon ben Yohai. 
+* There existed a Byzantine imperial cult where Julius Caesar took on the role of Asander of Bosphorus, and Cleopatra took on the role of Dynamis, queen of Bosphorus. 
+* The "Jesus" figure in the bible originates with Julius Caesar, I(J)upiter-Zeus (I-Zeus), and became an avatar for several later leaders.
+* Sometime after the Bar Kokhba Revolt (132--136 CE), Talmudic jews who were students of a rabbi named Akiva and who had connections to the 'Alexandrian School' in Egypt, and who were hiding out in the Himyarite Kingdom after Emperor Hadrian kicked them out of judea, cut-and-pasted from the aformentioned Byzantine-Roman imperial cult and repackaged it with two psy-ops: a slave morality for the Romans (Christianity), and warrior cult (Islam) to weaponize the Arabs to attack eastern Rome (Allah and Muhammad the red-headed warlord were parodies of Attila the Hun and his uncle Ruglia waging war against Rome ("Edom") because they wanted the Arabs to attack eastern Rome). Rabbi Akiva created modern Judaism to create ethnocentrism in the form of a religion, and his students Markianos of Alexandria aka Marcion of Sinope did the slave-morality of Christianity and Simon ben Yohai created the warrior-morality of Islam and The Secrects of Rabbi Simon ben Yohai. 
 
-My research is focused on identifying the people who wrote the bible, the context in which they wrote it, and my thesis addresses the question of motive, specifically, who benefitted from the invention of Christianity. My methodologies are multi-faceted; revisionist historiography, counter-narrative analysis, and historical deconstruction. The main sources that inspired my research are listed in the 'further reading' section below. 
+My research is focused on identifying the people who wrote the bible, the context in which they wrote it, and my thesis addresses the question of motive, specifically, who benefitted from the invention of Christianity. My methodologies are multi-faceted: revisionist historiography, counter-narrative analysis, and historical deconstruction. The main sources that inspired my research are listed in the 'further reading' section below. 
 
 Characters
 ---------------------
