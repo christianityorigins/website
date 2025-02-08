@@ -1638,15 +1638,7 @@ Footnotes
 
 [^5]: 
 
-    His name alludes to the Mithras cult which was Romanized
-    Zoroastrianism. The Mithras cult served as a foundation for
-    Christianity. Mithras was born of a virgin, Mithras' birth was
-    celebrated on December 25, Mithras was considered a savior and
-    redeemer, etc., although all these traits are de jure of saviors in
-    ancient religions, probably because they all came from the
-    'Alexandrian School' in Egypt. A way of identifying an
-    'Alexandrian School' religion is that they are 'year-zero', or the
-    calendar begins at the point of the religious saviors' birth. Mithras is inspired from Zoroastrianism, but Mithras is the same as Sabazios. It's a solar son deity, a Jupiter. Mithridates Chrestus's descendant carried the title Monobazus (Manu-Sabazios)/
+    His name alludes to the Mithras cult. Mithraism was spread by Tiridates of Armenia (alias of Alexander, grandson of King Herod, Mithridates Chrestus descendant?) after Rome's defeat of Parthia around 53 AD as a slave-morality religion to subjugate the Parthians. Mithras is inspired from Zoroastrianism, the religion of the Persians/Parthians, but Mithras is the same as Sabazios. It's a solar son deity, a Jupiter (Mithridates Chrestus's descendant carried the title Monobazus aka Manu-Sabazios). The Mithras cult has many similarities to Christianity; Mithras was born of a virgin, Mithras' birth was celebrated on December 25, Mithras was considered a savior and redeemer, etc., although all these traits are de jure of saviors in ancient religions, probably because they all came from the 'Alexandrian School' in Egypt. A way of identifying an 'Alexandrian School' religion is that they are 'year-zero', or the calendar begins at the point of the religious saviors' birth./
 
 [^6]: Jesus ben Fabus who was Isa Amen (Jesus Amen) of Rev. iii. 14 who
     was also Amyntas (Amen(tas)) of Galatia who was also Amyntas Nikator
