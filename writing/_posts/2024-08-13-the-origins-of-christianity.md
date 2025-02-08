@@ -1646,7 +1646,7 @@ Footnotes
     ancient religions, probably because they all came from the
     'Alexandrian School' in Egypt. A way of identifying an
     'Alexandrian School' religion is that they are 'year-zero', or the
-    universe was created at the point of the religious saviors' birth.
+    calendar begins at the point of the religious saviors' birth.
 
 [^6]: Jesus ben Fabus who was Isa Amen (Jesus Amen) of Rev. iii. 14 who
     was also Amyntas (Amen(tas)) of Galatia who was also Amyntas Nikator
