@@ -118,11 +118,8 @@ Characters
 -   Eleazar ben Boethus = Lazarus of Bethany, son of Simon Boethus.
 -   Gautama Buddha = Gaumata Bardya, son of Cyrus the Great.
 -   King Herod = Mark Antony aka Tiberius Claudius Nero aka Phraates IV
-    of Parthia's regional alias (See: 'Jesus Among the Julio-Claudians'
-
-(2017) by Charles N. Pope
-       [[link](https://books.google.se/books/about/Jesus_Among_the_Julio_Claudians.html?id=c7A3DwAAQBAJ&redir_esc=y)]).
-
+    of Parthia's regional alias (See: 'Jesus Among the Julio-Claudians' (2017) by Charles N. Pope
+    [[link](https://books.google.se/books/about/Jesus_Among_the_Julio_Claudians.html?id=c7A3DwAAQBAJ&redir_esc=y)]).
 -   Julius Caesar = Asander, Philocaesar Philoromaios, King of
     Bosphorus.
 -   Marcion of Sinope = Markianos of Alexandria. He grew up in the
