@@ -1338,7 +1338,7 @@ Roman imprial cult, Gnosticism, the Roman myth of Quirinus aka Romulus
 Alexander the Great and Scipio Africanus [^79] who most ancient Roman
 leaders, but especially Julius Caesar, modelled themselves after.
 
-1.7](/images/Denarius_C._Memmius_C._F._Romulus.jpg){:width="400px"}
+![Fig.1.7](/images/Denarius_C._Memmius_C._F._Romulus.jpg){:width="400px"}
 
 Fig. 1.7. Romulus. He was born to a virgin, the son of god, hailed as a
 King, crucified [^80] by a conniving elite and rose from the dead. See:
