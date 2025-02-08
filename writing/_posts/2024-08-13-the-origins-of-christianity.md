@@ -79,7 +79,7 @@ The central points of this book can be summarized as follows:
 -   Most of the 'new History' that we accept as fact today was created
     by Hegesippus (rabbi Akiva's student) aka 'Josephus', the Church
     Fathers, and the Jesuits starting with Joseph Justus Scaliger. Most
-    history was rewritten to retrofit to the bible.
+    history was falsified to retrofit with the bible.
 
 My research is focused on identifying the people who wrote the bible,
 the context in which they wrote it, and my thesis addresses the question
