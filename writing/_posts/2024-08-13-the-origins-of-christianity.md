@@ -300,8 +300,8 @@ regional alias (Asander and Polemon were both married to Dynamis), and if he als
 Sohaemus of Emesa, Priest-King of Emesa, and Cleopatra played the
 regional role of Pythodorida Philometor, then Julia Avita Mamaea of
 Emessa would have been their daughter. Do you see a resemblance? She
-would have been married to her half-brother Polemon II, King of Pontus
-aka Ptolemy Philadelphus aka Sampsiceramus I?The The Bosphorus Kingdom,
+would have been married to her half-brother (Cleopatra and Mark Antony's son) Polemon II, King of Pontus
+aka Ptolemy Philadelphus aka Sampsiceramus I? The Bosphorus Kingdom,
 also known as the Kingdom of the Cimmerian Bosphorus, was located next
 to the Pontus Kingdom
 
