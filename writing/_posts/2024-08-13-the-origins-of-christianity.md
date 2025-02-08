@@ -1646,7 +1646,7 @@ Footnotes
     ancient religions, probably because they all came from the
     'Alexandrian School' in Egypt. A way of identifying an
     'Alexandrian School' religion is that they are 'year-zero', or the
-    calendar begins at the point of the religious saviors' birth.
+    calendar begins at the point of the religious saviors' birth. Mithras is inspired from Zoroastrianism, but Mithras is the same as Sabazios. It's a solar son deity, a Jupiter. Mithridates Chrestus's descendant carried the title Monobazus (Manu-Sabazios)/
 
 [^6]: Jesus ben Fabus who was Isa Amen (Jesus Amen) of Rev. iii. 14 who
     was also Amyntas (Amen(tas)) of Galatia who was also Amyntas Nikator
