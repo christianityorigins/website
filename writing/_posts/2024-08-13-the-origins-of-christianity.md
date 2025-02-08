@@ -290,7 +290,7 @@ Fig. 1.1. (L) Asander, King of Bosphorus, (R) Julius Caesar
 
 ![Fig.1.2](/images/Cleopatra%20VIIDynamis.png){:width="400px"}
 
-Fig. 1.2. (L) Dynamis, Queen of Bosphorus, (R) Cleopatra VII. There was obviously many years in between the ages that she was depicted, however, even in the elder Dynamis bust you can see her lazy eye and abnormally large eyes which she was reported to have had. 
+Fig. 1.2. (L) Dynamis, Queen of Bosphorus, (R) Cleopatra VII. There was obviously many years in between the ages that she was depicted, however, even in the elder Dynamis bust you can see her lazy eye and abnormally large eyes which she was reported to have had, possibly as a consequence of inbreeding. 
 
 ![Fig.1.3](/images/cleopatra.png){:width="400px"}
 
