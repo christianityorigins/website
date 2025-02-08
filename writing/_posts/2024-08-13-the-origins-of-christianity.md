@@ -159,14 +159,14 @@ Characters
     translated as 'messiah'. In Greek, 'The Anointed One' is
     Chréstos/Christ.
 -   Paul the Apostle = four options:1)Gaius Asinius Pollio (who was the
-    maternal grandfather? of Vespasian who raised Caesar Augustus and at
+    maternal grandfather? of Vespasian) who raised Caesar Augustus and at
     least five of King Herod's sons, 2)Saulus ben Antipater who was the
     son of Antipater/Herod Antipas the Tetrarch, grandson of King Herod
     (Josephus, Antiquities of the Jews, Chapter 9, section 211),
     great-grandson of Simon Boethus, brother of Costobarus, and adopted
     grandson of Gaius Asinius Pollio, or 3)Saulos Thaddeus Alexander
     Herod, another grandson of King Herod, 4)rabbi Akiva (it is possible
-    he took on the role of this characther as an avatar). The character
+    he took on the role of this character as an avatar). The character
     Paul/Saul's life story was stolen from the ancient Egyptian story
     'Tale of the Shipwrecked Sailor' (was one of these people Apollonius
     of Tyana? Apollos -> Pol, or Paul). Josephus in Antiquities of the
