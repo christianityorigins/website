@@ -548,10 +548,10 @@ Endnotes (Chapter 1)
     version of Zeus. Julius Caesar or one of his descendants (or their
     Anatolian regional aliases) took on the 'son of Esus" title in the
     same way Alexander was the son of Zeus and Julius Caesar was the son
-    of I(J)upiter.
+    of I(J)upiter.\
 (b) The word 'God' derives from the Proto-Germanic word 'gudiz' which is
     also related to the Proto-Indo-European root 'dyeus'. In Latin
-    'deus' means 'god'.
+    'deus' means 'god'.\
 (c) The symbol of the cross, Celtic cross/high cross/sun cross/solar
     wheel, et.al., which predate christianity by thousands of years
     (Callanish Stones. Wikipedia,
@@ -568,15 +568,15 @@ Endnotes (Chapter 1)
     subversion. Most Europeans must have thought that christianity was
     simply the same relgion that they were already worshiping, and
     because of widespread illiteracy at the time, they had no idea what
-    garbage was inside the bible.
+    garbage was inside the bible.\
 (d) The Letter to Flora and the Tripartite Tractate write about a
     Gnostic teacher called "Ptolemy" who I identify as Ptolemy Menneus
-    aka Simon Boethus aka Simon Magus.
+    aka Simon Boethus aka Simon Magus.\
 (e) Modern judaism is not the Torah (Old Testament), and has not been
     for a long time. The Talmud was completed after the New Testiment
     and this is what modern jews follow. Essentially, jews follow the
     program that Rabbi Akiva and his students created (ethnocentrisim in
-    the form of a religion).
+    the form of a religion).\
 (f) Kabbalists believe that Rabbi Akiba was a gilgul (reincarnation) of
     Zimri, a prince of the Tribe of Simeon who participated in the
     Heresy of Peor.
@@ -584,7 +584,7 @@ Endnotes (Chapter 1)
     (King Herod) (The Royal Ancestry of Emperor Vespasian (The Royal
     Ancestry of Emperor Vespasian. Henry Davis,
     https://www.henryhdavis.com/theroyalancestryofemperorvespasian
-    [[link](https://www.henryhdavis.com/theroyalancestryofemperorvespasian)])
+    [[link](https://www.henryhdavis.com/theroyalancestryofemperorvespasian)])\
 (g) Several members of this Egyptian-Persian-Anatolian-Greek-Roman
     aristocratic family identified themselves as 'jewish' despite being
     ethnically Celtic Gauls or Aryan Sarmatians. Ptolemy (Alexander) bar
@@ -722,7 +722,7 @@ Endnotes (Chapter 2)
     deity, hereditary priesthood rather than king, as well as the
     division into 12 tribes were all part of the formula. Plato's
     Timaeus (360 BC) is where the story of Abraham comes from, and
-    Plato's The Laws (347 BC) is where their laws came from.
+    Plato's The Laws (347 BC) is where their laws came from.\
 (b) Study that traces the origins of ashkenazi jews to northern Turkey.
     The towns Ashkanaz, Ishkanaz, Eshkanaz, etc.'Genetic origins of
     Ashkenazi Jews. National Center for Biotechnology Information'
@@ -745,7 +745,7 @@ Endnotes (Chapter 2)
     [[link](https://www.nature.com/articles/s41598-024-70206-y)]), the
     Carians have a strong connection with the settlement of Rome
     (Aquilla = Qos = god of Kos of Caria), Sparta, and Canaan, and the
-    Galatians were Celtic and were Druids.
+    Galatians were Celtic and were Druids.\
 (c) You can read more about the Jew-Neanderthal connection here: (Humans
     and Neanderthals likely interbred in the Middle East. Science
     Magazine,
@@ -778,17 +778,17 @@ Endnotes (Chapter 2)
     (New America Government,
     https://archive.ph/2024.02.24-211636/https://newamericangovernment.org/ailink/802/),
     (Blogger,
-    https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiyDzxbNmb6Oj5aDWOknO84-hwkdkoi)
+    https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiyDzxbNmb6Oj5aDWOknO84-hwkdkoi) \
 (d) John 8:44 in the New Testament, when Jesus speaks to the Pharisees,
     also refers to YHWH being the devil: "*You belong to your father,
     the devil, and you want to carry out your father's desires. He was a
     murderer from the beginning, not holding to the truth, for there is
     no truth in him. When he lies, he speaks his native language, for he
-    is a liar and the father of lies."
+    is a liar and the father of lies."\
 (e) The author of the Book of Kings speaks about passing one's son and
     daughter through fire (II Kings 16:3 [son], 17:17, 21:6 [son].
     II Kings 23:10 speaks about "passing one's son or daughter through
-    fire to Moloch.".
+    fire to Moloch.".\
 (f) There are multiple sections in the Torah, Midrash, and Talmud that
     condone cannibalism and eating their enemies: Bava Batra, II Samuel
     161:8, Isiah 51:4, Midrash Leviticus Rabbi 13:3. "*And Rabba says
@@ -856,13 +856,13 @@ Endnotes (Chapter 3)
     genealogy of Jesus. Baruch's brother, Seraiah ben Neriah, was the
     chief chamberlain (R.V.) to Zedekiah. According to the Old Latin
     Version of the Apocryphal Book of Baruch (i. 1) he was of the tribe
-    of Simeon.
+    of Simeon.\
 (b) In Isaiah 45:1 the jews called Cyrus "The Anointed One" which in
     Hebrew is "moshiach", often translated as "messiah". In Greek "The
     Anointed One" is Chréstos/Christ or Soter. "This prophet, Cyrus,
     through whom were to be redeemed His chosen people, whom he would
     glorify before all the world, was the promised Messiah, 'the
-    shepherd of Yhwh' (xliv. 28, xlv. 1)."
+    shepherd of Yhwh' (xliv. 28, xlv. 1)."\
 (c) Zarathustra likely derives from the Hebrew word "Zerah" which means
     "rise", or it's related Hebrew word Zara which means "growing seed"
     (see below for more on this word). Another connection is that
@@ -873,7 +873,7 @@ Endnotes (Chapter 3)
     the 'Rest of the Words of Baruch'
     [[link](https://en.wikipedia.org/wiki/Rest_of_the_Words_of_Baruch)]
     hint at Jeremiah and Baruch being the same person (Jeremiah's
-    "visions" are described by Baruch in the first person).
+    "visions" are described by Baruch in the first person).\
 (d) Interestingly, Cyrus the Great's successor Darius the Great's full
     name was Darayavahu. Yavahu is uncommonly like Yehouah (YHWH). Vahu
     is the Iranian god of the wind, that became, like the Hebrew, to
@@ -892,7 +892,7 @@ Endnotes (Chapter 3)
     HaYashar (Book of the Righteous) claims that Darius the Great was a
     descendant of King Saul through his daughter Merav. Persia became
     multicultural after Darius. Darius the Great was also the one who
-    wiped out the Scythians during his Scythian campaigns [^29].
+    wiped out the Scythians during his Scythian campaigns [^29].\
 (e) Darius the Great's grandson Artaxerxes I had a jewish cup-bearer
     named Nehemiah (Neh 2:1) who must have come form a royal family and
     thus was a descendant of Baruch ben Neriah. This shows how close
@@ -978,7 +978,7 @@ Endnotes (Chapter 5)
     called himself the Roman Alexander and stole a lot of Alexander's
     mythology for his religion called the Divine Julius Cult which was
     plagiarized to make Christianity more appealing to the Romans. See:
-    Chapter 9. Rome.
+    Chapter 9. Rome.\
 (b) A non-mainstream version of history, but one that is recorded in
     Persian and Islamic sources [^33], is that Alexander the Great was a
     Persian prince (Bupares) who was the son of Kai Bahman (Artaxerxes
@@ -998,7 +998,7 @@ Endnotes (Chapter 5)
     successor to Bactria, Diodotus I Soter, ruled India with the
     regional identity of Ashoka the Great [^36]. See: Alexander Romance
     [^37], The life of Alexander of Macedon [^38], and Alexander the
-    Great: Beyond the Divide by Charles N. Pope [^39].
+    Great: Beyond the Divide by Charles N. Pope [^39].\
 (c) Alexander is also identified as the Islamic prophet Dhu al-Qurnayn
     (He of Two Horns). His name comes from coins depicting him as Zeus
     Ammon, a two-horned pagan god (see: Fig 1.3.).
@@ -1058,7 +1058,7 @@ Endnotes (Chapter 6)
     India. "Habshi" is what Northern Indians called  Southern Indians
     and Habesha comes from "Abyssinia" which refers to Ethiopia. These
     Ethiopian slaves then mixed with indigenous Australoid/Denisovans
-    who were similar to Australian Aborigines.
+    who were similar to Australian Aborigines.\
 (b) See:
     [[link](https://hebrewhistory.info/factpapers/fp042-1_traders.htm)]
     [[link](https://www.researchgate.net/publication/337968615_Judean_Merchants_in_Babylonia)]
@@ -1071,11 +1071,11 @@ Endnotes (Chapter 6)
     their base of operations (see: 'A Theory of Khazars and Ashkenazi
     Jews' by Pierre Simon. Occidental Observer. February 8, 2024). Their
     descendants went on to start/control the transatlantic slave
-    trade. 
+    trade. \
 (c) Calami is a village located in the Kannur district of Kerala,
     southwest India. Kochi, also known as Cochin, is a major port city
     in the state of Kerala. Cochin is obviously phonetically related to
-    the name Cohen (Kohanim/of the priestly Zadokite line).
+    the name Cohen (Kohanim/of the priestly Zadokite line).\
 (d) "*it may be said that the region from Tigris-Euphrates to the Indus
     and its east was inhabited by the Akkadian speaking Semites who
     later called themselves as Asshuraiu. Their Indian name as known
@@ -1181,7 +1181,7 @@ Endnotes (Chapter 7)
     two-fifths of the city and held some of the highest offices." ...
     "With its character largely determined by Jewish elements" --
     Encyclopedia Britannica article on the Alexandrian School (1911)
-    https://en.wikisource.org/wiki/1911_Encyclopædia_Britannica/Alexandrian_School
+    https://en.wikisource.org/wiki/1911_Encyclopædia_Britannica/Alexandrian_School\
 (b) Manetho in his book 'Aegyptiaca' wrote that the Hyksos or Habiru
     were lead by a priest named Osarseph and that Osarseph = Moses.
     Interestingly, Osarseph also = Ahmose Sipair or Serapis. The "Si"
