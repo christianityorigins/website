@@ -287,8 +287,8 @@ Dynamis Ourania [^4] (translates to 'heavenly power'), queen of Bosporus
 ![Fig.1.1](/images/cleopatra.png){:width="400px"}
 
 Fig. 1.1. (L) Julia Mamaea, Queen of Pontus (wife of Polemon II), (R)
-Cleopatra VII. If Polemon Pythodoros, King of Pontus was Julius Caesar's
-regional alias, and he also played the religious role of Gaius Julius
+Cleopatra VII. Polemon Pythodoros, King of Pontus was Julius Caesar/Asander's
+regional alias (Asander and Polemon were both married to Dynamis), and if he also played the religious role of Gaius Julius
 Sohaemus of Emesa, Priest-King of Emesa, and Cleopatra played the
 regional role of Pythodorida Philometor, then Julia Avita Mamaea of
 Emessa would have been their daughter. Do you see a resemblance? She
