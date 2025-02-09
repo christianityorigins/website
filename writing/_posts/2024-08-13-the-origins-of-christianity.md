@@ -822,7 +822,7 @@ The subversion was done as revenge on the Babylonians for the
 destruction of Solomon's Temple and the deportation of Jews (586 BC) and
 despite the last king of Babylon, Nabonidus, treating the jews well
 [^28]. Very shortly after its foundation in 550 BC the Persian Empire
-under Cyrus the Great aka Kurushi Kabir (Kurushi = "lord of the sun",
+under Cyrus the Great aka Koroush Kabir (Koroush = "lord of the sun",
 "kabi = great. Cyrus translates to Kurosh in ancient Persian) wiped the
 Babylonians out, and allowed the Jews to return to Canaan (539 BC).
 Through the Edict of Cyrus the jews were then allowed to have their own
@@ -1660,10 +1660,11 @@ Footnotes
 
 [^7]: The name Herod likely derives from the amalgamation of Horus and
     Hercules. Mark Antony claimed descent from Hercules and declared
-    himself an incarnation of Horus. --The Shekel of Tyre that King
+    himself an incarnation of Horus. 
+    --The Shekel of Tyre that King
     Herod minted depicts Mark Antony and an image of Hercules:
     https://www.forumancientcoins.com/numiswiki/view.asp?key=tyrian%20shekels
-    [[link](https://www.forumancientcoins.com/numiswiki/view.asp?key=tyrian%20shekels)]
+    [[link](https://www.forumancientcoins.com/numiswiki/view.asp?key=tyrian%20shekels)]. Herod also built a number of temples and shrines dedicated to Hercules, including one in Beirut and another in Tyre. He also depicted himself as Hercules in his Herodian Cult.
 
 [^8]: Jesus ben Gamala/Gamaliel aka Jesus ben Sapphias was also King
     Izas Ma'nu (Jesus Emmanuel) Monobazus of Adiabene aka Yeshua
