@@ -538,25 +538,7 @@ could cover-up the tracks of their psyop religion.
 
 Endnotes (Chapter 1)
 
-(a) Julius Caesar, as high priest/Pontifex Maximus of the Flamen Dialis
-    cult, was the claimed son of I(J)upiter (there was no "J" in Latin),
-    so he was I(J)upiter-Zeus, ie. I-Zeus. This is probably where the
-    name 'I(J)esus' comes from. Roman Jupiter and Greek Zeus are
-    equivalent deities as both derive from the Aryan skyfather 'Dyeus
-    Pter'. The name Zeus comes from the pronunciation of Dyeus, and
-    Jupiter comes from the pronunciation of 'Dyeus Pter'. Alexander the
-    Great called himself Zeus-Ammon to tell the Egyptians that Greek
-    deity Zeus and the Egyptian deity Amun were equivalent deities.
-    Likewise, Scipio Africanus took on the title I(J)uipter-Ammon for
-    the same reason, so this was an imperial custom. Another option for
-    the origins of the I(J)esus name: the Celts in Galatia were Druids.
-    The Druids worshiped a deity called Esus/Hesus/Iesus (Esus.
-    Wikipedia, https://en.wikipedia.org/wiki/Esus
-    [[link](https://en.wikipedia.org/wiki/Esus)]) who was the Celtic
-    version of Zeus. Julius Caesar or one of his descendants (or their
-    Anatolian regional aliases) took on the 'son of Esus" title in the
-    same way Alexander was the son of Zeus and Julius Caesar was the son
-    of I(J)upiter.\
+(a) I trace the messianic archetype as it appears in the new testament back Scipio Africanus. He was the first high priest in the Flammen Dialis cult which made him the claimed son of Jupiter Optimus Maximus. His mother was was claimed to have been divinely impregnanted by Jupiter. He was also the Salian Priest of Mars, 'second Romulus' (founder of Rome), and Consul of the Republic and Censor. He was the 'messiah' of Rome. He also carried the title I(J)uipter-Ammon (there was no "J" in Latin) to let the Egyptians know that the Roman deity I(J)uipter and the Egyptian deity Ammon were equivalent ('interpretatio graeca'), and likely also carried the title I(J)upiter-Zeus (I-Zeus -> Iesus) to let the Greeks know that I(J)upiter and Zeus were equivalent deities (Roman Jupiter and Greek Zeus both derive from the Aryan skyfather 'Dyeus Pter'. The name Zeus comes from the pronunciation of Dyeus, and Jupiter comes from the pronunciation of 'Dyeus Pter'). Scipio wrote an autobiography that described his "miracles" to improve troop morale. His book was the most popular book in the Roman world and coincidently disappeared around the time Christianity emerged. In 'Chapter 5: Alexander the Great' I write about the similarities of Alexander and the Jesus figure. Alexander did come before Scipio, but everything about Scipio was written before Alexander and therefore it's just as likely that Alexander has been gifted attributes that better belong to Scipio. Julius Caesar modeled himself off of Scipio Africanus, including taking his titles and position as high priest in the Flammen Dialis cult.\
 (b) The word 'God' derives from the Proto-Germanic word 'gudiz' which is
     also related to the Proto-Indo-European root 'dyeus'. In Latin
     'deus' means 'god'.\
