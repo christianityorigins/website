@@ -1646,7 +1646,7 @@ Footnotes
     --The Shekel of Tyre that King
     Herod minted depicts Mark Antony and an image of Hercules:
     https://www.forumancientcoins.com/numiswiki/view.asp?key=tyrian%20shekels
-    [[link](https://www.forumancientcoins.com/numiswiki/view.asp?key=tyrian%20shekels)]. Herod also built a number of temples and shrines dedicated to Hercules, including one in Beirut and another in Tyre. He also depicted himself as Hercules in his Herodian Cult.
+    [[link](https://www.forumancientcoins.com/numiswiki/view.asp?key=tyrian%20shekels)]. Herod also built a number of temples and shrines dedicated to Hercules, including one in Beirut and another in Tyre. He also depicted himself as Hercules in his Herodian Cult. King Herod's son, Herod Antipas,has the same name as Mark Antony's son, Antyllus.
 
 [^8]: Jesus ben Gamala/Gamaliel aka Jesus ben Sapphias was also King
     Izas Ma'nu (Jesus Emmanuel) Monobazus of Adiabene aka Yeshua
