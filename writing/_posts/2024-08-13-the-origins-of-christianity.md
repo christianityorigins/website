@@ -172,13 +172,7 @@ Characters
     of Tyana? Apollos -> Pol, or Paul). Josephus in Antiquities of the
     Jews, Book XX (CH 9.4) refers to Paul (Saulus) as related to Herod
     Agrippa.
--   Pontius Pilate = two options: 1)Aulus Avillius Flaccus aka Polemon
-    II of Pontus aka Emperor Titus, 2) Quintus Tineius Rufus aka Turnus
-    Rufus the Evil who was the Roman governor of Judea during the reign
-    of Emperor Hadrian (117-138 CE), and who was responsible for killing
-    Simon bar Kokhba and rabbi Akiva. Josephus, Wars vii.ii.§ 1 writes
-    that Terentius Rufus is the same Turanus-Rufus as mentioned in the
-    Talmud, Tractate Taanit who is the one who plowed over the Temple.
+-   Pontius Pilate = several options. The historical record from antiquity has a repeating narrative of jewish high priests being executed by a Roman prefect or governor: Roman Procurator of Judea Lucceius Albinus condeming Jesus ben Ananias to cruxification; Roman Procurator of Judea Quintus Tineius Rufus aka Turnus Rufus the Evil condeming Simon bar Kokhba to cruxification;  Roman prefect (governor) of Roman Egypt Tiberius Julius Alexander condemining Judas the Gaulanite to death; Roman prefect of the Praetorian Guard Marcius Turbo condeming Lukuas Andreas to death; Roman prefect (governor) of Roman Egypt Aulus Avillius Flaccus crucifying many prominant jews in Alexandria, etc. Every one of these characters fit the Pontius Pilate role. I believe that royal elites role-played as if they were characters in a play, and these fictional deaths were story patterns or archetypes that were emulated. They killed off one character then assumed the role of another one in a different location. For example, Aulus Avillius Flaccus was also Polemon II of Pontus which was the regional aliases of Emperor Titus (the character of Aulus Avillius Flaccus dies at the same time Polemon II of Pontus takes power, all married to the same woman).
 -   Simon Boethus (great-great-great? grandson of Onias III and heir of
     the Zadokite line) = (king/Tetrarch) Ptolemy (Alexander) bar Menneus
     aka Simon Magus. Likely also Simon the Essene the founder of the
