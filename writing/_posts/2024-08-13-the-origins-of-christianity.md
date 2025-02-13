@@ -563,12 +563,7 @@ Endnotes (Chapter 1)
     the form of a religion).\
 (f) Kabbalists believe that Rabbi Akiba was a gilgul (reincarnation) of
     Zimri, a prince of the Tribe of Simeon who participated in the
-    Heresy of Peor.
-    (h)Vespassian was also a great-grandson of Cleopatra and Mark Antony
-    (King Herod) (The Royal Ancestry of Emperor Vespasian (The Royal
-    Ancestry of Emperor Vespasian. Henry Davis,
-    https://www.henryhdavis.com/theroyalancestryofemperorvespasian
-    [[link](https://www.henryhdavis.com/theroyalancestryofemperorvespasian)])\
+    Heresy of Peor.\
 (g) Several members of this Egyptian-Persian-Anatolian-Greek-Roman
     aristocratic family identified themselves as 'jewish' despite being
     ethnically Celtic Gauls or Aryan Sarmatians. Ptolemy (Alexander) bar
@@ -611,7 +606,12 @@ Endnotes (Chapter 1)
     evolved from the mixture of 'Ashkuza' Turks, survivors of the Bar
     Kohiba revolt, the proto-Arabs, and high amounts of neanderthal
     admixture from the Crimean peninsula and Cannan (see Chapter 2.1
-    Ethnogenesis of the Jews).
+    Ethnogenesis of the Jews). \
+    (h) Vespassian was also a great-grandson of Cleopatra and Mark Antony
+    (King Herod) (The Royal Ancestry of Emperor Vespasian (The Royal
+    Ancestry of Emperor Vespasian. Henry Davis,
+    https://www.henryhdavis.com/theroyalancestryofemperorvespasian
+    [[link](https://www.henryhdavis.com/theroyalancestryofemperorvespasian)])
 
 ### Chapter 2: The Origins of Judaism
 
@@ -1311,8 +1311,8 @@ Endnotes (Chapter 8)
     fully jewish. The bust attributed to Mark Antony that is housed in
     the Vatican Museum was made over a century after he died during the
     Flavian dynasty. This: https://imgur.com/7RnVvRv is the only bust of
-    him that is believed to have been made during his lifetime.
-    (b) Theory: Alexander (grandson of King Herod) aka Gaius Julius Alexander, Herodian Prince of Judaea aka Alexander Lysimachus aka Alexander the Alabarch aka Tiberius Julius Alexander Major aka (King/Tetrarch) Ptolemy (Alexander) bar Menneus aka Ptolemy of Mauretania was also the Roman general 'Gnaeus Domitius Corbulo'. Gnaeus Domitius Corbulo conquered Armenia alongside Tiberius Julius Alexander (his son Tiberius Julius Alexander aka Arrius Calpernius Piso aka Arrius Varus aka Tiberius Julius Cotys aka Emperor Nerva), after which, Tigranes VI (Tiberius Julius Alexander) was instilled as king. Compare his bust [link] to the famous 'Josephus' (Tiberius Julius Alexander) bust [link]. Notice a resemblance? If this is correct, then Gaius Julius Alexander would also be the brother-in-law to Caligula. Tiridates of Armenia (who would have been Mithridates Chrestus' great-great-grandson) was the one who spread Mithraism which was a syncretic a slave-morality religion to subjugate the Parthians. Mithras is inspired from Zoroastrianism, the religion of the Persians/Parthians, but Mithras is the same as Sabazios. It’s a solar son deity, a Jupiter. 
+    him that is believed to have been made during his lifetime. \
+    (b) Theory: Alexander (grandson of King Herod) aka Gaius Julius Alexander, Herodian Prince of Judaea aka Alexander Lysimachus aka Alexander the Alabarch aka Tiberius Julius Alexander Major aka (King/Tetrarch) Ptolemy (Alexander) bar Menneus aka Ptolemy of Mauretania was also the Roman general 'Gnaeus Domitius Corbulo'. Gnaeus Domitius Corbulo conquered Armenia alongside Tiberius Julius Alexander (his son Tiberius Julius Alexander aka Arrius Calpernius Piso aka Arrius Varus aka Tiberius Julius Cotys aka Emperor Nerva), after which, Tigranes VI (Tiberius Julius Alexander) was instilled as king. Compare his bust [link] to the famous 'Josephus' (Tiberius Julius Alexander) bust [link]. Notice a resemblance? If this is correct, then he (Alexander) would have been the brother-in-law to Caligula and father-in-law to Domitian. Tiridates of Armenia (who would have been Mithridates Chrestus' great-great-grandson) was the one who spread the religion Mithraism which was a syncretic a slave-morality religion to subjugate the Parthians. Mithras is inspired from Zoroastrianism, the religion of the Persians/Parthians, but Mithras is the same as Sabazios. It’s a solar son deity, a Jupiter. 
 
 ### Chapter 9: Rome
 
