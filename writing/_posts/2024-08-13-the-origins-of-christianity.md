@@ -1312,6 +1312,7 @@ Endnotes (Chapter 8)
     the Vatican Museum was made over a century after he died during the
     Flavian dynasty. This: https://imgur.com/7RnVvRv is the only bust of
     him that is believed to have been made during his lifetime.
+    (b) Theory: Alexander (grandson of King Herod) aka Gaius Julius Alexander, Herodian Prince of Judaea aka Alexander Lysimachus aka Alexander the Alabarch aka Tiberius Julius Alexander Major aka (King/Tetrarch) Ptolemy (Alexander) bar Menneus aka Ptolemy of Mauretania was also the Roman general 'Gnaeus Domitius Corbulo'. Gnaeus Domitius Corbulo conquered Armenia alongside Tiberius Julius Alexander (his son Tiberius Julius Alexander aka Arrius Calpernius Piso aka Arrius Varus aka Tiberius Julius Cotys aka Emperor Nerva), after which, Tigranes VI (Tiberius Julius Alexander) was instilled as king. Compare his bust [link] to the famous 'Josephus' (Tiberius Julius Alexander) bust [link]. Notice a resemblance? If this is correct, then Gaius Julius Alexander would also be the brother-in-law to Caligula. Tiridates of Armenia (who would have been Mithridates Chrestus' great-great-grandson) was the one who spread Mithraism which was a syncretic a slave-morality religion to subjugate the Parthians. Mithras is inspired from Zoroastrianism, the religion of the Persians/Parthians, but Mithras is the same as Sabazios. It’s a solar son deity, a Jupiter. 
 
 ### Chapter 9: Rome
 
