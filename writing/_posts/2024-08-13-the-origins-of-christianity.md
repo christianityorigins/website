@@ -116,6 +116,14 @@ Characters
 -   Cleopatra VII Thea Philopator, Queen of the Ptolemaic Kingdom of
     Egypt = Dynamis Ourania, Queen of Bosphorus.
 -   Eleazar ben Boethus = Lazarus of Bethany, son of Simon Boethus.
+-   Gamaliel/St. Gamaliel (Paul's teacher) = Tiberius Gemellus, grandson
+    of Emperor Tiberius and a cousin of Emperor Caligula. (The Aramaic
+    word Gemel means "twin", in Latin it is Gemellus, and in Hebrew it's
+    Gamaliel). He was a student of Herod Agrippa who was King Herod's
+    grandson (Antiquities of the Jews, Flavius Josephus. Chapter 6).
+    Gamaliel was the father of Jesus ben Gamala/Gamaliel aka Jesus ben
+    Sapphias who was also King Izas Ma'nu (Jesus Emmanuel) Monobazus of
+    Adiabene.
 -   Gautama Buddha = Gaumata Bardya, son of Cyrus the Great.
 -   King Herod = Mark Antony aka Tiberius Claudius Nero aka Phraates IV
     of Parthia's regional alias (See: 'Jesus Among the Julio-Claudians' (2017) by Charles N. Pope
@@ -190,7 +198,8 @@ Characters
     below).
 -   St. Veronica = Berenice, granddaughter of King Herod, wife of
     emperor Titus (Veronica is the Latin alteration of the Greek name
-    Berenice). 
+    Berenice).
+-   Titus Flavian Clemens = 'Clement of Rome'.
 -   Emperor Titus = Aulus Avillius Flaccus, the prefect (governor) of
     Roman Egypt (Egyptian alias), and Polemon II of Pontus. Polemon II
     became the king of Pontius the same year (38AD) that Aulus Avillius
@@ -225,14 +234,6 @@ Speculative
     by Ranajit Pal
     https://www.academia.edu/695219/Diodotus_I_was_Ashoka_An_Altar_of_Alexander_Now_Standing_Near_Delhi
     [[link](https://www.academia.edu/695219/Diodotus_I_was_Ashoka_An_Altar_of_Alexander_Now_Standing_Near_Delhi)])
--   Gamaliel/St. Gamaliel (Paul's teacher) = Tiberius Gemellus, grandson
-    of Emperor Tiberius and a cousin of Emperor Caligula. (The Aramaic
-    word Gemel means "twin", in Latin it is Gemellus, and in Hebrew it's
-    Gamaliel). He was a student of Herod Agrippa who was King Herod's
-    grandson (Antiquities of the Jews, Flavius Josephus. Chapter 6).
-    Gamaliel was the father of Jesus ben Gamala/Gamaliel aka Jesus ben
-    Sapphias who was also King Izas Ma'nu (Jesus Emmanuel) Monobazus of
-    Adiabene.
 -   James, brother of Jesus = Rabbi Akiva (the name Akiva is related to
     Jacob/James). Theory: Simon of Cyrene was Lukuas Andreas, with his
     "sons" being Julian/John (Simon bar Kochba) and Pappus/James (R.
@@ -243,7 +244,6 @@ Speculative
 -   Ptolemy XIII Theos Philopator = Gaius Octavius aka Emperor Gaius
     Julius Caesar Augustus, the son of Asander/Julius Caesar and
     Dynamis/Cleopatra.
--   Titus Flavian Clemens = 'Clement of Rome'.
 
 BOOK I. THE ORIGINS OF CHRISTIANITY
 ----------------------------------------------
@@ -439,8 +439,9 @@ Alexandria' (Cleopatra (Thea Philopator) of Mauretania aka Cleopatra IX
 aka Pythodorida Philometor aka Helene aka Drusilla of Mauretania aka
 Julia Ourania of Parthia) as a syncretic slave morality.
 
-Then, a couple centuries later after the Bar Kokhba Revolt (132--136
-CE), this imperial slave-morality cult was subverted by a confederation
+It is likely that each Roman emperor after Julius Caesar took on the 'I-Zeus' (Iesus) role as an avatar, which is why I identify many prominent Romans as having contributed to the bible (e.g. Titus Flavian Clemens aka 'Clement of Rome').
+
+Then, after the Bar Kokhba Revolt (132--136 CE), this imperial slave-morality cult was subverted by a confederation
 of rabbi's who were headed by a rabbi named Akiva.
 
 #### 1.2 The Cult of Antinous and the Bar Kokhba Revolt (132--136 CE)
