@@ -128,6 +128,7 @@ Characters
 -   King Herod = Mark Antony aka Tiberius Claudius Nero aka Phraates IV
     of Parthia's regional alias (See: 'Jesus Among the Julio-Claudians' (2017) by Charles N. Pope
     [[link](https://books.google.se/books/about/Jesus_Among_the_Julio_Claudians.html?id=c7A3DwAAQBAJ&redir_esc=y)]).
+- Josephus = Hegesippus.
 -   Julius Caesar = Asander, Philocaesar Philoromaios, King of
     Bosphorus.
 -   Marcion of Sinope = Markianos of Alexandria. He grew up in the
@@ -143,6 +144,8 @@ Characters
     was the author of *The Secrets of Rabbi Simon ben Yohai*
     [[link](https://pages.charlotte.edu/john-reeves/research-projects/trajectories-in-near-eastern-apocalyptic/nistarot-secrets-of-r-shimon-b-yohai-2/)].
     Was he also the Roman senator Marcus Pompeius?
+- Bishop Ignatius of Antioch = Polycarp (Ignatius means 'fiery one'
+    and Polycarp was famous for setting himself on fire).
 -   Mariamne Boethus = Mary Magdalene, daughter of Simon Boethus, fifth
     wife of King Herod, mother of Alexander (son of King Herod),
     grandmother of Alexander (grandson of King Herod) and Cleopatra IX
@@ -228,8 +231,6 @@ Speculative
     Chandragupta in Sanskrit Drama' by Ranajit Pal
     https://www.academia.edu/40074507/ALEXANDER_AND_CHANDRAGUPTA_IN_A_SANSKRIT_DRAMA
     [[link](https://www.academia.edu/40074507/ALEXANDER_AND_CHANDRAGUPTA_IN_A_SANSKRIT_DRAMA)])
--   Bishop Ignatius of Antioch = Polycarp? (Ignatius means 'fiery one'
-    and Polycarp was famous for setting himself on fire).
 -   Diodotus I Soter = Ashoka the Great. (See: 'Diodotus I was Ashoka'
     by Ranajit Pal
     https://www.academia.edu/695219/Diodotus_I_was_Ashoka_An_Altar_of_Alexander_Now_Standing_Near_Delhi
@@ -240,7 +241,6 @@ Speculative
     Akiva)?
 -   John the Baptist = Yohanan ben Zakkai. Father of Gamaliel and
     grandfather of Jesus ben Gamla/Gamaliel.
--   Josephus = Hegesippus.
 -   Ptolemy XIII Theos Philopator = Gaius Octavius aka Emperor Gaius
     Julius Caesar Augustus, the son of Asander/Julius Caesar and
     Dynamis/Cleopatra.
