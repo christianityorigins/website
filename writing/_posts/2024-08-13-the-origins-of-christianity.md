@@ -169,21 +169,19 @@ Characters
     'The Anointed One' which in Hebrew is 'moshiach' and often
     translated as 'messiah'. In Greek, 'The Anointed One' is
     Chréstos/Christ.
--   Paul the Apostle = four options:1)Gaius Asinius Pollio (who was the
+-   Paul the Apostle = likely a composite character or avatar. Four people who took on the character are :1)Gaius Asinius Pollio (who was the
     maternal grandfather? of Vespasian) who raised Caesar Augustus and at
     least five of King Herod's sons, 2)Saulus ben Antipater who was the
     son of Antipater/Herod Antipas the Tetrarch, grandson of King Herod
     (Josephus, Antiquities of the Jews, Chapter 9, section 211),
     great-grandson of Simon Boethus, brother of Costobarus, and adopted
     grandson of Gaius Asinius Pollio, or 3)Saulos Thaddeus Alexander
-    Herod, another grandson of King Herod, 4)rabbi Akiva (it is possible
-    he took on the role of this character as an avatar). The character
+    Herod, another grandson of King Herod, 4)rabbi Akiva. The character
     Paul/Saul's life story was stolen from the ancient Egyptian story
-    'Tale of the Shipwrecked Sailor' (was one of these people Apollonius
-    of Tyana? Apollos -> Pol, or Paul). Josephus in Antiquities of the
+    'Tale of the Shipwrecked Sailor'. Josephus in Antiquities of the
     Jews, Book XX (CH 9.4) refers to Paul (Saulus) as related to Herod
     Agrippa.
--   Pontius Pilate = several options. The historical record from antiquity has a repeating narrative of jewish high priests being executed by a Roman prefect or governor: Roman Procurator of Judea Lucceius Albinus condeming Jesus ben Ananias to cruxification; Roman Procurator of Judea Quintus Tineius Rufus aka Turnus Rufus the Evil condeming Simon bar Kokhba to cruxification;  Roman prefect (governor) of Roman Egypt Tiberius Julius Alexander condemining Judas the Gaulanite to death; Roman prefect of the Praetorian Guard Marcius Turbo condeming Lukuas Andreas to death; Roman prefect (governor) of Roman Egypt Aulus Avillius Flaccus crucifying many prominant jews in Alexandria, etc. Every one of these characters fit the Pontius Pilate role. I believe that royal elites role-played as if they were characters in a play, and these fictional deaths were story patterns or archetypes that were emulated. They killed off one character then assumed the role of another one in a different location. For example, Aulus Avillius Flaccus was also Polemon II of Pontus which was the regional alias of Emperor Titus (the character of Aulus Avillius Flaccus dies at the same time Polemon II of Pontus takes power and then Polemon II of Pontus dies around the same time Titus becomes emperor. They were all married to the same woman, Berenice, grandaughter of King Herod).
+-   Pontius Pilate = several options. The historical record from antiquity has a repeating narrative of jewish high priests being executed by a Roman prefect or governor: Roman Procurator of Judea Lucceius Albinus condeming Jesus ben Ananias to cruxification; Roman Procurator of Judea Quintus Tineius Rufus aka Turnus Rufus the Evil condeming Simon bar Kokhba to cruxification;  Roman prefect (governor) of Roman Egypt Tiberius Julius Alexander condemining Judas the Gaulanite to death; Roman prefect of the Praetorian Guard Marcius Turbo condeming Lukuas Andreas to death; Roman prefect (governor) of Roman Egypt Aulus Avillius Flaccus crucifying many prominant jews in Alexandria, etc. Every one of these characters fit the Pontius Pilate role. I believe that royal elites role-played as if they were characters in a play, and these fictional deaths were story patterns or archetypes that were emulated. They killed off one character then assumed the role of another one in a different location. For example, Aulus Avillius Flaccus was also Polemon II of Pontus which was the regional alias of Emperor Titus. The character of Aulus Avillius Flaccus dies at the same time Polemon II of Pontus takes power and then Polemon II of Pontus dies around the same time Titus becomes emperor. They were all married to the same woman, Berenice, grandaughter of King Herod.
 -   Simon Boethus (great-great-great? grandson of Onias III and heir of
     the Zadokite line) = (king/Tetrarch) Ptolemy (Alexander) bar Menneus
     aka Simon Magus. Likely also Simon the Essene the founder of the
