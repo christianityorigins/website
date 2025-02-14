@@ -169,14 +169,14 @@ Characters
     'The Anointed One' which in Hebrew is 'moshiach' and often
     translated as 'messiah'. In Greek, 'The Anointed One' is
     Chréstos/Christ.
--   Paul the Apostle = likely a composite character or avatar. Four people who took on the character are :1)Gaius Asinius Pollio (who was the
+-   Paul the Apostle = likely a composite character or an avatar/cipher. Four suspects for haven taking on the character are: 1)Gaius Asinius Pollio (who was the
     maternal grandfather? of Vespasian) who raised Caesar Augustus and at
     least five of King Herod's sons, 2)Saulus ben Antipater who was the
     son of Antipater/Herod Antipas the Tetrarch, grandson of King Herod
     (Josephus, Antiquities of the Jews, Chapter 9, section 211),
     great-grandson of Simon Boethus, brother of Costobarus, and adopted
-    grandson of Gaius Asinius Pollio, or 3)Saulos Thaddeus Alexander
-    Herod, another grandson of King Herod, 4)rabbi Akiva. The character
+    grandson of Gaius Asinius Pollio, 3)Saulos Thaddeus Alexander
+    Herod, another grandson of King Herod, and 4)rabbi Akiva. The character
     Paul/Saul's life story was stolen from the ancient Egyptian story
     'Tale of the Shipwrecked Sailor'. Josephus in Antiquities of the
     Jews, Book XX (CH 9.4) refers to Paul (Saulus) as related to Herod
