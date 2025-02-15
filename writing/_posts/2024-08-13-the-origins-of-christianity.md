@@ -169,7 +169,7 @@ Characters
     'The Anointed One' which in Hebrew is 'moshiach' and often
     translated as 'messiah'. In Greek, 'The Anointed One' is
     Chréstos/Christ.
--   Paul the Apostle = likely a composite character or an avatar/cipher. Four suspects for haven taking on the character are: 1)Gaius Asinius Pollio (who was the
+-   Paul the Apostle = likely a composite character or an avatar/cipher. Four suspects for having taking on the character are: 1)Gaius Asinius Pollio (who was the
     maternal grandfather? of Vespasian) who raised Caesar Augustus and at
     least five of King Herod's sons, 2)Saulus ben Antipater who was the
     son of Antipater/Herod Antipas the Tetrarch, grandson of King Herod
