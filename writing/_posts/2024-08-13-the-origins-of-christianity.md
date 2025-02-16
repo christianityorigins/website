@@ -306,7 +306,7 @@ sister of Asander. He was also a cousin of Dynamis.
 
 Cleopatra aka Dynamis's son with Julius Caesar aka Asander = Tiberius
 Julius Aspurgus Philoromaios, who was born about the same time as
-Caesarion and Emperor Tiberius Julius Caesar.
+Caesarion and Emperor Tiberius Julius Caesar (Mark Antony = Tiberius Claudius Nero, emperor Tiberius's father, so he likely adopted Julius Caesar/Asander's child).
 
 Cleopatra aka Dynamis's son with Mark Antony [^7](aka King Herod aka
 Tiberius Claudius Nero aka Phraates IV of Parthia) = Alexander Helios
