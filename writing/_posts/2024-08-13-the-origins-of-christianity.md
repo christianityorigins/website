@@ -240,8 +240,7 @@ Speculative
 -   John the Baptist = Yohanan ben Zakkai. Father of Gamaliel and
     grandfather of Jesus ben Gamla/Gamaliel.
 -   Ptolemy XIII Theos Philopator = Gaius Octavius aka Emperor Gaius
-    Julius Caesar Augustus, the son of Asander/Julius Caesar and
-    Dynamis/Cleopatra.
+    Julius Caesar Augustus, Cleopatra VII's brother.
 
 BOOK I. THE ORIGINS OF CHRISTIANITY
 ----------------------------------------------
