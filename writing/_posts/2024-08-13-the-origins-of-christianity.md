@@ -1612,7 +1612,7 @@ Footnotes
 
 [^5]: 
 
-    His name alludes to the Mithras cult. Mithraism was spread by Tiridates of Armenia (alias of Alexander, grandson of King Herod, Mithridates Chrestus descendant?) after Rome's defeat of Parthia around 53 AD as a slave-morality religion to subjugate the Parthians. Mithras is inspired from Zoroastrianism, the religion of the Persians/Parthians, but Mithras is the same as Sabazios. It's a solar son deity, a Jupiter (Mithridates Chrestus's descendant carried the title Monobazus aka Manu-Sabazios). The Mithras cult has many similarities to Christianity; Mithras was born of a virgin, Mithras' birth was celebrated on December 25, Mithras was considered a savior and redeemer, etc., although all these traits are 'de jure' of saviors in ancient religions, probably because they all came from the 'Alexandrian School' in Egypt. Gnosticism, Valentinianism, Christianity, Hermeticism, Mithraism, Manichaeism, Mandaeism, and many other religions came from the Alexandrian School. The Sibylline Oracles were the blueprint for these religions./
+    His name alludes to the Mithras cult. Mithraism was spread by Tiridates of Armenia (alias of Alexander, grandson of King Herod, Mithridates Chrestus descendant?) after Rome's defeat of Parthia around 53 AD as a slave-morality religion to subjugate the Parthians. Mithras is inspired from Zoroastrianism, the religion of the Persians/Parthians, but Mithras is the same as Sabazios. It's a solar son deity, a Jupiter (Mithridates Chrestus's descendant carried the title Monobazus aka Manu-Sabazios). The Mithras cult has many similarities to Christianity; Mithras was born of a virgin, Mithras' birth was celebrated on December 25, Mithras was considered a savior and redeemer, etc., although all these traits are 'de jure' of saviors in ancient religions, probably because they all came from the 'Alexandrian School' in Egypt. The Serapis cult, Gnosticism, Valentinianism, Christianity, Hermeticism, Mithraism, Manichaeism, Mandaeism, and many other religions came from the Alexandrian School. The Sibylline Oracles were the blueprint for these religions./
 
 [^6]: Jesus ben Fabus who was Isa Amen (Jesus Amen) of Rev. iii. 14 who
     was also Amyntas (Amen(tas)) of Galatia who was also Amyntas Nikator
@@ -1672,6 +1672,7 @@ Footnotes
 
 [^16]: 'Hagarism'. Wikipedia, https://en.wikipedia.org/wiki/Hagarism
     [[link](https://en.wikipedia.org/wiki/Hagarism)]
+    --Izates's son was named 'Zamaris' (Zamaris the Babylonian jew) and Zamaris has the same meaning as Muhammad. Allah and Muhammad the red-headed warlord were parodies of Attila the Hun and his uncle Ruglia waging war against Rome ("Edom") because they wanted the Arabs to attack eastern Rome). Rabbi Simon ben Yohai created the forrunner to Islam but cuting-and-pasting the Adiabene imperial cult. 
 
 [^17]: Encyclopaedia Judaica.
     https://www.jewishvirtuallibrary.org/keti-x0027-a-bar-shalom
