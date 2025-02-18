@@ -589,9 +589,9 @@ Endnotes (Chapter 1)
     Ram', he was also Ra in Egyptian mythology, the basis of the name
     'Ram'esses in Egypt, Ram the Aries, Rama in the Vedas, and Lama in
     Tibet. King David (DWD) = King Druid. The name Israel itself is
-    likely named after Osiris, the southeasternmost grand Druid (in
+    likely named after Osiris (Aesir), the southeasternmost grand Druid (in
     Phoenician, the name "Osiris" is written as "Usr" or "Ysr," which
-    becomes the Hebrew "Yisrael). As for the name"Jew", the descriptive
+    becomes the Hebrew "Yisrael. Osiris is depicted as having green skin, ie. he is the 'Druid green man'). As for the name"Jew", the descriptive
     name Judaism was never used by the Hebrews or 'Israelites'; it
     appears only with Christianity. It comes from Yahud or Auda which
     comes from Iodh or Ioux. Iodh and Ioux are associated with the yew
