@@ -1596,19 +1596,24 @@ Footnotes
     Iulius cult (Divus is synonymous to Dyeus, and as aforemented,
     Iulius derives from (I)Jupiter). He had a claimed divine birth, was
     put on trial, betrayed, sacrificed, and was a pontifex maximus (high
-    priest) in his religion.
+    priest) in his religion. \
+    
 
 [^3]: The Gospel of Jesus' Wife Papyrus." The Nazarene Way,
-    https://www.thenazareneway.com/Gospel%20of%20Jesus%20Wife%20Papyrus.htm.[[link](https://www.thenazareneway.com/Gospel%20of%20Jesus%20Wife%20Papyrus.htm)]
+    https://www.thenazareneway.com/Gospel%20of%20Jesus%20Wife%20Papyrus.htm.[[link](https://www.thenazareneway.com/Gospel%20of%20Jesus%20Wife%20Papyrus.htm)] \
+    --Asander and Julius Caesar both used the Nike crescent. Nike is the goddess who personifies victory in Greek mythology. 
+https://www.britishmuseum.org/collection/object/C_1987-0649-62 [[link](https://www.britishmuseum.org/collection/object/C_1987-0649-62)]
+https://www.britishmuseum.org/collection/object/C_RPK-p137A-1-Nic [[link](https://www.britishmuseum.org/collection/object/C_RPK-p137A-1-Nic)]
+
 
 [^4]: A coin of Dynamis, queen of Bosphorus, where she is depicted as
     Aphrodite 'Urania':
     https://www.forumancientcoins.com/gallery/displayimage.php?album=880&pid=2383#top_display_media
-    [[link](https://www.forumancientcoins.com/gallery/displayimage.php?album=880&pid=2383#top_display_media)] \
+    [[link](https://www.forumancientcoins.com/gallery/displayimage.php?album=880&pid=2383#top_display_media)]\
     --Another Dynamis coin depicting a Star and Crescent which was also
     the symbol of the royal house of Adiabene and later became a
     prominent symbol in Islam: https://rpc.ashmus.ox.ac.uk/coins/1/1864
-    [[link](https://rpc.ashmus.ox.ac.uk/coins/1/1864)] \
+    [[link](https://rpc.ashmus.ox.ac.uk/coins/1/1864)]\
     --Julius Caesar also used the star and crescent symbol:
 https://www.accla.org/actaaccla/juliuscaesar.html  [[link](https://www.accla.org/actaaccla/juliuscaesar.html)]
 https://auctions.stacksbowers.com/lots/view/3-US7SY/julius-caesar-ar-denarius-392-gms-rome-mint-l-aemilius-buca-moneyer-lifetime-issue-44-bc-ngc-au-strike-45-surface-45-e  [[link](https://auctions.stacksbowers.com/lots/view/3-US7SY/julius-caesar-ar-denarius-392-gms-rome-mint-l-aemilius-buca-moneyer-lifetime-issue-44-bc-ngc-au-strike-45-surface-45-e)] \
