@@ -1609,11 +1609,11 @@ https://www.britishmuseum.org/collection/object/C_RPK-p137A-1-Nic [[link](https:
 [^4]: A coin of Dynamis, queen of Bosphorus, where she is depicted as
     Aphrodite 'Urania':
     https://www.forumancientcoins.com/gallery/displayimage.php?album=880&pid=2383#top_display_media
-    [[link](https://www.forumancientcoins.com/gallery/displayimage.php?album=880&pid=2383#top_display_media)]\
+    [[link](https://www.forumancientcoins.com/gallery/displayimage.php?album=880&pid=2383#top_display_media)]. Dynamis carried the title Ouriana, refering to Aphrodite Urania ("heavenly Aphrodite"), the Greek godess. Cleopatra also depicted herself as Aphrodite. Cleopatra's daughter Cleopatra Selene II was also Queen Thea Muse Ourania. \
     --Another Dynamis coin depicting a Star and Crescent which was also
     the symbol of the royal house of Adiabene and later became a
     prominent symbol in Islam: https://rpc.ashmus.ox.ac.uk/coins/1/1864
-    [[link](https://rpc.ashmus.ox.ac.uk/coins/1/1864)]\
+    [[link](https://rpc.ashmus.ox.ac.uk/coins/1/1864)]. In ancient greek mythology Selene (meaning moon) is the goddess and personification of the Moon. Her symbol is the cresent mon. Cleopatra's daughter, Cleopatra Selene II of Mauretania, coins also depict a star and crescent. \
     --Julius Caesar also used the star and crescent symbol:
 https://www.accla.org/actaaccla/juliuscaesar.html  [[link](https://www.accla.org/actaaccla/juliuscaesar.html)]
 https://auctions.stacksbowers.com/lots/view/3-US7SY/julius-caesar-ar-denarius-392-gms-rome-mint-l-aemilius-buca-moneyer-lifetime-issue-44-bc-ngc-au-strike-45-surface-45-e  [[link](https://auctions.stacksbowers.com/lots/view/3-US7SY/julius-caesar-ar-denarius-392-gms-rome-mint-l-aemilius-buca-moneyer-lifetime-issue-44-bc-ngc-au-strike-45-surface-45-e)] \
