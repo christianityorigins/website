@@ -564,10 +564,8 @@ could cover-up the tracks of their psyop religion.
 Endnotes (Chapter 1)
 
 (a) I trace the messianic archetype as it appears in the new testament back to Scipio Africanus. He was the first high priest in the Flammen Dialis cult which made him the claimed son of Jupiter Optimus Maximus. His mother was claimed to have been divinely impregnanted by Jupiter. He was also the Salian Priest of Mars, 'second Romulus' (founder of Rome), and Consul of the Republic and Censor. He was the 'messiah' of Rome. He also carried the title I(J)uipter-Ammon (there was no "J" in Latin) to let the Egyptians know that the Roman deity I(J)uipter and the Egyptian deity Ammon were equivalent ('interpretatio graeca'), and likely also carried the title I(J)upiter-Zeus (I-Zeus -> Iesus) to let the Greeks know that I(J)upiter and Zeus were equivalent deities (Roman Jupiter and Greek Zeus both derive from the Aryan skyfather 'Dyeus Pter'. The name Zeus comes from the pronunciation of Dyeus, and Jupiter comes from the pronunciation of 'Dyeus Pter'). Scipio wrote an autobiography that described his "miracles" to improve troop morale. His book was the most popular book in the Roman world and coincidently disappeared around the time Christianity emerged. In 'Chapter 5: Alexander the Great' I write about the similarities of Alexander and the Jesus figure. Alexander did come before Scipio, but everything about Scipio was written before Alexander and therefore it's just as likely that Alexander has been gifted attributes that better belong to Scipio. Julius Caesar modeled himself off of Scipio Africanus, including taking his titles and position as high priest in the Flammen Dialis cult.\
-(b) The word 'God' derives from the Proto-Germanic word 'gudiz' which is
-    also related to the Proto-Indo-European root 'dyeus'. In Latin
-    'deus' means 'god'.\
-(c) The symbol of the cross, Celtic cross/high cross/sun cross/solar
+
+(b) The symbol of the cross, Celtic cross/high cross/sun cross/solar
     wheel, et.al., which predate christianity by thousands of years
     (Callanish Stones. Wikipedia,
     https://en.wikipedia.org/wiki/Callanish_Stones
@@ -584,18 +582,18 @@ Endnotes (Chapter 1)
     simply the same relgion that they were already worshiping, and
     because of widespread illiteracy at the time, they had no idea what
     garbage was inside the bible.\
-(d) The Letter to Flora and the Tripartite Tractate write about a
+(c) The Letter to Flora and the Tripartite Tractate write about a
     Gnostic teacher called "Ptolemy" who I identify as Ptolemy Menneus
     aka Simon Boethus aka Simon Magus.\
-(e) Modern judaism is not the Torah (Old Testament), and has not been
+(d) Modern judaism is not the Torah (Old Testament), and has not been
     for a long time. The Talmud was completed after the New Testiment
     and this is what modern jews follow. Essentially, jews follow the
     program that Rabbi Akiva and his students created (ethnocentrisim in
     the form of a religion).\
-(f) Kabbalists believe that Rabbi Akiba was a gilgul (reincarnation) of
+(e) Kabbalists believe that Rabbi Akiba was a gilgul (reincarnation) of
     Zimri, a prince of the Tribe of Simeon who participated in the
     Heresy of Peor.\
-(g) Several members of this Egyptian-Persian-Anatolian-Greek-Roman
+(f) Several members of this Egyptian-Persian-Anatolian-Greek-Roman
     aristocratic family identified themselves as 'jewish' despite being
     ethnically Celtic Gauls or Aryan Sarmatians. Ptolemy (Alexander) bar
     Menneus/Ptolemy X Alexander I (Simon Boethus) played the role of
@@ -638,7 +636,7 @@ Endnotes (Chapter 1)
     Kohiba revolt, the proto-Arabs, and high amounts of neanderthal
     admixture from the Crimean peninsula and Cannan (see Chapter 2.1
     Ethnogenesis of the Jews). \
-    (h) Vespassian was also a great-grandson of Cleopatra and Mark Antony
+    (g) Vespassian was also a great-grandson of Cleopatra and Mark Antony
     (King Herod) (The Royal Ancestry of Emperor Vespasian (The Royal
     Ancestry of Emperor Vespasian. Henry Davis,
     https://www.henryhdavis.com/theroyalancestryofemperorvespasian
@@ -715,30 +713,18 @@ also started offering their savage god just foreskins instead of the
 full baby as a sacrifice, although they have been continually accused of
 the ritual murder of gentile babies since then [^26].
 
-The authors/compilers of the first version of the old testament were
-Jeremiah and Baruch ben Neriah, who were probably the same person. They
-created judaism as one of the earliest psyops ever created and it was
-used to control the social behavior of other jews and to promote
-ethnocentrism in the form of a religion. While in Babylon, at the same
-time they created this tribal group strategy religion for their
-in-group, they created Zoroastrianism as a slave morality for the
-out-group (Babylonians and Persians) which was the progenitor of every
+In 539 BC Cyrus the Great conquered Babylonia and soon after afforded the jews special protection. Including allowing them to move to Persia. It was then in Persia were Jeremiah and Baruch ben Neriah (who were probably the same person) then codified the first draft of judaism.
+
+Then a few centuries later around 283-246 BCE Ptolemy I Soter summoned 72 Babylonian Jewish high priests (kohanim) to Alexandria to translate the Hebrew Bible. It was in Alexandria where they wrote the Pentateuch and Septuagint. See: Chapter 7. The Alexandrian School. These jewish high priests opened up some books at the Library of Alexandria and cut-and-pasted Greek philosophy into their religion. Plato's hypothetical perfect colony called Magnesia, from his thesis called law. Ancestor received law from a deity, hereditary priesthood rather than king, as well as the division into 12 tribes were all part of the formula. Plato's Timaeus (360 BC) is where the story of Abraham comes from, and Plato's The Laws (347 BC) is where their laws came from. The Oracles Against the Nations plagiarize the Sibylline Oracles.
+
+The Pentateuch was written at the same time as the Septuagint in Alexandria. Judaism was built upon an oral tradition that was laid down by Jeremiah and Baruch ben Neriah.
+
+The authors/compilers of the Pentateuch and Septuagint in Alexandria included Onias I (see: Chapter 7: The Alexandrian School). They created judaism as one of the earliest psyops ever created and it was used to control the social behavior of other jews and to promote ethnocentrism in the form of a religion. While in Babylon, at the same time they created this tribal group strategy religion for their in-group, they created several as a slave moralitys for the out-group, including the Serapis Cult, which was the progenitor of every
 slave morality that followed.
 
 Endnotes (Chapter 2)
 
-(a) Ptolemy I Soter summoned 72 Babylonian Jewish high priests (kohanim)
-    to Alexandria to translate the Hebrew Bible. It was in Alexandria
-    where they wrote the Pentateuch and Septuagint. See: Chapter 7. The
-    Alexandrian School. These jewish high priests opened up some books
-    at the Library of Alexandria and cut-and-pasted Greek philosophy
-    into their religion. Plato's hypothetical perfect colony called
-    Magnesia, from his thesis called law. Ancestor received law from a
-    deity, hereditary priesthood rather than king, as well as the
-    division into 12 tribes were all part of the formula. Plato's
-    Timaeus (360 BC) is where the story of Abraham comes from, and
-    Plato's The Laws (347 BC) is where their laws came from.\
-(b) Study that traces the origins of ashkenazi jews to northern Turkey.
+(a) Study that traces the origins of ashkenazi jews to northern Turkey.
     The towns Ashkanaz, Ishkanaz, Eshkanaz, etc.'Genetic origins of
     Ashkenazi Jews. National Center for Biotechnology Information'
     https://www.ncbi.nlm.nih.gov/pmc/articles/PMC5478715
@@ -761,7 +747,7 @@ Endnotes (Chapter 2)
     Carians have a strong connection with the settlement of Rome
     (Aquilla = Qos = god of Kos of Caria), Sparta, and Canaan, and the
     Galatians were Celtic and were Druids.\
-(c) You can read more about the Jew-Neanderthal connection here: (Humans
+(b) You can read more about the Jew-Neanderthal connection here: (Humans
     and Neanderthals likely interbred in the Middle East. Science
     Magazine,
     https://www.sciencemag.org/news/2015/01/humans-and-neandertals-likely-interbred-middle-east),
@@ -794,17 +780,17 @@ Endnotes (Chapter 2)
     https://archive.ph/2024.02.24-211636/https://newamericangovernment.org/ailink/802/),
     (Blogger,
     https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiyDzxbNmb6Oj5aDWOknO84-hwkdkoi) \
-(d) John 8:44 in the New Testament, when Jesus speaks to the Pharisees,
+(c) John 8:44 in the New Testament, when Jesus speaks to the Pharisees,
     also refers to YHWH being the devil: "*You belong to your father,
     the devil, and you want to carry out your father's desires. He was a
     murderer from the beginning, not holding to the truth, for there is
     no truth in him. When he lies, he speaks his native language, for he
     is a liar and the father of lies."\
-(e) The author of the Book of Kings speaks about passing one's son and
+(d) The author of the Book of Kings speaks about passing one's son and
     daughter through fire (II Kings 16:3 [son], 17:17, 21:6 [son].
     II Kings 23:10 speaks about "passing one's son or daughter through
     fire to Moloch.".\
-(f) There are multiple sections in the Torah, Midrash, and Talmud that
+(e) There are multiple sections in the Torah, Midrash, and Talmud that
     condone cannibalism and eating their enemies: Bava Batra, II Samuel
     161:8, Isiah 51:4, Midrash Leviticus Rabbi 13:3. "*And Rabba says
     that Rabbi Yoḥanan says: In the future, the Holy One, Blessed be He,
