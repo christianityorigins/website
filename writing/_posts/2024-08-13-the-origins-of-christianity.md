@@ -18,6 +18,7 @@ Table of Contents
 
 Preface\
 Characters\
+Definitions\
 BOOK I. THE ORIGINS OF CHRISTIANITY\
 Chapter 1: The Creation of Christianity \
 1.1 Imperial Cult\
