@@ -719,7 +719,7 @@ Then a few centuries later around 283-246 BCE Ptolemy I Soter summoned 72 Babylo
 
 The Pentateuch was written at the same time as the Septuagint in Alexandria. Judaism was built upon an oral tradition that was laid down by Jeremiah and Baruch ben Neriah.
 
-The authors/compilers of the Pentateuch and Septuagint in Alexandria included Onias I (see: Chapter 7: The Alexandrian School). They created judaism as one of the earliest psyops ever created and it was used to control the social behavior of other jews and to promote ethnocentrism in the form of a religion. While in Babylon, at the same time they created this tribal group strategy religion for their in-group, they created several as a slave moralitys for the out-group, including the Serapis Cult, which was the progenitor of every
+The authors/compilers of the Pentateuch and Septuagint in Alexandria included Onias I (see: Chapter 7: The Alexandrian School). They created judaism as one of the earliest psyops ever created and it was used to control the social behavior of other jews and to promote ethnocentrism in the form of a religion. While in Alexandria, at the same time they created this tribal group strategy religion for their in-group, they created several slave morality religions for the out-group, including the Serapis Cult, which was the progenitor of every
 slave morality that followed.
 
 Endnotes (Chapter 2)
