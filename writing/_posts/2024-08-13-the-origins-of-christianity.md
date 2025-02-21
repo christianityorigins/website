@@ -500,9 +500,9 @@ christianity as the biggest cult in the empire for a couple of
 centuries. One of the scribes for this cult was Aquila of Sinope aka
 Onkelos who was a kinsman of the Roman emperor Hadrian. The midrash
 (Tanhuma. 41a, Mishpatim 3) claims that Onkelos was a nephew of Hadrian
-and other jewish sources list him as a nephew of emperor Titus. Emperor
+and other jewish sources list him as a nephew of emperor Titus (Tractate Gittin (56b)). Emperor
 Hadrian also employed Aquilla of Sinope to rebuild Jerusalem as Aelia
-Capitolina. Aquila of Sinope aka Onkelos was a student of none other
+Capitolina after the Bar Kokhba revolt (the city was named after Hadrian's family name (Aelia) and the Roman god Jupiter (Capitolina)). Aquila of Sinope aka Onkelos was a student of none other
 than rabbi Akiva. In Acts 18:2-3 and Romans 16:3 NASB, it is claimed
 that Aquila of Sinope and his wife Prisca or Priscilla lived with Paul
 the Apostle and Paul called them "my fellow workers in Christ Jesus"
