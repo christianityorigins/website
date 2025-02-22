@@ -248,9 +248,9 @@ Speculative
 Definitions
 ---------------------
 
--   Pentateuch: The first five books of the Hebrew Bible, traditionally attributed to Moses: Genesis, Exodus, Leviticus, Numbers, Deuteronomy. The term comes from the Greek for "five scrolls."
+-   Pentateuch: The first five books of the Hebrew Bible, traditionally attributed to Moses: Genesis, Exodus, Leviticus, Numbers, Deuteronomy. The term comes from the Greek for "five scrolls.". Also called the Torah.
 -   Tanakh (an acronym (TNK) that represents the entire Hebrew Bible, divided into three main sections):
-    -  Torah (Teaching or Law): Corresponds to the Pentateuch (Genesis, Exodus, Leviticus, Numbers, Deuteronomy). Also called the Torah.
+    -  Torah (Teaching or Law): Corresponds to the Pentateuch (Genesis, Exodus, Leviticus, Numbers, Deuteronomy).
     -  Nevi'im (Prophets): Eight books: Joshua, Judges, Samuel (1 and 2 as one), Kings (1 and 2 as one), Isaiah, Jeremiah, Ezekiel, The Twelve (minor prophets as one).
     -   Ketuvim (Writings): Eleven books: Psalms, Proverbs, Job, Song of Songs, Ruth, Lamentations, Ecclesiastes, Esther, Daniel, Ezra-Nehemiah (as one), Chronicles (1 and 2 as one).
 This results in a total of 24 books in the Jewish Bible.
