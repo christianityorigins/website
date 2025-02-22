@@ -564,7 +564,6 @@ could cover-up the tracks of their psyop religion.
 Endnotes (Chapter 1)
 
 (a) I trace the messianic archetype as it appears in the new testament back to Scipio Africanus. He was the first high priest in the Flammen Dialis cult which made him the claimed son of Jupiter Optimus Maximus. His mother was claimed to have been divinely impregnanted by Jupiter. He was also the Salian Priest of Mars, 'second Romulus' (founder of Rome), and Consul of the Republic and Censor. He was the 'messiah' of Rome. He also carried the title I(J)uipter-Ammon (there was no "J" in Latin) to let the Egyptians know that the Roman deity I(J)uipter and the Egyptian deity Ammon were equivalent ('interpretatio graeca'), and likely also carried the title I(J)upiter-Zeus (I-Zeus -> Iesus) to let the Greeks know that I(J)upiter and Zeus were equivalent deities (Roman Jupiter and Greek Zeus both derive from the Aryan skyfather 'Dyeus Pter'. The name Zeus comes from the pronunciation of Dyeus, and Jupiter comes from the pronunciation of 'Dyeus Pter'). Scipio wrote an autobiography that described his "miracles" to improve troop morale. His book was the most popular book in the Roman world and coincidently disappeared around the time Christianity emerged. In 'Chapter 5: Alexander the Great' I write about the similarities of Alexander and the Jesus figure. Alexander did come before Scipio, but everything about Scipio was written before Alexander and therefore it's just as likely that Alexander has been gifted attributes that better belong to Scipio. Julius Caesar modeled himself off of Scipio Africanus, including taking his titles and position as high priest in the Flammen Dialis cult.\
-
 (b) The symbol of the cross, Celtic cross/high cross/sun cross/solar
     wheel, et.al., which predate christianity by thousands of years
     (Callanish Stones. Wikipedia,
@@ -630,7 +629,7 @@ Endnotes (Chapter 1)
     and regeneration. There was also an ancient Celtic tribe known as
     the Iudii or Iudaei, who inhabited the region of Gaul (modern-day
     France) and Britain. The ancient Celtic prefixes 'Rab' or 'Rhab'
-    mean 'wise one' or 'seer', and a Druid equates to a Rabbi. The area
+    mean 'wise one' or 'seer', and a Druid equates to a Rabbi. Also, in  Exodus 3:8 Israel is described as "the land of milk and honey" despite the fact most people today who call themselves jews are lactose intolerant and honey is not kosher. The area
     of modern israel was wiped out multiple times. Modern day jews
     evolved from the mixture of 'Ashkuza' Turks, survivors of the Bar
     Kohiba revolt, the proto-Arabs, and high amounts of neanderthal
@@ -700,7 +699,7 @@ blood thirsty with their tribal war god YWHA demanding the child
 sacrifice of the first born sons, with them being burned alive [^25].
 
 The Babylonians, under King Nebuchadnezzar, then conquered Judah in 597
-BC which led to the deportation of Jews (586 BC) and many of them moving
+BC which led to the deportation of Jews (586 BCE) and many of them moving
 to Babylon. The Babylonians found human child sacrifice abhorrent and
 this is what led to the Babylonians destroying Solomon's Temple and the
 jews rewriting the Old Testament to retcon their entire history with
@@ -713,14 +712,13 @@ also started offering their savage god just foreskins instead of the
 full baby as a sacrifice, although they have been continually accused of
 the ritual murder of gentile babies since then [^26].
 
-In 539 BC Cyrus the Great conquered Babylonia and soon after afforded the jews special protection. Including allowing them to move to Persia. It was then in Persia were Jeremiah and Baruch ben Neriah (who were probably the same person) then codified the first draft of judaism.
+In 539 BCE Cyrus the Great conquered Babylonia and soon after afforded the jews special protection including allowing them to move to Persia. It was then in Persia were Jeremiah and Baruch ben Neriah (who were probably the same person) then codified the first draft of judaism.
 
 Then a few centuries later around 283-246 BCE Ptolemy I Soter summoned 72 Babylonian Jewish high priests (kohanim) to Alexandria to translate the Hebrew Bible. It was in Alexandria where they wrote the Pentateuch and Septuagint. See: Chapter 7. The Alexandrian School. These jewish high priests opened up some books at the Library of Alexandria and cut-and-pasted Greek philosophy into their religion. Plato's hypothetical perfect colony called Magnesia, from his thesis called law. Ancestor received law from a deity, hereditary priesthood rather than king, as well as the division into 12 tribes were all part of the formula. Plato's Timaeus (360 BC) is where the story of Abraham comes from, and Plato's The Laws (347 BC) is where their laws came from. The Oracles Against the Nations plagiarize the Sibylline Oracles.
 
 The Pentateuch was written at the same time as the Septuagint in Alexandria. Judaism was built upon an oral tradition that was laid down by Jeremiah and Baruch ben Neriah.
 
-The authors/compilers of the Pentateuch and Septuagint in Alexandria included Onias I (see: Chapter 7: The Alexandrian School). They created judaism as one of the earliest psyops ever created and it was used to control the social behavior of other jews and to promote ethnocentrism in the form of a religion. While in Alexandria, at the same time they created this tribal group strategy religion for their in-group, they created several slave morality religions for the out-group, including the Serapis Cult, which was the progenitor of every
-slave morality that followed.
+The authors/compilers of the Pentateuch and Septuagint in Alexandria included Onias I (see: Chapter 7: The Alexandrian School). They created judaism as one of the earliest psyops ever created and it was used to control the social behavior of other jews and to promote ethnocentrism in the form of a religion. While in Alexandria, at the same time they created this tribal group strategy religion for their in-group, they worked as scribes and created several slave morality religions for the out-group, including the Serapis Cult, which was the progenitor of every slave morality that followed.
 
 Endnotes (Chapter 2)
 
