@@ -249,28 +249,20 @@ Definitions
 ---------------------
 
 -   Pentateuch: The first five books of the Hebrew Bible, traditionally attributed to Moses: Genesis, Exodus, Leviticus, Numbers, Deuteronomy. The term comes from the Greek for "five scrolls."
-  
 -   Tanakh (an acronym (TNK) that represents the entire Hebrew Bible, divided into three main sections):
-    -  Torah (Teaching or Law): Corresponds to the Pentateuch (Genesis, Exodus, Leviticus, Numbers, Deuteronomy).
+    -  Torah (Teaching or Law): Corresponds to the Pentateuch (Genesis, Exodus, Leviticus, Numbers, Deuteronomy). Also called the Torah.
     -  Nevi'im (Prophets): Eight books: Joshua, Judges, Samuel (1 and 2 as one), Kings (1 and 2 as one), Isaiah, Jeremiah, Ezekiel, The Twelve (minor prophets as one).
     -   Ketuvim (Writings): Eleven books: Psalms, Proverbs, Job, Song of Songs, Ruth, Lamentations, Ecclesiastes, Esther, Daniel, Ezra-Nehemiah (as one), Chronicles (1 and 2 as one).
-
 This results in a total of 24 books in the Jewish Bible.
-
 -   Old Testament: The Hebrew Bible in Christian traditions, including the same texts as the Tanakh but arranged differently and sometimes with additional books.
-
 -   Septuagint: An ancient Greek translation of the Hebrew Scriptures, produced in the 3rd and 2nd centuries BCE for Greek-speaking Jews in Egypt. It includes the books of the Tanakh and additional texts (Deuterocanonical books) that are not found in the Hebrew Bible. The Septuagint is significant in early Christianity and is often quoted in the New Testament.
-
 -   New Testament:
     -   Gospels: The first four books (Matthew, Mark, Luke, John) recount the life and teachings of Jesus.
     -   Epistles: Letters by apostles (primarily Paul) to early Christian communities addressing theological issues.
     -   Acts of the Apostles: Describes the early church and the spread of Christianity after Jesus' resurrection.
     -   Revelation: Contains apocalyptic visions and prophecies attributed to John.
-
 -   Midrash: Rabbinic literature providing commentary and interpretation of the Hebrew Scriptures.
-
 -   Talmud: A central text of Rabbinic Judaism, consisting of the Mishnah (oral laws) and the Gemara (commentary on the Mishnah).
-
 -   Mitzvot: Commandments or laws in the Torah, often referring to the 613 commandments that guide Jewish life.
 
     
