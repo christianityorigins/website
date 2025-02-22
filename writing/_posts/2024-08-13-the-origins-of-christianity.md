@@ -593,19 +593,12 @@ Endnotes (Chapter 1)
     Fabus) played the role of rabbis. Philo of Alexandria was 'Philo the
     Jew', her brother-husband Tiberius Julius Alexander identified as
     Jewish, etc. This could be a case of this family taking on regional
-    identities, but the more likely option is that the people who became
-    modern-day jews were under the suzerainty of the Celts in Galatia
-    and Gaulinitis and their entire identity, language, and religion
-    derives from this. The Celts, who the Scythians later became after
-    moving into Northwestern Europe, were well known for travelling with
-    an underclass of slaves. The Celtic Gauls were in israel
-    ('Gaulinitis' = Golan Heights), and the Celtic languages are
+    identities, but the more likely option is that the original redhead clan of Druids that ended up becoming Israelites were Scythians who migrated southwards during the early Aryan invasion of 4000 BC. Scythian --> Saka --> Isaac. This migration coincides with the development of early bronze age civilization. They they went to Anatolia first (Galatia), then Babylon, then Canaan ('Gaulinitis' = Golan Heights). In Canaan, the descendants of the Bablyonian jews then came under the suzerainty of these people and their entire identity, language, and religion
+    derives from this. The evidence for this is that the Celtic languages are
     surprisingly Semitic with a verb-subject-object word order and a
     shocking amount of vocabulary overlap, and the name of Irish
     deities, Balor and his holiday Beltaine are cognate to Bal and
-    Elatha the Irish Uranus is cognate to Hebrew El. There is a lot of
-    theological overlap between the ancient Vedas, judaism,
-    christianity, and Druidism. There was apparently an ancient
+    Elatha the Irish Uranus is cognate to Hebrew El. There was apparently an ancient
     conquerer named 'Ram the Druid' and Abraham = Ab Ram, or 'Born of
     Ram', he was also Ra in Egyptian mythology, the basis of the name
     'Ram'esses in Egypt, Ram the Aries, Rama in the Vedas, and Lama in
@@ -620,9 +613,9 @@ Endnotes (Chapter 1)
     and regeneration. There was also an ancient Celtic tribe known as
     the Iudii or Iudaei, who inhabited the region of Gaul (modern-day
     France) and Britain. The ancient Celtic prefixes 'Rab' or 'Rhab'
-    mean 'wise one' or 'seer', and a Druid equates to a Rabbi. Also, in  Exodus 3:8 Israel is described as "the land of milk and honey" despite the fact most people today who call themselves jews are lactose intolerant and honey is not kosher. The area
+    mean 'wise one' or 'seer', and a Druid equates to a Rabbi. The area
     of modern israel was wiped out multiple times. Modern day jews
-    evolved from the mixture of 'Ashkuza' Turks, survivors of the Bar
+    evolved from the mixture of Celts, survivors of the Bar
     Kohiba revolt, the proto-Arabs, and high amounts of neanderthal
     admixture from the Crimean peninsula and Cannan (see Chapter 2.1
     Ethnogenesis of the Jews). \
