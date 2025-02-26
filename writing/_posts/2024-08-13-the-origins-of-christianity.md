@@ -545,7 +545,7 @@ This conspiracy was so elaborate that this group even rewrote history to
 make it fit with their new religion. Josephus was an alias for
 Hegesippus [^19] (the name Hegesippus is most likely a Latin to Greek
 corruption of 'Iosippus', the Latinized spelling of Josephus) who was
-another student of rabbi Akiva and the book 'The Antiquities of the
+another person associated with the 'Alexandrian School' in Egypt and who was possibly a student of rabbi Akiva. The book 'The Antiquities of the
 Jews' was backdated to make christianity look legitimate. It was
 historical fiction. I would even hazard a guess that this group was
 responsible for burining down the Library of Alexandria which resulted
@@ -1694,7 +1694,8 @@ https://auctions.stacksbowers.com/lots/view/3-US7SY/julius-caesar-ar-denarius-39
 
 [^19]: 'Josephan Corpus Began Life as a Christian Forgery' by Stephan
     Huller
-    [[link](https://stephanhuller.blogspot.com/2010/08/i-think-i-can-prove-that-our-josephan.html)
+    [[link](https://stephanhuller.blogspot.com/2010/08/i-think-i-can-prove-that-our-josephan.html) \
+    --'Chasing Hegesippus' by Peter Kirby [link](https://peterkirby.com/chasing-hegesippus.html) \
 
 [^20]: Eezekiel 16:1-316: "The word of the Lord came to me: 2"Son of
     man, confront Jerusalem with her detestable practices 3 and say,
