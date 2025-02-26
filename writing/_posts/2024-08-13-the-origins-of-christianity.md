@@ -68,10 +68,10 @@ The central points of this book can be summarized as follows:
     Himyarite Kingdom after Emperor Hadrian expelled them from judea,
     cut-and-pasted from the aformentioned Byzantine-Roman imperial cult
     and repackaged it with two psy-ops: a slave morality for the Romans
-    (Christianity), and warrior cult (Islam) to weaponize the Arabs to
+    (Christianity), and warrior cult (the blueprint for Islam) to weaponize the Arabs to
     attack eastern Rome (Allah and Muhammad the red-headed warlord were
-    parodies of Attila the Hun and his uncle Ruglia waging war against
-    Rome ("Edom") because they wanted the Arabs to attack eastern Rome).
+    eventually added as parodies of Attila the Hun and his uncle Ruglia waging war against
+    Rome ("Edom") because the objective was always to weaponize the Arabs to attack eastern Rome).
     Rabbi Akiva created modern Judaism to create ethnocentrism in the
     form of a religion, and his students Markianos of Alexandria aka
     Marcion of Sinope did the slave-morality of Christianity and Simon
