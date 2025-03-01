@@ -546,8 +546,7 @@ make it fit with their new religion. Josephus was an alias for
 Hegesippus [^19] (the name Hegesippus is most likely a Latin to Greek
 corruption of 'Iosippus', the Latinized spelling of Josephus) who was
 another person associated with the 'Alexandrian School' in Egypt and who was possibly a student of rabbi Akiva. The book 'The Antiquities of the
-Jews' was backdated to make christianity look legitimate. It was
-historical fiction. I would even hazard a guess that this group was
+Jews' was a pseudo-epigraphical work (of propoganda) that was backdated to make christianity look legitimate in the same way that the 'Letter of Aristeas' was backdated to exaggerate the age of the Septuagint. It was historical fiction. I would even hazard a guess that this group was
 responsible for burining down the Library of Alexandria which resulted
 in the loss of all recorded history up until that point so that they
 could cover-up the tracks of their psyop religion which was primarily engineered at the Alexandrian School.
@@ -1637,7 +1636,7 @@ https://auctions.stacksbowers.com/lots/view/3-US7SY/julius-caesar-ar-denarius-39
 
 [^7]: The name Herod likely derives from the amalgamation of Horus and
     Hercules. Mark Antony claimed descent from Hercules and declared
-    himself an incarnation of Horus. 
+    himself an incarnation of Horus. Herod became king of judaea around the time of Mark Antony's "suicide". This is typical for these elites, they would kill off one character and then assume another one in a different location as if they were actors in a play\
     --The Shekel of Tyre that King
     Herod minted depicts Mark Antony and an image of Hercules:
     https://www.forumancientcoins.com/numiswiki/view.asp?key=tyrian%20shekels
