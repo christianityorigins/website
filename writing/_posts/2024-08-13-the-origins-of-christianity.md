@@ -221,7 +221,6 @@ Ancient Alias Names List
 
 Speculative
 
--   Amenemhept (Adamenemhept) I = Adam (the "first human" in Genesis 1–5)
 -   Alexander the Great = Chandragupta (Alakshandra is a Sanskritized
     translation of Alexander and Gupta means guardian or protector in
     Sanskrit, the exact meaning of Alexander). (See: 'Alexander and
@@ -239,7 +238,6 @@ Speculative
 -   John the Baptist = Yohanan ben Zakkai. Father of Gamaliel and
     grandfather of Jesus ben Gamla/Gamaliel.
 -   Ptolemy XIII Theos Philopator = Gaius Octavius aka Emperor Gaius Julius Caesar Augustus, son of Julius Caesar and Berenice IV aka Alfidia (Cleopatra VII sister).
--   Thutmose I = Moses (the prophet who led the Israelites out of slavery in the Exodus)
 
 
 Definitions
@@ -327,7 +325,7 @@ sister of Asander. He was also a cousin of Dynamis.
 
 Cleopatra aka Dynamis's son with Julius Caesar aka Asander = Tiberius
 Julius Aspurgus Philoromaios, who was born about the same time as
-Caesarion and Emperor Tiberius Julius Caesar (Mark Antony = Tiberius Claudius Nero, emperor Tiberius's father, so he likely adopted Julius Caesar/Asander's child).
+Caesarion and Emperor Tiberius Julius Caesar (Mark Antony = Tiberius Claudius Nero, emperor Tiberius's father, so he likely adopted Julius Caesar/Asander's child and he took his name and titles).
 
 Cleopatra aka Dynamis's son with Mark Antony [^7](aka King Herod aka
 Tiberius Claudius Nero aka Phraates IV of Parthia) = Alexander Helios
