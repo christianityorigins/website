@@ -56,7 +56,7 @@ Preface
 
 The central points of this book can be summarized as follows:
 
--    Elites in antiquity created imperial cult religions to solidify their rule and subjugate the population to their colonial domination. Christianity was one in a long line of slave morality imperial cults invented by these elites. Christianity's progenitors were Zoroastrianism, Buddhism, and over a dozen religions from the 'Alexandrian School' in Egypt starting with the Serapsis Cult. It is an impossibility that any religion could have sprug up organically. The royal families controlled the publishing and the punishment for spreading a religion that might subvert an imperial cult was death.
+-    Elites in antiquity created imperial cult religions to solidify their rule and subjugate the population to their colonial domination. Christianity was one in a long line of slave morality imperial cults invented by these elites. Christianity's progenitors were Zoroastrianism, Buddhism, and over a dozen religions from the 'Alexandrian School' in Egypt starting with the Serapsis Cult. It is an impossibility that any religion could have sprug up organically. The royal families controlled the publishing and the punishment for spreading a religion that might compete with an imperial cult was death.
 -   There existed a Byzantine imperial cult where Julius Caesar took on
     the role of Asander of Bosphorus, and Cleopatra took on the role of
     Dynamis, queen of Bosphorus.
@@ -65,10 +65,10 @@ The central points of this book can be summarized as follows:
     leaders.
 -   Sometime after the Bar Kokhba Revolt (132--136 CE), Talmudic jews
     who were students of a rabbi named Akiva and who had connections to
-    the 'Alexandrian School' in Egypt, and who were hiding out in the
+    the Alexandrian School in Egypt, and who were hiding out in the
     Himyarite Kingdom after Emperor Hadrian expelled them from judea,
-    cut-and-pasted from the aformentioned Byzantine-Roman imperial cult
-    and repackaged it with two psy-ops: a slave morality for the Romans
+    realized that mind subversion was the only way to destroy the Romans. Knowing that creating a new religion would have resulted in their death, and the fact that it is an impossible task to get people to abandon their religions for a new one, they took the aformentioned Byzantine-Roman imperial cult
+    and created two new sects: a slave morality for the Romans
     (Christianity), and warrior cult (the blueprint for Islam) to weaponize the Arabs to
     attack eastern Rome (Allah and Muhammad the red-headed warlord were
     eventually added as parodies of Attila the Hun and his uncle Ruglia waging war against
