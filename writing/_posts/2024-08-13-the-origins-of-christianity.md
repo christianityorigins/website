@@ -240,8 +240,8 @@ Speculative
     Akiva)?
 -   John the Baptist = Yohanan ben Zakkai. Father of Gamaliel and
     grandfather of Jesus ben Gamla/Gamaliel.
--   Ptolemy XIII Theos Philopator = Gaius Octavius aka Emperor Gaius
-    Julius Caesar Augustus, Cleopatra VII's brother.
+-   Ptolemy XIII Theos Philopator = Gaius Octavius aka Emperor Gaius Julius Caesar Augustus, son of Julius Caesar and Berenice IV aka Alfidia (Cleopatra VII sister). \
+-    Onias I (Ananas) = Ptolemy Epigone aka High Priest Epigone.
 
 
 
