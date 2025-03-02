@@ -56,6 +56,7 @@ Preface
 
 The central points of this book can be summarized as follows:
 
+-    Elites in antiquity created imperial cult religions to solidify their rule and subjugate the population to their colonial domination. Christianity was one in a long line of slave morality imperial cults invented by these elites. Christianity's progenitors were Zoroastrianism, Buddhism, and over a dozen religions from the 'Alexandrian School' in Egypt starting with the Serapsis Cult. It is an impossibility that any religion could have sprug up organically. The royal families controlled the publishing and the punishment for spreading a religion that might subvert an imperial cult was death.
 -   There existed a Byzantine imperial cult where Julius Caesar took on
     the role of Asander of Bosphorus, and Cleopatra took on the role of
     Dynamis, queen of Bosphorus.
@@ -77,10 +78,6 @@ The central points of this book can be summarized as follows:
     Marcion of Sinope did the slave-morality of Christianity and Simon
     ben Yohai created the warrior-morality of Islam and The Secrects of
     Rabbi Simon ben Yohai.
--   Most of the 'new History' that we accept as fact today was created
-    by Hegesippus (rabbi Akiva's student) aka 'Josephus', the Church
-    Fathers, and the Jesuits starting with Joseph Justus Scaliger. Most
-    history was falsified to retrofit with the bible.
 
 My research is focused on identifying the people who wrote the bible,
 the context in which they wrote it, and my thesis addresses the question
@@ -278,7 +275,7 @@ the interests of the ruling elite. These elites used religion, as well
 as an incredible number of regional aliases, locations, fictional
 stories, and faked deaths for their family members to control the
 population. They role-played as deities, religious figures, and
-different characters as if they were actors in a play. This was done to hide the fact that the people were ruled by dynasties and to give the population an illusion of upward social mobility or implanting a sense of false hope.
+different characters as if they were actors in a play. This was done to hide the fact that the people were ruled by dynasties and to give the population an illusion of upward social mobility or implanting a sense of false hope. These religions were also money making schemes.
 
 The figure of Jesus Christ (of Nazareth) was a literary creation of these elites,
 incorporating elements of various historical and mythological figures to
