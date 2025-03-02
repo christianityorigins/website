@@ -17,7 +17,7 @@ deed* - Romans 15:18
 Table of Contents
 
 Preface\
-Characters\
+Ancient Alias Names List\
 Definitions\
 BOOK I. THE ORIGINS OF CHRISTIANITY\
 Chapter 1: The Creation of Christianity \
@@ -90,7 +90,7 @@ historiography, counter-narrative analysis, and historical
 deconstruction. The main sources that inspired my research are listed in
 the 'further reading' section at the end of the book.
 
-Characters
+Ancient Alias Names List
 ---------------------
 
 -   Alexander (son of King Herod and grandson of Simon Boethus) = Juba
@@ -224,6 +224,7 @@ Characters
 
 Speculative
 
+-   Amenemhept (Adamenemhept) I = Adam (the "first human" in Genesis 1–5)
 -   Alexander the Great = Chandragupta (Alakshandra is a Sanskritized
     translation of Alexander and Gupta means guardian or protector in
     Sanskrit, the exact meaning of Alexander). (See: 'Alexander and
@@ -240,9 +241,8 @@ Speculative
     Akiva)?
 -   John the Baptist = Yohanan ben Zakkai. Father of Gamaliel and
     grandfather of Jesus ben Gamla/Gamaliel.
--   Ptolemy XIII Theos Philopator = Gaius Octavius aka Emperor Gaius Julius Caesar Augustus, son of Julius Caesar and Berenice IV aka Alfidia (Cleopatra VII sister). \
--    Onias I (Ananas) = Ptolemy Epigone aka High Priest Epigone.
-
+-   Ptolemy XIII Theos Philopator = Gaius Octavius aka Emperor Gaius Julius Caesar Augustus, son of Julius Caesar and Berenice IV aka Alfidia (Cleopatra VII sister).
+-   Thutmose I = Moses (the prophet who led the Israelites out of slavery in the Exodus)
 
 
 Definitions
@@ -278,8 +278,9 @@ the interests of the ruling elite. These elites used religion, as well
 as an incredible number of regional aliases, locations, fictional
 stories, and faked deaths for their family members to control the
 population. They role-played as deities, religious figures, and
-different characters as if they were actors in a play. The figure of
-Jesus Christ (of Nazareth) was a literary creation of these elites,
+different characters as if they were actors in a play. This was done to hide the fact that the people were ruled by dynasties and to give the population an illusion of upward social mobility or implanting a sense of false hope.
+
+The figure of Jesus Christ (of Nazareth) was a literary creation of these elites,
 incorporating elements of various historical and mythological figures to
 appeal to a wide audience. This character then became an avatar for
 several historical figures in an imperial cult.
