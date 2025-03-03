@@ -552,7 +552,7 @@ could cover-up the tracks of their psyop religion which was primarily engineered
 
 Endnotes (Chapter 1)
 
-(a) I trace the messianic archetype as it appears in the new testament back to two sources: the Saoshynt in Zorastrianism, and Scipio Africanus. Scipio was the first high priest in the Flammen Dialis cult which made him the claimed son of Jupiter Optimus Maximus. His mother was claimed to have been divinely impregnanted by Jupiter. He was also the Salian Priest of Mars, 'second Romulus' (founder of Rome), and Consul of the Republic and Censor. He was the 'messiah' of Rome. He also carried the title I(J)uipter-Ammon (there was no "J" in Latin) to let the Egyptians know that the Roman deity I(J)uipter and the Egyptian deity Ammon were equivalent ('interpretatio graeca'), and likely also carried the title I(J)upiter-Zeus (I-Zeus -> Iesus) to let the Greeks know that I(J)upiter and Zeus were equivalent deities (Roman Jupiter and Greek Zeus both derive from the Aryan skyfather 'Dyeus Pter'. The name Zeus comes from the pronunciation of Dyeus, and Jupiter comes from the pronunciation of 'Dyeus Pter'). Scipio wrote an autobiography that described his "miracles" to improve troop morale. His book was the most popular book in the Roman world and coincidently disappeared around the time Christianity emerged. In 'Chapter 5: Alexander the Great' I write about the similarities of Alexander and the Jesus figure. Alexander did come before Scipio, but everything about Scipio was written before Alexander and therefore it's just as likely that Alexander has been gifted attributes that better belong to Scipio. Julius Caesar modeled himself off of Scipio Africanus, including taking his titles and position as high priest in the Flammen Dialis cult.\
+(a) The name "Jesus" was a title that derives from Iupiter-Zeus. The Romans used a system called 'interpretatio graeca' to associate their gods with local ones as part of their colonial program. Julius Caesar, as the claimed 'son of I(J)upiter' (there was no J in Latin) would have been Iupiter-Zeus (I-Zeus -> Iesus) to let the Greeks know that Iupiter and Zeus were equivalent deities (Roman Jupiter and Greek Zeus both derive from the Aryan skyfather 'Dyeus Pter'. The name Zeus comes from the pronunciation of Dyeus, and Jupiter comes from the pronunciation of 'Dyeus Pter').\
 (b) The symbol of the cross, Celtic cross/high cross/sun cross/solar
     wheel, et.al., which predate christianity by thousands of years
     (Callanish Stones. Wikipedia,
@@ -573,9 +573,7 @@ Endnotes (Chapter 1)
 (c) The Letter to Flora and the Tripartite Tractate write about a
     Gnostic teacher called "Ptolemy" who I identify as Ptolemy Menneus
     aka Simon Boethus aka Simon Magus.\
-(d) Kabbalists believe that Rabbi Akiba was a gilgul (reincarnation) of
-    Zimri, a prince of the Tribe of Simeon who participated in the
-    Heresy of Peor.\
+(d) Anatoly Fomenko is an author who makes the claim that the Western Roman Empire is a Rennissance duplicate of the Eastern Roman Empire and that much of the history of the Western Roman Empire was conjured up by the Jesuits and Joseph Justus Scalinger. It is true that the area of modern Byzantine (modern-day Istanbul) was once called 'Basileía tôn Rhômaíôn' ('Kingdom of the Romans') and the people of that region called themsevles Rhōmaîoi (Romans). He also makes the claim that the original Biblical Jerusalem (the city of Yoros) is situated on the eastern shore of Bosphorus. My own research on the origins of Christianity take me to the Bosphorus as well (Julius Caesar = Asander, King of Bosphorus, and Cleopatra = Dynamis). So, maybe there is an element of truth in his theories?. \    
 (e) Vespassian was also a great-grandson of Cleopatra and Mark Antony
     (King Herod) (The Royal Ancestry of Emperor Vespasian (The Royal
     Ancestry of Emperor Vespasian. Henry Davis,
@@ -597,7 +595,7 @@ The original redhead clan of Druids that ended up becoming Israelites were Scyth
 
 #### 2.2 The Creation of Judaism
 
-All jewish history was made up. Their religion is Celtic Druidism combined with the Divine Julius cult that was Hellinized at the Library of Alexandria. So, ancient judaism (before Rabbi Akiva) was as syncretic attempt by the Romans to pacify the jews (who were then Celts) and bring them under the imperial cult [^25]. 
+All jewish history was made up. Their religion is Celtic Druidism that was Hellinized at the Library of Alexandria and then combined with the Divine Julius cult. So, ancient judaism (before Rabbi Akiva) was as syncretic attempt by the Alexandrians and then Romans to pacify the jews (who were then Celts) [^25]. 
 
 #### 2.2.1 Alexandria
 
