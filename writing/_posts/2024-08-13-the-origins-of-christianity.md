@@ -601,7 +601,7 @@ All jewish history was made up. Their religion is Celtic Druidism combined with 
 
 #### 2.2.1 Romanization
 
-Cesar’s gentilice (surname) was Iulius. We are told by Virgil that it goes back to Cesar’s supposed ancestor Iulus or Iule, after the ancient Celtic tribe known as the Iudii or Iudaei, who inhabited the region of Gaul (modern-day France) and Britain. I(J)upiter was also called Jove or Iove to the Romans. The Latin pronunciation of Iove would have been Yoh-Way, i.e Yahweh/Yhwh, so Jove (Roman Zeus). So, Yahweh Saboath, the god of the hebrew bible, is I(J)ove (Roman Zeus) Sabazios (Thracian Zeus).
+Cesar’s gentilice (surname) was Iulius. We are told by Virgil that it goes back to Cesar’s supposed ancestor Iulus or Iule, after the ancient Celtic tribe known as the Iudii or Iudaei, who inhabited the region of Gaul (modern-day France) and Britain. I(J)upiter was also called Jove or Iove to the Romans. The Latin pronunciation of Iove would have been Yoh-Way, i.e Yahweh/Yhwh, so Yahweh Saboath, the god of the hebrew bible, is I(J)ove (Roman Zeus) Sabazios (Thracian Zeus).
 
 Virgil also tells us (drawing from Cato the Elder, c. 168 BC) that the name Julius is the short name of Jupiter (Jul Pater). And it happens to be an Indo-European root word designating the sunlight or the day sky, identical to the Scandinavian name for the solar god, Yule (Helios for the Greeks, Haul for the Gauls, Hel for the Germans, from which derives the French Noël, Novo Hel). 
 
@@ -619,58 +619,14 @@ The authors/compilers of the Pentateuch and Septuagint in Alexandria included On
 
 Modern judaism is not the Torah (Old Testament), and has not been for a long time. The Talmud was completed after the New Testiment  and this is what modern jews follow. Essentially, jews follow the program that Rabbi Akiva and his students created (ethnocentrisim in the form of a religion).\
 
-Endnotes (Chapter 2)
-
-(a) John 8:44 in the New Testament, when Jesus speaks to the Pharisees,
-    also refers to YHWH being the devil: "*You belong to your father,
-    the devil, and you want to carry out your father's desires. He was a
-    murderer from the beginning, not holding to the truth, for there is
-    no truth in him. When he lies, he speaks his native language, for he
-    is a liar and the father of lies."\
-(b) The author of the Book of Kings speaks about passing one's son and
-    daughter through fire (II Kings 16:3 [son], 17:17, 21:6 [son].
-    II Kings 23:10 speaks about "passing one's son or daughter through
-    fire to Moloch.".\
-(c) There are multiple sections in the Torah, Midrash, and Talmud that
-    condone cannibalism and eating their enemies: Bava Batra, II Samuel
-    161:8, Isiah 51:4, Midrash Leviticus Rabbi 13:3. "*And Rabba says
-    that Rabbi Yoḥanan says: In the future, the Holy One, Blessed be He,
-    will prepare a sukka for the righteous from the skin of the
-    leviathan, as it is stated: "Can you fill his skin with barbed
-    irons besukkot*" (Job 40:31).
-    [[link](https://www.sefaria.org/Bava_Batra.75a.6?lang=bi&with=all&lang2=en)]
-    "*Since the second century BC, Egyptians, Greeks, and Romans had
-    identified the evil god Seth-Typhon (often depicted as a donkey-like
-    creature) with the Jewish god Yahweh*"*.* 'The Donkey Deity' by M.
-    David Litwa
-    [[link](https://academic.oup.com/book/39211/chapter-abstract/338714124?redirectedFrom=fulltext)].
-    "Set" is the Egyptian god of violence and destruction and "Typhon"
-    was the deadliest creature in Greek mythology.
-
 ### Chapter 3: The Origins of Zoroastrianism
 
-Zoroaster was Baruch ben Neriah [^27] who was a member of the priestly
-caste of jews in Babylonia who created Zoroastrianism as a slave
-morality system in order to subvert the people of the Iranian Plateau.
-The subversion was done as revenge on the Babylonians for the
-destruction of Solomon's Temple and the deportation of Jews (586 BC) and
-despite the last king of Babylon, Nabonidus, treating the jews well
-[^28]. Very shortly after its foundation in 550 BC the Persian Empire
-under Cyrus the Great aka Koroush Kabir (Koroush = "lord of the sun",
-"kabi = great. Cyrus translates to Kurosh in ancient Persian) wiped the
-Babylonians out, and allowed the Jews to return to Canaan (539 BC).
-Through the Edict of Cyrus the jews were then allowed to have their own
-autonomous province called Yehud Medinata and also build their Second
-Temple (Ezra 6:14), beginning Second Temple Judaism. Obviously, this
-happened due to the extreme influence of Zoroastrianism, a Jewish
-creation, which Cyrus promoted.
+Hippolytos (or: Hippolytus) was a Christian author who speaks of a legend involving the meeting of Pythagoras and Zoroaster of Persia. Aristoxenos, who was a student of Aristotle, wrote the same thing. Druidism was invented by Pythagoras or his teacher Abaris the Hyperborean [^27]. Vedism is the eastern branch of Druidism [^28].
 
-All the troubling aspects of christianity originate in Zoroastrianism:
-monotheistic deity that judges you when you die, eternal hell,
-universalism, sin/salvation, confession of sins, self-deification to
-weaponize/empower the lowest castes. Zoroastrianism also has a religious
-commandment called 'Xwedodah' that commands Zoroastrians to marry and
-procreate with their siblings, with punishment for not doing so!
+Did Cyrus the Great aka Koroush Kabir (Koroush = "lord of the sun", "kabi = great. Cyrus translates to Kurosh in ancient Persian) hire Pythagoras to create an imperial cult? Judaism, Vedism, Zoroastrianism, all have similar themes.
+
+Zoroastrianism is clearly a slave morality. All the troubling aspects of christianity originate in Zoroastrianism:
+monotheistic deity that judges you when you die, eternal hell, universalism, sin/salvation, confession of sins, self-deification to weaponize/empower the lowest castes. Zoroastrianism also has a religious commandment called 'Xwedodah' that commands Zoroastrians to marry and procreate with their siblings, with punishment for not doing so!
 
 #### 3.1 Zoroaster and Jewish Influence
 
@@ -681,42 +637,13 @@ even more slave morality fiction to control the masses.
 
 Endnotes (Chapter 3)
 
-(a) Baruch ben Neriah's grandfather was named 'Ma'aseiah'/Hoshaiah
-    (Jeremiah 32:12-16), the 'king's son' (also the Prophet Isaiah?
-    'Ma'aseiah'/Hoshaiah could be alternate versions of Isaiah. Also,
-    was Hoshaiah also Jeshua son of Je-Zedek (Zadok III)? Hoshaiah and
-    Jeshua both mean "Yahweh is salvation.") who was probably one of the
-    sons of king Ahaz aka Jehoahaz II (Jehoahaz is close to
-    Jehoshua/Jesus) who was killed by Zichri in the invasion of Judah by
-    Pekah, king of Israel (2 Chr. 28:7). King Ahez is recorded to have
-    burned his children alive at the Valley of Hinnom
-    [[link](https://en.wikipedia.org/wiki/Gehenna)] (The King James
-    Version of the Bible translates Gehinnom with the Anglo-Saxon word
-    hell). Four of Ma'aseiah'/Hoshaiah's sons were: Azariah, Zedekiah,
-    Zephaniah and Neriah. Baruch's grandmother must have been the
-    biblical Jezebel. The Gospel of Matthew lists Ahaz of Judah in the
-    genealogy of Jesus. Baruch's brother, Seraiah ben Neriah, was the
-    chief chamberlain (R.V.) to Zedekiah. According to the Old Latin
-    Version of the Apocryphal Book of Baruch (i. 1) he was of the tribe
-    of Simeon.\
-(b) In Isaiah 45:1 the jews called Cyrus "The Anointed One" which in
+(a) In Isaiah 45:1 the jews called Cyrus "The Anointed One" which in
     Hebrew is "moshiach", often translated as "messiah". In Greek "The
     Anointed One" is Chréstos/Christ or Soter. "This prophet, Cyrus,
     through whom were to be redeemed His chosen people, whom he would
     glorify before all the world, was the promised Messiah, 'the
     shepherd of Yhwh' (xliv. 28, xlv. 1)."\
-(c) Zarathustra likely derives from the Hebrew word "Zerah" which means
-    "rise", or it's related Hebrew word Zara which means "growing seed"
-    (see below for more on this word). Another connection is that
-    "Jeremiah" in Arabic is Armiah which correlates to Zoroaster's
-    supposed native place called Urmiah. The texts the 'Apocalypse of
-    Baruch'
-    [[link](https://en.wikipedia.org/wiki/Apocalypse_of_Baruch)] and
-    the 'Rest of the Words of Baruch'
-    [[link](https://en.wikipedia.org/wiki/Rest_of_the_Words_of_Baruch)]
-    hint at Jeremiah and Baruch being the same person (Jeremiah's
-    "visions" are described by Baruch in the first person).\
-(d) Interestingly, Cyrus the Great's successor Darius the Great's full
+(b) Interestingly, Cyrus the Great's successor Darius the Great's full
     name was Darayavahu. Yavahu is uncommonly like Yehouah (YHWH). Vahu
     is the Iranian god of the wind, that became, like the Hebrew, to
     mean breath and so life, so Yavahu literally means the same as YHWH.
@@ -735,10 +662,6 @@ Endnotes (Chapter 3)
     descendant of King Saul through his daughter Merav. Persia became
     multicultural after Darius. Darius the Great was also the one who
     wiped out the Scythians during his Scythian campaigns [^29].\
-(e) Darius the Great's grandson Artaxerxes I had a jewish cup-bearer
-    named Nehemiah (Neh 2:1) who must have come form a royal family and
-    thus was a descendant of Baruch ben Neriah. This shows how close
-    Baruch ben Neriah's family was to the Persian aristocracy.
 
 ### Chapter 4: The Origins of Buddhism
 
@@ -1623,31 +1546,11 @@ https://auctions.stacksbowers.com/lots/view/3-US7SY/julius-caesar-ar-denarius-39
 
 [^26]: Gmirkin, Russell (2016). Plato and the Creation of the Hebrew Bible.
 
-[^27]: The Lost Apocrypha of the Old Testament. Fragments: Baruch (1920)
-    by Montague Rhodes James: "In Solomon of Basrah's Book of the Bee
-    (ed. E. A. W. Budge, 1886: c. xxxvii. p. 81) we read,"The Prophecy
-    of Zaradosht concerning our Lord. This Zaradosht is Baruch the
-    scribe." The prophecy is uttered to the disciples of Zaradosht, the
-    King Gushnasp (Hystaspes) and Sasan and Mahmad. The Virgin-birth,
-    crucifixion, descent into hell, resurrection, ascension, and second
-    coming are predicted, and in answer to a question of Gushnasp,
-    Zaradosht says, "He shall descend from my family. I am he and he is
-    I; he is in me and I am in him."
-    --https://en.wikipedia.org/wiki/Baruch_ben_Neriah#Christian_traditions
-    --https://web.archive.org/web/20230101000000*/https://britam.org/zarathustra.html
-    --https://www.tertullian.org/rpearse/mithras_body_and_blood/mithras_myth1.htm
-    --Josephus,The Antiquities of the Jews., x. 9, 1. claims that Baruch
-    belonged to "a most distinguished family", and to have been
-    exceedingly well educated. According
+[^27]: 'Abaris the Hyperborean'. Wikipedia. https://en.wikipedia.org/wiki/Abaris_the_Hyperborean
+    --_"And the Celtic Druids investigated to the very highest point the Pythagorean philosophy, after Zamolxis, by birth a Thracian, a servant of Pythagoras, became to them the originator of this philosophy"_ -- 'The Refutation of All Heresies', Chapter XXII.--The Druids; Progenitors of their System by St. Hippolytus. In the same book St. Hippolytus says: _"Pyrrho was an Academic; this (speculator) taught the in-comprehensibility of everything. The Brahmins among the Indians, and the Druids among the Celts, and Hesiod (devoted themselves to philosophic pursuits)"_\
+    --Hyperborea, which just like Atlantis, was another name for Ireland. The word Atlantis means ‘The Island of Atlas’. The titan Atlas was a key figure in Greek mythology and is depicted as being the  bearer of the heavens. According to early Greek mythology, Atlas lived  on the sacred island of Hyperborea. Over time Hyperborea became Hybernia or Hibernia, the Roman name for Ireland.\
 
-[^28]: The last King of Babylon, Nabonidus, installed jews in the
-    commercially strategic oases of the Arabian Peninsula shortly before
-    they betrayed him and his nation into the hands of Cyrus the Great,
-    the founder of the Persian Empire in the sixth century B.C. Cyrus
-    then rewarded the jews by destroying Babylon, spreading
-    Zoroastrianism, and giving them Judea. See: Edict of Cyrus [link],
-    Ezra 1 [link], and Reflections on the Christ Myth by Revilo P.
-    Oliver
+[^28]: 'Druidism and Vedism compared'. https://www.academia.edu/13113385/Druidism_and_Vedism_Compared 
 
 [^29]: 'Scythian campaign of Darius I'. Wikipedia.
     https://en.wikipedia.org/wiki/Scythian_campaign_of_Darius_I
