@@ -59,33 +59,33 @@ Preface
 
 The central points of this book can be summarized as follows:
 
--    Elites in antiquity created imperial cult religions to solidify their rule and subjugate the population to their colonial domination. Christianity was one in a long line of slave morality imperial cults invented by these elites. Christianity's progenitors were Zoroastrianism, Buddhism, and over a dozen religions from the 'Alexandrian School' in Egypt starting with the Serapsis Cult. It is an impossibility that any religion could have sprug up organically. The royal families controlled the publishing and the punishment for spreading a religion that might compete with an imperial cult was death.
--   There existed a Byzantine imperial cult where Julius Caesar took on
+-    Elites in antiquity created imperial cult religions to solidify their rule and subjugate the population to their colonial domination. Christianity was one in a long line of slave morality imperial cults invented by these elites. Christianity's progenitors included Zoroastrianism, Buddhism, and over a dozen religions from the 'Alexandrian School' in Egypt starting with the Serapsis Cult. It is impossible for any religion to have have sprug up organically. The royal families controlled the dissemenation of religious texts, and the punishment for spreading a religion that might compete with an imperial cult was death.
+-   There existed a Byzantine imperial cult in which Julius Caesar took on
     the role of Asander of Bosphorus, and Cleopatra took on the role of
     Dynamis, queen of Bosphorus.
--   The 'Jesus' figure in the bible originates with Julius Caesar,
+-   The 'Jesus' figure in the bible originates from Julius Caesar,
     I(J)upiter-Zeus (I-Zeus), and became an avatar for several later
     leaders.
 -   Sometime after the Bar Kokhba Revolt (132--136 CE), Talmudic jews
     who were students of a rabbi named Akiva and who had connections to
     the Alexandrian School in Egypt, and who were hiding out in the
     Himyarite Kingdom after Emperor Hadrian expelled them from judea,
-    realized that mind subversion was the only way to destroy the Romans. Knowing that creating a new religion would have resulted in their death, and the fact that it is an impossible task to get people to abandon their religions for a new one, they took the aformentioned Byzantine-Roman imperial cult
+    realized that mind subversion was the only way to destroy the Romans. Knowing that creating a new religion would have resulted in their death, and recognizing the impossibility of getting people to abandon their religions for a new one, they took the aforementioned Byzantine-Roman imperial cult
     and created two new sects: a slave morality for the Romans
     (Christianity), and warrior cult (the blueprint for Islam) to weaponize the Arabs to
     attack eastern Rome (Allah and Muhammad the red-headed warlord were
     eventually added as parodies of Attila the Hun and his uncle Ruglia waging war against
-    Rome ("Edom") because the objective was always to weaponize the Arabs to attack eastern Rome).
+    Rome ("Edom") because the objective was always to weaponize the Arabs to attack Eastern Rome).
     Rabbi Akiva created modern Judaism to create ethnocentrism in the
     form of a religion, and his students Markianos of Alexandria aka
     Marcion of Sinope did the slave-morality of Christianity and Simon
     ben Yohai created the warrior-morality of Islam and The Secrects of
     Rabbi Simon ben Yohai.
 
-My research is focused on identifying the people who wrote the bible,
+My research focuses on identifying the people who wrote the bible,
 the context in which they wrote it, and my thesis addresses the question
 of motive, specifically, who benefited from the invention of
-Christianity. My methodologies are multi-faceted: revisionist
+Christianity. My methodologies are multifaceted: revisionist
 historiography, counter-narrative analysis, and historical
 deconstruction. The main sources that inspired my research are listed in
 the 'further reading' section at the end of the book.
@@ -272,11 +272,11 @@ BOOK I. THE ORIGINS OF CHRISTIANITY
 Throughout antiquity, from the pharaohs of Egypt to the emperors of
 Persia and Rome, religion served as a key instrument of imperial
 control, using syncretism to create a compliant population that served
-the interests of the ruling elite. These elites used religion, as well
+the interests of the ruling elite. These elites employed religion, as well
 as an incredible number of regional aliases, locations, fictional
-stories, and faked deaths for their family members to control the
+stories, and fabricated deaths for their family members to control the
 population. They role-played as deities, religious figures, and
-different characters as if they were actors in a play. This was done to hide the fact that the people were ruled by dynasties and to give the population an illusion of upward social mobility or implanting a sense of false hope. These religions were also money making schemes.
+various characters as if they were actors in a play. This was done to obscure the fact that the people were ruled by dynasties and to give the population an illusion of upward social mobility or implanting a sense of false hope. These religions were also money-making schemes.
 
 The figure of Jesus Christ (of Nazareth) was a literary creation of these elites,
 incorporating elements of various historical and mythological figures to
@@ -589,7 +589,7 @@ the context in which they were created.
 
 Modern day jews evolved from the mixture of Celtic Galatians [^20], Neolthic proto-Sicilians [^21], native Cannan's (literal human-neanderthal hybrids) [^22], and proto-Arab-Natufian hybrids.
 
-The original redhead clan of Druids that ended up becoming Israelites were Scythians who migrated southwards during the early Aryan invasion of 4000 BC. Scythian --> Saka --> Isaac. This migration coincides with the development of early bronze age civilization. They they went to Anatolia first (Galatia) [^23], then Babylon, then Canaan ('Gaulinitis' = Golan Heights). In Canaan, the natives then came under the suzerainty of these Celts and their entire identity, language, and religion derives from this. The evidence for this is that the Celtic languages are surprisingly Semitic with a verb-subject-object word order and a shocking amount of vocabulary overlap, and the name of Irish deities, Balor and his holiday Beltaine are cognate to Bal and Elatha the Irish Uranus is cognate to Hebrew El. There was an ancient Celtic conquerer named 'Ram the Druid' and Abraham = Ab Ram, or 'Born of Ram', he was also Ra in Egyptian mythology, the basis of the name 'Ram'esses in Egypt, Ram the Aries, Rama in the Vedas, and Lama in Tibet. King David (DWD) = King Druid. The name Israel itself is named after Osiris (Aesir), the southeasternmost grand Druid (in Phoenician, the name 'Osiris' is written as 'Usr' or 'Ysr', which becomes the Hebrew 'Yisrael'. Osiris is depicted as having green skin, ie. he is the 'Druid green man'). As for the name 'jew', the descriptive name Judaism was never used by the Hebrews or Israelites; it appears only with Christianity. It comes from Yahud or Auda which comes from Iodh or Ioux. Iodh and Ioux are associated with the yew tree in Druidism and is sometimes linked to the concept of rebirth and regeneration. There was also an ancient Celtic tribe known as the Iudii or Iudaei, who inhabited the region of Gaul (modern-day France) and Britain. The ancient Celtic prefixes 'Rab' or 'Rhab' mean 'wise one' or 'seer', and a Druid equates to a Rabbi.
+The original redhead clan of Druids that ended up becoming Israelites were Scythians who migrated southwards during the early Aryan invasion of 4000 BC. Scythian --> Saka --> Isaac. This migration coincides with the development of early bronze age civilization. They went to Anatolia first (Galatia) [^23], then Babylon, then Canaan ('Gaulinitis' = Golan Heights). In Canaan, the natives then came under the suzerainty of these Celts and their entire identity, language, and religion derives from this. The evidence for this is that the Celtic languages are surprisingly Semitic with a verb-subject-object word order and a shocking amount of vocabulary overlap, and the name of Irish deities, Balor and his holiday Beltaine are cognate to Bal and Elatha the Irish Uranus is cognate to Hebrew El. There was an ancient Celtic conquerer named 'Ram the Druid' and Abraham = Ab Ram, or 'Born of Ram', he was also Ra in Egyptian mythology, the basis of the name 'Ram'esses in Egypt, Ram the Aries, Rama in the Vedas, and Lama in Tibet. King David (DWD) = King Druid. The name Israel itself is named after Osiris (Aesir), the southeasternmost grand Druid (in Phoenician, the name 'Osiris' is written as 'Usr' or 'Ysr', which becomes the Hebrew 'Yisrael'. Osiris is depicted as having green skin, ie. he is the 'Druid green man'). As for the name 'jew', the descriptive name Judaism was never used by the Hebrews or Israelites; it appears only with Christianity. It comes from Yahud or Auda which comes from Iodh or Ioux. Iodh and Ioux are associated with the yew tree in Druidism and is sometimes linked to the concept of rebirth and regeneration. There was also an ancient Celtic tribe known as the Iudii or Iudaei, who inhabited the region of Gaul (modern-day France) and Britain. The ancient Celtic prefixes 'Rab' or 'Rhab' mean 'wise one' or 'seer', and a Druid equates to a Rabbi.
 
 'Ashkenazi', or 'Ashkuza', was the name given to the Scythians by the ancient Akkadians [^24]. The Assyrians called the Scythians "Asguzaya" and the ancient Persians called the Scythians 'Saka'. In Biblical Hebrew, the Ashkuz (Ashkenaz) are considered to be a direct offshoot from the Gimirri (known as the Cimmerians to the ancient Greeks).
 
