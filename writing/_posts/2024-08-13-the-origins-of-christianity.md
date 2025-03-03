@@ -601,7 +601,7 @@ All jewish history was made up. Their religion is Celtic Druidism combined with 
 
 #### 2.2.1 Alexandria
 
-Around 283-246 BCE Ptolemy I Soter allegedly summoned 72 Babylonian Jewish high priests (kohanim) to Alexandria to translate the Hebrew Bible. It was in Alexandria where the jews wrote the Pentateuch and Septuagint. See: Chapter 7. The Alexandrian School. These jews then opened up some books at the Library of Alexandria and cut-and-pasted Greek philosophy into their religion. The myth of the jewish people and the Laws of Moses was based on Plato’s hypothetical colony of Magnesia from his thesis called The Laws (347 BC) in which the proposed charter for the Cretan colony of Magnesia was modeled in large part on Athenian legal and constitutional traditions. Ancestor received law from a deity, hereditary priesthood rather than king, as well as the division into 12 tribes were all part of the formula. Plato's Timaeus (360 BC) is where the story of Abraham comes from. Plato's Timaeus is also the source for Genesis 1-11. Homer's Odysseey was the source of Genesis 24, 42-46 [^26]. Exodus is just a semitized retcon of Jason and the Argonauts, and the Oracles Against the Nations plagiarize the Sibylline Oracles. The fact that their religion was extremely Hellenized in Alexandria shows that they were either the jews were trying to ingratiate themselves into the Greek speaking world (oecumene), or that they were so problematic of a population that the Greek 'Ptolemaioi' were trying to subjugate them with religion.
+Around 283-246 BCE Ptolemy I Soter allegedly summoned 72 Babylonian Jewish high priests (kohanim) to Alexandria to translate the Hebrew Bible. It was in Alexandria where the jews wrote the Pentateuch and Septuagint. See: Chapter 7. The Alexandrian School. These jews then opened up some books at the Library of Alexandria and cut-and-pasted Greek philosophy into their religion. The myth of the jewish people and the Laws of Moses was based on Plato’s hypothetical colony of Magnesia from his thesis called The Laws (347 BC) in which the proposed charter for the Cretan colony of Magnesia was modeled in large part on Athenian legal and constitutional traditions. Ancestor received law from a deity, hereditary priesthood rather than king, as well as the division into 12 tribes were all part of the formula. Plato's Timaeus (360 BC) is where the story of Abraham comes from. Plato's Timaeus is also the source for Genesis 1-11. Homer's Odysseey was the source of Genesis 24, 42-46 [^26]. Exodus is just a semitized retcon of Jason and the Argonauts, and the Oracles Against the Nations plagiarize the Sibylline Oracles. The fact that their religion was extremely Hellenized in Alexandria shows that either the jews were trying to ingratiate themselves into the Greek speaking world (oecumene), or that they were so problematic of a population that the Greek 'Ptolemaioi' were trying to subjugate them with religion.
 
 The Pentateuch was written at the same time as the Septuagint in Alexandria. 
 
@@ -695,9 +695,7 @@ the veneration of ancestors and purification rituals.
 
 After its inception, Buddhism was further influenced and spread by the
 Greco-Bactrians. Pyrrho of Elis, who traveled to India with Alexander
-the Great, created Bactrian Buddhism [^31]. This form of Buddhism was
-further developed in Alexandria and later through Ashoka the Great's
-syncretic efforts in India.
+the Great, created Bactrian Buddhism [^31]. This form of Buddhism was repackaged by Ashoka the Great (Diodotus I Soter) in India as a slave morality to subjugate the population.
 
 ### Chapter 5: Alexander the Great
 
