@@ -26,8 +26,8 @@ Chapter 1: The Creation of Christianity \
 Chapter 2: The Origins of Judaism\
 2.1 Ethnogenesis of the Jews\
 2.2 The Creation of Judaism\
-2.2.1 Romanization\
-2.2.2 Alexandria\
+2.2.1 Alexandria\
+2.2.2 Romanization\
 2.2.3 Modern Judaism\
 Chapter 3: The Origins of Zoroastrianism\
 3.1 Zoroaster and Jewish Influence\
@@ -599,21 +599,21 @@ The original redhead clan of Druids that ended up becoming Israelites were Scyth
 
 All jewish history was made up. Their religion is Celtic Druidism combined with the Divine Julius cult that was Hellinized at the Library of Alexandria. So, ancient judaism (before Rabbi Akiva) was as syncretic attempt by the Romans to pacify the jews (who were then Celts) and bring them under the imperial cult [^25]. 
 
-#### 2.2.1 Romanization
+#### 2.2.1 Alexandria
+
+Around 283-246 BCE Ptolemy I Soter allegedly summoned 72 Babylonian Jewish high priests (kohanim) to Alexandria to translate the Hebrew Bible. It was in Alexandria where the jews wrote the Pentateuch and Septuagint. See: Chapter 7. The Alexandrian School. These jews then opened up some books at the Library of Alexandria and cut-and-pasted Greek philosophy into their religion. The myth of the jewish people and the Laws of Moses was based on Plato’s hypothetical colony of Magnesia from his thesis called The Laws (347 BC) in which the proposed charter for the Cretan colony of Magnesia was modeled in large part on Athenian legal and constitutional traditions. Ancestor received law from a deity, hereditary priesthood rather than king, as well as the division into 12 tribes were all part of the formula. Plato's Timaeus (360 BC) is where the story of Abraham comes from. Plato's Timaeus is also the source for Genesis 1-11. Homer's Odysseey was the source of Genesis 24, 42-46 [^26]. Exodus is just a semitized retcon of Jason and the Argonauts, and the Oracles Against the Nations plagiarize the Sibylline Oracles. The fact that their religion was extremely Hellenized in Alexandria shows that they were either the jews were trying to ingratiate themselves into the Greek speaking world (oecumene), or that they were so problematic of a population that the Greek 'Ptolemaioi' were trying to subjugate them with religion.
+
+The Pentateuch was written at the same time as the Septuagint in Alexandria. 
+
+The authors/compilers of the Pentateuch and Septuagint in Alexandria included Onias I (see: Chapter 7: The Alexandrian School). They created judaism as one of the earliest psyops ever created and it was used to control the social behavior of other jews and to promote ethnocentrism in the form of a religion, probably as a response to the Romans trying to subjugate them with religion. While in Alexandria, at the same time they created this tribal group strategy religion for their in-group, they worked as scribes and created several slave morality religions for the out-group, including the Serapis Cult, which was the progenitor of every slave morality that followed.
+
+#### 2.2.2 Romanization
 
 Cesar’s gentilice (surname) was Iulius. We are told by Virgil that it goes back to Cesar’s supposed ancestor Iulus or Iule, after the ancient Celtic tribe known as the Iudii or Iudaei, who inhabited the region of Gaul (modern-day France) and Britain. I(J)upiter was also called Jove or Iove to the Romans. The Latin pronunciation of Iove would have been Yoh-Way, i.e Yahweh/Yhwh, so Yahweh Saboath, the god of the hebrew bible, is I(J)ove (Roman Zeus) Sabazios (Thracian Zeus).
 
 Virgil also tells us (drawing from Cato the Elder, c. 168 BC) that the name Julius is the short name of Jupiter (Jul Pater). And it happens to be an Indo-European root word designating the sunlight or the day sky, identical to the Scandinavian name for the solar god, Yule (Helios for the Greeks, Haul for the Gauls, Hel for the Germans, from which derives the French Noël, Novo Hel). 
 
 This is why several descendants of Roman aristocrats described themselves as 'jewish' despite being ethnically Celtic Gauls or Aryan Sarmatians. For example, Ptolemy (Alexander) bar Menneus/Ptolemy X Alexander I (Simon Boethus) played the role of judaen high priest. Mark Antony played the role of King Herod. Izates of Monobazus (Jesus ben Gamala/Gamaliel aka Jesus ben Sapphias) and Amyntas Nikator aka Amyntas of Galatia (Jesus ben Fabus) played the role of rabbis. Philo of Alexandria was 'Philo the Jew', her brother-husband Tiberius Julius Alexander identified as Jewish, etc. 
-
-#### 2.2.2 Alexandria
-
-Around 283-246 BCE Ptolemy I Soter allegedly summoned 72 Babylonian Jewish high priests (kohanim) to Alexandria to translate the Hebrew Bible. It was in Alexandria where the jews wrote the Pentateuch and Septuagint. See: Chapter 7. The Alexandrian School. These jews then opened up some books at the Library of Alexandria and cut-and-pasted Greek philosophy into their religion. The myth of the jewish people and the Laws of Moses was based on Plato’s hypothetical colony of Magnesia from his thesis called The Laws (347 BC) in which the proposed charter for the Cretan colony of Magnesia was modeled in large part on Athenian legal and constitutional traditions. Ancestor received law from a deity, hereditary priesthood rather than king, as well as the division into 12 tribes were all part of the formula. Plato's Timaeus (360 BC) is where the story of Abraham comes from. Plato's Timaeus is also the source for Genesis 1-11. Homer's Odysseey was the source of Genesis 24, 42-46 [^26]. Exodus is just a semitized retcon of Jason and the Argonauts, and the Oracles Against the Nations plagiarize the Sibylline Oracles. The fact that their religion was extremely Hellenized in Alexandria shows that they were trying to ingratiate themselves into the Greek speaking world (oecumene).
-
-The Pentateuch was written at the same time as the Septuagint in Alexandria. 
-
-The authors/compilers of the Pentateuch and Septuagint in Alexandria included Onias I (see: Chapter 7: The Alexandrian School). They created judaism as one of the earliest psyops ever created and it was used to control the social behavior of other jews and to promote ethnocentrism in the form of a religion, probably as a response to the Romans trying to subjugate them with religion. While in Alexandria, at the same time they created this tribal group strategy religion for their in-group, they worked as scribes and created several slave morality religions for the out-group, including the Serapis Cult, which was the progenitor of every slave morality that followed.
 
 #### 2.2.3 Modern Judaism
 
