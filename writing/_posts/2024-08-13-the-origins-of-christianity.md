@@ -26,6 +26,9 @@ Chapter 1: The Creation of Christianity \
 Chapter 2: The Origins of Judaism\
 2.1 Ethnogenesis of the Jews\
 2.2 The Creation of Judaism\
+2.2.1 Romanization\
+2.2.2 Alexandria\
+2.2.3 Modern Judaism\
 Chapter 3: The Origins of Zoroastrianism\
 3.1 Zoroaster and Jewish Influence\
 3.2 Zoroastrianism’s Impact on Subsequent Religions\
@@ -570,51 +573,10 @@ Endnotes (Chapter 1)
 (c) The Letter to Flora and the Tripartite Tractate write about a
     Gnostic teacher called "Ptolemy" who I identify as Ptolemy Menneus
     aka Simon Boethus aka Simon Magus.\
-(d) Modern judaism is not the Torah (Old Testament), and has not been
-    for a long time. The Talmud was completed after the New Testiment
-    and this is what modern jews follow. Essentially, jews follow the
-    program that Rabbi Akiva and his students created (ethnocentrisim in
-    the form of a religion).\
-(e) Kabbalists believe that Rabbi Akiba was a gilgul (reincarnation) of
+(d) Kabbalists believe that Rabbi Akiba was a gilgul (reincarnation) of
     Zimri, a prince of the Tribe of Simeon who participated in the
     Heresy of Peor.\
-(f) Several members of this Egyptian-Persian-Anatolian-Greek-Roman
-    aristocratic family identified themselves as 'jewish' despite being
-    ethnically Celtic Gauls or Aryan Sarmatians. Ptolemy (Alexander) bar
-    Menneus/Ptolemy X Alexander I (Simon Boethus) played the role of
-    judaen high priest. Mark Antony played the role of King Herod.
-    Izates of Monobazus (Jesus ben Gamala/Gamaliel aka Jesus ben
-    Sapphias) and Amyntas Nikator aka Amyntas of Galatia (Jesus ben
-    Fabus) played the role of rabbis. Philo of Alexandria was 'Philo the
-    Jew', her brother-husband Tiberius Julius Alexander identified as
-    Jewish, etc. This could be a case of this family taking on regional
-    identities, but the more likely option is that the original redhead clan of Druids that ended up becoming Israelites were Scythians who migrated southwards during the early Aryan invasion of 4000 BC. Scythian --> Saka --> Isaac. This migration coincides with the development of early bronze age civilization. They they went to Anatolia first (Galatia), then Babylon, then Canaan ('Gaulinitis' = Golan Heights). In Canaan, the descendants of the Bablyonian jews then came under the suzerainty of these people and their entire identity, language, and religion
-    derives from this. The evidence for this is that the Celtic languages are
-    surprisingly Semitic with a verb-subject-object word order and a
-    shocking amount of vocabulary overlap, and the name of Irish
-    deities, Balor and his holiday Beltaine are cognate to Bal and
-    Elatha the Irish Uranus is cognate to Hebrew El. There was apparently an ancient
-    conquerer named 'Ram the Druid' and Abraham = Ab Ram, or 'Born of
-    Ram', he was also Ra in Egyptian mythology, the basis of the name
-    'Ram'esses in Egypt, Ram the Aries, Rama in the Vedas, and Lama in
-    Tibet. King David (DWD) = King Druid. The name Israel itself is
-    likely named after Osiris (Aesir), the southeasternmost grand Druid (in
-    Phoenician, the name "Osiris" is written as "Usr" or "Ysr," which
-    becomes the Hebrew "Yisrael. Osiris is depicted as having green skin, ie. he is the 'Druid green man'). As for the name"Jew", the descriptive
-    name Judaism was never used by the Hebrews or 'Israelites'; it
-    appears only with Christianity. It comes from Yahud or Auda which
-    comes from Iodh or Ioux. Iodh and Ioux are associated with the yew
-    tree in Druidism and is sometimes linked to the concept of rebirth
-    and regeneration. There was also an ancient Celtic tribe known as
-    the Iudii or Iudaei, who inhabited the region of Gaul (modern-day
-    France) and Britain. The ancient Celtic prefixes 'Rab' or 'Rhab'
-    mean 'wise one' or 'seer', and a Druid equates to a Rabbi. The area
-    of modern israel was wiped out multiple times. Modern day jews
-    evolved from the mixture of Celts, survivors of the Bar
-    Kohiba revolt, the proto-Arabs, and high amounts of neanderthal
-    admixture from the Crimean peninsula and Cannan (see Chapter 2.1
-    Ethnogenesis of the Jews). \
-    (g) Vespassian was also a great-grandson of Cleopatra and Mark Antony
+(e) Vespassian was also a great-grandson of Cleopatra and Mark Antony
     (King Herod) (The Royal Ancestry of Emperor Vespasian (The Royal
     Ancestry of Emperor Vespasian. Henry Davis,
     https://www.henryhdavis.com/theroyalancestryofemperorvespasian
@@ -627,147 +589,49 @@ the context in which they were created.
 
 #### 2.1 Ethnogenesis of the Jews
 
-How the jews ended up in Egypt is a matter of contention. One likely
-hypothesis is that one part of their ancestry followed the path of the
-Hyksos who were Scythian Aryan raiders that hailed from the
-Pontic-Caspian Steppes (modern day Ukraine). The domestication of the
-horse and invention of the chariot allowed them to travel great
-distances. 'Ashkenazi', or 'Ashkuza', was the name given to the
-Scythians by the ancient Akkadians (Josephus. Vol. 5: Antiquities:
-8:2:5, pp. 593-595). The Assyrians called the Scythians "Asguzaya" and
-the ancient Persians called the Scythians 'Saka'. In Biblical Hebrew,
-the Ashkuz (Ashkenaz) are considered to be a direct offshoot from the
-Gimirri (known as the Cimmerians to the ancient Greeks). The Cimmerians
-weren't a race but rather a tribe (Cimmerian likely derives from the Old
-Iranic Gayamira, meaning "union of clans, or Gāmīra or Gmīra,
-meaning"mobile unit") [^20].
+Modern day jews evolved from the mixture of Celtic Galatians [^20], Neolthic proto-Sicilians [^21], native Cannan's (literal human-neanderthal hybrids) [^22], survivors of the Bar Kohiba revolt, and the proto-Arabs.
 
-In Egypt, the jews carried the name 'Habiru' (translates to dust, dirt,
-outcastes in ancient Egyptian) and they were documented to be slaves by
-the Greek-Egyptian historian Manetho in his book Aegyptica.
+The original redhead clan of Druids that ended up becoming Israelites were Scythians who migrated southwards during the early Aryan invasion of 4000 BC. Scythian --> Saka --> Isaac. This migration coincides with the development of early bronze age civilization. They they went to Anatolia first (Galatia) [^23], then Babylon, then Canaan ('Gaulinitis' = Golan Heights). In Canaan, the natives then came under the suzerainty of these Celts and their entire identity, language, and religion derives from this. The evidence for this is that the Celtic languages are surprisingly Semitic with a verb-subject-object word order and a shocking amount of vocabulary overlap, and the name of Irish deities, Balor and his holiday Beltaine are cognate to Bal and Elatha the Irish Uranus is cognate to Hebrew El. There was an ancient Celtic conquerer named 'Ram the Druid' and Abraham = Ab Ram, or 'Born of Ram', he was also Ra in Egyptian mythology, the basis of the name 'Ram'esses in Egypt, Ram the Aries, Rama in the Vedas, and Lama in Tibet. King David (DWD) = King Druid. The name Israel itself is named after Osiris (Aesir), the southeasternmost grand Druid (in Phoenician, the name 'Osiris' is written as 'Usr' or 'Ysr', which becomes the Hebrew 'Yisrael'. Osiris is depicted as having green skin, ie. he is the 'Druid green man'). As for the name 'jew', the descriptive name Judaism was never used by the Hebrews or Israelites; it appears only with Christianity. It comes from Yahud or Auda which comes from Iodh or Ioux. Iodh and Ioux are associated with the yew tree in Druidism and is sometimes linked to the concept of rebirth and regeneration. There was also an ancient Celtic tribe known as the Iudii or Iudaei, who inhabited the region of Gaul (modern-day France) and Britain. The ancient Celtic prefixes 'Rab' or 'Rhab' mean 'wise one' or 'seer', and a Druid equates to a Rabbi.
 
-The Hyksos managed to become kings of Egypt for a period of time during
-the 15th Dynasty. The Hyksos pharaoh took the name "Apepi", referring to
-the Egyptian equivalent of the devil [^21], and created a religion based
-around the worship of Set, the Egyptian god of violence and destruction
-("Setianism" is where "Satanism" derives from). "King Apophis, L.P.H.,
-adopted Seth for himself as lord, and he refused to serve any god that
-was in the entire land except Seth.." -- Papyrus Sallier I, ca. 1274
-BCE. The 15th Dynasty also corresponds to the Second Intermediate Period
-which was when Egypt saw a large influx of foreigners and a demographic
-transformation [^22].
-
-The Hyskos were eventually expelled by the 18th dynasty pharaoh Thutmose
-III in 1457 BC and they then moved to Canaan (modern day Israel)
-(Josephus. Contra Apion I.90). The Crimean peninsula and Canaan were the
-last bastions of the Neanderthals and there was lot of human-neanderthal
-mixing that happened in Cannan [^23]. This is why the Ashkenazi jews
-have paternal Steppe haplotypes today (R1a and J1 most commonly) and why
-they are obsessed with matrilineal descent (Neanderthal males could not
-create offspring with homo sapien sapiens, but homo sapien sapiens could
-impregnate Neanderthal females [^24]).
+'Ashkenazi', or 'Ashkuza', was the name given to the Scythians by the ancient Akkadians [^24]. The Assyrians called the Scythians "Asguzaya" and the ancient Persians called the Scythians 'Saka'. In Biblical Hebrew, the Ashkuz (Ashkenaz) are considered to be a direct offshoot from the Gimirri (known as the Cimmerians to the ancient Greeks).
 
 #### 2.2 The Creation of Judaism
 
-It was in Jerusalem (then located in Canaan) where the jews synchronized
-Canaanite Baal/Baal-zebub (the tetragrammaton YWHA is another word for
-Baal which translates to "lord", ie. Baal-zebub = "lord of the flies".
-See: 'Strong's Concordance reference' #H1180.) into their satan
-('setian') worshiping religion. This religion they created was extremely
-blood thirsty with their tribal war god YWHA demanding the child
-sacrifice of the first born sons, with them being burned alive [^25].
+All jewish history was made up. Their religion is Celtic Druidism combined with the Divine Julius cult that was Hellinized at the Library of Alexandria. So, ancient judaism (before Rabbi Akiva) was as syncretic attempt by the Romans to pacify the jews (who were then Celts) and bring them under the imperial cult [^25]. 
 
-The Babylonians, under King Nebuchadnezzar, then conquered Judah in 597
-BC which led to the deportation of Jews (586 BCE) and many of them moving
-to Babylon. The Babylonians found human child sacrifice abhorrent and
-this is what led to the Babylonians destroying Solomon's Temple and the
-jews rewriting the Old Testament to retcon their entire history with
-Sumerian and Babylonian creation myths to ingratiate themselves to the
-Babylonians (the flood story is stolen from the Epic of Gilgamesh, the
-creation story is stolen from the Enuma Elish, the Moses story is stolen
-from the Legend of Sargon, the Adam and Eve story was stolen from Enki
-and Ninhursag, their code of laws was stolen from King Ur Tablets). They
-also started offering their savage god just foreskins instead of the
-full baby as a sacrifice, although they have been continually accused of
-the ritual murder of gentile babies since then [^26].
+#### 2.2.1 Romanization
 
-In 539 BCE Cyrus the Great conquered Babylonia and soon afterwords afforded the jews special protection including allowing them to move to Persia. It was then in Persia where Jeremiah and Baruch ben Neriah (who were probably the same person) then codified the first draft of judaism. Baruch ben Neriah also worked for Cyrus as a scribe for an imperial cult that became Zoroastrianism.
+Cesar’s gentilice (surname) was Iulius. We are told by Virgil that it goes back to Cesar’s supposed ancestor Iulus or Iule, after the ancient Celtic tribe known as the Iudii or Iudaei, who inhabited the region of Gaul (modern-day France) and Britain. I(J)upiter was also called Jove or Iove to the Romans. The Latin pronunciation of Iove would have been Yoh-Way, i.e Yahweh/Yhwh, so Jove (Roman Zeus). So, Yahweh Saboath, the god of the hebrew bible, is I(J)ove (Roman Zeus) Sabazios (Thracian Zeus).
 
-Then a few centuries later around 283-246 BCE Ptolemy I Soter summoned 72 Babylonian Jewish high priests (kohanim) to Alexandria to translate the Hebrew Bible. It was in Alexandria where they wrote the Pentateuch and Septuagint. See: Chapter 7. The Alexandrian School. These jewish high priests opened up some books at the Library of Alexandria and cut-and-pasted Greek philosophy into their religion. The myth of the jewish people and the Laws of Moses was based on Plato’s hypothetical colony of Magnesia from his thesis called The Laws (347 BC) in which the proposed charter for the Cretan colony of Magnesia was modeled in large part on Athenian legal and constitutional traditions. Ancestor received law from a deity, hereditary priesthood rather than king, as well as the division into 12 tribes were all part of the formula. Plato's Timaeus (360 BC) is where the story of Abraham comes from. Plato's Timaeus is also the source for Genesis 1-11. Homer's Odysseey was the source of Genesis 24, 42-46 (Gmirkin, Russell (2016). Plato and the Creation of the Hebrew Bible). Exodus is just a semitized retcon of Jason and the Argonauts, and the Oracles Against the Nations plagiarize the Sibylline Oracles. The fact that their religion was extremely Hellenized in Alexandria shows that they were trying to ingratiate themselves into the Greek speaking world (oecumene).
+Virgil also tells us (drawing from Cato the Elder, c. 168 BC) that the name Julius is the short name of Jupiter (Jul Pater). And it happens to be an Indo-European root word designating the sunlight or the day sky, identical to the Scandinavian name for the solar god, Yule (Helios for the Greeks, Haul for the Gauls, Hel for the Germans, from which derives the French Noël, Novo Hel). 
 
-The Pentateuch was written at the same time as the Septuagint in Alexandria. Judaism was built upon an oral tradition that was laid down by Jeremiah and Baruch ben Neriah.
+This is why several descendants of Roman aristocrats described themselves as 'jewish' despite being ethnically Celtic Gauls or Aryan Sarmatians. For example, Ptolemy (Alexander) bar Menneus/Ptolemy X Alexander I (Simon Boethus) played the role of judaen high priest. Mark Antony played the role of King Herod. Izates of Monobazus (Jesus ben Gamala/Gamaliel aka Jesus ben Sapphias) and Amyntas Nikator aka Amyntas of Galatia (Jesus ben Fabus) played the role of rabbis. Philo of Alexandria was 'Philo the Jew', her brother-husband Tiberius Julius Alexander identified as Jewish, etc. 
 
-The authors/compilers of the Pentateuch and Septuagint in Alexandria included Onias I (see: Chapter 7: The Alexandrian School). They created judaism as one of the earliest psyops ever created and it was used to control the social behavior of other jews and to promote ethnocentrism in the form of a religion. While in Alexandria, at the same time they created this tribal group strategy religion for their in-group, they worked as scribes and created several slave morality religions for the out-group, including the Serapis Cult, which was the progenitor of every slave morality that followed.
+#### 2.2.2 Alexandria
+
+Around 283-246 BCE Ptolemy I Soter allegedly summoned 72 Babylonian Jewish high priests (kohanim) to Alexandria to translate the Hebrew Bible. It was in Alexandria where the jews wrote the Pentateuch and Septuagint. See: Chapter 7. The Alexandrian School. These jews then opened up some books at the Library of Alexandria and cut-and-pasted Greek philosophy into their religion. The myth of the jewish people and the Laws of Moses was based on Plato’s hypothetical colony of Magnesia from his thesis called The Laws (347 BC) in which the proposed charter for the Cretan colony of Magnesia was modeled in large part on Athenian legal and constitutional traditions. Ancestor received law from a deity, hereditary priesthood rather than king, as well as the division into 12 tribes were all part of the formula. Plato's Timaeus (360 BC) is where the story of Abraham comes from. Plato's Timaeus is also the source for Genesis 1-11. Homer's Odysseey was the source of Genesis 24, 42-46 [^26]. Exodus is just a semitized retcon of Jason and the Argonauts, and the Oracles Against the Nations plagiarize the Sibylline Oracles. The fact that their religion was extremely Hellenized in Alexandria shows that they were trying to ingratiate themselves into the Greek speaking world (oecumene).
+
+The Pentateuch was written at the same time as the Septuagint in Alexandria. 
+
+The authors/compilers of the Pentateuch and Septuagint in Alexandria included Onias I (see: Chapter 7: The Alexandrian School). They created judaism as one of the earliest psyops ever created and it was used to control the social behavior of other jews and to promote ethnocentrism in the form of a religion, probably as a response to the Romans trying to subjugate them with religion. While in Alexandria, at the same time they created this tribal group strategy religion for their in-group, they worked as scribes and created several slave morality religions for the out-group, including the Serapis Cult, which was the progenitor of every slave morality that followed.
+
+#### 2.2.3 Modern Judaism
+
+Modern judaism is not the Torah (Old Testament), and has not been for a long time. The Talmud was completed after the New Testiment  and this is what modern jews follow. Essentially, jews follow the program that Rabbi Akiva and his students created (ethnocentrisim in the form of a religion).\
 
 Endnotes (Chapter 2)
 
-(a) Study that traces the origins of ashkenazi jews to northern Turkey.
-    The towns Ashkanaz, Ishkanaz, Eshkanaz, etc.'Genetic origins of
-    Ashkenazi Jews. National Center for Biotechnology Information'
-    https://www.ncbi.nlm.nih.gov/pmc/articles/PMC5478715
-    [[link](https://www.ncbi.nlm.nih.gov/pmc/articles/PMC5478715/)].
-    Here is another study that shows they matrilinially descend from
-    four 'Sicilian' women (Ashkenazi Jewish women descended mostly from
-    Italian converts, new study asserts. Genetic Literacy Project
-    https://geneticliteracyproject.org/2013/10/08/ashkenazi-jewish-women-descended-mostly-from-italian-converts-new-study-asserts
-    [[link](https://geneticliteracyproject.org/2013/10/08/ashkenazi-jewish-women-descended-mostly-from-italian-converts-new-study-asserts/)].
-    It wasn't Sicilian women that they matrilinially descend from, it
-    was neolithic proto-Sicilian women from Anatolia before they moved
-    to Sicily, while the jews moved to Cannan. The Anatolians were
-    Phrygians, Hittites, Carians, and Galatians. The Phrygians were
-    originally from Romania/Dacia and were followers of the Sabazios
-    cult, the Hittites (Scythian/proto-ashkenazi jews before mixing with
-    Neanderthals in Cannan? (Ancient DNA reveals complex population
-    dynamics in the Near East. Nature,
-    https://www.nature.com/articles/s41598-024-70206-y
-    [[link](https://www.nature.com/articles/s41598-024-70206-y)]), the
-    Carians have a strong connection with the settlement of Rome
-    (Aquilla = Qos = god of Kos of Caria), Sparta, and Canaan, and the
-    Galatians were Celtic and were Druids.\
-(b) You can read more about the Jew-Neanderthal connection here: (Humans
-    and Neanderthals likely interbred in the Middle East. Science
-    Magazine,
-    https://www.sciencemag.org/news/2015/01/humans-and-neandertals-likely-interbred-middle-east),
-    (Remains of hybrid Neanderthal-Sapiens population found in Israel.
-    Haaretz,
-    https://www.haaretz.com/israel-news/2019-11-08/ty-article-magazine/.premium/remains-of-hybrid-neanderthal-sapiens-population-found-in-israel/0000017f-dbcf-db5a-a57f-dbef18940000),
-    (Evidence of human-Neanderthal hybrids found in Israeli cave.
-    Forward,
-    https://forward.com/culture/434525/evidence-of-human-neanderthal-hybrids-found-in-israeli-cave),
-    (The Chosen People: Caucasus, Deceptions, and Historical. Amazon,
-    https://www.amazon.com/Chosen-People-Caucasus-Deceptions-Historical/dp/0883781476),
-    (Genetic studies of Jews. National Center for Biotechnology
-    Information, https://www.ncbi.nlm.nih.gov/pmc/articles/PMC6309227),
-    (Genetic studies of Jews. Wikipedia,
-    https://en.wikipedia.org/wiki/Genetic_studies_of_Jews),
-    (Ashkenazi Jewish population history revealed by ancient DNA
-    analysis. GenomeWeb,
-    https://www.genomeweb.com/sequencing/ashkenazi-jewish-population-history-revealed-ancient-dna-analysis),
-    (Ashkenazi gene increases schizophrenia. Haaretz,
-    https://www.haaretz.com/2013-11-26/ty-article/.premium/ashkenazi-gene-increases-schizophrenia/0000017f-e04b-d75c-a7ff-fccfa3e10000),
-    (Genetic studies of Jews. National Center for Biotechnology
-    Information, https://www.ncbi.nlm.nih.gov/pmc/articles/PMC7465115/),
-    (So, are the Neanderthals still Jews? Slate,
-    https://slate.com/news-and-politics/1997/08/so-are-the-neanderthals-still-jews.html),
-    (Did modern humans and Neanderthals really meet in the Negev?
-    Haaretz,
-    https://www.haaretz.com/archaeology/2021-06-21/ty-article/.premium/did-modern-humans-and-neanderthals-really-meet-in-the-negev/),
-    (BBC News, https://www.bbc.co.uk/news/science-environment-57586315),
-    (New America Government,
-    https://archive.ph/2024.02.24-211636/https://newamericangovernment.org/ailink/802/),
-    (Blogger,
-    https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiyDzxbNmb6Oj5aDWOknO84-hwkdkoi) \
-(c) John 8:44 in the New Testament, when Jesus speaks to the Pharisees,
+(a) John 8:44 in the New Testament, when Jesus speaks to the Pharisees,
     also refers to YHWH being the devil: "*You belong to your father,
     the devil, and you want to carry out your father's desires. He was a
     murderer from the beginning, not holding to the truth, for there is
     no truth in him. When he lies, he speaks his native language, for he
     is a liar and the father of lies."\
-(d) The author of the Book of Kings speaks about passing one's son and
+(b) The author of the Book of Kings speaks about passing one's son and
     daughter through fire (II Kings 16:3 [son], 17:17, 21:6 [son].
     II Kings 23:10 speaks about "passing one's son or daughter through
     fire to Moloch.".\
-(e) There are multiple sections in the Torah, Midrash, and Talmud that
+(c) There are multiple sections in the Torah, Midrash, and Talmud that
     condone cannibalism and eating their enemies: Bava Batra, II Samuel
     161:8, Isiah 51:4, Midrash Leviticus Rabbi 13:3. "*And Rabba says
     that Rabbi Yoḥanan says: In the future, the Holy One, Blessed be He,
@@ -1692,36 +1556,72 @@ https://auctions.stacksbowers.com/lots/view/3-US7SY/julius-caesar-ar-denarius-39
     [[link](https://stephanhuller.blogspot.com/2010/08/i-think-i-can-prove-that-our-josephan.html) \
     --'Chasing Hegesippus' by Peter Kirby [link](https://peterkirby.com/chasing-hegesippus.html) \
 
-[^20]: Eezekiel 16:1-316: "The word of the Lord came to me: 2"Son of
-    man, confront Jerusalem with her detestable practices 3 and say,
-    'This is what the Sovereign Lord says to Jerusalem: Your ancestry
-    and birth were in the land of the Canaanites; your father was an
-    Amorite and your mother a Hittite". The House of Omri (Kingdom of
-    Israel), pronounced phonetically as"Ghomri" (Hebrew) or "Khumri"
-    (Assyrian), and derivatives of those words "Gamera/Gimera" &
-    "ga-me-ra-a-an" (Assyrian) and "Gimiri" (Babylonian) also show up in
-    ancient records as root words for Cimmerian/Scythian. The Gimirri
-    were also known as the Cimmerians to the ancient Greeks.
+[^20]: Study that traces the origins of ashkenazi jews to northern Turkey.
+    The towns Ashkanaz, Ishkanaz, Eshkanaz, etc.'Genetic origins of
+    Ashkenazi Jews. National Center for Biotechnology Information'
+    https://www.ncbi.nlm.nih.gov/pmc/articles/PMC5478715
+    [[link](https://www.ncbi.nlm.nih.gov/pmc/articles/PMC5478715/)].
 
-[^21]: 'Apep'. Wikipedia. https://en.wikipedia.org/wiki/Apep
+[^21]: Here is a study that shows jews shows matrilinially descend from
+    four 'Sicilian' women (Ashkenazi Jewish women descended mostly from
+    Italian converts, new study asserts. Genetic Literacy Project
+    https://geneticliteracyproject.org/2013/10/08/ashkenazi-jewish-women-descended-mostly-from-italian-converts-new-study-asserts
+    [[link](https://geneticliteracyproject.org/2013/10/08/ashkenazi-jewish-women-descended-mostly-from-italian-converts-new-study-asserts/)].
+    It wasn't Sicilian women that they matrilinially descend from, it
+    was neolithic proto-Sicilian women from Anatolia before they moved
+    to Sicily, while the jews moved to Cannan. The Anatolians were
+    Phrygians, Hittites, Carians, and Galatians. The Phrygians were
+    originally from Romania/Dacia and were followers of the Sabazios
+    cult, the Hittites (Scythian/proto-ashkenazi jews before mixing with
+    Neanderthals in Cannan? (Ancient DNA reveals complex population
+    dynamics in the Near East. Nature,
+    https://www.nature.com/articles/s41598-024-70206-y
+    [[link](https://www.nature.com/articles/s41598-024-70206-y)]), the
+    Carians have a strong connection with the settlement of Rome
+    (Aquilla = Qos = god of Kos of Caria), Sparta, and Canaan, and the
+    Galatians were Celtic and were Druids.\
 
-[^22]: https://historyaffairs.com/the-second-intermediate-period-of-egypt-c-1650-1550-bc/
+[^22]: You can read more about the Jew-Neanderthal connection here: (Humans
+    and Neanderthals likely interbred in the Middle East. Science
+    Magazine,
+    https://www.sciencemag.org/news/2015/01/humans-and-neandertals-likely-interbred-middle-east),
+    (Remains of hybrid Neanderthal-Sapiens population found in Israel.
+    Haaretz,
+    https://www.haaretz.com/israel-news/2019-11-08/ty-article-magazine/.premium/remains-of-hybrid-neanderthal-sapiens-population-found-in-israel/0000017f-dbcf-db5a-a57f-dbef18940000),
+    (Evidence of human-Neanderthal hybrids found in Israeli cave.
+    Forward,
+    https://forward.com/culture/434525/evidence-of-human-neanderthal-hybrids-found-in-israeli-cave),
+    (The Chosen People: Caucasus, Deceptions, and Historical. Amazon,
+    https://www.amazon.com/Chosen-People-Caucasus-Deceptions-Historical/dp/0883781476),
+    (Genetic studies of Jews. National Center for Biotechnology
+    Information, https://www.ncbi.nlm.nih.gov/pmc/articles/PMC6309227),
+    (Genetic studies of Jews. Wikipedia,
+    https://en.wikipedia.org/wiki/Genetic_studies_of_Jews),
+    (Ashkenazi Jewish population history revealed by ancient DNA
+    analysis. GenomeWeb,
+    https://www.genomeweb.com/sequencing/ashkenazi-jewish-population-history-revealed-ancient-dna-analysis),
+    (Ashkenazi gene increases schizophrenia. Haaretz,
+    https://www.haaretz.com/2013-11-26/ty-article/.premium/ashkenazi-gene-increases-schizophrenia/0000017f-e04b-d75c-a7ff-fccfa3e10000),
+    (Genetic studies of Jews. National Center for Biotechnology
+    Information, https://www.ncbi.nlm.nih.gov/pmc/articles/PMC7465115/),
+    (So, are the Neanderthals still Jews? Slate,
+    https://slate.com/news-and-politics/1997/08/so-are-the-neanderthals-still-jews.html),
+    (Did modern humans and Neanderthals really meet in the Negev?
+    Haaretz,
+    https://www.haaretz.com/archaeology/2021-06-21/ty-article/.premium/did-modern-humans-and-neanderthals-really-meet-in-the-negev/),
+    (BBC News, https://www.bbc.co.uk/news/science-environment-57586315),
+    (New America Government,
+    https://archive.ph/2024.02.24-211636/https://newamericangovernment.org/ailink/802/),
+    (Blogger,
+    https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiyDzxbNmb6Oj5aDWOknO84-hwkdkoi) \
 
-[^23]: <https://www.nature.com/articles/s41598-024-70206-y>
-    --https://slate.com/news-and-politics/1997/08/so-are-the-neanderthals-still-jews.html
-    --https://www.haaretz.com/archaeology/2021-06-21/ty-article/.premium/did-modern-humans-and-neanderthals-really-meet-in-the-negev/
-    --https://www.bbc.co.uk/news/science-environment-57586315
+[^23]: 'Galatians (People)'. Wikipedia. https://en.wikipedia.org/wiki/Galatians_(people)
 
-[^24]: https://www.science.org/content/article/modern-human-females-and-male-neandertals-had-trouble-making-babies-here-s-why
+[^24]: Josephus. Vol. 5: Antiquities: 8:2:5, pp. 593-595
 
-[^25]: 'Gehenna'. Wikipedia. https://en.wikipedia.org/wiki/Gehenna
+[^25]: 'Divine julius cult'. Wikipedia. https://en.wikipedia.org/wiki/Roman_imperial_cult#Divus_Julius
 
-[^26]: 'Blood libel'. Wikipedia.
-    https://en.wikipedia.org/wiki/Blood_libel --Blood Passover - The
-    Jews Of Europe And Ritual Murder by Ariel Toaff
-    --https://ru.wikipedia.org/wiki/Paзыcкaниe_oб_yбиeнии_eвpeями_хpиcтиaнcких_млaдeнцe_и_yпoтpeблeнии_кpoви_их
-    --https://www.jrbooksonline.com/PDFs/Jewish%20Ritual%20Murder%20JR.pdf
-    -https://www.minds.com/ZUGZWANG1939/blog/2000-years-of-jewish-ritual-murder-1037775983227506688
+[^26]: Gmirkin, Russell (2016). Plato and the Creation of the Hebrew Bible.
 
 [^27]: The Lost Apocrypha of the Old Testament. Fragments: Baruch (1920)
     by Montague Rhodes James: "In Solomon of Basrah's Book of the Bee
