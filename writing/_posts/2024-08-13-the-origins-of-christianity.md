@@ -643,25 +643,6 @@ Endnotes (Chapter 3)
     through whom were to be redeemed His chosen people, whom he would
     glorify before all the world, was the promised Messiah, 'the
     shepherd of Yhwh' (xliv. 28, xlv. 1)."\
-(b) Interestingly, Cyrus the Great's successor Darius the Great's full
-    name was Darayavahu. Yavahu is uncommonly like Yehouah (YHWH). Vahu
-    is the Iranian god of the wind, that became, like the Hebrew, to
-    mean breath and so life, so Yavahu literally means the same as YHWH.
-    Scholars admit the etymology of "DR" ("ZR") is puzzling. [In
-    Aramaiac and Iranian the d and the z could interchange, e.g. Manda=
-    Manasseh]. Literally, "zara" refers to the action of sowing seed in
-    the fields (Gen 26:12; Isa 37:30), and seems to be a Semitic root.
-    So, Zara in Hebrew is seed, and Darayavahu can be read in Hebrew
-    meaning "seed (progeny) of Yehouah," "seed of the living god.". In
-    the Book of Daniel and the Book of Esther 2:1-23 it is claimed that
-    Darius's son Xerxes I (Ahasuerus) was the grandson of Ahasuerus and
-    his jewish wife Esther who was a descendant of Israel (Jacob)
-    through Benjamin, Kish and Shimei. Josephus, Antiquities of the
-    Jews, Book XI, Chapter 6, repeats the same claim. Also, the Sefer
-    HaYashar (Book of the Righteous) claims that Darius the Great was a
-    descendant of King Saul through his daughter Merav. Persia became
-    multicultural after Darius. Darius the Great was also the one who
-    wiped out the Scythians during his Scythian campaigns [^29].\
 
 ### Chapter 4: The Origins of Buddhism
 
@@ -669,7 +650,7 @@ Gautama Buddha was Gaumata Bardya the son of Cyrus the Great who was the
 one who spread Zoroastrianism. The Persepolis Tablets (PFS 79, PFS 796
 and PF 250) which date from the time of Darius the Great are filled with
 Buddhist iconography and tell a story that Darius the Great came to
-power by overthrowing the "stargazer-Magus" Gaumata in Babylon. Gaumata
+power by overthrowing the "stargazer-Magus" Gaumata in Babylon [^29]. Gaumata
 Bardya was the satrap (governor) of the Persian province of Bactra
 (modern day Afghanistan).
 
@@ -1550,8 +1531,7 @@ https://auctions.stacksbowers.com/lots/view/3-US7SY/julius-caesar-ar-denarius-39
 
 [^28]: 'Druidism and Vedism compared'. https://www.academia.edu/13113385/Druidism_and_Vedism_Compared 
 
-[^29]: 'Scythian campaign of Darius I'. Wikipedia.
-    https://en.wikipedia.org/wiki/Scythian_campaign_of_Darius_I
+[^29]: Kraft, H. (2015, May 4). Ancient Persian Inscriptions Link a Babylonian King to the Man Who Became Buddha. Ancient Origins Reconstructing the Story of Humanity’s Past; Ancient Origins. https://www.ancient-origins.net/opinion-guest-authors/ancient-persian-inscriptions-link-babylonian-king-man-who-became-buddha-003001
 
 [^30]: https://www.hindupedia.com/en/Zoroastrianism_and_Hinduism
     [[link](https://www.hindupedia.com/en/Zoroastrianism_and_Hinduism)]
