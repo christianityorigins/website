@@ -552,7 +552,7 @@ could cover-up the tracks of their psyop religion which was primarily engineered
 
 Endnotes (Chapter 1)
 
-(a) The name "Jesus" was a title that derives from Iupiter-Zeus. The Romans used a system called 'interpretatio graeca' to associate their gods with local ones as part of their colonial program. Julius Caesar, as the claimed 'son of I(J)upiter' (there was no J in Latin) would have been Iupiter-Zeus (I-Zeus -> Iesus) to let the Greeks know that Iupiter and Zeus were equivalent deities (Roman Jupiter and Greek Zeus both derive from the Aryan skyfather 'Dyeus Pter'. The name Zeus comes from the pronunciation of Dyeus, and Jupiter comes from the pronunciation of 'Dyeus Pter').\
+(a) The name "Jesus" was a title that derives from Iupiter-Zeus. The Romans used a system called 'interpretatio graeca' to associate their gods with local ones as part of their colonial program. Julius Caesar, as the claimed 'son of I(J)upiter' (there was no J in Latin) would have been Iupiter-Zeus (I-Zeus -> Izeus -> Iesus) to let the Greeks know that Iupiter and Zeus were equivalent deities (Roman Jupiter and Greek Zeus both derive from the Aryan skyfather 'Dyeus Pter'. The name Zeus comes from the pronunciation of Dyeus, and Jupiter comes from the pronunciation of 'Dyeus Pter'). I-Zeus (Izeus) then phonetically shifts to I-zas/Izas/Izates.\
 (b) The symbol of the cross, Celtic cross/high cross/sun cross/solar
     wheel, et.al., which predate christianity by thousands of years
     (Callanish Stones. Wikipedia,
