@@ -9,3 +9,7 @@ Disallow: /
 
 User-agent: *
 Disallow: /
+
+# Allow access to the sitemap
+User-agent: *
+Allow: /sitemap.xml
