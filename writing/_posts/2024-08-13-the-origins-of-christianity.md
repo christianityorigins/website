@@ -8,7 +8,7 @@ categories: writing
 
 On the Origins of Christianity
 
-By Hugo Pepe
+By Ralph Perrier
 
 *I will not presume to speak of anything except what Christ has
 accomplished through me in leading the Gentiles to obedience by word and
