@@ -4,13 +4,13 @@ plugins:
   - jekyll-seo-tag
   - jekyll-minifier
   
-title: lunalucifera.org
-url: https://www.lunalucifera.org
+title: ralphperrier.org
+url: https://www.ralphperrier.org
 baseurl: ""
-description: "Personal website of Hugo Pepe"
+description: "Personal website of Ralph Perrier"
 author: Hugo
 twitter: 
-email: admin@lunalucifera.org
+email: admin@ralphperrier.org
 
 timezone: Europe/Madrid
 google_analytics_tracking_id: G-J8J1H8BR6R
