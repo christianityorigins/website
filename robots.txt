@@ -7,8 +7,12 @@ Disallow: /
 User-agent: ia_archiver-web.archive.org
 Disallow: /
 
-User-agent: *
-Disallow: /
+# Allow search engines to index your site
+User-agent: Googlebot
+Disallow: 
+
+User-agent: Bingbot
+Disallow: 
 
 # Allow access to the sitemap
 User-agent: *
