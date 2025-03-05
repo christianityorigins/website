@@ -24,8 +24,8 @@ Chapter 1: The Creation of Christianity \
 1.1 Imperial Cult\
 1.2 The Cult of Antinous and the Bar Kokhba Revolt (132–136 CE)\
 Chapter 2: The Origins of Judaism\
-2.1 Ethnogenesis of the Jews\
-2.2 The Creation of Judaism\
+Judaism2.1 Ethnogenesis of the Jews\
+2.2 The Myth of a Jewish People\
 2.2.1 Alexandria\
 2.2.2 Romanization\
 2.2.3 Modern Judaism\
@@ -278,10 +278,7 @@ stories, and fabricated deaths for their family members to control the
 population. They role-played as deities, religious figures, and
 various characters as if they were actors in a play. This was done to obscure the fact that the people were ruled by dynasties and to give the population an illusion of upward social mobility or implanting a sense of false hope. These religions were also money-making schemes.
 
-The figure of Jesus Christ (of Nazareth) was a literary creation of these elites,
-incorporating elements of various historical and mythological figures to
-appeal to a wide audience. This character then became an avatar for
-several historical figures in an imperial cult.
+The figure of Jesus Christ (of Nazareth) was a literary creation of these elites, incorporating elements of various historical and mythological figures to appeal to a wide audience. This character then became an avatar for several historical figures in an imperial cult.
 
 The development of Christianity can be divided into two phases. The
 first phase was the foundation of Christianity as an imperial cult,
@@ -593,7 +590,7 @@ The original redhead clan of Druids that ended up becoming Israelites were Scyth
 
 'Ashkenazi', or 'Ashkuza', was the name given to the Scythians by the ancient Akkadians [^24]. The Assyrians called the Scythians "Asguzaya" and the ancient Persians called the Scythians 'Saka'. In Biblical Hebrew, the Ashkuz (Ashkenaz) are considered to be a direct offshoot from the Gimirri (known as the Cimmerians to the ancient Greeks).
 
-#### 2.2 The Creation of Judaism
+#### 2.2 The Myth of a Jewish People
 
 All jewish history was made up. Their religion is Celtic Druidism that was Hellenized at the Library of Alexandria and then combined with the Divine Julius cult. So, ancient judaism (before Rabbi Akiva) was as syncretic attempt by the Alexandrians and then Romans to pacify the jews (who were then Celts) [^25]. 
 
