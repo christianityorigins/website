@@ -8,7 +8,7 @@ If you appreciate my work please consider supporting me!<br /><br />
 
 
 
-<div class="copyable-email">Monero: 46RmVDA5oeGUE1WdctJq1EQHCq9VpSAbqM2cChJGQzSAbYtcJR6f3xF2tStVaGcLQS1G4cSxHBBw1aXqPuJFGsaMLKE8eJD</div>
+<div class="copyable-email">Bitcoin: bc1qtgj8ucnpt532uu963wlcdaaxu0m4dzwfrw3d93</div>
 
 
 <script>
