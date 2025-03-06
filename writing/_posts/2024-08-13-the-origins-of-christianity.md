@@ -596,9 +596,7 @@ All jewish history was made up. Their religion is Celtic Druidism that was Helle
 
 #### 2.2.1 Alexandria
 
-It was in Alexandria at the Alexandrian School where the Pentateuch and Septuagint were written. See: Chapter 7. The Alexandrian School. Sometime after 283-246 BCE (Ptolemy I Soter's reign) their religion (Druidism) was Hellenized. The myth of the jewish people and the Laws of Moses was based on Plato’s hypothetical colony of Magnesia from his thesis called The Laws (347 BC) in which the proposed charter for the Cretan colony of Magnesia was modeled in large part on Athenian legal and constitutional traditions. Ancestor received law from a deity, hereditary priesthood rather than king, as well as the division into 12 tribes were all part of the formula. Plato's Timaeus (360 BC) is where the story of Abraham comes from. Plato's Timaeus is also the source for Genesis 1-11. Homer's Odysseey was the source of Genesis 24, 42-46 [^26]. Exodus is just a semitized retcon of Jason and the Argonauts, and the Oracles Against the Nations plagiarize the Sibylline Oracles. The fact that their religion was extremely Hellenized in Alexandria shows that either the jews were trying to ingratiate themselves into the Greek speaking world (oecumene), or that they were so problematic of a population that the Greek 'Ptolemaioi' were trying to subjugate them with religion.
-
-The Pentateuch was written at the same time as the Septuagint in Alexandria. 
+It was in Alexandria at the Alexandrian School where the Pentateuch and Septuagint were written. See: Chapter 7. The Alexandrian School. Sometime after 283-246 BCE (Ptolemy I Soter's reign) their religion (Druidism) was Hellenized. The myth of the jewish people and the Laws of Moses were based on Plato’s hypothetical colony of Magnesia from his thesis called The Laws (347 BC) in which the proposed charter for the Cretan colony of Magnesia was modeled in large part on Athenian legal and constitutional traditions. Ancestor received law from a deity, hereditary priesthood rather than king, as well as the division into 12 tribes were all part of the formula. Plato's Timaeus (360 BC) is where the story of Abraham comes from. Plato's Timaeus is also the source for Genesis 1-11. Homer's Odysseey was the source of Genesis 24, 42-46 [^26]. Exodus is just a semitized retcon of Jason and the Argonauts, and the Oracles Against the Nations plagiarize the Sibylline Oracles. The fact that their religion was extremely Hellenized in Alexandria shows that either the jews were trying to ingratiate themselves into the Greek speaking world (oecumene), or that they were so problematic of a population that the Greek 'Ptolemaioi' were trying to subjugate them with religion.
 
 #### 2.2.2 Romanization
 
@@ -612,7 +610,7 @@ This is why several descendants of Roman aristocrats described themselves as 'je
 
 #### 2.2.3 Modern Judaism
 
-Modern judaism is not the Torah (Old Testament), and has not been for a long time. The Talmud was completed after the New Testiment  and this is what modern jews follow. Essentially, jews follow the program that Rabbi Akiva and his students created (ethnocentrisim in the form of a religion).\
+The area of modern israel was wiped out multiple times. Modern jews are a hodgepodge of ethnicities who survided the Bar Kokhba revolt of 132–136 CE. Also, the religion of Modern judaism is a recent invention. Judaism is not the Torah (Old Testament), and has not been for a long time. The Talmud was completed after the New Testament  and this is what modern jews follow. Essentially, jews follow the program that Rabbi Akiva and his students created (ethnocentrisim in the form of a religion).\
 
 ### Chapter 3: The Origins of Zoroastrianism
 
