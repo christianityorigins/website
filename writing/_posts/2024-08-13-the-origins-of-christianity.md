@@ -246,7 +246,7 @@ Speculative
 Definitions
 ---------------------
 
--   Pentateuch: The first five books of the Hebrew Bible, traditionally attributed to Moses: Genesis, Exodus, Leviticus, Numbers, Deuteronomy. The term comes from the Greek for "five scrolls.". Also called the Torah.
+-   Pentateuch (from the Greek words penta meaning five, and teuchos meaning book): The first five books of the Hebrew Bible, traditionally attributed to Moses: Genesis, Exodus, Leviticus, Numbers, Deuteronomy. The Pentateuch is also called the Torah ('law' in Hebrew). Pentateuch is more commonly used in Christian scholarship and discussions, and Torah is the term used in Jewish contexts. 
 -   Tanakh (an acronym (TNK) that represents the entire Hebrew Bible, divided into three main sections). This results in a total of 24 books in the Jewish Bible.
     -  Torah (Teaching or Law): Corresponds to the Pentateuch (Genesis, Exodus, Leviticus, Numbers, Deuteronomy).
     -  Nevi'im (Prophets): Eight books: Joshua, Judges, Samuel (1 and 2 as one), Kings (1 and 2 as one), Isaiah, Jeremiah, Ezekiel, The Twelve (minor prophets as one).
@@ -570,7 +570,7 @@ Endnotes (Chapter 1)
 (c) The Letter to Flora and the Tripartite Tractate write about a
     Gnostic teacher called "Ptolemy" who I identify as Ptolemy Menneus
     aka Simon Boethus aka Simon Magus.\
-(d) Anatoly Fomenko is an author who makes the claim that the Western Roman Empire is a duplicate of the Eastern Roman Empire not the other way around and that much of the history of the Western Roman Empire was conjured up by the Jesuits and Joseph Justus Scalinger. It is true that the area of modern-day Istanbul was once called 'Basileía tôn Rhômaíôn' ('Kingdom of the Romans') and the people of that region called themsevles Rhōmaîoi (Romans). He also makes the claim that the original Biblical Jerusalem (the city of Yoros) is situated on the eastern shore of Bosphorus. My own research on the origins of Christianity take me to the Bosphorus as well (Julius Caesar = Asander, King of Bosphorus, and Cleopatra = Dynamis). So, maybe there is an element of truth in his theories?. \    
+(d) A few revisionist authors such as Anatoly Fomenko and Gunnar Heinsohn make the claim that the Western Roman Empire is a duplicate of the Eastern Roman Empire not the other way around and that much of the history of the Western Roman Empire was conjured up by the Jesuits and Joseph Justus Scalinger. It is true that the area of modern-day Istanbul was once called 'Basileía tôn Rhômaíôn' ('Kingdom of the Romans') and the people of that region called themsevles Rhōmaîoi (Romans). He also makes the claim that the original Biblical Jerusalem (the city of Yoros) is situated on the eastern shore of Bosphorus. My own research on the origins of Christianity take me to the Bosphorus as well (Julius Caesar = Asander, King of Bosphorus, and Cleopatra = Dynamis). So, maybe there is an element of truth in his theories?. \    
 (e) Vespassian was also a great-grandson of Cleopatra and Mark Antony
     (King Herod) (The Royal Ancestry of Emperor Vespasian (The Royal
     Ancestry of Emperor Vespasian. Henry Davis,
