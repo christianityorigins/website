@@ -7,6 +7,7 @@ updated: 2018-11-23 21:40:58 +0100
 category: blog
 ---
 
+_To call the taming of an animal its 'improvement' is in our ears almost a joke. Whoever knows what goes on in zoos is doubtful whether the beasts in them are 'improved'. They are weakened, they are made less harmful, they become sickly beasts through the depressive emotion of fear, through pain, through injuries, through hunger. It is no different with the tamed human being whom the priest has 'improved'. In the early Middle Ages, when the church was in fact above all a zoo, one . . . improved, for example, the noble Teutons. But what did such a Teuton afterwards look like when he had been 'improved' and led into a monastery? Like a caricature of a human being, like an abortion: he had become a sinner; he was in a cage; one had imprisoned him behind nothing but sheer terrifying concepts . . . . There he lay now, sick, miserable, filled with ill-will towards himself, full of hatred for the impulses toward life, full of suspicion of all that was still strong and happy. In short, [he was] a Christian._ - The Antichrist, Section 61.
 <p align="center">
 <img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgHWOQYKN1dT7B0H6x8Sx2WLDtHViTUdyDCkLIh0XC71lNNAnmbToY6zUUapq9bKu-LLidHY0NwLejEaLSC0DDDq1HgO8aereBZk3mWs4OcbxiUUIcEJqX6BCktLNA7XGehlrMAt9C2InwTKN3BmOHs-MCyfxaTICSg-dOHMeMvsUniH3MH5zQWOya8NKY/s4000/collage.jpg" width="400">
 </p>
