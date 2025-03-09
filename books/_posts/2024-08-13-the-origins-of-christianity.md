@@ -59,28 +59,11 @@ Preface
 
 The central points of this book can be summarized as follows:
 
--    Elites in antiquity created imperial cult religions to solidify their rule and subjugate the population to their colonial domination. Christianity was one in a long line of slave morality imperial cults invented by these elites. Christianity's progenitors included Zoroastrianism, Buddhism, and over a dozen religions from the 'Alexandrian School' in Egypt starting with the Serapsis Cult. It is impossible for any religion to have have sprug up organically. The royal families controlled the dissemenation of religious texts, and the punishment for spreading a religion that might compete with an imperial cult was death.
--   There existed a Byzantine imperial cult in which Julius Caesar took on
-    the role of Asander of Bosphorus, and Cleopatra took on the role of
-    Dynamis, queen of Bosphorus.
--   The 'Jesus' figure in the bible originates from Julius Caesar,
-    I(J)upiter-Zeus (I-Zeus), and became an avatar for several later
-    leaders.
--   Sometime after the Bar Kokhba Revolt (132--136 CE), Talmudic jews
-    who were students of a rabbi named Akiva and who had connections to
-    the Alexandrian School in Egypt, and who were hiding out in the
-    Himyarite Kingdom after Emperor Hadrian expelled them from judea,
-    realized that mind subversion was the only way to destroy the Romans. Knowing that creating a new religion would have resulted in their death, and recognizing the impossibility of getting people to abandon their religions for a new one, they took the aforementioned Byzantine-Roman imperial cult
-    and created two new sects: a slave morality for the Romans
-    (Christianity), and warrior cult (the blueprint for Islam) to weaponize the Arabs to
-    attack eastern Rome (Allah and Muhammad the red-headed warlord were
-    eventually added as parodies of Attila the Hun and his uncle Ruglia waging war against
-    Rome ("Edom") because the objective was always to weaponize the Arabs to attack Eastern Rome).
-    Rabbi Akiva created modern Judaism to create ethnocentrism in the
-    form of a religion, and his students Markianos of Alexandria aka
-    Marcion of Sinope did the slave-morality of Christianity and Simon
-    ben Yohai created the warrior-morality of Islam and The Secrects of
-    Rabbi Simon ben Yohai.
+Over two millennia ago, the term 'Jew' denoted the Iudii or Iudaei, a Celtic tribe whose religious practices were rooted in Druidism. The Greek Ptolemaioi at the Alexandrian School sought to subvert this group by targeting their religion which lead to the creation of what was the first draft of Judaism. Subsequently, several centuries later, the Romans replicated this strategy of subversion by further undermining the already transformed religious framework of the Jews through the imposition of the Roman imperial cult, specifically, the Flamen Dialis cult or the cult of the Divine Julius. Their Moshiach (Messiah) was reinterpreted as Julius Caesar, I(J)upiter-Zeus (I-Zeus-> Izeus-> Iseus).
+
+Then, sometime after the Bar Kokhba Revolt (132--136 CE), Talmudic jews who were students of a rabbi named Akiva and who had connections to the Alexandrian School in Egypt, and who were hiding out in the Himyarite Kingdom after Emperor Hadrian expelled them from judea, realized that mind subversion was the only way to destroy the Romans. Knowing that creating a new religion would have resulted in their death, and recognizing the impossibility of getting people to abandon their religions for a new one, they took the Roman imperial cult, which was by then half of their religion, then repackaged it with the old testament and turned the roman imperial cult into a slave-morality. Christianity is the culmination  of the subverson of a subversion of a subversion, over several centuries, of a religion. That is why there is a extremely powerful psychological weapon at its core (See: Book II: Christianity as a Slave Morality Religion and its Modern Secularized Variants: A Jewish Conspiracy and Hoax on the Gentiles).
+
+At the same time Rabbi Akiva and his students created christianity to subvert the Romans, they created a warrior cult (the blueprint for Islam) to weaponize the Arabs to attack eastern Rome. Rabbi Akiva created modern Judaism to create ethnocentrism in the form of a religion, and his students Markianos of Alexandria aka Marcion of Sinope did the slave-morality of Christianity and Simon ben Yohai created the warrior-morality of Islam.
 
 My research focuses on identifying the people who wrote the bible,
 the context in which they wrote it, and my thesis addresses the question
@@ -276,11 +259,13 @@ the interests of the ruling elite. These elites employed religion, as well
 as an incredible number of regional aliases, locations, fictional
 stories, and fabricated deaths for their family members to control the
 population. They role-played as deities, religious figures, and
-various characters as if they were actors in a play. This was done to obscure the fact that the people were ruled by dynasties and to give the population an illusion of upward social mobility or implanting a sense of false hope. These religions were also money-making schemes.
+various characters as if they were actors in a play. This was done to obscure the fact that the people were ruled by dynasties and to give the population an illusion of upward social mobility or implanting a sense of false hope. These religions were also money-making schemes. It is impossible for any religion to have have sprug up organically. The royal families controlled the dissemenation of religious texts, and the punishment for spreading a religion that might compete with an imperial cult was death.
 
 The figure of Jesus Christ (of Nazareth) was a literary creation of these elites, incorporating elements of various historical and mythological figures to appeal to a wide audience. This character then became an avatar for several historical figures in an imperial cult.
 
-The development of Christianity can be divided into two phases. The
+Julius Caesar was the first 'Jesus' (I(J)upiter-Zeus (I-Zeus-> Izeus-> Iseus)). The Romans used a system called 'interpretatio graeca' to associate their gods with local ones as part of their colonial program. Julius Caesar, as the claimed 'son of I(J)upiter' (there was no J in Latin) would have been Iupiter-Zeus to let the Greeks know that Iupiter and Zeus were equivalent deities (Roman Jupiter and Greek Zeus both derive from the Aryan skyfather 'Dyeus Pter'. The name Zeus comes from the pronunciation of Dyeus, and Jupiter comes from the pronunciation of 'Dyeus Pter'). Then subsequent emperors took on this role. I-Zeus (Izeus) eventually phonetically shifts to I-zas/Izas/Izates.\
+
+The development of Christianity can be divided into multiple phases. The
 first phase was the foundation of Christianity as an imperial cult,
 while the second phase saw the subversion of this imperial cult by a
 group of rabbis (many of whom were connected to the 'Alexandrian School'
@@ -549,8 +534,7 @@ could cover-up the tracks of their psyop religion which was primarily engineered
 
 Endnotes (Chapter 1)
 
-(a) The name "Jesus" was a title that derives from Iupiter-Zeus. The Romans used a system called 'interpretatio graeca' to associate their gods with local ones as part of their colonial program. Julius Caesar, as the claimed 'son of I(J)upiter' (there was no J in Latin) would have been Iupiter-Zeus (I-Zeus -> Izeus -> Iesus) to let the Greeks know that Iupiter and Zeus were equivalent deities (Roman Jupiter and Greek Zeus both derive from the Aryan skyfather 'Dyeus Pter'. The name Zeus comes from the pronunciation of Dyeus, and Jupiter comes from the pronunciation of 'Dyeus Pter'). I-Zeus (Izeus) then phonetically shifts to I-zas/Izas/Izates.\
-(b) The symbol of the cross, Celtic cross/high cross/sun cross/solar
+(a) The symbol of the cross, Celtic cross/high cross/sun cross/solar
     wheel, et.al., which predate christianity by thousands of years
     (Callanish Stones. Wikipedia,
     https://en.wikipedia.org/wiki/Callanish_Stones
@@ -567,11 +551,11 @@ Endnotes (Chapter 1)
     simply the same relgion that they were already worshiping, and
     because of widespread illiteracy at the time, they had no idea what
     garbage was inside the bible.\
-(c) The Letter to Flora and the Tripartite Tractate write about a
+(b) The Letter to Flora and the Tripartite Tractate write about a
     Gnostic teacher called "Ptolemy" who I identify as Ptolemy Menneus
     aka Simon Boethus aka Simon Magus.\
-(d) A few revisionist authors such as Anatoly Fomenko and Gunnar Heinsohn make the claim that the Western Roman Empire is a duplicate of the Eastern Roman Empire not the other way around and that much of the history of the Western Roman Empire was conjured up by the Jesuits and Joseph Justus Scalinger. It is true that the area of modern-day Istanbul was once called 'Basileía tôn Rhômaíôn' ('Kingdom of the Romans') and the people of that region called themsevles Rhōmaîoi (Romans). He also makes the claim that the original Biblical Jerusalem (the city of Yoros) is situated on the eastern shore of Bosphorus. My own research on the origins of Christianity take me to the Bosphorus as well (Julius Caesar = Asander, King of Bosphorus, and Cleopatra = Dynamis). So, maybe there is an element of truth in his theories?. \    
-(e) Vespassian was also a great-grandson of Cleopatra and Mark Antony
+(c) A few revisionist authors such as Anatoly Fomenko and Gunnar Heinsohn make the claim that the Western Roman Empire is a duplicate of the Eastern Roman Empire not the other way around and that much of the history of the Western Roman Empire was conjured up by the Jesuits and Joseph Justus Scalinger. It is true that the area of modern-day Istanbul was once called 'Basileía tôn Rhômaíôn' ('Kingdom of the Romans') and the people of that region called themsevles Rhōmaîoi (Romans). He also makes the claim that the original Biblical Jerusalem (the city of Yoros) is situated on the eastern shore of Bosphorus. My own research on the origins of Christianity take me to the Bosphorus as well (Julius Caesar = Asander, King of Bosphorus, and Cleopatra = Dynamis). So, maybe there is an element of truth in his theories?. \    
+(d) Vespassian was also a great-grandson of Cleopatra and Mark Antony
     (King Herod) (The Royal Ancestry of Emperor Vespasian (The Royal
     Ancestry of Emperor Vespasian. Henry Davis,
     https://www.henryhdavis.com/theroyalancestryofemperorvespasian
