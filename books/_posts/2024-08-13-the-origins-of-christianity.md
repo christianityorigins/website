@@ -581,7 +581,7 @@ This is why several descendants of Roman aristocrats described themselves as 'je
 
 #### 2.2.3 Modern Judaism
 
-The area of modern israel was wiped out multiple times. Modern jews are a hodgepodge of ethnicities who survided the Bar Kokhba revolt of 132–136 CE. Also, the religion of Modern judaism is a recent invention. Judaism is not the Torah (Old Testament), and has not been for a long time. The Talmud was completed after the New Testament  and this is what modern jews follow. Essentially, jews follow the program that Rabbi Akiva and his students created (ethnocentrisim in the form of a religion).\
+The area of modern israel was wiped out multiple times. Modern jews are a hodgepodge of ethnicities who survided the Bar Kokhba revolt of 132–136 CE. Also, the religion of Modern judaism is a recent invention. Judaism is not the Torah (Old Testament), and has not been for a long time. The Talmud was completed after the New Testament  and this is what modern jews follow. Essentially, jews follow the program that Rabbi Akiva and his students created.\
 
 ### Chapter 3: The Origins of Zoroastrianism
 
