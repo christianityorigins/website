@@ -57,8 +57,6 @@ Appendix B. Expulsions from Rome for Trying to Spread Religions\
 Preface
 ------------------
 
-The central points of this book can be summarized as follows:
-
 Over two millennia ago, the term 'Jew' denoted the Iudii or Iudaei, a Celtic tribe whose religious practices were rooted in Druidism. The Greek Ptolemaioi at the Alexandrian School sought to subvert this group by targeting their religion which lead to the creation of what was the first draft of Judaism. Subsequently, several centuries later, the Romans replicated this strategy of subversion by further undermining the already transformed religious framework of the Jews through the imposition of the Roman imperial cult, specifically, the Flamen Dialis cult or the cult of the Divine Julius. Their Moshiach (Messiah) was reinterpreted as Julius Caesar, I(J)upiter-Zeus (I-Zeus-> Izeus-> Iseus).
 
 Then, sometime after the Bar Kokhba Revolt (132--136 CE), Talmudic jews who were students of a rabbi named Akiva and who had connections to the Alexandrian School in Egypt, and who were hiding out in the Himyarite Kingdom after Emperor Hadrian expelled them from judea, realized that mind subversion was the only way to destroy the Romans. Knowing that creating a new religion would have resulted in their death, and recognizing the impossibility of getting people to abandon their religions for a new one, took the Roman imperial cult, which was by then half of their religion, then repackaged it with the old testament and turned the roman imperial cult into a slave-morality. Christianity is the culmination  of the subverson of a subversion of a subversion, over several centuries, of a religion. That is why there is a extremely powerful psychological weapon at its core (See: Book II: Christianity as a Slave Morality Religion and its Modern Secularized Variants: A Jewish Conspiracy and Hoax on the Gentiles).
@@ -584,7 +582,7 @@ It was in Alexandria at the Library of Alexandria where the Pentateuch and Septu
 
 #### 2.2.2 Romanization
 
-Ceasar’s gentilice (surname) was Iulius. We are told by Virgil that it goes back to Cesar’s supposed ancestor Iulus or Iule, after the ancient Celtic tribe known as the Iudii or Iudaei, who inhabited the region of Gaul (modern-day France) and Britain. I(J)upiter was also called Jove or Iove to the Romans. The Latin pronunciation of Iove would have been Yoh-Way, i.e Yahweh/Yhwh, so Yahweh Saboath, the god of the hebrew bible, is I(J)ove (Roman Zeus) Sabazios (Thracian Zeus).
+Ceasar’s gentilice (surname) was Iulius. We are told by Virgil that it goes back to Ceasar’s supposed ancestor Iulus or Iule, after the ancient Celtic tribe known as the Iudii or Iudaei, who inhabited the region of Gaul (modern-day France) and Britain. I(J)upiter was also called Jove or Iove to the Romans. The Latin pronunciation of Iove would have been Yoh-Way, i.e Yahweh/Yhwh, so Yahweh Saboath, the god of the hebrew bible, is I(J)ove (Roman Zeus) Sabazios (Thracian Zeus).
 
 Virgil also tells us (drawing from Cato the Elder, c. 168 BC) that the name Julius is the short name of Jupiter (Jul Pater). And it happens to be an Indo-European root word designating the sunlight or the day sky, identical to the Scandinavian name for the solar god, Yule (Helios for the Greeks, Haul for the Gauls, Hel for the Germans, from which derives the French Noël, Novo Hel). The Proto-Indo-European root for "Julius" (Iulius in Latin) is reconstructed as "yews", while the Proto-Indo-European root for "Jew" (Iudaeus in Latin) is also reconstructed as "yews".
 
@@ -602,7 +600,7 @@ The area of modern israel was wiped out multiple times. Modern jews are a hodgep
 
 Hippolytos (or: Hippolytus) was a Christian author who speaks of a legend involving the meeting of Pythagoras and Zoroaster of Persia. Aristoxenos, who was a student of Aristotle, wrote the same thing. Druidism was invented by Pythagoras or his teacher Abaris the Hyperborean [^27]. Vedism is the eastern branch of Druidism [^28].
 
-Did Cyrus the Great aka Koroush Kabir (Koroush = "lord of the sun", "kabi = great. Cyrus translates to Kurosh in ancient Persian) hire Pythagoras to create an imperial cult? Judaism, Vedism, Zoroastrianism, all have similar themes.
+Did Cyrus the Great aka Koroush Kabir (Koroush = "lord of the sun", "kabi = great. Cyrus translates to Kurosh in ancient Persian) hire Pythagoras to create an imperial cult? Druidism, Judaism, Vedism, and Zoroastrianism all have similar themes.
 
 Zoroastrianism is clearly a slave morality. All the troubling aspects of christianity originate in Zoroastrianism:
 monotheistic deity that judges you when you die, eternal hell, universalism, sin/salvation, confession of sins, self-deification to weaponize/empower the lowest castes. Zoroastrianism also has a religious commandment called 'Xwedodah' that commands Zoroastrians to marry and procreate with their siblings, with punishment for not doing so!
