@@ -59,11 +59,9 @@ Preface
 
 Over two millennia ago, the term 'Jew' denoted the Iudii or Iudaei, a Celtic tribe whose religious practices were rooted in Druidism. The Greek Ptolemaioi at the Alexandrian School sought to subvert this group by targeting their religion which lead to the creation of what was the first draft of Judaism. Subsequently, several centuries later, the Romans replicated this strategy of subversion by further undermining the already transformed religious framework of the Jews through the imposition of the Roman imperial cult, specifically, the Flamen Dialis cult or the cult of the Divine Julius. Their Moshiach (Messiah) was reinterpreted as Julius Caesar, I(J)upiter-Zeus (I-Zeus-> Izeus-> Iseus).
 
-Then, sometime after the Bar Kokhba Revolt (132--136 CE), Talmudic jews who were students of a rabbi named Akiva and who had connections to the Alexandrian School in Egypt, and who were hiding out in the Himyarite Kingdom after Emperor Hadrian expelled them from judea, realized that mind subversion was the only way to destroy the Romans. Knowing that creating a new religion would have resulted in their death, and recognizing the impossibility of getting people to abandon their religions for a new one, took the Roman imperial cult, which was by then half of their religion, then repackaged it with the old testament and turned the roman imperial cult into a slave-morality. 
+Then, sometime after the Bar Kokhba Revolt (132--136 CE), a group of Romans that included Gamaliel/St. Gamaliel aka Tiberius Gemellus who was a grandson of Emperor Tiberius and a cousin of Emperor Caligula, a Rabbi named Akiva, Aquila of Sinope aka Onkelos who was a nephew of emperor Hadrian, Markianos of Alexandria aka Marcion of Sinope, Simon ben Yohai, Ketia bar Shalom aka Titus Flavian Clemens who was a cousin of the emperor Domitian aka 'Clement of Rome', and Rabbi Meir who was the grandson of emperor Nero, and all of them working on behalf of emperor Hadrian, tried to subvert this group further with a slave-morality religion.
 
-Christianity is the culmination  of the subverson of a subversion of a subversion, over several centuries, of a religion. That is why there is a extremely powerful psychological weapon at its core (See: Book II: Christianity as a Slave Morality Religion and its Modern Secularized Variants: A Jewish Conspiracy and Hoax on the Gentiles).
-
-At the same time Rabbi Akiva and his students created christianity to subvert the Romans, they created a warrior cult (the blueprint for Islam) to weaponize the Arabs to attack eastern Rome. Rabbi Akiva created modern Judaism to create ethnocentrism in the form of a religion, and his students Markianos of Alexandria aka Marcion of Sinope did the slave-morality of Christianity and Simon ben Yohai created the warrior-morality of Islam.
+Christianity is the culmination of the subverson of a subversion of a subversion, over several centuries, of a religion. That is why there is a extremely powerful psychological weapon at its core (See: Book II: Christianity as a Slave Morality Religion and its Modern Secularized Variants: A Jewish Conspiracy and Hoax on the Gentiles).
 
 My research focuses on identifying the people who wrote the bible,
 the context in which they wrote it, and my thesis addresses the question
@@ -265,13 +263,6 @@ The figure of Jesus Christ (of Nazareth) was a literary creation of these elites
 
 Julius Caesar was the first 'Jesus' (I(J)upiter-Zeus (I-Zeus-> Izeus-> Iseus)). The Romans used a system called 'interpretatio graeca' to associate their gods with local ones as part of their colonial program. Julius Caesar, as the claimed 'son of I(J)upiter' (there was no J in Latin) would have been Iupiter-Zeus to let the Greeks know that Iupiter and Zeus were equivalent deities (Roman Jupiter and Greek Zeus both derive from the Aryan skyfather 'Dyeus Pter'. The name Zeus comes from the pronunciation of Dyeus, and Jupiter comes from the pronunciation of 'Dyeus Pter'). Then subsequent emperors took on this role. I-Zeus (Izeus) eventually phonetically shifts to I-zas/Izas/Izates.\
 
-The development of Christianity can be divided into multiple phases. The
-first phase was the foundation of Christianity as an imperial cult,
-while the second phase saw the subversion of this imperial cult by a
-group of rabbis (many of whom were connected to the 'Alexandrian School'
-in Egypt) who were headed by a Rabbi named Akiva after the Bar Kokhba
-revolt (132--136 CE).
-
 #### 1.1 Imperial Cult
 
 There was a Byzantine [^1] imperial cult where Julius Caesar [^2] took
@@ -457,11 +448,6 @@ claimed that he was brought up in Jerusalem "at the feet of Gamaliel"
 (Acts 22:3)), and who was the one that came up with the idea that "Rome
 was Edom", preached that Simon bar Kokhba ('bar Kozeva' = 'son of the
 star' in ancient Hebrew) was the 'messiah' during the Bar Kokhba revolt.
-Simon bar Kozeva's son was named Rufus which was also the name of the
-son of Simon of Cyrene. The Gospel of Mark is about Simon of Cyrene and
-Jesus is meant to be seen as an invisible spirit from heaven come down
-to accompany Simon and his disciples who then returns after Simon is
-crucified.
 
 Two years before the Bar Kokhba revolt emperor Hadrian created a
 religion to deify his underage gay lover as the son of god
@@ -502,8 +488,7 @@ rabbi Akiva was Ketia bar Shalom which was the jewish name of Titus
 Flavian Clemens, who was the nephew of emperor Domitian [^17]. Titus
 Flavian Clemens is a likely candidate for being 'Clement of Rome'. Rabbi
 Akiva's other student was Rabbi Meir who the Talmud (Gittin 56a) claims
-was a grandson of emperor Nero, so rabbi Akiva moved in the best society
-of the Romans.
+was a grandson of emperor Nero.
 
 'The Secret Gospel of Mark' [^18] which speaks about Jesus's
 homosexuality and the Cult of Antinous came out about the same time. It
