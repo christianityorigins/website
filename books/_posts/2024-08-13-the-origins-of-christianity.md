@@ -59,7 +59,7 @@ Preface
 
 Over two millennia ago, the term 'Jew' denoted the Iudii or Iudaei, a Celtic tribe whose religious practices were rooted in Druidism. The Greek Ptolemaioi at the Alexandrian School sought to subvert this group by targeting their religion which lead to the creation of what was the first draft of Judaism. Subsequently, several centuries later, the Romans replicated this strategy of subversion by further undermining the already transformed religious framework of the Jews through the imposition of the Roman imperial cult, specifically, the Flamen Dialis cult or the cult of the Divine Julius. Their Moshiach (Messiah) was reinterpreted as Julius Caesar, I(J)upiter-Zeus (I-Zeus-> Izeus-> Iseus).
 
-Then, sometime after the Bar Kokhba Revolt (132--136 CE), a group of Romans that included Gamaliel/St. Gamaliel aka Tiberius Gemellus who was a grandson of Emperor Tiberius and a cousin of Emperor Caligula, a Rabbi named Akiva, Aquila of Sinope aka Onkelos who was a nephew of emperor Hadrian, Markianos of Alexandria aka Marcion of Sinope, Simon ben Yohai, Ketia bar Shalom aka Titus Flavian Clemens who was a cousin of the emperor Domitian aka 'Clement of Rome', and Rabbi Meir who was the grandson of emperor Nero, and all of them working on behalf of emperor Hadrian, tried to subvert this group further with a slave-morality religion.
+Then, sometime after the Bar Kokhba Revolt (132--136 CE), a group of Romans that included Gamaliel/St. Gamaliel aka Tiberius Gemellus who was a grandson of Emperor Tiberius and a cousin of Emperor Caligula, a Rabbi named Akiva (Paul the Apostle?), Aquila of Sinope aka Onkelos who was a nephew of emperor Hadrian, Markianos of Alexandria aka Marcion of Sinope, Simon ben Yohai, Ketia bar Shalom aka Titus Flavian Clemens who was a cousin of the emperor Domitian aka 'Clement of Rome', and Rabbi Meir who was the grandson of emperor Nero, and all of them working on behalf of emperor Hadrian, tried to subvert this group further with a slave-morality religion.
 
 Christianity is the culmination of the subverson of a subversion of a subversion, over several centuries, of a religion. That is why there is a extremely powerful psychological weapon at its core (See: Book II: Christianity as a Slave Morality Religion and its Modern Secularized Variants: A Jewish Conspiracy and Hoax on the Gentiles).
 
@@ -215,10 +215,6 @@ Speculative
     by Ranajit Pal
     https://www.academia.edu/695219/Diodotus_I_was_Ashoka_An_Altar_of_Alexander_Now_Standing_Near_Delhi
     [[link](https://www.academia.edu/695219/Diodotus_I_was_Ashoka_An_Altar_of_Alexander_Now_Standing_Near_Delhi)])
--   James, brother of Jesus = Rabbi Akiva (the name Akiva is related to
-    Jacob/James). Theory: Simon of Cyrene was Lukuas Andreas, with his
-    "sons" being Julian/John (Simon bar Kochba) and Pappus/James (R.
-    Akiva)?
 -   John the Baptist = Yohanan ben Zakkai. Father of Gamaliel and
     grandfather of Jesus ben Gamla/Gamaliel.
 -   Ptolemy XIII Theos Philopator = Gaius Octavius aka Emperor Gaius Julius Caesar Augustus, son of Julius Caesar and Berenice IV aka Alfidia (Cleopatra VII sister).
