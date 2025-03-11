@@ -383,10 +383,7 @@ i.e. Turkish Judaism (the day of Sabbath was a festival of Sabazius
 to the Romans. The Latin pronunciation of Iove would have been Yoh-Way,
 i.e Yahweh/Yhwh, so Jove (Roman Zeus) Sabazios (Thracian Zeus) became
 conflated with Yahweh Saboath the god of the hebrew bible. Also, from
-Sabazios you get Zebedaios, sons of Zebedee. Judaism is a bastardized
-version of Turkish Druidism and the Sabazius cult, filtered through the
-Alexandrian School (Plato) with some with some Egyptian (Setianism) and
-Babylonian myths thrown in.
+Sabazios you get Zebedaios, sons of Zebedee.
 
 Ptolemy Menneus/Simon Boethus's son was named Philippion who I believe
 is a good candidate for Philip II Philoromaios and also Tiridates II of
