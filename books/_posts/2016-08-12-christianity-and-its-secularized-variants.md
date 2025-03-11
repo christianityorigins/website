@@ -56,7 +56,7 @@ The collectivization of divine authority reinforces a universal morality. Everyt
 
 1.2. Universalism
 
-  
+_There is no longer Jew or Greek, there is no longer slave or free, there is no longer male and female; for all of you are one in Christ Jesus._ - Galatians 3:28
 
 Christian universalism derives from monotheism. The universalization of a group into a singular monolith not only allows a group to become top-down controlled, but it also becomes a tool of empowerment for the oppressed. Friedrich Nietzsche believed that the universalistic claims of Christianity allowed the lower classes, or "chandala" as he called them, to feel equal to the higher classes. By emphasizing a shared humanity and a common destiny in the afterlife, Christianity undermined traditional social hierarchies based on intelligence, wealth, or power.  
         Christian universalism also led to ethnic erasure. The catholic church deliberately destroyed ethnic customs and beliefs to emphasize the universality of Christianity. Pre-Christian Europe was a patchwork of ethnicities, each with its own gods and traditions and christianity deliberately destroyed these ethnic bonds so that a religious identity replaced an ethnic identity. "Christendom" then became the first universalized identity that was built around a shared morality that transcended ethnic and cultural boundaries. "Christendom" was then replaced by the word "European" after the enlightenment, but that label still retained Christendom's universal nature. "European" like "Christendom" is a state and political identity, opposed to an ethnic or national identity, and the adoption of this universalist identity destroyed what little of specific ethnic European customs and traditions that were left. 
