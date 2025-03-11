@@ -63,7 +63,7 @@ Then, sometime after the Bar Kokhba Revolt (132--136 CE), a group of Romans that
 
 Christianity is the culmination of the subverson of a subversion of a subversion, over several centuries, of a religion. That is why there is a extremely powerful psychological weapon at its core (See: Book II: Christianity as a Slave Morality Religion and its Modern Secularized Variants: A Jewish Conspiracy and Hoax on the Gentiles).
 
-My research focuses on identifying the people who wrote the bible,
+Based on this historical context, my research is focused on identifying the people who wrote the bible,
 the context in which they wrote it, and my thesis addresses the question
 of motive, specifically, who benefited from the invention of
 Christianity. My methodologies are multifaceted: revisionist
