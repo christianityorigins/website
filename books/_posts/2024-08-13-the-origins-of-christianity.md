@@ -254,7 +254,7 @@ the interests of the ruling elite. These elites employed religion, as well
 as an incredible number of regional aliases, locations, fictional
 stories, and fabricated deaths for their family members to control the
 population. They role-played as deities, religious figures, and
-various characters as if they were actors in a play. This was done to obscure the fact that the people were ruled by dynasties and to give the population an illusion of upward social mobility or implanting a sense of false hope. These religions were also money-making schemes. It is impossible for any religion to have have sprug up organically. The royal families controlled the dissemenation of religious texts, and the punishment for spreading a religion that might compete with an imperial cult was death.
+various characters as if they were actors in a play. This was done to obscure the fact that the people were ruled by dynasties and to give the population an illusion of upward social mobility or implanting a sense of false hope. It is impossible for any religion to have have sprug up organically. The royal families controlled the dissemenation of religious texts, and the punishment for spreading a religion that might compete with an imperial cult was death.
 
 The figure of Jesus Christ (of Nazareth) was a literary creation of these elites, incorporating elements of various historical and mythological figures to appeal to a wide audience. This character then became an avatar for several historical figures in an imperial cult.
 
@@ -703,7 +703,7 @@ Endnotes (Chapter 5)
     Great: Beyond the Divide by Charles N. Pope [^39].\
 (c) Alexander is also identified as the Islamic prophet Dhu al-Qurnayn
     (He of Two Horns). His name comes from coins depicting him as Zeus
-    Ammon, a two-horned pagan god (see: Fig 1.3.).
+    Ammon, a two-horned pagan god (see: Fig 1.6.).
 
 ### Chapter 6: Ancient India
 
