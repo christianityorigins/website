@@ -22,3 +22,5 @@ If you appreciate my work please consider supporting me!<br /><br />
 
 
 GiveSendGo: <a href="https://www.givesendgo.com/ralphperrier" target="_blank">https://www.givesendgo.com/ralphperrier</a>
+
+Email: <a href="mailto:christianityexposed@yandex.com" target="_blank">Email</a>
