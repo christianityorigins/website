@@ -19,3 +19,6 @@ If you appreciate my work please consider supporting me!<br /><br />
     }
   });
 </script>
+
+
+GiveSendGo: <a href="https://www.givesendgo.com/ralphperrier" target="_blank">https://www.givesendgo.com/ralphperrier</a>
