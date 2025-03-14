@@ -563,7 +563,7 @@ It was in Alexandria at the Library of Alexandria where the Pentateuch and Septu
 
 #### 2.2.2 Romanization
 
-Ceasar’s gentilice (surname) was Iulius. We are told by Virgil that it goes back to Ceasar’s supposed ancestor Iulus or Iule, after the ancient Celtic tribe known as the Iudii or Iudaei, who inhabited the region of Gaul (modern-day France) and Britain. I(J)upiter was also called Jove or Iove to the Romans. The Latin pronunciation of Iove would have been Yoh-Way, i.e Yahweh/Yhwh, so Yahweh Saboath, the god of the hebrew bible, is I(J)ove (Roman Zeus) Sabazios (Thracian Zeus).
+Ceasar’s gentilice (surname) was Iulius. We are told by Virgil that it goes back to Ceasar’s supposed ancestor Iulus or Iule, after the ancient Celtic tribe known as the Iudii or Iudaei, who inhabited the region of Gaul (modern-day France) and Britain. I(J)upiter was also called Jove or Iove to the Romans. The Latin pronunciation of Iove would have been Yoh-Way, i.e Yahweh/Yhwh, so Yahweh Saboath, the god of the hebrew bible, is I(J)ove (Roman Zeus) Sabazios (Thracian Zeus). Abel and Cain are just a copy of Romulus and Remus. Judas Iscariot is just a copy of Brutus.
 
 Virgil also tells us (drawing from Cato the Elder, c. 168 BC) that the name Julius is the short name of Jupiter (Jul Pater). And it happens to be an Indo-European root word designating the sunlight or the day sky, identical to the Scandinavian name for the solar god, Yule (Helios for the Greeks, Haul for the Gauls, Hel for the Germans, from which derives the French Noël, Novo Hel). The Proto-Indo-European root for "Julius" (Iulius in Latin) is reconstructed as "yews", while the Proto-Indo-European root for "Jew" (Iudaeus in Latin) is also reconstructed as "yews".
 
