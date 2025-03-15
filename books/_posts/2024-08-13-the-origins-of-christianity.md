@@ -62,7 +62,7 @@ Christianity is the culmination of the subverson of a subversion of a subversion
 
 My research suggests that over two millennia ago, the term 'Jew' denoted the Iudii or Iudaei, a Celtic tribe whose religious practices were rooted in Druidism. The Greek Ptolemaioi at the Alexandrian School in Ptolemaic Egypt sought to bring this group under their control and assimilate them by incorporating Hellenistic elements into their religious beliefs which lead to the creation of what was the first draft of Judaism. Subsequently, a few centuries later, the Romans replicated this strategy of subversion by further undermining the already transformed religious framework of the Jews through the imposition of the Roman imperial cult, specifically, the Flamen Dialis cult or the cult of the Divine Julius. The jewish storm god Baal-Hadad (Baal, meaning lord, while Hadad was specifically revered as the god of rain, thunder, and storms) then became I(J)upiter (who was also called Jove or Iove to the Romans. The Latin pronunciation of Iove would have been Yoh-Way, or Yahweh), and their Moshiach (Messiah) was reinterpreted as Julius Caesar, I(J)upiter-Zeus (I-Zeus-> Izeus-> Iseus).
 
-Then, sometime after the Bar Kokhba Revolt (132--136 CE), a group of Romans that included Gamaliel/St. Gamaliel aka Tiberius Gemellus who was a grandson of Emperor Tiberius and a cousin of Emperor Caligula, a Rabbi named Akiva (Epictetus? Or his teacher Gaius Musonius Rufus?), Aquila of Sinope aka Onkelos who was a nephew of emperor Hadrian, Markianos of Alexandria aka Marcion of Sinope, Simon ben Yohai, Ketia bar Shalom aka Titus Flavian Clemens who was a cousin of the emperor Domitian aka 'Clement of Rome', and Rabbi Meir who was the grandson of emperor Nero, and all of them working on behalf of emperor Hadrian, tried to subvert this group further by adding a slave-morality to the slave-morality religion.
+Then, sometime after the Bar Kokhba Revolt (132--136 CE), a group of Romans that included Gamaliel/St. Gamaliel aka Tiberius Gemellus who was a grandson of Emperor Tiberius and a cousin of Emperor Caligula, a Rabbi named Akiva (Epictetus?), Aquila of Sinope aka Onkelos who was a nephew of emperor Hadrian, Markianos of Alexandria aka Marcion of Sinope, Simon ben Yohai, Ketia bar Shalom aka Titus Flavian Clemens who was a cousin of the emperor Domitian aka 'Clement of Rome', and Rabbi Meir who was the grandson of emperor Nero, and all of them working on behalf of emperor Hadrian, tried to subvert this group further by adding a slave-morality to the slave-morality religion.
 
 Based on this historical context, my research is focused on identifying the people who wrote the bible,
 the context in which they wrote it, and my thesis addresses the question
@@ -219,6 +219,7 @@ Speculative
 -   John the Baptist = Yohanan ben Zakkai. Father of Gamaliel and
     grandfather of Jesus ben Gamla/Gamaliel.
 -   Ptolemy XIII Theos Philopator = Gaius Octavius aka Emperor Gaius Julius Caesar Augustus, son of Julius Caesar and Berenice IV aka Alfidia (Cleopatra VII sister).
+-   Rabbi Akiva = Epictetus? Or his Roman teacher Gaius Musonius Rufus? Rabbi Akiva also likely took on the role of "Paul the Apostle". (Akiva and Epictetus were born and died on the same date, and Epictetus had a hand in writing the new testament. See: 'Epictetus and the New Testament' by Douglas Simmonds Sharp (1914))
 
 
 Definitions
@@ -1218,49 +1219,45 @@ plague.".
 Further reading
 
 *A Forgery of Our Own* (1991) by Revilo P. Oliver
-ttp://www.revilo-oliver.com/rpo/Forgery_of_Our_Own.html [link]
+[[link](http://www.revilo-oliver.com/rpo/Forgery_of_Our_Own.html)]
 (*short article where professor Revilo P. Oliver points the finger at
 Rabbi Akiva as being the center piece of the conspiracy to create a
 psy-op religion to subjugte the Romans*)
 
 *The Origins of Christianity* (1994) by Revilo P. Oliver
-https://archive.org/details/the-origins-of-christianity-by-revilo-p-oliver-z-lib.org/
-[link]
+[[link](https://archive.org/details/the-origins-of-christianity-by-revilo-p-oliver-z-lib.org)]
 
 *Reflections on the Christ Myth* (1994) by Revilo P. Oliver
-https://ia600201.us.archive.org/22/items/ReflectionsOnTheChristMyth_518/ReflectionsOnTheChristMyth-Oliver.pdf
-[link]
+[[link](https://ia600201.us.archive.org/22/items/ReflectionsOnTheChristMyth_518/ReflectionsOnTheChristMyth-Oliver.pdf)]
 
 *Cleopatra to Christ* (2010) by Ralph Ellis
-https://www.amazon.com/Cleopatra-Christ-great-grandson-Cleopatra-Trilogy/dp/1508465886
 [[link](https://www.google.com/books/edition/Cleopatra_to_Christ/T7sqfHyWPuQC?hl=en&gbpv=1&dq=cleopatra+to+christ&printsec=frontcover)]
 (*reveals that the biblical Jesus was based on King Izates of Adiabene
 who was directly descended from Cleopatra VII*)
 
+*Jesus Among the Julio-Claudians* (2017) by Charles N. Pope
+    [[link](https://books.google.se/books/about/Jesus_Among_the_Julio_Claudians.html?id=c7A3DwAAQBAJ&redir_esc=y)] (*identifies many Roman aliases*)
+    
 *Following Philo to Pallas (the Freedman): The Most Powerful Man in
 First Century Rome, also known as Goddess (the Mother)* (2019) by P.J.
-Gott
-https://www.amazon.com/Following-Philo-Pallas-Freedman-Powerful-ebook/dp/B07PXKQGYG
-[[link](https://www.amazon.com/Following-Philo-Pallas-Freedman-Powerful-ebook/dp/B07PXKQGYG/)]
+Gott [[link](https://www.amazon.com/Following-Philo-Pallas-Freedman-Powerful-ebook/dp/B07PXKQGYG/)]
 (*reveals that Philo of Alexandria was a pen-name for Cleopatra of
 Mauretania who was married to her brother Alexander (grandson of King
 Herod)/Ptolemy of Mauretania, therefore, she was the mother of Tiberius
 Julius Alexander/Arrius Piso. Also, that she was Claudius and Nero's
-secretary *'*Pallas*'* and Vespasian's first cousin and mistress
-Antonia Caenis*)
+secretary 'Pallas' and Vespasian's first cousin and mistress
+'Antonia Caenis'*)
 
 *Magdalene's Men. The historic identities of the many men in Mary
-Magdalene's life.* by P.J Gott
-https://web.archive.org/web/20240113043329/https://thenazareneway.com/MM%20Chart.htm
-[[link](https://web.archive.org/web/20240113043329/https://thenazareneway.com/MM%20Chart.htm)]
+Magdalene's life.* by P.J Gott [[link](https://web.archive.org/web/20240113043329/https://thenazareneway.com/MM%20Chart.htm)]
 (*reference guide to the many aliases of Alexander (grandson of King
 Herod) aka Gaius Julius Alexander, Herodian Prince of Judaea aka
 Alexander Lysimachus aka Alexander the Alabarch aka Ptolemy (Alexander)
 bar Menneus aka Ptolemy of Mauretania aka Phraates V aka Monobazus I
 King of Adiabene, as well as his sister wife Cleopatra (Thea Philopator)
 of Mauretania aka Cleopatra IX aka Pythodorida Philometor aka Helene aka
-Drusilla of Mauretania aka Julia Ourania of Parthia aka *'*Philo of
-Alexandria*'*, and their two sons Tiberius Julius Alexander and Marcus
+Drusilla of Mauretania aka Julia Ourania of Parthia aka 'Philo of
+Alexandria', and their two sons Tiberius Julius Alexander and Marcus
 Julius Alexander. Note: Asander of Bosphorus = Julius Caesar, Dynamis =
 Cleopatra, Mark Antony = King Herod, so that chart confuses some of
 their aliases with those of Cleopatra and Mark Antony's grandchildren,
