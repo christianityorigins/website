@@ -24,7 +24,7 @@ Chapter 1: The Creation of Christianity \
 1.1 Imperial Cult\
 1.2 The Cult of Antinous and the Bar Kokhba Revolt (132–136 CE)\
 Chapter 2: The Origins of Judaism\
-Judaism2.1 Ethnogenesis of the Jews\
+2.1 Ethnogenesis of the Jews\
 2.2 The Myth of a Jewish People\
 2.2.1 Alexandria\
 2.2.2 Romanization\
@@ -62,7 +62,7 @@ Christianity is the culmination of the subverson of a subversion of a subversion
 
 My research suggests that over two millennia ago, the term 'Jew' denoted the Iudii or Iudaei, a Celtic tribe whose religious practices were rooted in Druidism. The Greek Ptolemaioi at the Alexandrian School in Ptolemaic Egypt sought to bring this group under their control and assimilate them by incorporating Hellenistic elements into their religious beliefs which lead to the creation of what was the first draft of Judaism. Subsequently, a few centuries later, the Romans replicated this strategy of subversion by further undermining the already transformed religious framework of the Jews through the imposition of the Roman imperial cult, specifically, the Flamen Dialis cult or the cult of the Divine Julius. The jewish storm god Baal-Hadad (Baal, meaning lord, while Hadad was specifically revered as the god of rain, thunder, and storms) then became I(J)upiter (who was also called Jove or Iove to the Romans. The Latin pronunciation of Iove would have been Yoh-Way, or Yahweh), and their Moshiach (Messiah) was reinterpreted as Julius Caesar, I(J)upiter-Zeus (I-Zeus-> Izeus-> Iseus).
 
-Then, sometime after the Bar Kokhba Revolt (132--136 CE), a group of Romans that included Gamaliel/St. Gamaliel aka Tiberius Gemellus who was a grandson of Emperor Tiberius and a cousin of Emperor Caligula, a Rabbi named Akiva (Epictetus?), Aquila of Sinope aka Onkelos who was a nephew of emperor Hadrian, Markianos of Alexandria aka Marcion of Sinope, Simon ben Yohai, Ketia bar Shalom aka Titus Flavian Clemens who was a cousin of the emperor Domitian aka 'Clement of Rome', and Rabbi Meir who was the grandson of emperor Nero, and all of them working on behalf of emperor Hadrian, tried to subvert this group further by adding a slave-morality to the slave-morality religion.
+Then, sometime after the Bar Kokhba Revolt (132--136 CE), a group of Romans that included Gamaliel/St. Gamaliel aka Tiberius Gemellus who was a grandson of Emperor Tiberius and a cousin of Emperor Caligula, a Rabbi named Akiva (Epictetus?), Aquila of Sinope aka Onkelos who was a nephew of emperor Hadrian, Markianos of Alexandria aka Marcion of Sinope, Simon ben Yohai, Ketia bar Shalom aka Titus Flavian Clemens who was a cousin of the emperor Domitian aka 'Clement of Rome', Rabbi Meir who was the grandson of emperor Nero, and Pliny the Younger aka Bishop Ignatius of Antioch aka Polycarp (likely also Paul the Apostle), and all of them working on behalf of emperor Hadrian, tried to subvert this group further by adding a slave-morality to the slave-morality religion.
 
 Based on this historical context, my research is focused on identifying the people who wrote the bible,
 the context in which they wrote it, and my thesis addresses the question
@@ -89,12 +89,7 @@ Ancient Alias Names List
     Helene aka Drusilla of Mauretania aka Julia Ourania of Parthia =
     Philo of Alexandria, the sister-wife of Alexander (grandson of King
     Herold). She was also Claudius and Nero's secretary 'Pallas', and
-    'Antonia Caenis' who was Vespasian's first cousin and mistress.(See:
-    'Following Philo to Pallas (the Freedman): The Most Powerful Man in
-    First Century Rome, also known as Goddess (the Mother)' (2019) by
-    P.J. Gott
-    https://www.amazon.com/Following-Philo-Pallas-Freedman-Powerful-ebook/dp/B07PXKQGYG
-    [[link](https://www.amazon.com/Following-Philo-Pallas-Freedman-Powerful-ebook/dp/B07PXKQGYG/)])
+    'Antonia Caenis' who was Vespasian's first cousin and mistress.
 -   Bartholemew ('Bar Ptolemy') = son of Simon Boethus.
 -   Cleopatra VII Thea Philopator, Queen of the Ptolemaic Kingdom of
     Egypt = Dynamis Ourania, Queen of Bosphorus.
@@ -109,14 +104,11 @@ Ancient Alias Names List
     Adiabene.
 -   Gautama Buddha = Gaumata Bardya, son of Cyrus the Great.
 -   King Herod = Mark Antony aka Tiberius Claudius Nero aka Phraates IV
-    of Parthia's regional alias (See: 'Jesus Among the Julio-Claudians' (2017) by Charles N. Pope
-    [[link](https://books.google.se/books/about/Jesus_Among_the_Julio_Claudians.html?id=c7A3DwAAQBAJ&redir_esc=y)]).
+    of Parthia's regional alias.
 - Josephus = Hegesippus.
 -   Julius Caesar = Asander, Philocaesar Philoromaios, King of
     Bosphorus.
 -   Marcion of Sinope = Markianos of Alexandria. Markianos of Alexandria's biography claims that he grew up in the Attis-Sabazios cult before traveling to Judea to study under rabbi Akiva and finally to Alexandria at the Alexandrian School. Was he also Pliny the Younger? (Pliny the Younger was a Roman administrator in Bithynia and Pontus at the same time Marcion was in sinope)
-- Bishop Ignatius of Antioch = Polycarp (Ignatius means 'fiery one'
-    and Polycarp was famous for setting himself on fire).
 -   Mariamne Boethus = Mary Magdalene, daughter of Simon Boethus, fifth
     wife of King Herod, mother of Alexander (son of King Herod),
     grandmother of Alexander (grandson of King Herod) and Cleopatra IX
@@ -140,18 +132,16 @@ Ancient Alias Names List
     'The Anointed One' which in Hebrew is 'moshiach' and often
     translated as 'messiah'. In Greek, 'The Anointed One' is
     Chréstos/Christ.
--   Paul the Apostle = likely a composite character or an avatar/cipher. Four suspects for having taking on the character are: 1)Gaius Asinius Pollio (who was the
-    maternal grandfather? of Vespasian) who raised Caesar Augustus and at
-    least five of King Herod's sons, 2)Saulus ben Antipater who was the
+-   Paul the Apostle = likely a composite character or an avatar/cipher. Four suspects for having taking on the character are: 1)Saulus ben Antipater who was the
     son of Antipater/Herod Antipas the Tetrarch, grandson of King Herod
     (Josephus, Antiquities of the Jews, Chapter 9, section 211),
-    great-grandson of Simon Boethus, brother of Costobarus, and adopted
-    grandson of Gaius Asinius Pollio, 3)Saulos Thaddeus Alexander
-    Herod, another grandson of King Herod, and 4)rabbi Akiva. The character
+    great-grandson of Simon Boethus, brother of Costobarus, 2)Saulos Thaddeus Alexander
+    Herod, another grandson of King Herod, 3)Rabbi Akiva (Epictetus?), 4)Pliny The Younger. The character
     Paul/Saul's life story was stolen from the ancient Egyptian story
     'Tale of the Shipwrecked Sailor'. Josephus in Antiquities of the
     Jews, Book XX (CH 9.4) refers to Paul (Saulus) as related to Herod
-    Agrippa.
+    Agrippa.    -
+-   Pliny the Younger = Bishop Ignatius of Antioch ("-natius in Latin refers to 'youth'). He was also Polycarp (Ignatius means 'fiery one' and Polycarp was famous for setting himself on fire). Likely also 'Paul the Apostle' (either him or Rabbi Akiva (Epictetus))
 -   Pontius Pilate = several options. The historical record from antiquity has a repeating narrative of jewish high priests being executed by a Roman prefect or governor: Roman Procurator of Judea Lucceius Albinus condeming Jesus ben Ananias to cruxification; Roman Procurator of Judea Quintus Tineius Rufus aka Turnus Rufus the Evil condeming Simon bar Kokhba to cruxification;  Roman prefect (governor) of Roman Egypt Tiberius Julius Alexander condemining Judas the Gaulanite to death; Roman prefect of the Praetorian Guard Marcius Turbo condeming Lukuas Andreas to death; Roman prefect (governor) of Roman Egypt Aulus Avillius Flaccus crucifying many prominant jews in Alexandria, etc. Every one of these characters fit the Pontius Pilate role. I believe that royal elites role-played as if they were characters in a play, and these fictional deaths were story patterns or archetypes that were emulated. They killed off one character then assumed the role of another one in a different location. For example, Aulus Avillius Flaccus was also Polemon II of Pontus which was the regional alias of Emperor Titus. The character of Aulus Avillius Flaccus dies at the same time Polemon II of Pontus takes power and then Polemon II of Pontus dies around the same time Titus becomes emperor. They were all married to the same woman, Berenice, grandaughter of King Herod.
 -   Simon Boethus (great-great-great? grandson of Onias III and heir of
     the Zadokite line) = (king/Tetrarch) Ptolemy (Alexander) bar Menneus
@@ -207,7 +197,7 @@ Speculative
 -   John the Baptist = Yohanan ben Zakkai. Father of Gamaliel and
     grandfather of Jesus ben Gamla/Gamaliel.
 -   Ptolemy XIII Theos Philopator = Gaius Octavius aka Emperor Gaius Julius Caesar Augustus, son of Julius Caesar and Berenice IV aka Alfidia (Cleopatra VII sister).
--   Rabbi Akiva = Epictetus? Or his Roman teacher Gaius Musonius Rufus? Rabbi Akiva also likely took on the role of 'Paul the Apostle'. (Akiva and Epictetus were born and died on the same date, and Epictetus had a hand in writing the new testament. See: 'Epictetus and the New Testament' by Douglas Simmonds Sharp (1914))
+-   Rabbi Akiva = Epictetus? Or his Roman teacher Gaius Musonius Rufus? Rabbi Akiva also likely took on the role of 'Paul the Apostle'. (Akiva and Epictetus were born and died on the same date, and Epictetus had a hand in writing the new testament. See: 'Epictetus and the New Testament' by Douglas Simmonds Sharp (1914). Epicteus and Pilny the Younger were both in the same places at the same time; Rome, Nicopolis, and Bithynia-Pontus).
 
 
 Definitions
@@ -562,9 +552,11 @@ Also, Caesar, Kaiser (German for Caesar), Kesar or Kaysar (Persian for Caesar), 
 
 Galata in Classical Anatolia was settled by the Gauls. Galatia bordered the Bosphorus, and Julius Caesar/Asander was king of this region. The king of Galatia during this time was Asander's brother-in-law Amyntas of Galatia who ruled an area that streched into India under the alias Amyntas Nikator. 
 
+Lucan's 'Pharsalia or De Bello Civili (On the Civil War)' mentions that the Gauls in Galatia worshiped a deity called Esus/Hesus/Iesus.
+
 Suetonius, in 'Divus Julius' (84.:1) states that there were an inordinate amount of jews at Julius Caesars funeral and they even burned their jewellery in mourning. Josephus also frequently mentions the benefits conferred to jews by Julius Caesar (Anti. Jud. xiv. 14, 15, 16). 
 
-Records show that the Gauls in Galatia were Druid and they worshiped a deity called Esus/Hesus/Iesus. This is another piece of evidence that shows Julius Caesar (I-Zeus) was a Celtic deified king.
+Julius Caesar aka Asander of Bosphorus (I-Zeus) was a Celtic deified king.
 
 This is why several descendants of Roman aristocrats described themselves as 'jewish' despite being ethnically Celtic Gauls or Aryan Sarmatians. For example, Ptolemy (Alexander) bar Menneus/Ptolemy X Alexander I (Simon Boethus) played the role of judaen high priest, Mark Antony played the role of King Herod. Izates of Monobazus (Jesus ben Gamala/Gamaliel aka Jesus ben Sapphias) and Amyntas Nikator aka Amyntas of Galatia (Jesus ben Fabus) played the role of rabbis, Tiberius Gemellus who was a grandson of Emperor Tiberius and a cousin of Emperor Caligula was rabbi Gamaliel/St. Gamaliel, Aquila of Sinope aka Onkelos who was a nephew of emperor Hadrian, Titus Flavian Clemens who was a cousin of the emperor Domitian aka 'Clement of Rome' was Ketia bar Shalom, Rabbi Meir who was the grandson of emperor Nero, Philo of Alexandria was 'Philo the Jew', her brother-husband Tiberius Julius Alexander identified as Jewish, etc. 'Jew' at the time meant Celtic Druid of the Iudii or Iudaei tribe.
 
