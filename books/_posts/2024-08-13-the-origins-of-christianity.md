@@ -114,19 +114,7 @@ Ancient Alias Names List
 - Josephus = Hegesippus.
 -   Julius Caesar = Asander, Philocaesar Philoromaios, King of
     Bosphorus.
--   Marcion of Sinope = Markianos of Alexandria. He grew up in the
-    Attis-Sabazios cult (i.e. Turkish Judaism) before traveling to Judea
-    to study under rabbi Akiva and finally to Alexandria at the
-    Alexandrian School. Professor Revilo P. Oliver claimed that rabbi
-    Akiva and his students were the ones who invented Christianity
-    (Forgery of Our Own. Revilo P. Oliver,
-    http://www.revilo-oliver.com/rpo/Forgery_of_Our_Own.html
-    [[link](https://web.archive.org/web/20240720181142/http://www.revilo-oliver.com/rpo/Forgery_of_Our_Own.html)]).
-    Rabbi Akiva was the one that came up with the idea that Rome was
-    Edom. Rabbi Akiva's other student was rabbi Shimon bar Yochai who
-    was the author of *The Secrets of Rabbi Simon ben Yohai*
-    [[link](https://pages.charlotte.edu/john-reeves/research-projects/trajectories-in-near-eastern-apocalyptic/nistarot-secrets-of-r-shimon-b-yohai-2/)].
-    Was he also the Roman senator Marcus Pompeius?
+-   Marcion of Sinope = Markianos of Alexandria. Markianos of Alexandria's biography claims that he grew up in the Attis-Sabazios cult before traveling to Judea to study under rabbi Akiva and finally to Alexandria at the Alexandrian School. Was he also Pliny the Younger? (Pliny the Younger was a Roman administrator in Bithynia and Pontus at the same time Marcion was in sinope)
 - Bishop Ignatius of Antioch = Polycarp (Ignatius means 'fiery one'
     and Polycarp was famous for setting himself on fire).
 -   Mariamne Boethus = Mary Magdalene, daughter of Simon Boethus, fifth
@@ -219,7 +207,7 @@ Speculative
 -   John the Baptist = Yohanan ben Zakkai. Father of Gamaliel and
     grandfather of Jesus ben Gamla/Gamaliel.
 -   Ptolemy XIII Theos Philopator = Gaius Octavius aka Emperor Gaius Julius Caesar Augustus, son of Julius Caesar and Berenice IV aka Alfidia (Cleopatra VII sister).
--   Rabbi Akiva = Epictetus? Or his Roman teacher Gaius Musonius Rufus? Rabbi Akiva also likely took on the role of "Paul the Apostle". (Akiva and Epictetus were born and died on the same date, and Epictetus had a hand in writing the new testament. See: 'Epictetus and the New Testament' by Douglas Simmonds Sharp (1914))
+-   Rabbi Akiva = Epictetus? Or his Roman teacher Gaius Musonius Rufus? Rabbi Akiva also likely took on the role of 'Paul the Apostle'. (Akiva and Epictetus were born and died on the same date, and Epictetus had a hand in writing the new testament. See: 'Epictetus and the New Testament' by Douglas Simmonds Sharp (1914))
 
 
 Definitions
@@ -1236,7 +1224,7 @@ psy-op religion to subjugte the Romans*)
 who was directly descended from Cleopatra VII*)
 
 *Jesus Among the Julio-Claudians* (2017) by Charles N. Pope
-    [[link](https://books.google.se/books/about/Jesus_Among_the_Julio_Claudians.html?id=c7A3DwAAQBAJ&redir_esc=y)] (*identifies many Roman aliases*)
+    [[link](https://books.google.se/books/about/Jesus_Among_the_Julio_Claudians.html?id=c7A3DwAAQBAJ&redir_esc=y)] (*identifies many Roman aliases, including that Mark Antony used the aliases of King Herod, Tiberius Claudius Nero, Phraates IV of Parthia*)
     
 *Following Philo to Pallas (the Freedman): The Most Powerful Man in
 First Century Rome, also known as Goddess (the Mother)* (2019) by P.J.
