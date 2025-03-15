@@ -547,7 +547,7 @@ the context in which they were created.
 
 #### 2.1 Ethnogenesis of the Jews
 
-Modern day jews evolved from the mixture of Celtic Galatians from Anatolia [^20], Neolthic proto-Sicilians who originated in Anatolia [^21], native Canaanites (who were literal human-neanderthal hybrids) [^22], and proto-Arab-Natufian hybrids.
+Modern day jews evolved from the mixture of Celtic Galatians from Anatolia [^20], Neolithic proto-Sicilians who originated in Anatolia [^21], native Canaanites (who were literal human-neanderthal hybrids) [^22], and proto-Arab-Natufian hybrids.
 
 The original redhead clan of Druids that ended up becoming Israelites were Scythians who migrated southwards during the early Aryan invasion of 4000 BC. Scythian --> Saka --> Isaac. This migration coincides with the development of early bronze age civilization. They went to Anatolia first (Galatia) [^23], then Babylon, then Canaan ('Gaulinitis' = Golan Heights). In Canaan, the natives then came under the suzerainty of these Celts and their entire identity, language, and religion derives from this. The evidence for this is the paternal Celtic R1b haptype that 30% of ashkenazi jews have, the fact that the Celtic languages are surprisingly Semitic with a verb-subject-object word order and a shocking amount of vocabulary overlap, and the name of Irish deities, Balor and his holiday Beltaine are cognate to Bal and Elatha the Irish Uranus is cognate to Hebrew El. There was an ancient Celtic conquerer named 'Ram the Druid' and Abraham = Ab Ram, or 'Born of Ram', he was also Ra in Egyptian mythology, the basis of the name 'Ram'esses in Egypt, Ram the Aries, Rama in the Vedas, Brahmin caste in India refers to him, and Lama in Tibet. King David (DWD) = King Druid. The name Israel itself is named after Osiris (Aesir), the southeasternmost grand Druid (in Phoenician, the name 'Osiris' is written as 'Usr' or 'Ysr', which becomes the Hebrew 'Yisrael'. Osiris is depicted as having green skin, ie. he is the 'Druid green man'). As for the name 'jew', the descriptive name Judaism was never used by the Hebrews or Israelites; it appears only with Christianity. It comes from Yahud or Auda which comes from Iodh or Ioux. Iodh and Ioux are associated with the yew tree in Druidism and is sometimes linked to the concept of rebirth and regeneration. There was also an ancient Celtic tribe known as the Iudii or Iudaei, who inhabited the region of Gaul (modern-day France) and Britain. The ancient Celtic prefixes 'Rab' or 'Rhab' mean 'wise one' or 'seer', and a Druid equates to a Rabbi.
 
@@ -555,7 +555,7 @@ The original redhead clan of Druids that ended up becoming Israelites were Scyth
 
 #### 2.2 The Myth of a Jewish People
 
-All jewish history was made up. Their religion is Celtic Druidism that was Hellenized at the Library of Alexandria and then combined with the Divine Julius cult. So, ancient judaism (before Rabbi Akiva) was as syncretic attempt by the Alexandrians and then Romans to pacify the jews (who were then Celts) [^25]. 
+All jewish history was made up. Their religion was Celtic Druidism that was Hellenized at the Library of Alexandria and then combined with the Divine Julius cult. So, ancient judaism (before Rabbi Akiva) was a syncretic attempt by the Alexandrians and then Romans to pacify the jews (who were then Celts) [^25]. 
 
 #### 2.2.1 Alexandria
 
@@ -569,19 +569,25 @@ Virgil also tells us (drawing from Cato the Elder, c. 168 BC) that the name Juli
 
 Also, Caesar, Kaiser (German for Caesar), Kesar or Kaysar (Persian for Caesar), Kaisar (Ancient Greek for Caesar), Tsar (Russian for Caesar) and Khazar are not just phonetic coincidences. It all ties back to the Divine Julius cult. 
 
-'Gaius' in the name Gaius Julius Caesar refers to his tribal affiliation in the Gallian (Gauls (Galli = Celt in Latin)) tribe. As explained in Chapter 1, Julius Caesar was a title, so Gaius Julius Caesar could conceivably translate to: Khazarian Jew of the Celtic tribe.
+'Gaius' in the name Gaius Julius Caesar refers to his tribal affiliation in the Gallian (Gauls (Galli = Celt in Latin)) tribe. As explained in Chapter 1, Julius Caesar was a title, so Gaius Julius Caesar could conceivably translate to: King Jew of the Celtic tribe Galli.
 
-This is why several descendants of Roman aristocrats described themselves as 'jewish' despite being ethnically Celtic Gauls or Aryan Sarmatians. For example, Ptolemy (Alexander) bar Menneus/Ptolemy X Alexander I (Simon Boethus) played the role of judaen high priest. Mark Antony played the role of King Herod. Izates of Monobazus (Jesus ben Gamala/Gamaliel aka Jesus ben Sapphias) and Amyntas Nikator aka Amyntas of Galatia (Jesus ben Fabus) played the role of rabbis. Philo of Alexandria was 'Philo the Jew', her brother-husband Tiberius Julius Alexander identified as Jewish, etc. "Jewish" at the time meant Celtic Druid of the Iudii or Iudaei tribe.
+Galata in Classical Anatolia was settled by the Gauls. Galatia bordered by the Bosphorus, and Julius Caesar/Asander was king of this region. The king of Galatia was Asander's brother-in-law Amyntas of Galatia who ruled an area that streched into India under the alias Amyntas Nikator. 
+
+Suetonius, in 'Divus Julius' (84.:1) states that there were an inordinate amount of jews at Julius Caesars funeral and they even burned their jewellery in mourning. Josephus also frequently mentions the benefits conferred to jews by Julius Caesar (Anti. Jud. xiv. 14, 15, 16). 
+
+Records show that the Gauls in Galatia were Druid and they worshiped a deity called Esus/Hesus/Iesus. This is another piece of evidence that shows Julius Caesar (I-Zeus) was a Celtic deified king.
+
+This is why several descendants of Roman aristocrats described themselves as 'jewish' despite being ethnically Celtic Gauls or Aryan Sarmatians. For example, Ptolemy (Alexander) bar Menneus/Ptolemy X Alexander I (Simon Boethus) played the role of judaen high priest, Mark Antony played the role of King Herod. Izates of Monobazus (Jesus ben Gamala/Gamaliel aka Jesus ben Sapphias) and Amyntas Nikator aka Amyntas of Galatia (Jesus ben Fabus) played the role of rabbis, Tiberius Gemellus who was a grandson of Emperor Tiberius and a cousin of Emperor Caligula was rabbi Gamaliel/St. Gamaliel, Aquila of Sinope aka Onkelos who was a nephew of emperor Hadrian, Titus Flavian Clemens who was a cousin of the emperor Domitian aka 'Clement of Rome' was Ketia bar Shalom, Rabbi Meir who was the grandson of emperor Nero, Philo of Alexandria was 'Philo the Jew', her brother-husband Tiberius Julius Alexander identified as Jewish, etc. 'Jew' at the time meant Celtic Druid of the Iudii or Iudaei tribe.
 
 #### 2.2.3 Modern Judaism
 
-The area of modern israel was wiped out multiple times. Modern jews are a hodgepodge of ethnicities who survided the Bar Kokhba revolt of 132–136 CE. Also, the religion of Modern judaism is a recent invention. Judaism is not the Torah (Old Testament), and has not been for a long time. The Talmud was completed after the New Testament  and this is what modern jews follow. Essentially, jews follow the program that Rabbi Akiva and his students created.\
+The area of modern israel was wiped out multiple times. Modern jews are a hodgepodge of ethnicities who survided the Bar Kokhba revolt of 132–136 CE. Also, the religion of Modern judaism is a recent invention. Judaism is not the Torah (Old Testament), and has not been for a long time. The Talmud was completed after the New Testament and this is what modern jews follow. Essentially, jews follow the program that Rabbi Akiva and his students created.\
 
 ### Chapter 3: The Origins of Zoroastrianism
 
 Hippolytos (or: Hippolytus) was a Christian author who speaks of a legend involving the meeting of Pythagoras and Zoroaster of Persia. Aristoxenos, who was a student of Aristotle, wrote the same thing. Druidism was invented by Pythagoras or his teacher Abaris the Hyperborean [^27]. Vedism is the eastern branch of Druidism [^28].
 
-Did Cyrus the Great aka Koroush Kabir (Koroush = "lord of the sun", "kabi = great. Cyrus translates to Kurosh in ancient Persian) hire Pythagoras to create an imperial cult? Druidism, Judaism, Vedism, and Zoroastrianism all have similar themes.
+Did Cyrus the Great aka Koroush Kabir (Koroush = 'lord of the sun, kabi = 'great'. Cyrus translates to Kurosh in ancient Persian) hire Pythagoras to create an imperial cult? Druidism, Judaism, Vedism, and Zoroastrianism all have similar themes.
 
 Zoroastrianism is clearly a slave morality. All the troubling aspects of christianity originate in Zoroastrianism:
 monotheistic deity that judges you when you die, eternal hell, universalism, sin/salvation, confession of sins, self-deification to weaponize/empower the lowest castes. Zoroastrianism also has a religious commandment called 'Xwedodah' that commands Zoroastrians to marry and procreate with their siblings, with punishment for not doing so!
@@ -613,12 +619,12 @@ Bardya was the satrap (governor) of the Persian province of Bactra
 (modern day Afghanistan).
 
 Buddhism is a philosophy and religion that is focused on escaping
-suffering. Central to this belief is the Four Noble Truths, which
+suffering. Central to this belief is the Four Noble Truths which
 explain the cause of suffering (desire) and the path to ending it
 (enlightenment through the Eightfold Path). Buddhism is clearly a
 slave-morality that is designed to turn its followers into pacifists and
 submissives and obviously benefited Gaumata Bardya and/or the
-Greco-Bactrians that ruled Bactria.
+Greco-Bactrians that ruled Bactria. Buddhism and Zoroastrianism were forerunners of Christianity, both weaponized and state sanctioned slave moralities.
 
 #### 4.1 Buddhism's Roots in Zoroastrianism
 
@@ -630,7 +636,7 @@ initiation, vegetarianism, and the use of fire in worship. Both
 religions also share similar prayer practices and ceremonies, such as
 the veneration of ancestors and purification rituals.
 
-4.2 The Hellenization of Buddhism
+#### 4.2 The Hellenization of Buddhism
 
 After its inception, Buddhism was further influenced and spread by the
 Greco-Bactrians. Pyrrho of Elis, who traveled to India with Alexander
