@@ -108,7 +108,7 @@ Ancient Alias Names List
 - Josephus = Hegesippus.
 -   Julius Caesar = Asander, Philocaesar Philoromaios, King of
     Bosphorus.
--   Marcion of Sinope = Markianos of Alexandria. Markianos of Alexandria's biography claims that he grew up in the Attis-Sabazios cult before traveling to Judea to study under rabbi Akiva and finally to Alexandria at the Alexandrian School. Was he also Pliny the Younger? (Pliny the Younger was a Roman administrator in Bithynia and Pontus at the same time Marcion was in sinope)
+-   Marcion of Sinope = Markianos of Alexandria. Markianos of Alexandria's biography claims that he grew up in the Attis-Sabazios cult before traveling to Judea to study under rabbi Akiva and finally to Alexandria at the Alexandrian School.
 -   Mariamne Boethus = Mary Magdalene, daughter of Simon Boethus, fifth
     wife of King Herod, mother of Alexander (son of King Herod),
     grandmother of Alexander (grandson of King Herod) and Cleopatra IX
@@ -197,7 +197,7 @@ Speculative
 -   John the Baptist = Yohanan ben Zakkai. Father of Gamaliel and
     grandfather of Jesus ben Gamla/Gamaliel.
 -   Ptolemy XIII Theos Philopator = Gaius Octavius aka Emperor Gaius Julius Caesar Augustus, son of Julius Caesar and Berenice IV aka Alfidia (Cleopatra VII sister).
--   Rabbi Akiva = Epictetus? Or his Roman teacher Gaius Musonius Rufus? Rabbi Akiva also likely took on the role of 'Paul the Apostle'. (Akiva and Epictetus were born and died on the same date, and Epictetus had a hand in writing the new testament. See: 'Epictetus and the New Testament' by Douglas Simmonds Sharp (1914). Epicteus and Pilny the Younger were both in the same places at the same time; Rome, Nicopolis, and Bithynia-Pontus).
+-   Rabbi Akiva = Epictetus? Or his Roman teacher Gaius Musonius Rufus? Rabbi Akiva also likely took on the role of 'Paul the Apostle'. (Akiva and Epictetus were born and died on the same date, and Epictetus had a hand in writing the new testament. See: 'Epictetus and the New Testament' by Douglas Simmonds Sharp (1914). Epicteus and Pilny the Younger were both in the same places at the same time; Rome, Nicopolis, and Bithynia-Pontus, and Pliny the Younger was a Roman administrator in Bithynia and Pontus at the same time Marcion was in Sinope.
 
 
 Definitions
