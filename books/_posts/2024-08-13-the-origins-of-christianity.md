@@ -58,16 +58,13 @@ Preface
 ------------------
 
 
-Christianity is the culmination of the subverson of a subversion of a subversion, over several centuries, of a religion. That is why there is a extremely powerful psychological weapon at its core (See: 'Book II: Christianity as a Slave Morality Religion and its Modern Secularized Variants: A Jewish Conspiracy and Hoax on the Gentiles').
+Christianity is the culmination of calculated syncretism, subversion, and imperial manipulation, over several centuries, of a religion. That is why there is a extremely powerful psychological weapon at its core (See: 'Book II: Christianity as a Slave Morality Religion and its Modern Secularized Variants: A Jewish Conspiracy and Hoax on the Gentiles').
 
 My research suggests that over two millennia ago, the term 'Jew' denoted the Iudii or Iudaei, a Celtic tribe whose religious practices were rooted in Druidism. The Greek Ptolemaioi at the Alexandrian School in Ptolemaic Egypt sought to bring this group under their control and assimilate them by incorporating Hellenistic elements into their religious beliefs which lead to the creation of what was the first draft of Judaism. Subsequently, a few centuries later, the Romans replicated this strategy of subversion by further undermining the already transformed religious framework of the Jews through the imposition of the Roman imperial cult, specifically, the Flamen Dialis cult or the cult of the Divine Julius. The jewish storm god Baal-Hadad (Baal, meaning lord, while Hadad was specifically revered as the god of rain, thunder, and storms) then became I(J)upiter (who was also called Jove or Iove to the Romans. The Latin pronunciation of Iove would have been Yoh-Way, or Yahweh), and their Moshiach (Messiah) was reinterpreted as Julius Caesar, I(J)upiter-Zeus (I-Zeus-> Izeus-> Iseus).
 
 Then, sometime after the Bar Kokhba Revolt (132--136 CE), a group of Romans that included Gamaliel/St. Gamaliel aka Tiberius Gemellus who was a grandson of Emperor Tiberius and a cousin of Emperor Caligula, a Rabbi named Akiva (Epictetus?), Aquila of Sinope aka Onkelos who was a nephew of emperor Hadrian, Markianos of Alexandria aka Marcion of Sinope, Simon ben Yohai, Ketia bar Shalom aka Titus Flavian Clemens who was a cousin of the emperor Domitian aka 'Clement of Rome', Rabbi Meir who was the grandson of emperor Nero, and Pliny the Younger aka Bishop Ignatius of Antioch aka Polycarp (likely also Paul the Apostle), and all of them working on behalf of emperor Hadrian, tried to subvert this group further by adding a slave-morality to the slave-morality religion.
 
-Based on this historical context, my research is focused on identifying the people who wrote the bible,
-the context in which they wrote it, and my thesis addresses the question
-of motive, specifically, who benefited from the invention of
-Christianity. My methodologies are multifaceted: revisionist
+This book seeks to answer three central questions: Who wrote the Bible? In what context was it written? And, most critically, who benefited from Christianity’s invention? My methodologies are multifaceted: revisionist
 historiography, counter-narrative analysis, and historical
 deconstruction. The main sources that inspired my research are listed in
 the 'further reading' section at the end of the book.
