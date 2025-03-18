@@ -4,13 +4,13 @@ plugins:
   - jekyll-seo-tag
   - jekyll-minifier
   
-title: ralphperrier.org
-url: https://www.ralphperrier.org
+title: hereticalbooks.com
+url: https://hereticalbooks.com
 baseurl: ""
-description: "Personal website of Ralph Perrier"
+description: "Personal Website of Ralph Perrier"
 author: Ralph Perrier
 twitter: 
-email: admin@ralphperrier.org
+email: admin@hereticalbooks.com
 
 timezone: Europe/Madrid
-google_analytics_tracking_id: G-J8J1H8BR6R
+google_analytics_tracking_id: G-FXG5NPC273
