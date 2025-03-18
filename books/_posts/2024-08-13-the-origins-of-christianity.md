@@ -552,7 +552,7 @@ This is why several descendants of Roman aristocrats described themselves as 'je
 
 ####  2.2.3 Shimon bar Yochai
 
-Although judaism was an Alexandrian and then Roman attempt to subvert the Jews (who at the time may have still been Celts), I suspect that one of the students of Rabbi Akiva, Shimon bar Yochai (Yohai is a nickname for yochai. The name Yochai means 'YHWAH is gracius' from the Hebrew word Yochanan sometimes transcribed as Johanan. Was he also Johanan the Alexandrian? This would place him in Alexandria at the same time as Markianos of Alexandria), was something approximating a modern day 'Ashkenazi Jew' and he is responsible for the Talmud, 'The Secrets of Shimon bar Yochai', and Islam.
+Although judaism was an Alexandrian and Roman attempt to subvert the Jews (which at the time may have still been primarily, or at least governed by, the Celts), I suspect that one of the students of Rabbi Akiva, Shimon bar Yochai, was something approximating a modern day 'Ashkenazi Jew' and he is responsible for the Talmud, 'The Secrets of Shimon bar Yochai', and Islam.
 
 In the book 'Hagarism: The Making of the Islamic World' (1977) by Patricia Crone and Michael Cook they trace the origins of Islam to 'The Secrets of Shimon bar Yochai'. They theorize that Islam was started as a psy-op to weaponize the Arabs to attack the Byzantine empire (eastern Rome) to free judea. 
 
@@ -562,11 +562,15 @@ According to his prophecy, after "Ishmael" weakens "Edom" (Rome) and dies a "nob
 
 In Jerusalem Talmud Kiddushin, Rabbi Shimon bar Yochai stated: "Kill the best of Gentiles, smash the head of the best of snakes". He was the biggest proponent of the belief that Rome was Edom.
 
-King Izates of Monobazus's son was named 'Zamaris' (Zamaris the Babylonian jew?) and Zamaris has the same meaning as Muhammad. Allah and Muhammad the red-headed warlord were parodies of Attila the Hun and his uncle Ruglia waging war against Rome ("Edom") because they wanted the Arabs to attack eastern Rome. So, did Rabbi Simon ben Yohai do a bait-and-switch and instead turned judaism in a group strategy while turining the Adiabene imperial cult into Islam to weaponize the Arabs?
+King Izates of Monobazus's son was named 'Zamaris' (Zamaris the Babylonian jew?) and Zamaris has the same meaning as Muhammad. Allah and Muhammad the red-headed warlord were parodies of Attila the Hun and his uncle Ruglia waging war against Rome ("Edom") because they wanted the Arabs to attack eastern Rome. So, did Rabbi Simon ben Yohai do a bait-and-switch and instead turned judaism in a group strategy while turning the Adiabene imperial cult into Islam to weaponize the Arabs?
 
 #### 2.2.4 Modern Judaism
 
 The area of modern israel was wiped out multiple times. Modern jews are a hodgepodge of ethnicities who survided the Bar Kokhba revolt of 132–136 CE. Also, the religion of Modern judaism is a recent invention. Judaism is not the Torah (Old Testament), and has not been for a long time. The Talmud was completed after the New Testament and this is what modern jews follow. Essentially, jews follow the program that Shimon bar Yochai created.\
+
+Endnotes (Chapter 2)
+
+(a) Yohai is a nickname for yochai. The name Yochai means 'YHWAH is gracius' from the Hebrew word Yochanan sometimes transcribed as Johanan. Was he also Johanan the Alexandrian? This would place him in Alexandria at the same time as Markianos of Alexandria
 
 ### Chapter 3: The Origins of Zoroastrianism
 
