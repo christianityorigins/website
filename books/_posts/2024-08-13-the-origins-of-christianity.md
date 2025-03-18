@@ -28,7 +28,8 @@ Chapter 2: The Origins of Judaism\
 2.2 The Myth of a Jewish People\
 2.2.1 Alexandria\
 2.2.2 Romanization\
-2.2.3 Modern Judaism\
+2.2.3 Shimon bar Yochai\
+2.2.4 Modern Judaism\
 Chapter 3: The Origins of Zoroastrianism\
 3.1 Zoroaster and Jewish Influence\
 3.2 Zoroastrianism’s Impact on Subsequent Religions\
@@ -437,15 +438,7 @@ the Apostle and Paul called them "my fellow workers in Christ Jesus"
 [^15].
 
 Rabbi Akiva's other students included Markianos of Alexandria aka
-Marcion of Sinope and Shimon bar Yochai (Yohai is a nickname for yochai.
-The name Yochai means 'YHWAH is gracius' from the Hebrew word Yochanan
-sometimes transcribed as Johanan. Was he also Johanan the Alexandrian?
-This would place him in Alexandria at the same time as Markianos of
-Alexandria) who made the Zohar for Kabbalah and was the author of 'The
-Secrets of Rabbi Simon ben Yohai' which was the manuscript for Islam.
-Allah and Muhammad the reheaded warlord were parodies of Atillia the Hun
-and his uncle Ruglia waging war against Rome because they wanted to get
-the Arabs to wage war against Eastern Rome [^16]. Another student of
+Marcion of Sinope [^16] and Shimon bar Yochai. Another student of
 rabbi Akiva was Aristo of Pella, who is a good candidate for being Luke
 the Evangelist ('Aristo', or 'Ariston' is a name that is related to
 'Proteus' The former means 'first-rank, noble' the second derives from
@@ -557,9 +550,23 @@ Julius Caesar aka Asander of Bosphorus (I-Zeus) was a Celtic deified king.
 
 This is why several descendants of Roman aristocrats described themselves as 'jewish' despite being ethnically Celtic Gauls or Aryan Sarmatians. For example, Ptolemy (Alexander) bar Menneus/Ptolemy X Alexander I (Simon Boethus) played the role of judaen high priest, Mark Antony played the role of King Herod. Izates of Monobazus (Jesus ben Gamala/Gamaliel aka Jesus ben Sapphias) and Amyntas Nikator aka Amyntas of Galatia (Jesus ben Fabus) played the role of rabbis, Tiberius Gemellus who was a grandson of Emperor Tiberius and a cousin of Emperor Caligula was rabbi Gamaliel/St. Gamaliel, Aquila of Sinope aka Onkelos who was a nephew of emperor Hadrian, Titus Flavian Clemens who was a cousin of the emperor Domitian aka 'Clement of Rome' was Ketia bar Shalom, Rabbi Meir who was the grandson of emperor Nero, Philo of Alexandria was 'Philo the Jew', her brother-husband Tiberius Julius Alexander identified as Jewish, etc. 'Jew' at the time meant Celtic Druid of the Iudii or Iudaei tribe.
 
-#### 2.2.3 Modern Judaism
+####  2.2.3 Shimon bar Yochai
 
-The area of modern israel was wiped out multiple times. Modern jews are a hodgepodge of ethnicities who survided the Bar Kokhba revolt of 132–136 CE. Also, the religion of Modern judaism is a recent invention. Judaism is not the Torah (Old Testament), and has not been for a long time. The Talmud was completed after the New Testament and this is what modern jews follow. Essentially, jews follow the program that Rabbi Akiva and his students created.\
+Although judaism was an Alexandrian and then Roman attempt to subvert the Jews (who at the time may have still been Celts), I suspect that one of the students of Rabbi Akiva, Shimon bar Yochai (Yohai is a nickname for yochai. The name Yochai means 'YHWAH is gracius' from the Hebrew word Yochanan sometimes transcribed as Johanan. Was he also Johanan the Alexandrian? This would place him in Alexandria at the same time as Markianos of Alexandria), was something approximating a modern day 'Ashkenazi Jew' and he is responsible for the Talmud, 'The Secrets of Shimon bar Yochai', and Islam.
+
+In the book 'Hagarism: The Making of the Islamic World' (1977) by Patricia Crone and Michael Cook they trace the origins of Islam to 'The Secrets of Shimon bar Yochai'. They theorize that Islam was started as a psy-op to weaponize the Arabs to attack the Byzantine empire (eastern Rome) to free judea. 
+
+Shimon bar Yochai wrote that his "secrets" were revealed to him when he was hiding in a cave on account of the persecutions of Caesar king of Edom (i.e., Rome). His "secrets" were his blueprint for the destruction of Rome (Esau) and all western "gyrwn" (Aramic form of goyim) through using Ishmael (Arabs) and "four-arms" (Indians).
+
+According to his prophecy, after "Ishmael" weakens "Edom" (Rome) and dies a "noble death", they would import millions of "four-arms" ("Chaturbhuja" in Sanskri means "four-armed" and many Hindu deities are depicted with four-arms, including Vishnu) to dilute the Romans population and finish the job.
+
+In Jerusalem Talmud Kiddushin, Rabbi Shimon bar Yochai stated: "Kill the best of Gentiles, smash the head of the best of snakes". He was the biggest proponent of the belief that Rome was Edom.
+
+King Izates of Monobazus's son was named 'Zamaris' (Zamaris the Babylonian jew?) and Zamaris has the same meaning as Muhammad. Allah and Muhammad the red-headed warlord were parodies of Attila the Hun and his uncle Ruglia waging war against Rome ("Edom") because they wanted the Arabs to attack eastern Rome. So, did Rabbi Simon ben Yohai do a bait-and-switch and instead turned judaism in a group strategy while turining the Adiabene imperial cult into Islam to weaponize the Arabs?
+
+#### 2.2.4 Modern Judaism
+
+The area of modern israel was wiped out multiple times. Modern jews are a hodgepodge of ethnicities who survided the Bar Kokhba revolt of 132–136 CE. Also, the religion of Modern judaism is a recent invention. Judaism is not the Torah (Old Testament), and has not been for a long time. The Talmud was completed after the New Testament and this is what modern jews follow. Essentially, jews follow the program that Shimon bar Yochai created.\
 
 ### Chapter 3: The Origins of Zoroastrianism
 
@@ -1380,9 +1387,7 @@ https://auctions.stacksbowers.com/lots/view/3-US7SY/julius-caesar-ar-denarius-39
     https://en.wikipedia.org/wiki/Priscilla_and_Aquila
     [[link](https://en.wikipedia.org/wiki/Priscilla_and_Aquila)]
 
-[^16]: 'Hagarism'. Wikipedia, https://en.wikipedia.org/wiki/Hagarism
-    [[link](https://en.wikipedia.org/wiki/Hagarism)]
-    --Izates's son was named 'Zamaris' (Zamaris the Babylonian jew) and Zamaris has the same meaning as Muhammad. Allah and Muhammad the red-headed warlord were parodies of Attila the Hun and his uncle Ruglia waging war against Rome ("Edom") because they wanted the Arabs to attack eastern Rome). Rabbi Simon ben Yohai created the forrunner to Islam but cuting-and-pasting the Adiabene imperial cult. 
+[^16]: A Surfeit of Marks: Mark, the Evangelist, John Mark, Mark of Apollonias, Markianos of Alexandria, Mahalia, Marcus of Jerusalem, Marcus Pompeius, Marcus the Magician, Marcion of Sinope. Were they all the same person? 
 
 [^17]: Encyclopaedia Judaica.
     https://www.jewishvirtuallibrary.org/keti-x0027-a-bar-shalom
