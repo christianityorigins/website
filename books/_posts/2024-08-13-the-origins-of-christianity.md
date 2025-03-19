@@ -61,6 +61,10 @@ Preface
 
 Christianity is the culmination of calculated syncretism, subversion, and imperial manipulation, over several centuries, of a religion. That is why there is a extremely powerful psychological weapon at its core (See: 'Book II: Christianity as a Slave Morality Religion and its Modern Secularized Variants: A Jewish Conspiracy and Hoax on the Gentiles').
 
+The Persians effectively used a slave-morality religion as part of their
+colonial program (Zoroastrianism and Buddhism), and then the Greeks
+and Romans followed this formula. Religious syncreticism and slave-morality religions that stripped the population of their will to power is how the imperial powers maintained their empire and prevented any rebellion. Christianity is a relic of one of these imperial slave moralities.
+
 My research suggests that over two millennia ago, the term 'Jew' denoted the Iudii or Iudaei, a Celtic tribe whose religious practices were rooted in Druidism. The Greek Ptolemaioi at the Alexandrian School in Ptolemaic Egypt sought to bring this group under their control and assimilate them by incorporating Hellenistic elements into their religious beliefs which lead to the creation of what was the first draft of Judaism. Subsequently, a few centuries later, the Romans replicated this strategy of subversion by further undermining the already transformed religious framework of the Jews through the imposition of the Roman imperial cult, specifically, the Flamen Dialis cult or the cult of the Divine Julius. The jewish storm god Baal-Hadad (Baal, meaning lord, while Hadad was specifically revered as the god of rain, thunder, and storms) then became I(J)upiter (who was also called Jove or Iove to the Romans. The Latin pronunciation of Iove would have been Yoh-Way, or Yahweh), and their Moshiach (Messiah) was reinterpreted as Julius Caesar, I(J)upiter-Zeus (I-Zeus-> Izeus-> Iseus).
 
 Then, sometime after the Bar Kokhba Revolt (132--136 CE), a group of Romans that included Gamaliel/St. Gamaliel aka Tiberius Gemellus who was a grandson of Emperor Tiberius and a cousin of Emperor Caligula, a Rabbi named Akiva (Epictetus?), Aquila of Sinope aka Onkelos who was a nephew of emperor Hadrian, Markianos of Alexandria aka Marcion of Sinope, Simon ben Yohai, Ketia bar Shalom aka Titus Flavian Clemens who was a cousin of the emperor Domitian aka 'Clement of Rome', Rabbi Meir who was the grandson of emperor Nero, and Pliny the Younger aka Bishop Ignatius of Antioch aka Polycarp (likely also Paul the Apostle), and all of them working on behalf of emperor Hadrian, tried to subvert this group further by adding a slave-morality to the slave-morality religion.
@@ -391,19 +395,7 @@ even has a story about a 'spurious Alexander' that showed up in Rome
 claiming to be the son of Herod who faked his death [^11], so he was
 'resurrected' as Juba II, king of Numidia and Mauretania. 
 
-The Persians effectively used a slave-morality religion as part of their
-colonial program (Zoroastrianism and Buddhism), and then the Macedonians
-and Romans followed this formula. Religious syncreticism is how they
-maintained their empire. The Greeks used a system called 'Interpretatio
-Graeca' [^12] to equate their gods with those of other cultures, and the
-Romans adopted this system as well ('interpretatio romana').
-Christianity was created by scribes at the 'Alexandrian School' in Egypt
-which was a religion making factory and was overseen by 'Philo of
-Alexandria' (Cleopatra (Thea Philopator) of Mauretania aka Cleopatra IX
-aka Pythodorida Philometor aka Helene aka Drusilla of Mauretania aka
-Julia Ourania of Parthia) as a syncretic slave morality.
-
-It is likely that each Roman emperor after Julius Caesar took on the 'I-Zeus' (Iesus) role as an avatar, which is why I identify many prominent Romans as having contributed to the bible (e.g. Titus Flavian Clemens aka 'Clement of Rome').
+It is likely that each Roman emperor after Julius Caesar took on the I(J)upiter-Zeus [^12] ('I-Zeus' -> Iesus) role as an avatar, which is why I identify many prominent Romans as having contributed to the bible (e.g. Titus Flavian Clemens aka 'Clement of Rome').
 
 Then, after the Bar Kokhba Revolt (132--136 CE), this imperial slave-morality cult was subverted by a confederation
 of rabbi's who were headed by a rabbi named Akiva.
@@ -558,7 +550,7 @@ In the book 'Hagarism: The Making of the Islamic World' (1977) by Patricia Crone
 
 Shimon bar Yochai wrote that his "secrets" were revealed to him when he was hiding in a cave on account of the persecutions of Caesar king of Edom (i.e., Rome). His "secrets" were his blueprint for the destruction of Rome (Esau) and all western "gyrwn" (Aramic form of goyim) through using Ishmael (Arabs) and "four-arms" (Indians).
 
-According to his prophecy, after "Ishmael" weakens "Edom" (Rome) and "dies a noble death", they would import millions of "four-arms" ("Chaturbhuja" in Sanskri means "four-armed" and many Hindu deities are depicted with four-arms, including Vishnu) to dilute the Romans population and finish the job.
+According to his prophecy, after "Ishmael" weakens "Edom" (Rome) and "dies a noble death", they would import millions of "four-arms" ("Chaturbhuja" in Sanskri means "four-armed" and many Hindu deities are depicted with four-arms, including Vishnu) to dilute the Roman population and finish the job.
 
 In Jerusalem Talmud Kiddushin, Rabbi Shimon bar Yochai stated: "Kill the best of Gentiles, smash the head of the best of snakes". He was the biggest proponent of the belief that Rome was Edom.
 
