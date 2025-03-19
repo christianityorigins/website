@@ -500,6 +500,7 @@ Endnotes (Chapter 1)
     Ancestry of Emperor Vespasian. Henry Davis,
     https://www.henryhdavis.com/theroyalancestryofemperorvespasian
     [[link](https://www.henryhdavis.com/theroyalancestryofemperorvespasian)])
+(e) The inscription on the coin of Tiberius Julius Sauromates II, King of Bosphorus, in Fig. 1.5. above is: ΒΑCΙΛΕΩC CΑVΡΟΜΑΤΟΥ. This translates directly to 'King of the lizard-eye people'. Do a Google image search for "Vatican Meeting Hall". Notice the lizard eyes? Is this a tacit admission that the Vatican knows Tiberius Julius Sauromates II was the jesus avatar that the bible was built around? P.S. I don't think the inscription should be taken literally. Sauromates is a Greek rendering of Sarmatian which refers to the Scythian tribe who came from the Pontic steppe. They called themselves the lizard people because of their military formation, or scales son their armor. 
 
 ### Chapter 2: The Origins of Judaism
 
@@ -544,7 +545,7 @@ This is why several descendants of Roman aristocrats described themselves as 'je
 
 ####  2.2.3 Shimon bar Yochai
 
-Although judaism was an Alexandrian school attempt to assimilate the Jews (which at the time may have still been primarily, or at least governed by, the Celts), and then Roman attempt to get them to accept the imperial cult slave-morality, I suspect that Shimon bar Yochai, who was one of the students and scribes of Rabbi Akiva, was something approximating a modern day Ashkenazi Jew and he is responsible for the Talmud, 'The Secrets of Shimon bar Yochai', and Islam.
+Although judaism was an Alexandrian school attempt to assimilate the Jews (which at the time may have been primarily Celtic male - Neolithic Anatolian woman mixes, or at least governed by these people), and then Roman attempt to get them to accept the imperial cult slave-morality, I suspect that Shimon bar Yochai, who was one of the students and scribes of Rabbi Akiva, was something approximating a modern day Ashkenazi Jew and he is responsible for the Talmud, 'The Secrets of Shimon bar Yochai', and Islam.
 
 In the book 'Hagarism: The Making of the Islamic World' (1977) by Patricia Crone and Michael Cook they trace the origins of Islam to 'The Secrets of Shimon bar Yochai'. They theorize that Islam was started as a psy-op to weaponize the Arabs to attack the Byzantine empire (eastern Rome) to free judea. 
 
