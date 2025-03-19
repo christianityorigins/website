@@ -552,17 +552,17 @@ This is why several descendants of Roman aristocrats described themselves as 'je
 
 ####  2.2.3 Shimon bar Yochai
 
-Although judaism was an Alexandrian school attempt to assimilate the Jews (which at the time may have still been primarily, or at least governed by, the Celts), and then Roman attempt to get them to accept the imperial cult slave-morality, I suspect that Shimon bar Yochai, who was one of the students of Rabbi Akiva, was something approximating a modern day 'Ashkenazi Jew' and he is responsible for the Talmud, 'The Secrets of Shimon bar Yochai', and Islam.
+Although judaism was an Alexandrian school attempt to assimilate the Jews (which at the time may have still been primarily, or at least governed by, the Celts), and then Roman attempt to get them to accept the imperial cult slave-morality, I suspect that Shimon bar Yochai, who was one of the students and scribes of Rabbi Akiva, was something approximating a modern day Ashkenazi Jew and he is responsible for the Talmud, 'The Secrets of Shimon bar Yochai', and Islam.
 
 In the book 'Hagarism: The Making of the Islamic World' (1977) by Patricia Crone and Michael Cook they trace the origins of Islam to 'The Secrets of Shimon bar Yochai'. They theorize that Islam was started as a psy-op to weaponize the Arabs to attack the Byzantine empire (eastern Rome) to free judea. 
 
 Shimon bar Yochai wrote that his "secrets" were revealed to him when he was hiding in a cave on account of the persecutions of Caesar king of Edom (i.e., Rome). His "secrets" were his blueprint for the destruction of Rome (Esau) and all western "gyrwn" (Aramic form of goyim) through using Ishmael (Arabs) and "four-arms" (Indians).
 
-According to his prophecy, after "Ishmael" weakens "Edom" (Rome) and dies a "noble death", they would import millions of "four-arms" ("Chaturbhuja" in Sanskri means "four-armed" and many Hindu deities are depicted with four-arms, including Vishnu) to dilute the Romans population and finish the job.
+According to his prophecy, after "Ishmael" weakens "Edom" (Rome) and "dies a noble death", they would import millions of "four-arms" ("Chaturbhuja" in Sanskri means "four-armed" and many Hindu deities are depicted with four-arms, including Vishnu) to dilute the Romans population and finish the job.
 
 In Jerusalem Talmud Kiddushin, Rabbi Shimon bar Yochai stated: "Kill the best of Gentiles, smash the head of the best of snakes". He was the biggest proponent of the belief that Rome was Edom.
 
-King Izates of Monobazus's son was named 'Zamaris' (Zamaris the Babylonian jew?) and Zamaris has the same meaning as Muhammad. Allah and Muhammad the red-headed warlord were parodies of Attila the Hun and his uncle Ruglia waging war against Rome ("Edom") because they wanted the Arabs to attack eastern Rome. So, did Rabbi Simon ben Yohai do a bait-and-switch and instead turned judaism in a group strategy while turning the Adiabene imperial cult into Islam to weaponize the Arabs?
+King Izates of Monobazus's (Isa in the Quran) son was named 'Zamaris' (Zamaris the Babylonian jew?) and Zamaris has the same meaning as Muhammad. Allah and Muhammad the red-headed warlord were parodies of Attila the Hun and his uncle Ruglia waging war against Rome ("Edom") because they wanted the Arabs to attack eastern Rome. So, did Rabbi Simon ben Yohai do a bait-and-switch and instead turned judaism in a group strategy while turning the Adiabene imperial cult into Islam to weaponize the Arabs? It is impossible to get people to abandon their religions for a new one, so he created a sect of one of the popular religions at the time and infused the trojan horse ideology into it.
 
 #### 2.2.4 Modern Judaism
 
