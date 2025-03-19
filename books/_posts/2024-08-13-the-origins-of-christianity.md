@@ -552,7 +552,7 @@ This is why several descendants of Roman aristocrats described themselves as 'je
 
 ####  2.2.3 Shimon bar Yochai
 
-Although judaism was an Alexandrian and Roman attempt to subvert the Jews (which at the time may have still been primarily, or at least governed by, the Celts), I suspect that one of the students of Rabbi Akiva, Shimon bar Yochai, was something approximating a modern day 'Ashkenazi Jew' and he is responsible for the Talmud, 'The Secrets of Shimon bar Yochai', and Islam.
+Although judaism was an Alexandrian school attempt to assimilate the Jews (which at the time may have still been primarily, or at least governed by, the Celts), and then Roman attempt to get them to accept the imperial cult slave-morality, I suspect that Shimon bar Yochai, who was one of the students of Rabbi Akiva, was something approximating a modern day 'Ashkenazi Jew' and he is responsible for the Talmud, 'The Secrets of Shimon bar Yochai', and Islam.
 
 In the book 'Hagarism: The Making of the Islamic World' (1977) by Patricia Crone and Michael Cook they trace the origins of Islam to 'The Secrets of Shimon bar Yochai'. They theorize that Islam was started as a psy-op to weaponize the Arabs to attack the Byzantine empire (eastern Rome) to free judea. 
 
