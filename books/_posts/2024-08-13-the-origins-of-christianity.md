@@ -181,8 +181,6 @@ Ancient Alias Names List
     Herod's son Aristobulus IV. Great-grandson of King Herod.
 -   Vitellius = Vespasian's older brother Titus Flavius Sabinus.
     Great-grandson of King Herod.
--   Zoroaster = Baruch ben Neriah. Scribe of Joshua the High Priest
-    (possibly the same person).
 
 Speculative
 
@@ -200,6 +198,8 @@ Speculative
     grandfather of Jesus ben Gamla/Gamaliel.
 -   Ptolemy XIII Theos Philopator = Gaius Octavius aka Emperor Gaius Julius Caesar Augustus, son of Julius Caesar and Berenice IV aka Alfidia (Cleopatra VII sister).
 -   Rabbi Akiva (c. 50–135) = Epictetus (c. 50–135)? Epictetus was the slave to Nero's scribe Tiberius Claudius Epaphroditus or Epaphroditos (c. 20–25 – died c. 95). Epictetus had a Roman teacher named Gaius Musonius Rufus (c. 20-30-died c. 101) who was a Roman Stoic philosopher. Gaius Musonius Rufus was also a teacher of Dio Chrysostom (c. 40 – c. 115 AD). Josephus opened his book 'Jewish Wars' and 'History of the Jews' (Antiquities) by addressing them to: "kratistos (most excellent) Epaphroditus". Rabbi Akiva also likely took on the role of 'Paul the Apostle'. (Akiva and Epictetus were born and died on the same date, and Epictetus had a hand in writing the new testament. See: 'Epictetus and the New Testament' by Douglas Simmonds Sharp (1914)). Epicteus and Pilny the Younger were both in the same places at the same time; Rome, Nicopolis, and Bithynia-Pontus, and Pliny the Younger was a Roman administrator in Bithynia and Pontus at the same time Marcion was in Sinope.
+-   Zoroaster = Baruch ben Neriah. Scribe of Joshua the High Priest
+    (possibly the same person).
 
 
 Definitions
@@ -527,25 +527,19 @@ It was in Alexandria at the Library of Alexandria where the Pentateuch and Septu
 
 Ceasar’s gentilice (surname) was Iulius. We are told by Virgil that it goes back to Ceasar’s supposed ancestor Iulus or Iule, after the ancient Celtic tribe known as the Iudii or Iudaei, who inhabited the region of Gaul (modern-day France) and Britain. I(J)upiter was also called Jove or Iove to the Romans. The Latin pronunciation of Iove would have been Yoh-Way, i.e Yahweh/Yhwh, so Yahweh Saboath, the god of the hebrew bible, is I(J)ove (Roman Zeus) Sabazios (Thracian Zeus). Abel and Cain are just a copy of Romulus and Remus. Judas Iscariot is just a copy of Brutus.
 
-Virgil also tells us (drawing from Cato the Elder, c. 168 BC) that the name Julius is the short name of Jupiter (Jul Pater). And it happens to be an Indo-European root word designating the sunlight or the day sky, identical to the Scandinavian name for the solar god, Yule (Helios for the Greeks, Haul for the Gauls, Hel for the Germans, from which derives the French Noël, Novo Hel). The Proto-Indo-European root for "Julius" (Iulius in Latin) is reconstructed as "yews", while the Proto-Indo-European root for "Jew" (Iudaeus in Latin) is also reconstructed as "yews".
+The Proto-Indo-European root for "Julius" (Iulius in Latin) is reconstructed as "yews", while the Proto-Indo-European root for "Jew" (Iudaeus in Latin) is also reconstructed as "yews". 'Gaius' in the name Gaius Julius Caesar refers to his tribal affiliation in the Gallian (Gauls (Galli = Celt in Latin)) tribe. Also, Caesar, Kaiser (German for Caesar), Kesar or Kaysar (Persian for Caesar), Kaisar (Ancient Greek for Caesar), Tsar (Russian for Caesar) and Khazar are not just phonetic coincidences. It all ties back to the Divine Julius cult. As explained in Chapter 1, Julius Caesar was a title, so Gaius Julius Caesar could conceivably translate to: King Jew of the Celtic tribe Galli. I.e., Julius Caesar aka Asander of Bosphorus (I-Zeus) was a Celtic deified king.
 
-Also, Caesar, Kaiser (German for Caesar), Kesar or Kaysar (Persian for Caesar), Kaisar (Ancient Greek for Caesar), Tsar (Russian for Caesar) and Khazar are not just phonetic coincidences. It all ties back to the Divine Julius cult. 
-
-'Gaius' in the name Gaius Julius Caesar refers to his tribal affiliation in the Gallian (Gauls (Galli = Celt in Latin)) tribe. As explained in Chapter 1, Julius Caesar was a title, so Gaius Julius Caesar could conceivably translate to: King Jew of the Celtic tribe Galli.
-
-Galata in Classical Anatolia was settled by the Gauls. Galatia bordered the Bosphorus, and Julius Caesar/Asander was king of this region. The king of Galatia during this time was Asander's brother-in-law Amyntas of Galatia who ruled an area that streched into India under the alias Amyntas Nikator. 
+Paul's Epistle to the Galatians was sent to the Iudaei of Galatia. Galata in Classical Anatolia was settled by the Gauls. Galatia bordered the Bosphorus, and Julius Caesar/Asander was king of this region. The king of Galatia during this time was Asander's brother-in-law Amyntas of Galatia who ruled an area that streched into India under the alias Amyntas Nikator. 
 
 Lucan's 'Pharsalia or De Bello Civili (On the Civil War)' mentions that the Gauls in Galatia worshiped a deity called Esus/Hesus/Iesus.
 
 Suetonius, in 'Divus Julius' (84.:1) states that there were an inordinate amount of jews at Julius Caesars funeral and they even burned their jewellery in mourning. Josephus also frequently mentions the benefits conferred to jews by Julius Caesar (Anti. Jud. xiv. 14, 15, 16). 
 
-Julius Caesar aka Asander of Bosphorus (I-Zeus) was a Celtic deified king.
-
 This is why several descendants of Roman aristocrats described themselves as 'jewish' despite being ethnically Celtic Gauls or Aryan Sarmatians. For example, Ptolemy (Alexander) bar Menneus/Ptolemy X Alexander I (Simon Boethus) played the role of judaen high priest, Mark Antony played the role of King Herod. Izates of Monobazus (Jesus ben Gamala/Gamaliel aka Jesus ben Sapphias) and Amyntas Nikator aka Amyntas of Galatia (Jesus ben Fabus) played the role of rabbis, Tiberius Gemellus who was a grandson of Emperor Tiberius and a cousin of Emperor Caligula was rabbi Gamaliel/St. Gamaliel, Aquila of Sinope aka Onkelos who was a nephew of emperor Hadrian, Titus Flavian Clemens who was a cousin of the emperor Domitian aka 'Clement of Rome' was Ketia bar Shalom, Rabbi Meir who was the grandson of emperor Nero, Philo of Alexandria was 'Philo the Jew', her brother-husband Tiberius Julius Alexander identified as Jewish, etc. 'Jew' at the time meant Celtic Druid of the Iudii or Iudaei tribe.
 
 ####  2.2.3 Shimon bar Yochai
 
-Although judaism was an Alexandrian school attempt at subverting the jews religion to assimilate them (who at the time may have been primarily Celtic male - Neolithic Anatolian woman mixes, or at least governed by these people), and then a Roman attempt to subvert them by incorporating the Roman imperial cult slave-morality into their religion, I suspect that Shimon bar Yochai, who was one of the students and scribes of Rabbi Akiva, was something approximating a modern day Ashkenazi Jew and he is responsible for the Talmud, 'The Secrets of Shimon bar Yochai', and Islam.
+Although judaism was an Alexandrian School attempt at subverting the jews religion to assimilate them (who at the time may have been primarily Celtic male - Neolithic Anatolian woman mixes, or at least governed by these people), and then a Roman attempt to subvert them by incorporating the Roman imperial cult slave-morality into their religion, I suspect that Shimon bar Yochai, who was one of the students and scribes of Rabbi Akiva, was something approximating a modern day Ashkenazi Jew and he is responsible for the Talmud, 'The Secrets of Shimon bar Yochai', and Islam.
 
 In the book 'Hagarism: The Making of the Islamic World' (1977) by Patricia Crone and Michael Cook they trace the origins of Islam to 'The Secrets of Shimon bar Yochai'. They theorize that Islam was started as a psy-op to weaponize the Arabs to attack the Byzantine empire (eastern Rome) to free judea. 
 
