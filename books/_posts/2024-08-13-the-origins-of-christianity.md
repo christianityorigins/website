@@ -21,36 +21,36 @@ Ancient Alias Names List\
 Definitions\
 BOOK I. THE ORIGINS OF CHRISTIANITY\
 Chapter 1: The Creation of Christianity \
-1.1 Imperial Cult\
-1.2 The Cult of Antinous and the Bar Kokhba Revolt (132–136 CE)\
+§ 1.1 Imperial Cult\
+§ 1.2 The Cult of Antinous and the Bar Kokhba Revolt (132–136 CE)\
 Chapter 2: The Origins of Judaism\
-2.1 Ethnogenesis of the Jews\
-2.2 The Myth of a Jewish People\
-2.2.1 Alexandria\
-2.2.2 Romanization\
-2.2.3 Shimon bar Yochai\
-2.2.4 Modern Judaism\
+§ 2.1 Ethnogenesis of the Jews\
+§ 2.2 The Myth of a Jewish People\
+§ 2.2.1 Alexandria\
+§ 2.2.2 Romanization\
+§ 2.2.3 Shimon bar Yochai\
+§ 2.2.4 Modern Judaism\
 Chapter 3: The Origins of Zoroastrianism\
-3.1 Zoroaster and Jewish Influence\
-3.2 Zoroastrianism’s Impact on Subsequent Religions\
+§ 3.1 Zoroaster and Jewish Influence\
+§ 3.2 Zoroastrianism’s Impact on Subsequent Religions\
 Chapter 4: The Origins of Buddhism\
-4.1 Buddhism’s Roots in Zoroastrianism\
-4.2 The Hellenization of Buddhism\
+§ 4.1 Buddhism’s Roots in Zoroastrianism\
+§ 4.2 The Hellenization of Buddhism\
 Chapter 5: Alexander the Great\
-5.1 Alexander's Influence on Religious Thought\
-5.2 Alexander as a Prototype for the Jesus Figure\
+§ 5.1 Alexander's Influence on Religious Thought\
+§ 5.2 Alexander as a Prototype for the Jesus Figure\
 Chapter 6: Ancient India\
-6.1 The Asuras and Jewish Influence\
-6.2 The Aryan Invasion and the Evolution of Indian Religions\
+§ 6.1 The Asuras and Jewish Influence\
+§ 6.2 The Aryan Invasion and the Evolution of Indian Religions\
 Chapter 7: The Alexandrian School\
-7.1 The Role of the Alexandrian School in Religious Syncretism\
-7.2 The Creation of the Septuagint and Its Impact\
+§ 7.1 The Role of the Alexandrian School in Religious Syncretism\
+§ 7.2 The Creation of the Septuagint and Its Impact\
 Chapter 8: The Origins of Gnosticism\
-8.1 Simon Magus and the Creation of Gnosticism\
-8.2 Gnosticism's Influence on Early Christianity\
+§ 8.1 Simon Magus and the Creation of Gnosticism\
+§ 8.2 Gnosticism's Influence on Early Christianity\
 Chapter 9: Rome\
-9.1 The Role of the Herodians in Rome\
-9.2 Alexandria, Egypt. 1st Century\
+§ 9.1 The Role of the Herodians in Rome\
+§ 9.2 Alexandria, Egypt. 1st Century\
 APPENDICES\
 Appendix A. How Did Christianity Spread So Rapidly?\
 Appendix B. Expulsions from Rome for Trying to Spread Religions\
@@ -61,18 +61,13 @@ Preface
 
 Christianity is the culmination of calculated syncretism, subversion, and imperial manipulation, over several centuries, of a religion. That is why there is a extremely powerful psychological weapon at its core (See: 'Book II: Christianity as a Slave Morality Religion and its Modern Secularized Variants: A Jewish Conspiracy and Hoax on the Gentiles').
 
-The Persians effectively used a slave-morality religion as part of their
-colonial program (Zoroastrianism and Buddhism), and then the Greeks
-and Romans followed this formula. Religious syncreticism and slave-morality religions that stripped the population of their will to power is how the imperial powers maintained their empire and prevented any rebellion. Christianity is a relic of one of these imperial slave moralities.
+The early rulers of Sumer were all priests. In Egypt, the Pharaohs were the actual sons of gods. The Persians copied this formula of deifying their leaders but took it a step further by turning their imperial cult into a slave-morality religion as part of their colonial program (Zoroastrianism and Buddhism), and then the Greeks and Romans followed this formula. Religious syncreticism and slave-morality religions that stripped the population of their will to power is how the imperial powers maintained their empire and prevented any rebellion. Christianity is a relic of one of these imperial slave moralities.
 
 My research suggests that over two millennia ago, the term 'Jew' denoted the Iudii or Iudaei, a Celtic tribe whose religious practices were rooted in Druidism. The Greek Ptolemaioi at the Alexandrian School in Ptolemaic Egypt sought to bring this group under their control and assimilate them by incorporating Hellenistic elements into their religious beliefs which lead to the creation of what was the first draft of Judaism. Subsequently, a few centuries later, the Romans replicated this strategy of subversion by further undermining the already transformed religious framework of the Jews through the imposition of the Roman imperial cult, specifically, the Flamen Dialis cult or the cult of the Divine Julius. The jewish storm god Baal-Hadad (Baal, meaning lord, while Hadad was specifically revered as the god of rain, thunder, and storms) then became I(J)upiter (who was also called Jove or Iove to the Romans. The Latin pronunciation of Iove would have been Yoh-Way, or Yahweh), and their Moshiach (Messiah) was reinterpreted as Julius Caesar, I(J)upiter-Zeus (I-Zeus-> Izeus-> Iseus).
 
 Then, sometime after the Bar Kokhba Revolt (132--136 CE), a group of Romans that included Gamaliel/St. Gamaliel aka Tiberius Gemellus who was a grandson of Emperor Tiberius and a cousin of Emperor Caligula, a Rabbi named Akiva (Epictetus?), Aquila of Sinope aka Onkelos who was a nephew of emperor Hadrian, Markianos of Alexandria aka Marcion of Sinope, Simon ben Yohai, Ketia bar Shalom aka Titus Flavian Clemens who was a cousin of the emperor Domitian aka 'Clement of Rome', Rabbi Meir who was the grandson of emperor Nero, and Pliny the Younger aka Bishop Ignatius of Antioch aka Polycarp (likely also Paul the Apostle), and all of them working on behalf of emperor Hadrian, tried to subvert this group further by adding a slave-morality to the slave-morality religion.
 
-This book seeks to answer three central questions: Who wrote the Bible? In what context was it written? And, most critically, who benefited from Christianity’s invention? My methodologies are multifaceted: revisionist
-historiography, counter-narrative analysis, and historical
-deconstruction. The main sources that inspired my research are listed in
-the 'further reading' section at the end of the book.
+This book seeks to answer three central questions: Who wrote the Bible? In what context was it written? And, most critically, who benefited from Christianity’s invention? My methodologies are multifaceted: revisionist historiography, counter-narrative analysis, and historical deconstruction. The main sources that inspired my research are listed in the 'further reading' section at the end of the book.
 
 Ancient Alias Names List
 ---------------------
