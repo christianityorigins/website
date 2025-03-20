@@ -499,8 +499,8 @@ Endnotes (Chapter 1)
     (King Herod) (The Royal Ancestry of Emperor Vespasian (The Royal
     Ancestry of Emperor Vespasian. Henry Davis,
     https://www.henryhdavis.com/theroyalancestryofemperorvespasian
-    [[link](https://www.henryhdavis.com/theroyalancestryofemperorvespasian)])
-(e) The inscription on the coin of Tiberius Julius Sauromates II, King of Bosphorus, in Fig. 1.5. above is: ΒΑCΙΛΕΩC CΑVΡΟΜΑΤΟΥ. This translates directly to 'King of the lizard-eye people'. Do a Google image search for "Vatican Meeting Hall". Notice the lizard eyes? Is this a tacit admission that the Vatican knows Tiberius Julius Sauromates II was the jesus avatar that the bible was built around? P.S. I don't think the inscription should be taken literally. Sauromates is a Greek rendering of Sarmatian which refers to the Scythian tribe who came from the Pontic steppe. They called themselves the lizard people because of their military formation, or scales son their armor. 
+    [[link](https://www.henryhdavis.com/theroyalancestryofemperorvespasian)])\
+(e) The inscription on the coin of Tiberius Julius Sauromates II, King of Bosphorus, in Fig. 1.5. above is: ΒΑCΙΛΕΩC CΑVΡΟΜΑΤΟΥ. This translates directly to 'King of the lizard-eye people'. Do a Google image search for "Vatican Meeting Hall". Notice the lizard eyes? Is this a tacit admission that the Vatican knows Tiberius Julius Sauromates II was the jesus avatar that the bible was built around? P.S. I don't think the inscription should be taken literally. Sauromates is a Greek rendering of Sarmatian which refers to the Scythian tribe who came from the Pontic steppe. They were called the lizard people because of their military formation, or scales on their armor. 
 
 ### Chapter 2: The Origins of Judaism
 
@@ -545,17 +545,17 @@ This is why several descendants of Roman aristocrats described themselves as 'je
 
 ####  2.2.3 Shimon bar Yochai
 
-Although judaism was an Alexandrian school attempt to assimilate the Jews (which at the time may have been primarily Celtic male - Neolithic Anatolian woman mixes, or at least governed by these people), and then Roman attempt to get them to accept the imperial cult slave-morality, I suspect that Shimon bar Yochai, who was one of the students and scribes of Rabbi Akiva, was something approximating a modern day Ashkenazi Jew and he is responsible for the Talmud, 'The Secrets of Shimon bar Yochai', and Islam.
+Although judaism was an Alexandrian school attempt at subverting the jews religion to assimilate them (who at the time may have been primarily Celtic male - Neolithic Anatolian woman mixes, or at least governed by these people), and then a Roman attempt to subvert them by incorporating the Roman imperial cult slave-morality into their religion, I suspect that Shimon bar Yochai, who was one of the students and scribes of Rabbi Akiva, was something approximating a modern day Ashkenazi Jew and he is responsible for the Talmud, 'The Secrets of Shimon bar Yochai', and Islam.
 
 In the book 'Hagarism: The Making of the Islamic World' (1977) by Patricia Crone and Michael Cook they trace the origins of Islam to 'The Secrets of Shimon bar Yochai'. They theorize that Islam was started as a psy-op to weaponize the Arabs to attack the Byzantine empire (eastern Rome) to free judea. 
 
-Shimon bar Yochai wrote that his "secrets" were revealed to him when he was hiding in a cave on account of the persecutions of Caesar king of Edom (i.e., Rome). His "secrets" were his blueprint for the destruction of Rome (Esau) and all western "gyrwn" (Aramic form of goyim) through using Ishmael (Arabs) and "four-arms" (Indians).
+Shimon bar Yochai wrote that his "secrets" were revealed to him when he was hiding in a cave on account of the persecutions of Caesar king of Edom (Rome). His "secrets" were his blueprint for the destruction of Rome (Esau/Edom) and all western "gyrwn" (Aramic form of goyim) through using Ishmael (Arabs) and "four-arms" (Indians).
 
-According to his prophecy, after "Ishmael" weakens "Edom" (Rome) and "dies a noble death", they would import millions of "four-arms" ("Chaturbhuja" in Sanskri means "four-armed" and many Hindu deities are depicted with four-arms, including Vishnu) to dilute the Roman population and finish the job.
+According to his prophecy, after "Ishmael" weakens Edom (Rome) and then "dies a noble death", the jews would import millions of "four-arms" ("Chaturbhuja" in Sanskri means "four-armed" and many Hindu deities are depicted with four-arms, including Vishnu) to dilute the Roman population and finish the job.
 
 In Jerusalem Talmud Kiddushin, Rabbi Shimon bar Yochai stated: "Kill the best of Gentiles, smash the head of the best of snakes". He was the biggest proponent of the belief that Rome was Edom.
 
-King Izates of Monobazus's (Isa in the Quran) son was named 'Zamaris' (Zamaris the Babylonian jew?) and Zamaris has the same meaning as Muhammad. Allah and Muhammad the red-headed warlord were parodies of Attila the Hun and his uncle Ruglia waging war against Rome ("Edom") because they wanted the Arabs to attack eastern Rome. So, did Rabbi Simon ben Yohai do a bait-and-switch and instead turned judaism in a group strategy while turning the Adiabene imperial cult into Islam to weaponize the Arabs? It is impossible to get people to abandon their religions for a new one, so he created a sect of one of the popular religions at the time and infused the trojan horse ideology into it.
+King Izates of Monobazus's (Isa in the Quran) son was named 'Zamaris' (Zamaris the Babylonian jew?) and Zamaris has the same meaning as Muhammad. Allah and Muhammad the red-headed warlord were parodies of Attila the Hun and his uncle Ruglia waging war against Rome (Edom) because they wanted the Arabs to attack eastern Rome. So, did Rabbi Simon ben Yohai do a bait-and-switch and instead turned judaism in a group strategy while turning the Adiabene imperial cult into Islam to weaponize the Arabs? It is impossible to get people to abandon their religions for a new one, so he created a sect of one of the popular religions at the time and infused the trojan horse ideology into it.
 
 #### 2.2.4 Modern Judaism
 
