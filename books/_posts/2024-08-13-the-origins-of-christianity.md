@@ -512,7 +512,7 @@ The original redhead clan of Druids that ended up becoming Israelites were Scyth
 
 #### 2.2 The Myth of a Jewish People
 
-All jewish history was made up. Their religion was Celtic Druidism that was Hellenized at the Library of Alexandria and then combined with the Divine Julius cult. So, ancient judaism (before Rabbi Akiva) was a syncretic attempt by the Alexandrians and then Romans to pacify the jews (who were then Celts) [^25]. 
+All jewish history was made up. Their religion was Celtic Druidism that was Hellenized at the Library of Alexandria and then combined with the Divine Julius cult. So, ancient judaism (up to Rabbi Akiva) was a syncretic attempt by the Alexandrians and then Romans to pacify the jews (who were then Celts) [^25]. 
 
 #### 2.2.1 Alexandria
 
