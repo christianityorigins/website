@@ -228,9 +228,9 @@ Persia and Rome, religion served as a key instrument of imperial
 control, using syncretism to create a compliant population that served
 the interests of the ruling elite. These elites employed religion, as well
 as an incredible number of regional aliases, locations, fictional
-stories, and fabricated deaths for their family members to control the
+stories, faked adoptions, and fabricated deaths for their family members to control the
 population. They role-played as deities, religious figures, and
-various characters as if they were actors in a play. This was done to obscure the fact that the people were ruled by dynasties and to give the population an illusion of upward social mobility or implanting a sense of false hope. It is impossible for any religion to have have sprug up organically. The royal families controlled the dissemenation of religious texts, and the punishment for spreading a religion that might compete with an imperial cult was death.
+various characters as if they were actors in a play. This was done to obscure the fact that the people were ruled by hereditary dictatorships and to give the population an illusion of upward social mobility or implanting a sense of false hope. It is impossible for any religion to have have sprug up organically. The royal families controlled the dissemenation of religious texts, and the punishment for spreading a religion that might compete with an imperial cult was death.
 
 The figure of Jesus Christ (of Nazareth) was a literary creation of these elites, incorporating elements of various historical and mythological figures to appeal to a wide audience. This character then became an avatar for several historical figures in an imperial cult.
 
@@ -274,7 +274,7 @@ sister of Asander. He was also a cousin of Dynamis.
 
 Cleopatra aka Dynamis's son with Julius Caesar aka Asander = Tiberius
 Julius Aspurgus Philoromaios, who was born about the same time as
-Caesarion and Emperor Tiberius Julius Caesar (Mark Antony = Tiberius Claudius Nero, emperor Tiberius's father, so he likely adopted Julius Caesar/Asander's child and he took his name and titles).
+Caesarion.
 
 Cleopatra aka Dynamis's son with Mark Antony [^7](aka King Herod aka
 Tiberius Claudius Nero aka Phraates IV of Parthia) = Alexander Helios
@@ -291,6 +291,8 @@ translates to 'moon' in Greek).
 Cleopatra aka Dynamis's son with Mark Antony (aka King Herod aka
 Tiberius Claudius Nero aka Phraates IV of Parthia) = Ptolemy
 Philadelphus who was Sampsiceramus I?
+
+Mark Antony's (aka King Herod aka Tiberius Claudius Nero aka Phraates IV of Parthia) son with Livia Drusilla = emperor Tiberius Julius Caesar Augustus (the way to make this connection and prove his King Herod regional identity is through the equivalence of Doris the first wife of Herod the Great and Livia Drusilla the second wife of Octavius/Caesar Augustus. Augustus was first married to Scribonia, but was divorced and he became engaged to Livia Drusilla (Doris), who was at the time pregnant, not by Augustus but by her own first husband Tiberius Claudius Nero, praetor of 41 BC and son of another Tiberius Claudius Nero, praetor of 62 BC).
 
 Cleopatra aka Dynamis's grandson with Mark Antony (aka King Herod aka
 Tiberius Claudius Nero aka Phraates IV of Parthia) = Alexander (grandson
@@ -1318,9 +1320,7 @@ https://auctions.stacksbowers.com/lots/view/3-US7SY/julius-caesar-ar-denarius-39
 --Juba II (Cleopatra VII and Mark Antony's son) also used the star and crescent symbol: https://www.vcoins.com/en/stores/den_of_antiquity/48/product/mauretania_juba_ii_ar_denarius/1952816/Default.aspx  [[link](https://www.vcoins.com/en/stores/den_of_antiquity/48/product/mauretania_juba_ii_ar_denarius/1952816/Default.aspx )] \
 
 
-[^5]: 
-
-    His name alludes to the Mithras cult. Mithraism was spread by Tiridates of Armenia (alias of Alexander, grandson of King Herod, Mithridates Chrestus descendant?) after Rome's defeat of Parthia around 53 AD as a slave-morality religion to subjugate the Parthians. Mithras is inspired from Zoroastrianism, the religion of the Persians/Parthians, but Mithras is the same as Sabazios. It's a solar son deity, a Jupiter (Mithridates Chrestus's descendant carried the title Monobazus aka Manu-Sabazios). The Mithras cult has many similarities to Christianity; Mithras was born of a virgin, Mithras' birth was celebrated on December 25, Mithras was considered a savior and redeemer, etc., although all these traits are 'de jure' of saviors in ancient religions, probably because they all came from the 'Alexandrian School' in Egypt. The Serapis cult, Gnosticism, Valentinianism, Christianity, Hermeticism, Mithraism, Manichaeism, Mandaeism, and many other religions came from the Alexandrian School. The Sibylline Oracles were the blueprint for these religions./
+[^5]: His name alludes to the Mithras cult. Mithraism was spread by Tiridates of Armenia (alias of Alexander, grandson of King Herod, Mithridates Chrestus descendant?) after Rome's defeat of Parthia around 53 AD as a slave-morality religion to subjugate the Parthians. Mithras is inspired from Zoroastrianism, the religion of the Persians/Parthians, but Mithras is the same as Sabazios. It's a solar son deity, a Jupiter (Mithridates Chrestus's descendant carried the title Monobazus aka Manu-Sabazios). The Mithras cult has many similarities to Christianity; Mithras was born of a virgin, Mithras' birth was celebrated on December 25, Mithras was considered a savior and redeemer, etc., although all these traits are 'de jure' of saviors in ancient religions, probably because they all came from the 'Alexandrian School' in Egypt. The Serapis cult, Gnosticism, Valentinianism, Christianity, Hermeticism, Mithraism, Manichaeism, Mandaeism, and many other religions came from the Alexandrian School. The Sibylline Oracles were the blueprint for these religions./
 
 [^6]: Jesus ben Fabus who was Isa Amen (Jesus Amen) of Rev. iii. 14 who
     was also Amyntas (Amen(tas)) of Galatia who was also Amyntas Nikator
@@ -1333,12 +1333,13 @@ https://auctions.stacksbowers.com/lots/view/3-US7SY/julius-caesar-ar-denarius-39
     [[link](https://ranajitpal-jesus-from-asia-minor.blogspot.com/2011/06/jesus-christ-was-amyntas-of-galatia_20.html)])
 
 [^7]: The name Herod likely derives from the amalgamation of Horus and
-    Hercules. Mark Antony claimed descent from Hercules and declared
+    Hercules (Herakles in Greek). Mark Antony claimed descent from Hercules and declared
     himself an incarnation of Horus. Herod became king of judaea around the time of Mark Antony's "suicide". This is typical for these elites, they would kill off one character and then assume another one in a different location as if they were actors in a play\
     --The Shekel of Tyre that King
     Herod minted depicts Mark Antony and an image of Hercules:
     https://www.forumancientcoins.com/numiswiki/view.asp?key=tyrian%20shekels
-    [[link](https://www.forumancientcoins.com/numiswiki/view.asp?key=tyrian%20shekels)]. Herod also built a number of temples and shrines dedicated to Hercules, including one in Beirut and another in Tyre. He also depicted himself as Hercules in his Herodian Cult. King Herod's son, Herod Antipas,has the same name as Mark Antony's son, Antyllus.
+    [[link](https://www.forumancientcoins.com/numiswiki/view.asp?key=tyrian%20shekels)]. Herod also built a number of temples and shrines dedicated to Hercules, including one in Beirut and another in Tyre. He also depicted himself as Hercules in his Herodian Cult. King Herod's son, Herod Antipas, has the same name as Mark Antony's son, Antyllus, King Herod's other son Antipater was Iullus Antonius, Mark Antony's son with Fulvia. The wife of Iullus Antonius is called Marcella daughter of Octavian/Augustus’ sister Octavia. Fulvia and Antony also are said to have had two daughters, Antonia I and Antonia II. Caligula and Claudius were descendants of Antonia I. Probably Antonia I and/or II was the sister of Herod the Great called Salome. Probably there is also a connection between "Costabar" husband of Salome and the Roman "Ahenobarbus" who married Antonia I.
+    --Mark Antony (King Herod) = Tiberius Claudius Nero. The way to make this connection is through the equivalence of Doris the first wife of Herod the Great and Livia Drusilla the second wife of Octavius/Caesar Augustus. Augustus was first married to Scribonia, but not happily. In 39 BC she gave birth to a daughter, Julia, but was divorced by Augustus. In the same year he became engaged to Livia Drusilla, who was at the time pregnant, not by Augustus but by her own first husband. That husband was Tiberius Claudius Nero, praetor of 41 BC and son of another Tiberius Claudius Nero, praetor of 62 BC. Tiberius Claudius Nero and Livia Drusilla's son was emperor Tiberius Julius Caesar Augustus.
 
 [^8]: Jesus ben Gamala/Gamaliel aka Jesus ben Sapphias was also King
     Izas Ma'nu (Jesus Emmanuel) Monobazus of Adiabene aka Yeshua
