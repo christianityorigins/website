@@ -308,7 +308,7 @@ Alexandria'.
 
 Alexander (grandson of King Herod) and his sister wife Cleopatra (Thea
 Philopator) of Mauretania had two sons: Tiberius Julius Alexander aka
-Arrius Calpernius Piso aka Arrius Varus aka Tiberius Julius Cotys (In Thracian, "Cotys" is related to the word "kotys" which means "lord") aka
+Arrius Calpernius Piso aka Arrius Varus aka Tiberius Julius Cotys (In Thracian, "Cotys" is related to the word "kotys" which is a title that means "lord") aka
 Emperor Nerva, and Marcus Julius Alexander aka Yeshua Cleopatros
 (Cantheras/Panthera) ben Josephus bar Menneus aka Ma'nu of
 Adiabene/Edessa aka Ptolemy aka Yakov Zu Tolomoy aka Izates aka Jesus
@@ -330,9 +330,8 @@ source: The Alexander Mosaic, Huqoq, Israel.
 Fig. 1.5. Tiberius Julius Sauromates II, King of Bosphorus, who was the
 son of Tiberius Julius Cotys (aka Tiberius Julius Alexander aka Arrius
 Calpernius Piso aka Arrius Varus aka Emperor Nerva), great-grandson of
-Dynamis aka Cleopatra and Mark Antony. Does he look familiar? Sauromates
-is a Greek rendering of "Sarmatian", refering to the Scythian tribe who
-came from the Pontic steppe.
+Dynamis aka Cleopatra and Mark Antony. Does he look familiar? ΒΑCΙΛΕΩC CΑVΡΟΜΑΤΟΥ in the above coin translates to "King of the Sauromatians". Sauromates
+is a Greek rendering of "Sarmatian", refering to the Scythian tribe who came from the Pontic steppe.
 
 One name that shows up in the family trees of all the people listed
 above is Simon Boethus who I identify as (king/Tetrarch) Ptolemy
@@ -487,7 +486,7 @@ Endnotes (Chapter 1)
     simply the same relgion that they were already worshiping, and
     because of widespread illiteracy at the time, they had no idea what
     garbage was inside the bible.\
-(b) Suetonius (Divus Julius 88) notes Caesar’s comet or "Julian Star" (or Sidus Iulium) rose during his funeral games, interpreted as his soul’s ascent—eerily similar to Christ’s resurrection narrative. 
+(b) Suetonius (Divus Julius 88) notes Caesar’s comet or "Julian Star" (or Sidus Iulium) rose during his funeral games, interpreted as his soul’s ascent—eerily similar to Christ’s resurrection narrative. \
 (c) The Letter to Flora and the Tripartite Tractate write about a
     Gnostic teacher called "Ptolemy" who I identify as Ptolemy Menneus
     aka Simon Boethus aka Simon Magus.\
@@ -496,8 +495,7 @@ Endnotes (Chapter 1)
     (King Herod) (The Royal Ancestry of Emperor Vespasian (The Royal
     Ancestry of Emperor Vespasian. Henry Davis,
     https://www.henryhdavis.com/theroyalancestryofemperorvespasian
-    [[link](https://www.henryhdavis.com/theroyalancestryofemperorvespasian)])\
-(f) The inscription on the coin of Tiberius Julius Sauromates II, King of Bosphorus, in Fig. 1.5. above is: ΒΑCΙΛΕΩC CΑVΡΟΜΑΤΟΥ. This translates directly to 'King of the lizard-eye people'. Do a Google image search for "Vatican Meeting Hall". Notice the lizard eyes? Is this a tacit admission that the Vatican knows Tiberius Julius Sauromates II was the jesus avatar that the bible was built around? P.S. I don't think the inscription should be taken literally. Sauromates is a Greek rendering of Sarmatian which refers to the Scythian tribe who came from the Pontic steppe. They were called the lizard people because of their military formation, or scales on their armor. 
+    [[link](https://www.henryhdavis.com/theroyalancestryofemperorvespasian)])\ 
 
 ### Chapter 2: The Origins of Judaism
 
