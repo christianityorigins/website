@@ -308,7 +308,7 @@ Alexandria'.
 
 Alexander (grandson of King Herod) and his sister wife Cleopatra (Thea
 Philopator) of Mauretania had two sons: Tiberius Julius Alexander aka
-Arrius Calpernius Piso aka Arrius Varus aka Tiberius Julius Cotys aka
+Arrius Calpernius Piso aka Arrius Varus aka Tiberius Julius Cotys (In Thracian, "Cotys" is related to the word "kotys" which means "lord") aka
 Emperor Nerva, and Marcus Julius Alexander aka Yeshua Cleopatros
 (Cantheras/Panthera) ben Josephus bar Menneus aka Ma'nu of
 Adiabene/Edessa aka Ptolemy aka Yakov Zu Tolomoy aka Izates aka Jesus
@@ -320,7 +320,7 @@ Fig. 1.4. (L) and (R) show King Izates Monobazus of Edessa (known in
 Greek as the 'Kingdom of Ourania' or in English as the 'Kingdom of
 Heaven') wearing a crown of thorns. Izates or Izas is his title which is
 an ancient Greek translation of the Avestan word Yazatas (Persian:
-izad), meaning lord. He is one of the Jesus avatars, Isa in the Quran,
+izad), meaning "lord". He is one of the Jesus avatars, Isa in the Quran,
 and Sultan Ezid in the Yazadi ('Iza'di) religion. He was the uncle of
 Tiberius Julius Sauromates II, King of Bosphorus. The middle image
 source: The Alexander Mosaic, Huqoq, Israel.
