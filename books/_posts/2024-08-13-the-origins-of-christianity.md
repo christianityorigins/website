@@ -292,7 +292,7 @@ Cleopatra aka Dynamis's son with Mark Antony (aka King Herod aka
 Tiberius Claudius Nero aka Phraates IV of Parthia) = Ptolemy
 Philadelphus who was Sampsiceramus I?
 
-Mark Antony's (aka King Herod aka Tiberius Claudius Nero aka Phraates IV of Parthia) son with Livia Drusilla = emperor Tiberius Julius Caesar Augustus (the way to make this connection and prove his King Herod regional identity is through the equivalence of Doris the first wife of Herod the Great and Livia Drusilla the second wife of Octavius/Caesar Augustus. Augustus was first married to Scribonia, but was divorced and he became engaged to Livia Drusilla (Doris), who was at the time pregnant, not by Augustus but by her own first husband Tiberius Claudius Nero, praetor of 41 BC and son of another Tiberius Claudius Nero, praetor of 62 BC).
+Mark Antony's (aka King Herod aka Tiberius Claudius Nero aka Phraates IV of Parthia) son with Livia Drusilla = emperor Tiberius Julius Caesar Augustus (one way to make this connection and prove his King Herod regional identity is through the equivalence of Doris the first wife of Herod the Great and Livia Drusilla the second wife of Octavius/Caesar Augustus. Augustus was first married to Scribonia, but was divorced and he became engaged to Livia Drusilla (Doris), who was at the time pregnant, not by Augustus but by her own first husband Tiberius Claudius Nero, praetor of 41 BC and son of another Tiberius Claudius Nero, praetor of 62 BC).
 
 Cleopatra aka Dynamis's grandson with Mark Antony (aka King Herod aka
 Tiberius Claudius Nero aka Phraates IV of Parthia) = Alexander (grandson
