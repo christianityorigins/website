@@ -409,10 +409,9 @@ star' in ancient Hebrew) was the 'messiah' during the Bar Kokhba revolt.
 
 Two years before the Bar Kokhba revolt emperor Hadrian created a
 religion to deify his underage gay lover as the son of god
-(Osiris-Antinous) called 'The Cult of Antinous' [^13]. Historian Cassius
+(Osiris-Antinous) called 'The Cult of Antinous' [^13]. The name "Antinous” is an obvious indication of descent from the Antonii line and that he was a descendant of Mark Antony himself, not a random adoption. The use of “-ninus” is really the Greek “nini”, which is “baby” or infant. Historian Cassius
 Dio claims that Antinous was offered as a human sacrifice to Hadrian
-[^14] and later was 'resurrected'. The Cult of Antinous actually rivaled
-christianity as the biggest cult in the empire for a couple of
+[^14] and later was "resurrected". Antinous was likely Emperor Titus Aelius Hadrianus Antoninus Pius, who was adopted by Hadrian and was his successor, and the cult of Antinous was his imperial cult. The Cult of Antinous was actually the biggest cult in the empire for a couple of
 centuries. One of the scribes for this cult was Aquila of Sinope aka
 Onkelos who was a kinsman of the Roman emperor Hadrian. The midrash
 (Tanhuma. 41a, Mishpatim 3) claims that Onkelos was a nephew of Hadrian
