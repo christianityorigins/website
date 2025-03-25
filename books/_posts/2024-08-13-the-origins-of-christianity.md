@@ -331,7 +331,7 @@ Fig. 1.5. Tiberius Julius Sauromates II, King of Bosphorus, who was the
 son of Tiberius Julius Cotys (aka Tiberius Julius Alexander aka Arrius
 Calpernius Piso aka Arrius Varus aka Emperor Nerva), great-grandson of
 Dynamis aka Cleopatra and Mark Antony. Does he look familiar? ΒΑCΙΛΕΩC CΑVΡΟΜΑΤΟΥ in the above coin translates to "King of the Sauromatians". Sauromates
-is a Greek rendering of "Sarmatian", refering to the Scythian tribe who came from the Pontic steppe.
+is a Greek rendering of "Sarmatian", refering to the Scythian tribe who came from the Pontic steppe. "Saur" means "lizard" or "reptile", and "mates" means "man" or "warrior". Therefore, translated literallly ΒΑCΙΛΕΩC CΑVΡΟΜΑΤΟΥ means to "King of the lizard people", or "king of the reptile people". The Sarmatians were known for their use of scale armor, and this is where the reference comes from. 
 
 One name that shows up in the family trees of all the people listed
 above is Simon Boethus who I identify as (king/Tetrarch) Ptolemy
