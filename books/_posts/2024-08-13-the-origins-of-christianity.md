@@ -401,11 +401,11 @@ of rabbi's who were headed by a rabbi named Akiva.
 
 My research on the origins of Christianity takes me to the Bosphorus river in classical Anatolia (Julius Caesar = Asander, King of Bosphorus, and Cleopatra = Dynamis). This is incongruent to mainstream history. However, there are a few revisionist authors such as Anatoly Fomenko and Gunnar Heinsohn who make the claim that the Western Roman Empire is a duplicate of the Eastern Roman Empire not the other way around and that much of the history of the Western Roman Empire was conjured up by the Church Fathers, Jesuits, Joseph Justus Scaliger, and medieval forgers, either to retrofit history to align with the Bible, due to conflicts between the Vatican and the Eastern Byzantine Church, or for profit.
 
-The area of modern-day Istanbul was once called 'Basileía tôn Rhômaíôn' ('Kingdom of the Romans') and the people of that region called themsevles Rhōmaîoi (Romans). Historians assume that region got it's name after Roman colonization, but why? Every romance language based on Latin underwent a linguistic evolution except Romanian, which is the closest language to classical Latin. Could it be that the original Romans hailed from Romania and then moved south to Anatolia? 
+The area of modern-day Istanbul was once called 'Basileía tôn Rhômaíôn' ('Kingdom of the Romans') and the people of that region called themsevles Rhōmaîoi (Romans). Historians assume that region got it's name after Roman colonization, but why? Every romance language based on Latin underwent a linguistic evolution except Romanian, which is the closest language to classical Latin. Could it be that the original Romans hailed from Romania and then moved south to Anatolia? A substantial part of Byzantine coinage from two millenia ago boasts inscriptions in Latin and not in Greek, including the Asander of Bosphorus coin in Fig. 1.1.
 
 There is genetic and historical evidence proving the Rome on the Bosphorus theory. Rome was founded by Italic tribes of "Indo-Europeans”. However, this is where academic definitions fail because those founders of Rome were actually 85%+ Anatolian Early European Farmer (EAF). The Etruscans who established Rome were invaders from Anatolia, and the Carians who hailed from southwest Anatolia have a strong connection with the settlement of Rome (Aquilla = Qos = god of Kos of Caria). 
 
-Fomenko also makes the claim that the original Biblical Jerusalem (the city of Yoros) is situated on the eastern shore of Bosphorus.
+Fomenko also makes the claim that the original Biblical Jerusalem (the city of Yoros) is situated on the eastern shore of Bosphorus, which ties into my theories in Chapter 3.
 
 Endnotes (Chapter 1)
 
