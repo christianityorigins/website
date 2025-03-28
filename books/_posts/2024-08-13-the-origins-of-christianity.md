@@ -21,36 +21,38 @@ Ancient Alias Names List\
 Definitions\
 BOOK I. THE ORIGINS OF CHRISTIANITY\
 Chapter 1: The Creation of Christianity \
-§ 1.1 Imperial Cult\
-§ 1.2 The Cult of Antinous and the Bar Kokhba Revolt (132–136 CE)\
-Chapter 2: The Origins of Judaism\
-§ 2.1 Ethnogenesis of the Jews\
-§ 2.2 The Myth of a Jewish People\
-§ 2.2.1 Alexandria\
-§ 2.2.2 Romanization\
-§ 2.2.3 Shimon bar Yochai\
-§ 2.2.4 Modern Judaism\
-Chapter 3: The Origins of Zoroastrianism\
-§ 3.1 Zoroaster and Jewish Influence\
-§ 3.2 Zoroastrianism’s Impact on Subsequent Religions\
-Chapter 4: The Origins of Buddhism\
-§ 4.1 Buddhism’s Roots in Zoroastrianism\
-§ 4.2 The Hellenization of Buddhism\
-Chapter 5: Alexander the Great\
-§ 5.1 Alexander's Influence on Religious Thought\
-§ 5.2 Alexander as a Prototype for the Jesus Figure\
-Chapter 6: Ancient India\
-§ 6.1 The Asuras and Jewish Influence\
-§ 6.2 The Aryan Invasion and the Evolution of Indian Religions\
-Chapter 7: The Alexandrian School\
-§ 7.1 The Role of the Alexandrian School in Religious Syncretism\
-§ 7.2 The Creation of the Septuagint and Its Impact\
-Chapter 8: The Origins of Gnosticism\
-§ 8.1 Simon Magus and the Creation of Gnosticism\
-§ 8.2 Gnosticism's Influence on Early Christianity\
-Chapter 9: Rome\
-§ 9.1 The Role of the Herodians in Rome\
-§ 9.2 Alexandria, Egypt. 1st Century\
+§ 1.1 Bosporan Imperial Cult\
+§ 1.2 Rome on the Bosphorus? \
+Chapter 2: The Subversion of the Bosporan Imperial Cult \
+§ 2.1 The Cult of Antinous and the Bar Kokhba Revolt (132–136 CE)\
+Chapter 3: The Origins of Judaism\
+§ 3.1 Ethnogenesis of the Jews\
+§ 3.2 The Myth of a Jewish People\
+§ 3.2.1 Alexandria\
+§ 3.2.2 Romanization\
+§ 3.2.3 Shimon bar Yochai\
+§ 3.2.4 Modern Judaism\
+Chapter 4: The Origins of Zoroastrianism\
+§ 4.1 Zoroaster and Jewish Influence\
+§ 4.2 Zoroastrianism’s Impact on Subsequent Religions\
+Chapter 5: The Origins of Buddhism\
+§ 5.1 Buddhism’s Roots in Zoroastrianism\
+§ 5.2 The Hellenization of Buddhism\
+Chapter 6: Alexander the Great\
+§ 6.1 Alexander's Influence on Religious Thought\
+§ 6.2 Alexander as a Prototype for the Jesus Figure\
+Chapter 7: Ancient India\
+§ 7.1 Jewish Influence in India \
+§ 7.2 The Evolution of Indian Religions \
+Chapter 8: The Alexandrian School\
+§ 8.1 The Role of the Alexandrian School in Religious Syncretism\
+§ 8.2 The Creation of the Septuagint and Its Impact\
+Chapter 9: The Origins of Gnosticism\
+§ 9.1 Simon Magus and the Creation of Gnosticism\
+§ 9.2 Gnosticism's Influence on Early Christianity\
+Chapter 10: Rome (Italy) \
+§ 10.1 The Role of the Herodians in Rome\
+§ 10.2 Alexandria, Egypt. 1st Century\
 APPENDICES\
 Appendix A. How Did Christianity Spread So Rapidly?\
 Appendix B. Expulsions from Rome for Trying to Spread Religions\
@@ -67,7 +69,7 @@ Over two millennia ago, the term 'Jew' denoted the Iudii or Iudaei, a Celtic tri
 
 Then, sometime after the Bar Kokhba Revolt (132--136 CE), a group of Romans that included Gamaliel/St. Gamaliel aka Tiberius Gemellus who was a grandson of Emperor Tiberius and a cousin of Emperor Caligula, a Rabbi named Akiva (Epictetus?), Aquila of Sinope aka Onkelos who was a nephew of emperor Hadrian, Markianos of Alexandria aka Marcion of Sinope, Simon ben Yohai, Ketia bar Shalom aka Titus Flavian Clemens who was a cousin of the emperor Domitian aka 'Clement of Rome', Rabbi Meir who was the grandson of emperor Nero, and Pliny the Younger aka Bishop Ignatius of Antioch aka Polycarp (likely also Paul the Apostle), and all of them working on behalf of emperor Hadrian, tried to subvert this group further by adding a slave-morality to the slave-morality religion.
 
-After a year of research, I have concluded that much of what we know of history from antiquity and earlier was fabricated by the Church Fathers, Jesuits, Joseph Justus Scaliger, and medieval forgers, either to retrofit history to align with the Bible, due to conflicts between the Vatican and the Eastern Byzantine Church, or for profit. Consequently, my research methodologies are multifaceted, encompassing revisionist historiography, counter-narrative analysis, and historical deconstruction. The primary sources that inspired my research are listed in the 'Further Reading' section at the end of the book.
+My research methodologies are multifaceted, encompassing revisionist historiography, counter-narrative analysis, and historical deconstruction. The primary sources that inspired my research are listed in the 'Further Reading' section at the end of the book.
 
 Ancient Alias Names List
 ---------------------
@@ -235,7 +237,7 @@ The figure of Jesus Christ (of Nazareth) was a literary creation of these elites
 
 Julius Caesar was the first 'Jesus' (I(J)upiter-Zeus (I-Zeus-> Izeus-> Iseus)). The Romans used a system called 'interpretatio romana' to associate their gods with local ones as part of their colonial program. Julius Caesar, as the claimed 'son of I(J)upiter' (there was no J in Latin) would have been Iupiter-Zeus to let the Greeks know that Iupiter and Zeus were equivalent deities (Roman Jupiter and Greek Zeus both derive from the Aryan skyfather 'Dyeus Pter'. The name Zeus comes from the pronunciation of Dyeus, and Jupiter comes from the pronunciation of 'Dyeus Pter'). Then subsequent emperors took on this role. I-Zeus (Izeus) eventually phonetically shifted to I-zas/Izas/Izates.\
 
-#### 1.1 Imperial Cult
+#### 1.1 Bosporan Imperial Cult
 
 There was a Byzantine [^1] imperial cult where Julius Caesar [^2] took
 on the role of Asander, King of Bosphorus [^3] (the city of Byzantine,
@@ -395,7 +397,48 @@ It is likely that each Roman emperor after Julius Caesar took on the I(J)upiter-
 Then, after the Bar Kokhba Revolt (132--136 CE), this imperial slave-morality cult was subverted by a confederation
 of rabbi's who were headed by a rabbi named Akiva.
 
-#### 1.2 The Cult of Antinous and the Bar Kokhba Revolt (132--136 CE)
+#### 1.2 Rome on the Bosphorus?
+
+My research on the origins of Christianity takes me to the Bosphorus river in classical Anatolia (Julius Caesar = Asander, King of Bosphorus, and Cleopatra = Dynamis). This is incongruent to mainstream history. However, there are a few revisionist authors such as Anatoly Fomenko and Gunnar Heinsohn who make the claim that the Western Roman Empire is a duplicate of the Eastern Roman Empire not the other way around and that much of the history of the Western Roman Empire was conjured up by the Church Fathers, Jesuits, Joseph Justus Scaliger, and medieval forgers, either to retrofit history to align with the Bible, due to conflicts between the Vatican and the Eastern Byzantine Church, or for profit.
+
+The area of modern-day Istanbul was once called 'Basileía tôn Rhômaíôn' ('Kingdom of the Romans') and the people of that region called themsevles Rhōmaîoi (Romans). Historians assume that region got it's name after Roman colonization, but why? Every romance language based on Latin underwent a linguistic evolution except Romanian, which is the closest language to classical Latin. Could it be that the original Romans hailed from Romania and then moved south to Anatolia? 
+
+There is genetic and historical evidence proving the Rome on the Bosphorus theory. Rome was founded by Italic tribes of "Indo-Europeans”. However, this is where academic definitions fail because those founders of Rome were actually 85%+ Anatolian Early European Farmer (EAF). The Etruscans who established Rome were invaders from Anatolia, and the Carians who hailed from southwest Anatolia have a strong connection with the settlement of Rome (Aquilla = Qos = god of Kos of Caria). 
+
+Fomenko also makes the claim that the original Biblical Jerusalem (the city of Yoros) is situated on the eastern shore of Bosphorus.
+
+Endnotes (Chapter 1)
+
+(a) The symbol of the cross, Celtic cross/high cross/sun cross/solar
+    wheel, et.al., which predate christianity by thousands of years
+    (Callanish Stones. Wikipedia,
+    https://en.wikipedia.org/wiki/Callanish_Stones
+    [[link](https://en.wikipedia.org/wiki/Callanish_Stones)]), was a
+    prominant symbol in ancient Europe. The circle is a sunwheel that
+    together with the cross served as a sundial that had markings to
+    track the time, date, and lunar and agricultural cycles. Also, in
+    portable form it was a sundial clock and compass. Although not a
+    religious symbol, as they were astronomical tools, every city in
+    ancient Europe would have had a large cross raised at its center in
+    the same way that every city today has a clock tower at it's center.
+    So you can see how christianity spread throughout Europe, through
+    subversion. Most Europeans must have thought that christianity was
+    simply the same relgion that they were already worshiping, and
+    because of widespread illiteracy at the time, they had no idea what
+    garbage was inside the bible.\
+(b) Suetonius (Divus Julius 88) notes Caesar’s comet or "Julian Star" (or Sidus Iulium) rose during his funeral games, interpreted as his soul’s ascent—eerily similar to Christ’s resurrection narrative. \
+(c) The Letter to Flora and the Tripartite Tractate write about a
+    Gnostic teacher called "Ptolemy" who I identify as Ptolemy Menneus
+    aka Simon Boethus aka Simon Magus.\
+(d) Vespassian was also a great-grandson of Cleopatra and Mark Antony
+    (King Herod) (The Royal Ancestry of Emperor Vespasian (The Royal
+    Ancestry of Emperor Vespasian. Henry Davis,
+    https://www.henryhdavis.com/theroyalancestryofemperorvespasian
+    [[link](https://www.henryhdavis.com/theroyalancestryofemperorvespasian)])\ 
+
+### Chapter 2: The Subversion of the Bosporan Imperial Cult
+
+#### 2.1 The Cult of Antinous and the Bar Kokhba Revolt (132--136 CE)
 
 During the Bar Kokhba revolt a Rabbi in jerusalem named Akiva ben Joseph
 (the name Akiva is related to Jacob/James) who lead the Talmudic
@@ -466,46 +509,16 @@ responsible for burining down the Library of Alexandria which resulted
 in the loss of all recorded history up until that point so that they
 could cover-up the tracks of their psyop religion which was primarily engineered at the Alexandrian School.
 
-Endnotes (Chapter 1)
+### Chapter 3: The Origins of Judaism
 
-(a) The symbol of the cross, Celtic cross/high cross/sun cross/solar
-    wheel, et.al., which predate christianity by thousands of years
-    (Callanish Stones. Wikipedia,
-    https://en.wikipedia.org/wiki/Callanish_Stones
-    [[link](https://en.wikipedia.org/wiki/Callanish_Stones)]), was a
-    prominant symbol in ancient Europe. The circle is a sunwheel that
-    together with the cross served as a sundial that had markings to
-    track the time, date, and lunar and agricultural cycles. Also, in
-    portable form it was a sundial clock and compass. Although not a
-    religious symbol, as they were astronomical tools, every city in
-    ancient Europe would have had a large cross raised at its center in
-    the same way that every city today has a clock tower at it's center.
-    So you can see how christianity spread throughout Europe, through
-    subversion. Most Europeans must have thought that christianity was
-    simply the same relgion that they were already worshiping, and
-    because of widespread illiteracy at the time, they had no idea what
-    garbage was inside the bible.\
-(b) Suetonius (Divus Julius 88) notes Caesar’s comet or "Julian Star" (or Sidus Iulium) rose during his funeral games, interpreted as his soul’s ascent—eerily similar to Christ’s resurrection narrative. \
-(c) The Letter to Flora and the Tripartite Tractate write about a
-    Gnostic teacher called "Ptolemy" who I identify as Ptolemy Menneus
-    aka Simon Boethus aka Simon Magus.\
-(d) A few revisionist authors such as Anatoly Fomenko and Gunnar Heinsohn make the claim that the Western Roman Empire is a duplicate of the Eastern Roman Empire not the other way around and that much of the history of the Western Roman Empire was conjured up by the Jesuits and Joseph Justus Scalinger. It is true that the area of modern-day Istanbul was once called 'Basileía tôn Rhômaíôn' ('Kingdom of the Romans') and the people of that region called themsevles Rhōmaîoi (Romans). Fomenko also makes the claim that the original Biblical Jerusalem (the city of Yoros) is situated on the eastern shore of Bosphorus. My own research on the origins of Christianity take me to the Bosphorus as well (Julius Caesar = Asander, King of Bosphorus, and Cleopatra = Dynamis). So, maybe there is an element of truth in his theories?. \    
-(e) Vespassian was also a great-grandson of Cleopatra and Mark Antony
-    (King Herod) (The Royal Ancestry of Emperor Vespasian (The Royal
-    Ancestry of Emperor Vespasian. Henry Davis,
-    https://www.henryhdavis.com/theroyalancestryofemperorvespasian
-    [[link](https://www.henryhdavis.com/theroyalancestryofemperorvespasian)])\ 
-
-### Chapter 2: The Origins of Judaism
-
-To understand Christianity it is necessary to explain its precursors and
+To fully understand the Christian religion it is necessary to explain its precursors and
 the context in which they were created.
 
-#### 2.1 Ethnogenesis of the Jews
+#### 3.1 Ethnogenesis of the Jews
 
-Modern day jews evolved from the mixture of Celtic Cimbri and Galatians from Anatolia [^20], Neolithic proto-Sicilians who originated in Anatolia [^21], native Canaanites (who were literal human-neanderthal hybrids) [^22], and proto-Arab-Natufian hybrids.
+Modern day jews evolved from the mixture of Celtic Cimbri and Galatians from Anatolia [^20], Neolithic proto-Sicilians who originated in Anatolia [^21], native Canaanites (who were literal human-neanderthal hybrids) [^22], and proto-Arab Natufians (Natufians had ~20% higher Basal Eurasian -- Basal means with SSA, North Africa was green/fertile so sub-saharin Africans could cross the Sahara).
 
-The original redhead clan of Druids that ended up becoming Israelites were Scythians who migrated southwards during the early Aryan invasion of 4000 BC. Scythian --> Saka --> Isaac. This migration coincides with the development of early bronze age civilization. They went to Anatolia first (Galatia) [^23], then Babylon, then Canaan ('Gaulinitis' = Golan Heights). In Canaan, the natives then came under the suzerainty of these Celts and their entire identity, language, and religion derives from this. The evidence for this is paternal DNA assays (Celtic R1b haptype is present in 20% of ashkenazi jews, other common paternal haplotypes are J2 (17% of ashkenazi), I (4% of ashkenazi) , R1a (10% of ashkenazi)), the fact that the Celtic languages are surprisingly Semitic with a verb-subject-object word order and a shocking amount of vocabulary overlap, and the name of Irish deities, Balor and his holiday Beltaine are cognate to Bal and Elatha the Irish Uranus is cognate to Hebrew El. There was an ancient Celtic conquerer named 'Ram the Druid' and Abraham = Ab Ram, or 'Ab אֲב (father) of Ram', he was also Ra in Egyptian mythology, the basis of the name 'Ram'esses in Egypt, Ram the Aries, Rama in the Vedas, Brahmin caste in India refers to him, and Lama in Tibet. King David (DWD) = King Druid. The name Israel itself is named after Osiris (Aesir), the southeasternmost grand Druid (in Phoenician, the name 'Osiris' is written as 'Usr' or 'Ysr', which becomes the Hebrew 'Yisrael'. Osiris is depicted as having green skin, ie. he is the 'Druid green man'). As for the name 'jew', the descriptive name Judaism was never used by the Hebrews or Israelites; it appears only with Christianity. It comes from Yahud or Auda which comes from Iodh or Ioux. Iodh and Ioux are associated with the yew tree in Druidism and is sometimes linked to the concept of rebirth and regeneration. There was also an ancient Celtic tribe known as the Iudii or Iudaei, who inhabited the region of Gaul (modern-day France) and Britain. The ancient Celtic prefixes 'Rab' or 'Rhab' mean 'wise one' or 'seer', and a Druid equates to a Rabbi.
+The original redhead clan of Druids that ended up becoming Israelites were Scythians who migrated southwards during the early Aryan invasion of 4000 BC. Scythian --> Saka --> Isaac. This migration coincides with the development of early bronze age civilization. They went to Anatolia first (Galatia) [^23], then Babylon, then Canaan ('Gaulinitis' = Golan Heights). In Canaan, the natives then came under the suzerainty of these Celts and their entire identity, language, and religion derives from this. The evidence for this is paternal DNA assays (Galatian Celts carried the Celtic R1b haploytpe (10% of Ashkenazi jews), but also R1a, G2a, J2a, which are other paternal lineages that make up the bulk of jews paternal haplotypes), the fact that the Celtic languages are surprisingly Semitic with a verb-subject-object word order and a shocking amount of vocabulary overlap, and the name of Irish deities, Balor and his holiday Beltaine are cognate to Bal and Elatha the Irish Uranus is cognate to Hebrew El. There was an ancient Celtic conquerer named 'Ram the Druid' and Abraham = Ab Ram, or 'Ab אֲב (father) of Ram', he was also Ra in Egyptian mythology, the basis of the name 'Ram'esses in Egypt, Ram the Aries, Rama in the Vedas, Brahmin caste in India refers to him, and Lama in Tibet. King David (DWD) = King Druid. 1 Samuel 16:12 claims that King David had red hair. The name Israel itself is named after Osiris (Aesir), the southeasternmost grand Druid (in Phoenician, the name 'Osiris' is written as 'Usr' or 'Ysr', which becomes the Hebrew 'Yisrael'. Osiris is depicted as having green skin, ie. he is the 'Druid green man'). As for the name 'jew', the descriptive name Judaism was never used by the Hebrews or Israelites; it appears only with Christianity. It comes from Yahud or Auda which comes from Iodh or Ioux. Iodh and Ioux are associated with the yew tree in Druidism and is sometimes linked to the concept of rebirth and regeneration. There was also an ancient Celtic tribe known as the Iudii or Iudaei, who inhabited the region of Gaul (modern-day France) and Britain. The ancient Celtic prefixes 'Rab' or 'Rhab' mean 'wise one' or 'seer', and a Druid equates to a Rabbi.
 
 As for the term 'Hebrew", it comes from the Celts who called themselves Iberi. The name of Abaris the Hyperborean, a Druid priest who was Pythagoras's teacher, who was the son of Seuthes (Seth), shows this. The term Abaris was inspired by the Semitic Iber. Iber was sometimes rendered as Aber or Heber and is pronounced as Hebrew in the Hebrew languages. Hyperborea, which just like Atlantis, was another name for Ireland. The word Atlantis means ‘The Island of Atlas’. The titan Atlas was a key figure in Greek mythology and is depicted as being the  bearer of the heavens. According to early Greek mythology, Atlas lived on the island of Hyperborea. Over time Hyperborea became Hybernia or Hibernia, the Roman name for Ireland. Iber is an ethnonym that shows up in areas where the Celtic people settled (Ebro river, Iberia, Hibernia, etc.). Dionysius of Alexandria in Egypt (ca. 190-264 CE) also referred to the inhabitants of Britain as Iberi.
 
@@ -513,15 +526,15 @@ As for the term 'Hebrew", it comes from the Celts who called themselves Iberi. T
 
 These Celtic males mixed with Neolithic Anatolian woman before their descendants moved into Egypt (Apiru or Habiru) and Caanan and then mixed with indigenous people in those places.
 
-#### 2.2 The Myth of a Jewish People
+#### 3.2 The Myth of a Jewish People
 
 All jewish history was made up. Their religion was Celtic Druidism that was Hellenized at the Library of Alexandria and then combined with the Divine Julius cult. So, ancient judaism (up to Rabbi Akiva) was a syncretic attempt by the Alexandrians and then Romans to pacify the jews (who were then Celts) [^25]. 
 
-#### 2.2.1 Alexandria
+#### 3.2.1 Alexandria
 
 It was in Alexandria at the Library of Alexandria where the Pentateuch and Septuagint were written. See: Chapter 7. The Alexandrian School. Sometime after 283-246 BCE (Ptolemy I Soter's reign) their religion (Druidism) was Hellenized. The myth of the jewish people and the Laws of Moses were based on Plato’s hypothetical colony of Magnesia from his thesis called The Laws (347 BC) in which the proposed charter for the Cretan colony of Magnesia was modeled in large part on Athenian legal and constitutional traditions. Ancestor received law from a deity, hereditary priesthood rather than king, as well as the division into 12 tribes were all part of the formula. Plato's Timaeus (360 BC) is where the story of Abraham comes from. Plato's Timaeus is also the source for Genesis 1-11. Homer's Odysseey was the source of Genesis 24, 42-46 [^26]. The biblical concept of hell was stolen from Plato's Replublic ('Myth of Er'), and the spiritual plane of Heaven is ripped off from Plato's 'World of Forms'. Exodus is just a semitized retcon of Jason and the Argonauts, and the Oracles Against the Nations plagiarize the Sibylline Oracles. The fact that their religion was extremely Hellenized in Alexandria shows that either the jews were trying to ingratiate themselves into the Greek speaking world (oecumene), or that they were so problematic of a population that the Greek 'Ptolemaioi' were trying to civilize and/or subjugate them with religion (child sacrifice of the firstborn on the 8th day at Gehinnom was replaced with circumcision, etc.).
 
-#### 2.2.2 Romanization
+#### 3.2.2 Romanization
 
 Ceasar’s gentilice (surname) was Iulius. We are told by Virgil that it goes back to Ceasar’s supposed ancestor Iulus or Iule, after the ancient Celtic tribe known as the Iudii or Iudaei, who inhabited the region of Gaul (modern-day France) and Britain. I(J)upiter was also called Jove or Iove to the Romans. The Latin pronunciation of Iove would have been Yoh-Way, i.e Yahweh/Yhwh, so Yahweh Saboath, the god of the hebrew bible, is I(J)ove (Roman Zeus) Sabazios (Thracian Zeus). Abel and Cain are just a copy of Romulus and Remus. Judas Iscariot is just a copy of Brutus. 
 
@@ -535,7 +548,7 @@ Suetonius, in 'Divus Julius' (84.:1) states that there were an inordinate amount
 
 This is why several descendants of Roman aristocrats described themselves as 'jewish' despite being ethnically Celtic Gauls or Aryan Sarmatians. For example, Ptolemy (Alexander) bar Menneus/Ptolemy X Alexander I (Simon Boethus) played the role of judaen high priest, Mark Antony played the role of King Herod. Izates of Monobazus (Jesus ben Gamala/Gamaliel aka Jesus ben Sapphias) and Amyntas Nikator aka Amyntas of Galatia (Jesus ben Fabus) played the role of rabbis, Tiberius Gemellus who was a grandson of Emperor Tiberius and a cousin of Emperor Caligula was rabbi Gamaliel/St. Gamaliel, Aquila of Sinope aka Onkelos who was a nephew of emperor Hadrian, Titus Flavian Clemens who was a cousin of the emperor Domitian aka 'Clement of Rome' was Ketia bar Shalom, Rabbi Meir who was the grandson of emperor Nero, Philo of Alexandria was 'Philo the Jew', her brother-husband Tiberius Julius Alexander identified as Jewish, etc. 'Jew' at the time meant Celtic Druid of the Iudii or Iudaei tribe.
 
-####  2.2.3 Shimon bar Yochai
+####  3.2.3 Shimon bar Yochai
 
 Although judaism was an Alexandrian School attempt at subverting the jews religion to assimilate them (who at the time may have been primarily Celtic male - Neolithic Anatolian woman mixes, or at least governed by these people), and then a Roman attempt to subvert them by incorporating the Roman imperial cult slave-morality into their religion, I suspect that Shimon bar Yochai, who was one of the students and scribes of Rabbi Akiva, was something approximating a modern day Ashkenazi Jew and he is responsible for the Talmud, 'The Secrets of Shimon bar Yochai', and Islam.
 
@@ -549,15 +562,15 @@ In Jerusalem Talmud Kiddushin, Rabbi Shimon bar Yochai stated: "Kill the best of
 
 King Izates of Monobazus's (Isa in the Quran) son was named 'Zamaris' (Zamaris the Babylonian jew?) and Zamaris has the same meaning as Muhammad. Allah and Muhammad the red-headed warlord were parodies of Attila the Hun and his uncle Ruglia waging war against Rome (Edom) because they wanted the Arabs to attack eastern Rome. So, did Rabbi Simon ben Yohai do a bait-and-switch and instead turned judaism in a group strategy while turning the Adiabene imperial cult into Islam to weaponize the Arabs? It is impossible to get people to abandon their religions for a new one, so he created a sect of one of the popular religions at the time and infused the trojan horse ideology into it.
 
-#### 2.2.4 Modern Judaism
+#### 3.2.4 Modern Judaism
 
 The area of modern israel was wiped out multiple times. Modern jews are a hodgepodge of ethnicities who survided the Bar Kokhba revolt of 132–136 CE. Also, the religion of Modern judaism is a recent invention. Judaism is not the Torah (Old Testament), and has not been for a long time. The Talmud was completed after the New Testament and this is what modern jews follow. Essentially, jews follow the program that Shimon bar Yochai created.\
 
-Endnotes (Chapter 2)
+Endnotes (Chapter 3)
 
 (a) Yohai is a nickname for yochai. The name Yochai means 'YHWAH is gracius' from the Hebrew word Yochanan sometimes transcribed as Johanan. Was he also Johanan the Alexandrian? This would place him in Alexandria at the same time as Markianos of Alexandria
 
-### Chapter 3: The Origins of Zoroastrianism
+### Chapter 4: The Origins of Zoroastrianism
 
 Hippolytos (or: Hippolytus) was a Christian author who speaks of a legend involving the meeting of Pythagoras and Zoroaster of Persia. Aristoxenos, who was a student of Aristotle, wrote the same thing. Druidism was invented by Pythagoras or his teacher Abaris the Hyperborean [^27]. Vedism is the eastern branch of Druidism [^28].
 
@@ -566,14 +579,14 @@ Did Cyrus the Great aka Koroush Kabir (Koroush = 'lord of the sun, kabi = 'grea
 Zoroastrianism is clearly a slave morality. All the troubling aspects of christianity originate in Zoroastrianism:
 monotheistic deity that judges you when you die, eternal hell, universalism, sin/salvation, confession of sins, self-deification to weaponize/empower the lowest castes. Zoroastrianism also has a religious commandment called 'Xwedodah' that commands Zoroastrians to marry and procreate with their siblings, with punishment for not doing so!
 
-#### 3.1 Zoroaster and Jewish Influence
+#### 4.1 Zoroaster and Jewish Influence
 
 Zoroastrianism would go on to influence every slave morality religion
 that came later, including Buddhism and every one that came from the
 Alexandrian School in Egypt, which was a Hellenic school to pump out
 even more slave morality fiction to control the masses.
 
-Endnotes (Chapter 3)
+Endnotes (Chapter 4)
 
 (a) In Isaiah 45:1 the jews called Cyrus "The Anointed One" which in
     Hebrew is "moshiach", often translated as "messiah". In Greek "The
@@ -582,7 +595,7 @@ Endnotes (Chapter 3)
     glorify before all the world, was the promised Messiah, 'the
     shepherd of Yhwh' (xliv. 28, xlv. 1)."\
 
-### Chapter 4: The Origins of Buddhism
+### Chapter 5: The Origins of Buddhism
 
 Gautama Buddha was Gaumata Bardya the son of Cyrus the Great who was the
 one who spread Zoroastrianism. The Persepolis Tablets (PFS 79, PFS 796
@@ -600,7 +613,7 @@ slave-morality that is designed to turn its followers into pacifists and
 submissives and obviously benefited Gaumata Bardya and/or the
 Greco-Bactrians that ruled Bactria. Buddhism and Zoroastrianism were forerunners of Christianity, both weaponized and state sanctioned slave moralities.
 
-#### 4.1 Buddhism's Roots in Zoroastrianism
+#### 5.1 Buddhism's Roots in Zoroastrianism
 
 Symbolism, beliefs, and themes that originate in Zoroastrianism show up
 in Buddhism. For example, Ahura Mazda has also been called Buddha Mazda,
@@ -610,13 +623,13 @@ initiation, vegetarianism, and the use of fire in worship. Both
 religions also share similar prayer practices and ceremonies, such as
 the veneration of ancestors and purification rituals.
 
-#### 4.2 The Hellenization of Buddhism
+#### 5.2 The Hellenization of Buddhism
 
 After its inception, Buddhism was further influenced and spread by the
 Greco-Bactrians. Pyrrho of Elis, who traveled to India with Alexander
 the Great, created Bactrian Buddhism [^31]. This form of Buddhism was repackaged by Ashoka the Great (Diodotus I Soter) in India as a slave morality to subjugate the population.
 
-### Chapter 5: Alexander the Great
+### Chapter 6: Alexander the Great
 
 Alexander the Great was an archetype for the Jesus figure. The jews
 declared him a messiah, or "The Anointed One" (Chréstos/Soter)
@@ -632,7 +645,7 @@ his eyes suddenly arises from the west and smashes both horns of the
 ram. The angel Gabriel tells Daniel this goat represents the kingdom of
 Greece and its large horn is its first king,
 
-#### 5.1 Alexander's Influence on Religious Thought
+#### 6.1 Alexander's Influence on Religious Thought
 
 YHWH = Jehova = Jove (Yoweh is similar to Latin Iove) = Jupiter =
 Ye-Zeus (YHWH + Zeus). Alexander claimed to be the son of Zeus
@@ -645,7 +658,7 @@ Fig. 1.6. Alexander the Great as Zeus Ammon (or Jupiter Ammon), the ram
 god. The Greeks had identified the Egyptian god Ammon with Zeus, the
 Romans identified Ammon with Jupiter.
 
-#### 5.2 Alexander as a Prototype for the Jesus Figure
+#### 6.2 Alexander as a Prototype for the Jesus Figure
 
 Other similarities: according to the first-century A.D. historian
 Plutarch, Alexander's mother Olympias told her son that he had been
@@ -654,7 +667,7 @@ so he was divinely birthed. He died at 33. 'The Son of the Man' is a
 Koine->Aramaic->Koine mistranslation of Alexander and he was the "King
 of Kings" [^32].
 
-Endnotes (Chapter 5)
+Endnotes (Chapter 6)
 
 (a) Alexander indirectly became the Jesus prototype. Julius Caesar
     called himself the Roman Alexander and stole a lot of Alexander's
@@ -685,50 +698,31 @@ Endnotes (Chapter 5)
     (He of Two Horns). His name comes from coins depicting him as Zeus
     Ammon, a two-horned pagan god (see: Fig 1.6.).
 
-### Chapter 6: Ancient India
+### Chapter 7: Ancient India
 
-#### 6.1 The Asuras and Jewish Influence
+The Harappan civilization (Indus Valley civilization) was founded by Neolithic (Med) people from
+Iran. The "Aryan invasion into India" theory probably never happened. The R1a haplotye, Sanskrit language (Avestan language that was Hellinized), and Vedism (Druidism) came from Celtic invaders, then later with the Persians and Greeks (who military would have been mostly Dorians).
 
-The earliest mention of the jews being in India is in the Indian
-religions. They were the Asuras [^40] who were described as power
-seeking demons [^41]. They probably moved east after the Assyrian
-expulsion in 733/2 BCE. Then, several centuries later in the 3rd century
-BC, Aristotle, quoting his pupil Clearchus who traveled to India, and
-recorded in Josephus's Contra Apion, wrote that there were jewish
-"priests" and "philosophers" in India in the 3rd century BC: "Jews are
-derived from the Indian philosophers; they are named by the Indians
-Calami, and by the Syrians Judaei, and took their name from the country
-they inhabit, which is called Judea.". Megasthenes (350 BC - 290 BC)
-recorded the same thing: "the Jews were an Indian tribe or sect called
-Kalani".
+#### 7.1 Jewish Influence in India
 
-#### 6.2 The Aryan Invasion and the Evolution of Indian Religions
+The Jewish scholar Flavius Josephus (37 – 100 AD) quotes from Clearchus’s fragment in his Contra Apionem [Against Apion], in which Aristotle says: “Jews are derived from the Indian philosophers; they are named by the Indians Calami, and by the Syrians Judaei,
+and took their name from the country they inhabit, which is called Judea.” (Book I:22.) [^40]
 
-The Indus Valley civilization was founded by Neolithic (Med) people from
-Iran (Harappan civilization). They mixed with R1a haplotyped Aryan
-invaders from the Pontic Caspian Steppes [^42] who brought the Sanskrit
-language and the ancient Vedas. Was it through the Scythian connection
-that the jews moved into India? Or Cyrus the Great or his son Gaumata?
-Or Alexander the Great? After Alexander, the jews had a Judean based
-Qahal that stretched into Egypt and throughout the Middle East. Did it
-stretch into India as well?
+Megasthenes (350 BC - 290 BC) recorded: "The Jews were an Indian tribe or sect called the Kalani" (also Kaldu).
 
-The Aryan invasion around 1500 BCE introduced new cultural and religious
-ideas into the Indian subcontinent, leading to a blending of indigenous
-beliefs with those of the incoming Aryans. This period saw the
-foundation of Vedic texts, which were heavily influenced by the existing
-cultural practices, including those brought by Jewish settlers.
+Voltaire claimed that Abraham descended from some of the numerous Brahman priests who left India.
 
-The interactions between these groups led to a rich tapestry of beliefs,
-with the Vedic tradition incorporating elements of Jewish thought,
-particularly regarding morality and the nature of the divine. The
-emergence of Hinduism was influenced by these syncretic processes, which
-created a complex religious landscape characterized by myriad deities
-and philosophical schools.
+There was an ancient Celtic conquerer named 'Ram the Druid' and Abraham = Ab Ram, or 'Ab אֲב (father) of Ram', he was also Ra in Egyptian mythology, the basis of the name 'Ram'esses in Egypt, Ram the Aries, Rama in the Vedas, Brahmin caste in India refers to him, and Lama in Tibet. 
 
-Endnotes (Chapter 6)
+These "jews" that made it to India were the Celtic Iudii or Iudaei and the ancient Vedas are just the eastern branch of Druidism. [^41]
 
-(a) A few authors have claimed that the Dravidians were Ethiopians that
+#### 7.2 The Evolution of Indian Religions
+
+After Alexander, the Indian religions further evolved under Ashoka the Great (Diodotus I Soter)  [^42] as slave moralities to subjugate the population.
+
+Endnotes (Chapter 7)
+
+(a) A few authors have claimed that the Dravidians were Ethiopians who
     the jews imported to India via South India and Sri Lanka to work as
     slaves in the spice trade and in the marble mines (also to create
     tribal conflict with the Aryans). Importing them in large numbers
@@ -766,9 +760,9 @@ Endnotes (Chapter 6)
     referring to the tenth day of the month/Yom Kippur, the Day of
     Atonement.
 
-### Chapter 7: The Alexandrian School
+### Chapter 8: The Alexandrian School
 
-#### 7.1 The Role of the Alexandrian School in Religious Syncretism
+#### 8.1 The Role of the Alexandrian School in Religious Syncretism
 
 Alexander the Great's successors ("Diadochi") were Seleucus I Nicator
 who controlled a large chunk of the eastern territories, including
@@ -785,7 +779,7 @@ Egyptian deities like Osiris and Apis  (Serapis = Osiris + Apis =
 Osir-Apis = Ser-Apis) with Greek gods like Zeus, and had an Egyptian
 body and Greek head.
 
-#### 7.2 The Creation of the Septuagint and Its Impact
+#### 8.2 The Creation of the Septuagint and Its Impact
 
 According to the Letter of Aristeas [^45] Ptolemy I Soter summoned 72
 Babylonian Jewish high priests (kohanim) to Alexandria to translate the
@@ -856,7 +850,7 @@ obviously had a positive view of the jews because by Roman times the
 Jews constituted 40% of the population of Alexandria [^56], and members
 of this priestly jewish family carried Ptolemaic royal names.
 
-Endnotes (Chapter 7)
+Endnotes (Chapter 8)
 
 (a) "Alexander had 'planted' a colony of Jews who had increased in
     number until at the beginning of the Christian era they occupied
@@ -874,14 +868,14 @@ Endnotes (Chapter 7)
     Egyptian people to them and flattering Thutmose III and then was
     later retconned for Ptolemy Soter?
 
-### Chapter 8: The Origins of Gnosticism
+### Chapter 9: The Origins of Gnosticism
 
 Platonism was the school of thought that started with Plato's teachings
 and mixed Aristotle, Socrates, and Pythagoras into it. Neo-Platonism was
 popular with the Roman elite. This is why Jews (especially in Alexandria
 Egypt) wanted to infiltrate and subvert it with Gnosticism. 
 
-#### 8.1 Simon Magus and the Creation of Gnosticism
+#### 9.1 Simon Magus and the Creation of Gnosticism
 
 Simon Boethius, a Jewish high priest and heir of the Zadokite dynasty
 and a descendant of Joshua the High Priest, Baruch ben Neriah, and Onais
@@ -935,7 +929,7 @@ grandchildren Berenice = Saint Veronica (Veronica is the Latin
 alteration of the Greek name Berenice) and Marcus Julius Agrippa II =
 Marcus/Mark.
 
-#### 8.2 Gnosticism's Influence on Early Christianity
+#### 9.2 Gnosticism's Influence on Early Christianity
 
 Simon's line of descent to focus on is through his grandson Alexander
 (son of King Herod) aka Juba II ("Iuba" is most likely a diminutive of
@@ -999,11 +993,11 @@ Mauretania aka Cleopatra IX aka Pythodorida Philometor aka Helene aka
 Drusilla of Mauretania aka Julia Ourania of Parthia aka "Philo of
 Alexandria".
 
-Endnotes (Chapter 8)
+Endnotes (Chapter 9)
 
 (a) Theory: Alexander (grandson of King Herod) aka Gaius Julius Alexander, Herodian Prince of Judaea aka Alexander Lysimachus aka Alexander the Alabarch aka Tiberius Julius Alexander Major aka (King/Tetrarch) Ptolemy (Alexander) bar Menneus aka Ptolemy of Mauretania was also the Roman general 'Gnaeus Domitius Corbulo'. Gnaeus Domitius Corbulo conquered Armenia alongside Tiberius Julius Alexander (his son Tiberius Julius Alexander aka Arrius Calpernius Piso aka Arrius Varus aka Tiberius Julius Cotys aka Emperor Nerva), after which, Tigranes VI (Tiberius Julius Alexander) was instilled as king. Compare his bust [link] to the famous 'Josephus' (Tiberius Julius Alexander) bust [link]. Notice a resemblance? If this is correct, then he (Alexander) would have been the brother-in-law to Caligula and father-in-law to Domitian. Tiridates of Armenia (who would have been Mithridates Chrestus' great-great-grandson) was the one who spread the religion Mithraism which was a syncretic a slave-morality religion to subjugate the Parthians. Mithras is inspired from Zoroastrianism, the religion of the Persians/Parthians, but Mithras is the same as Sabazios. It’s a solar son deity, a Jupiter. 
 
-### Chapter 9: Rome
+### Chapter 10: Rome (Italy)
 
 Christianity is the combination of several religions and myths that were
 amalgamated. The Ptolemaic cult of Alexander the Great, Serapis cult,
@@ -1018,7 +1012,7 @@ Fig. 1.9. Romulus. He was born to a virgin, the son of god, hailed as a
 King, crucified [^80] by a conniving elite and rose from the dead. See:
 'Romulus' (75AC) by Plutarch.
 
-#### 9.1 The Role of the Herodians in Rome
+#### 10.1 The Role of the Herodians in Rome
 
 King Herod was the likely regional alias of Mark Antony (aka Tiberius
 Claudius Nero aka Phraates IV of Parthia) [^81] and his descendants were
@@ -1112,7 +1106,7 @@ Herodians, Alexandrian elites, and the Flavians were the same incestuous
 [^91] family who used over a dozen aliases, agnomens, regional/ethnic
 names, and different biographies and mythologies for each persona [^92].
 
-9.2. Alexandria, Egypt. 1st Century
+10.2. Alexandria, Egypt. 1st Century
 
 Emperor Caligula and his Prefect of Roman Egypt, Aulus Avilius Flaccus
 (the real-life Pontius Pilate) [^93], most likely became aware sometime
@@ -1138,7 +1132,7 @@ group of jewish high priests in Babylon and their slave morality system
 successfully took down the mighty civilizations and races of Babylon,
 Persia, Egypt, India, Rome, and eventually, all of Europe.
 
-Endnotes (Chapter 9)
+Endnotes (Chapter 10)
 
 (a) Note on Vespasian's rise to power. Alexander (grandson of King
     Herod) and his son Tiberius Julius Alexander were personally
@@ -1492,11 +1486,12 @@ https://auctions.stacksbowers.com/lots/view/3-US7SY/julius-caesar-ar-denarius-39
 [^39]: 'Jesus Among the Julio-Claudians' (2017) by Charles N. Pope
     [[link](https://books.google.se/books?id=8qZ2DAAAQBAJ&pg=PA2&hl=sv&source=gbs_selected_pages&cad=1#v=onepage&q&f=false)]
 
-[^40]: https://www.heraldgoa.in/Edit/Opinions/Are-Brahmins-Jews/79561
+[^40]: Flavius Josephus, Against Apion, Project Gutenberg: http://www.gutenberg.org/ebooks/2849
 
-[^41]: 'Asura'. Wikipedia. https://en.wikipedia.org/wiki/Asura
+[^41]: https://www.academia.edu/13113385/Druidism_and_Vedism_Compared
 
-[^42]: https://dienekes.blogspot.com/2018/04/r1ans-still-at-large-or-story-of-india.html
+[^42]: 'Diodotus I was Ashoka'by Ranajit Pal https://www.academia.edu/695219/Diodotus_I_was_Ashoka_An_Altar_of_Alexander_Now_Standing_Near_Delhi [[link](https://www.academia.edu/695219/Diodotus_I_was_Ashoka_An_Altar_of_Alexander_Now_Standing_Near_Delhi)])
+    --https://dienekes.blogspot.com/2018/04/r1ans-still-at-large-or-story-of-india.html
 
 [^43]: 'Ptolemaic cult of Alexander the Great'. Wikipedia.
     https://en.wikipedia.org/wiki/Ptolemaic_cult_of_Alexander_the_Great
