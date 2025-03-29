@@ -1,3 +1,4 @@
+# Block Internet Archive
 User-agent: ia_archiver
 Disallow: /
 
@@ -7,5 +8,26 @@ Disallow: /
 User-agent: ia_archiver-web.archive.org
 Disallow: /
 
+# Block archive.today
+User-agent: archive.is
+Disallow: /
+
+User-agent: archive.today
+Disallow: /
+
+# Block other archiving/scraping tools
+User-agent: WebCopier
+Disallow: /
+
+User-agent: HTTrack
+Disallow: /
+
+User-agent: Offline Explorer
+Disallow: /
+
+User-agent: SiteSucker
+Disallow: /
+
+# Allow search engines and other bots
 User-agent: *
 Allow: /
