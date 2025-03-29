@@ -7,8 +7,5 @@ Disallow: /
 User-agent: ia_archiver-web.archive.org
 Disallow: /
 
-User-agent: Googlebot
-Disallow:
-
 User-agent: *
-Disallow: /
+Allow: /
