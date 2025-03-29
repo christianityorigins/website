@@ -6,8 +6,6 @@ date: 2024-08-13
 category: books
 ---
 
-![Title](/images/Title.jpg){:width="800px"}
-
 On the Origins of Christianity
 
 By Ralph Perrier
