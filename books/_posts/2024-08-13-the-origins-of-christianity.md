@@ -446,10 +446,9 @@ star' in ancient Hebrew) was the 'messiah' during the Bar Kokhba revolt.
 
 Two years before the Bar Kokhba revolt emperor Hadrian created a
 religion to deify his underage gay lover as the son of god
-(Osiris-Antinous) called 'The Cult of Antinous' [^13]. The name "Antinous” is an obvious indication of descent from the Antonii line and that he was a descendant of Mark Antony himself, not a random adoption. The use of "-ninus" is really the Greek "nini", which is "baby" or infant (i.e., "baby Jesus"). Historian Cassius
+(Osiris-Antinous) called 'The Cult of Antinous' [^13]. The name "Antinous" is an obvious indication of descent from the Antonii line and that he was a descendant of Mark Antony himself, not a random adoption by Hadrian. The use of "-ninus" is really the Greek "nini", which is "baby" or infant (i.e., "baby Jesus"). Historian Cassius
 Dio claims that Antinous was offered as a human sacrifice to Hadrian
-[^14] and later was "resurrected". Antinous was likely Emperor Titus Aelius Hadrianus Antoninus Pius, who was adopted by Hadrian and was his successor, and the cult of Antinous was his imperial cult. The Cult of Antinous was actually the biggest cult in the empire for a couple of
-centuries. One of the scribes for this cult was Aquila of Sinope aka
+[^14] and later was "resurrected". Antinous was likely Emperor Titus Aelius Hadrianus Antoninus Pius, who was adopted by Hadrian and was his successor, and the cult of Antinous was his imperial cult. One of the scribes for The Cult of Antinous was Aquila of Sinope aka
 Onkelos who was a kinsman of the Roman emperor Hadrian. The midrash
 (Tanhuma. 41a, Mishpatim 3) claims that Onkelos was a nephew of Hadrian
 and other jewish sources list him as a nephew of emperor Titus (Tractate Gittin (56b)). Emperor
@@ -459,6 +458,10 @@ than rabbi Akiva. In Acts 18:2-3 and Romans 16:3 NASB, it is claimed
 that Aquila of Sinope and his wife Prisca or Priscilla lived with Paul
 the Apostle and Paul called them "my fellow workers in Christ Jesus"
 [^15].
+
+![Fig.1.6](/images/Antinous.jpg){:width="400px"}
+
+Fig. 1.6. steel relief that shows Antinous holding the grapes of Dionysus in one-hand and a cross in the other.
 
 Rabbi Akiva's other students included Markianos of Alexandria aka
 Marcion of Sinope [^16] and Shimon bar Yochai. Another student of
@@ -646,9 +649,9 @@ Ye-Zeus (YHWH + Zeus). Alexander claimed to be the son of Zeus
 (Zeus-Amun, Zeus-Ahura Mazda, Zeus-Yahweh, etc.).
 
 ![Fig.
-1.6](/images/Alexander.png){:width="400px"}
+1.7](/images/Alexander.png){:width="400px"}
 
-Fig. 1.6. Alexander the Great as Zeus Ammon (or Jupiter Ammon), the ram
+Fig. 1.7. Alexander the Great as Zeus Ammon (or Jupiter Ammon), the ram
 god. The Greeks had identified the Egyptian god Ammon with Zeus, the
 Romans identified Ammon with Jupiter.
 
@@ -939,9 +942,9 @@ because then every Roman client state would be ruled by a single family
 and they would then be easier to control through proxy)).
 
 ![Fig.
-1.7](/images/JubaIICleopatraSeleneIIakaQueenTheaMuseOurania.jpg){:width="400px"}
+1.8](/images/JubaIICleopatraSeleneIIakaQueenTheaMuseOurania.jpg){:width="400px"}
 
-Fig 1.7. (L) Alexander (son of King Herod) aka Juba II. (R) Cleopatra
+Fig 1.8. (L) Alexander (son of King Herod) aka Juba II. (R) Cleopatra
 Selene II aka Queen Thea Muse Ourania
 
 Alexander (son of King Herod) aka Juba II and Cleopatra Selene II had
@@ -977,9 +980,9 @@ two prominent children who were married to each other:
     Vespasian's mistress [^76]
 
 ![Fig.
-1.8](/images/AlexanderPhilo.jpg){:width="400px"}
+1.9](/images/AlexanderPhilo.jpg){:width="400px"}
 
-Fig. 1.8. (L) Alexander (grandson of King Herod) aka Gaius Julius
+Fig. 1.9. (L) Alexander (grandson of King Herod) aka Gaius Julius
 Alexander, Herodian Prince of Judaea aka Alexander the Alabarch aka
 (King/Tetrarch) Ptolemy (Alexander) bar Menneus aka Ptolemy of
 Mauretania aka "Jesus" in the bible. (R) Cleopatra (Thea Philopator) of
@@ -1000,9 +1003,9 @@ Roman imprial cult, Gnosticism, the Roman myth of Quirinus aka Romulus
 Alexander the Great and Scipio Africanus [^79] who most ancient Roman
 leaders, but especially Julius Caesar, modelled themselves after.
 
-![Fig.1.9](/images/Denarius_C._Memmius_C._F._Romulus.jpg){:width="400px"}
+![Fig.1.10](/images/Denarius_C._Memmius_C._F._Romulus.jpg){:width="400px"}
 
-Fig. 1.9. Romulus. He was born to a virgin, the son of god, hailed as a
+Fig. 1.10. Romulus. He was born to a virgin, the son of god, hailed as a
 King, crucified [^80] by a conniving elite and rose from the dead. See:
 'Romulus' (75AC) by Plutarch.
 
@@ -1033,9 +1036,9 @@ Alexandria" had two prominent sons:
     uncle's name Aristobulus) aka Emperor Nerva [^86].
 
 ![Fig.
-1.10](/images/Josephus.jpg){:width="400px"}
+1.11](/images/Josephus.jpg){:width="400px"}
 
-Fig. 1.10. Erroneously identified 'Josephus' bust which I identify as
+Fig. 1.11. Erroneously identified 'Josephus' bust which I identify as
 Tiberius Julius Alexander. Compare it to Nerva's depictions
 
 Emperor Vespasian was another likely grandson of King Herod. He was
@@ -1061,9 +1064,9 @@ territories except Egypt (which was governed by Tiberius Julius
 Alexander) during the Flavian period..
 
 ![Fig.
-1.11](/images/Vespasian.jpg){:width="400px"}
+1.12](/images/Vespasian.jpg){:width="400px"}
 
-Fig. 1.11. Compare Vespasian's depiction to Herod Agrippa I
+Fig. 1.12. Compare Vespasian's depiction to Herod Agrippa I
 
 Emperor Vitellius was probably an alias for Vespasian's older brother
 Titus Flavius Sabinus who was married to Mariamne III aka "Arria the
@@ -1077,9 +1080,9 @@ So, five emperors in a row were King Herod's grandsons or
 great-grandsons: Vitellius, Vespasian, Titus, Domitian, and Nerva.
 
 ![Fig.
-1.12](/images/emperors.png){:width="400px"}
+1.13](/images/emperors.png){:width="400px"}
 
-Fig. 1.12. Note how the Roman emperor phenotype changes dramatically
+Fig. 1.13. Note how the Roman emperor phenotype changes dramatically
 after Otho
 
 Every Roman Emperor from Hadrian (likely an acronym for Herodian [^90]
@@ -1089,9 +1092,9 @@ count 37 Roman and Byzantine emperors bore the title "Flavius" and it's
 later Greek->Latin transliteration "Phlabios" ("Shabbos").
 
 ![Fig.
-1.13](/images/constantineandfather.jpg){:width="400px"}
+1.14](/images/constantineandfather.jpg){:width="400px"}
 
-Fig. 1.13. (L) Constantius Chlorus. The father of emperor Constantine
+Fig. 1.14. (L) Constantius Chlorus. The father of emperor Constantine
 (R) Emperor Flavius Constantine/Constantinus who carried the Flavian
 title.
 
