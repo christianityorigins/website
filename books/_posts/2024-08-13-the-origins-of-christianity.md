@@ -723,10 +723,7 @@ Endnotes (Chapter 7)
 
 (a) A few authors have claimed that the Dravidians were Ethiopians who
     the jews imported to India via South India and Sri Lanka to work as
-    slaves in the spice trade and in the marble mines (also to create
-    tribal conflict with the Aryans). Importing them in large numbers
-    from the south meant that they went undetected by the Aryans in the
-    north. From Ethiopia it is a straight line route to Sri Lanka via
+    slaves in the spice trade and in the marble mines. From Ethiopia it is a straight line route to Sri Lanka via
     boat. Also, during this slave trade the jews created a settlement in
     Ethiopia for their slave trade business, hence Ethiopian Jews being
     a thing, and Cochin Jews existing on the south west section of
@@ -751,13 +748,6 @@ Endnotes (Chapter 7)
     southwest India. Kochi, also known as Cochin, is a major port city
     in the state of Kerala. Cochin is obviously phonetically related to
     the name Cohen (Kohanim/of the priestly Zadokite line).\
-(d) "*it may be said that the region from Tigris-Euphrates to the Indus
-    and its east was inhabited by the Akkadian speaking Semites who
-    later called themselves as Asshuraiu. Their Indian name as known
-    from Rgveda is *'*Asura*'" -- '*The Languages of Harappans*' by
-    Maliti J. Shendge. In Aramaic the word Ashura means "tenth"
-    referring to the tenth day of the month/Yom Kippur, the Day of
-    Atonement.
 
 ### Chapter 8: The Alexandrian School
 
