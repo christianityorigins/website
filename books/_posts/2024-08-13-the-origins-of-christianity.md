@@ -61,13 +61,17 @@ Preface
 ------------------
 
 
-Christianity is the culmination of calculated syncretism, subversion, and imperial manipulation, over several centuries, of a religion. That is why there is a extremely powerful psychological weapon at its core (See: 'Book II: Christianity as a Slave Morality Religion and its Modern Secularized Variants: A Jewish Conspiracy and Hoax on the Gentiles').
+Throughout antiquity, from the pharaohs of Egypt to the emperors of
+Persia and Rome, religion served as a key instrument of imperial
+control, using syncretism to create a compliant population that served
+the interests of the ruling elite. These elites employed religion, as well
+as an incredible number of regional aliases, locations, fictional
+stories, faked adoptions, and fabricated deaths for their family members to control the
+population. They role-played as deities, religious figures, and
+various characters as if they were actors in a play. This was done to obscure the fact that the people were ruled by hereditary dictatorships and to give the population an illusion of upward social mobility or implanting a sense of false hope. It is impossible for any religion to have have sprug up organically. The royal families controlled the dissemenation of religious texts, and the punishment for spreading a religion that might compete with an imperial cult was death.
+
 
 The early rulers of Sumer were all priests. In Egypt, the Pharaohs were the claimed sons of gods. The Persians copied this formula of deifying their leaders but took it a step further by turning their imperial cult into a slave-morality religion as part of their colonial program (Zoroastrianism and Buddhism), and then the Greeks and Romans followed this formula. Religious syncreticism and slave-morality religions that stripped the population of their will to power is how the imperial powers maintained their empire and prevented any rebellion. Christianity is a relic of one of these imperial slave moralities.
-
-Over two millennia ago, the term 'Jew' denoted the Iudii or Iudaei, a Celtic tribe whose religious practices were rooted in Druidism. The Greek Ptolemaioi at the Alexandrian School in Ptolemaic Egypt sought to bring this group under their control and assimilate them by incorporating Hellenistic elements into their religious beliefs which lead to the creation of what was the first draft of Judaism. Subsequently, a few centuries later, the Romans replicated this strategy of subversion by further undermining the already transformed religious framework of the Jews through the imposition of the Roman imperial cult, specifically, the Flamen Dialis cult or the cult of the Divine Julius. The jewish storm god Baal-Hadad (Baal, meaning lord, while Hadad was specifically revered as the god of rain, thunder, and storms) then became I(J)upiter (who was also called Jove or Iove to the Romans. The Latin pronunciation of Iove would have been Yoh-Way, or Yahweh), and their Moshiach (Messiah) was reinterpreted as Julius Caesar, I(J)upiter-Zeus (I-Zeus-> Izeus-> Iseus).
-
-Then, sometime after the Bar Kokhba Revolt (132--136 CE), a group of Romans that included Gamaliel/St. Gamaliel aka Tiberius Gemellus who was a grandson of Emperor Tiberius and a cousin of Emperor Caligula, a Rabbi named Akiva (Epictetus?), Aquila of Sinope aka Onkelos who was a nephew of emperor Hadrian, Markianos of Alexandria aka Marcion of Sinope, Simon ben Yohai, Ketia bar Shalom aka Titus Flavian Clemens who was a cousin of the emperor Domitian aka 'Clement of Rome', Rabbi Meir who was the grandson of emperor Nero, and Pliny the Younger aka Bishop Ignatius of Antioch aka Polycarp (likely also Paul the Apostle), and all of them working on behalf of emperor Hadrian, tried to subvert this group further by adding a slave-morality to the slave-morality religion.
 
 My research methodologies are multifaceted, encompassing revisionist historiography, counter-narrative analysis, and historical deconstruction. The primary sources that inspired my research are listed in the 'Further Reading' section at the end of the book.
 
@@ -224,18 +228,11 @@ BOOK I. THE ORIGINS OF CHRISTIANITY
 
 ### Chapter 1: The Creation of Christianity
 
-Throughout antiquity, from the pharaohs of Egypt to the emperors of
-Persia and Rome, religion served as a key instrument of imperial
-control, using syncretism to create a compliant population that served
-the interests of the ruling elite. These elites employed religion, as well
-as an incredible number of regional aliases, locations, fictional
-stories, faked adoptions, and fabricated deaths for their family members to control the
-population. They role-played as deities, religious figures, and
-various characters as if they were actors in a play. This was done to obscure the fact that the people were ruled by hereditary dictatorships and to give the population an illusion of upward social mobility or implanting a sense of false hope. It is impossible for any religion to have have sprug up organically. The royal families controlled the dissemenation of religious texts, and the punishment for spreading a religion that might compete with an imperial cult was death.
-
-The figure of Jesus Christ (of Nazareth) was a literary creation of these elites, incorporating elements of various historical and mythological figures to appeal to a wide audience. This character then became an avatar for several historical figures in an imperial cult.
+Over two millennia ago, the term 'Jew' denoted the Iudii or Iudaei, a Celtic tribe whose religious practices were rooted in Druidism. The Greek Ptolemaioi at the Alexandrian School in Ptolemaic Egypt sought to bring this group under their control and assimilate them by incorporating Hellenistic elements into their religious beliefs which lead to the creation of what was the first draft of Judaism. Subsequently, a few centuries later, the Romans replicated this strategy of subversion by further undermining the already transformed religious framework of the Jews through the imposition of the Roman imperial cult, specifically, the Flamen Dialis cult or the cult of the Divine Julius. The jewish storm god Baal-Hadad (Baal, meaning lord, while Hadad was specifically revered as the god of rain, thunder, and storms) then became I(J)upiter (who was also called Jove or Iove to the Romans. The Latin pronunciation of Iove would have been Yoh-Way, or Yahweh), and their Moshiach (Messiah) was reinterpreted as Julius Caesar, I(J)upiter-Zeus (I-Zeus-> Izeus-> Iseus).
 
 Julius Caesar was the first 'Jesus' (I(J)upiter-Zeus (I-Zeus-> Izeus-> Iseus)). The Romans used a system called 'interpretatio romana' to associate their gods with local ones as part of their colonial program. Julius Caesar, as the claimed 'son of I(J)upiter' (there was no J in Latin) would have been Iupiter-Zeus to let the Greeks know that Iupiter and Zeus were equivalent deities (Roman Jupiter and Greek Zeus both derive from the Aryan skyfather 'Dyeus Pter'. The name Zeus comes from the pronunciation of Dyeus, and Jupiter comes from the pronunciation of 'Dyeus Pter'). Then subsequent emperors took on this role. I-Zeus (Izeus) eventually phonetically shifted to I-zas/Izas/Izates.\
+
+Then, sometime after the Bar Kokhba Revolt (132--136 CE), a group of Romans that included Gamaliel/St. Gamaliel aka Tiberius Gemellus who was a grandson of Emperor Tiberius and a cousin of Emperor Caligula, a Rabbi named Akiva (Epictetus?), Aquila of Sinope aka Onkelos who was a nephew of emperor Hadrian, Markianos of Alexandria aka Marcion of Sinope, Simon ben Yohai, Ketia bar Shalom aka Titus Flavian Clemens who was a cousin of the emperor Domitian aka 'Clement of Rome', Rabbi Meir who was the grandson of emperor Nero, and Pliny the Younger aka Bishop Ignatius of Antioch aka Polycarp (likely also Paul the Apostle), and all of them working on behalf of emperor Hadrian, tried to subvert this group further by adding a slave-morality to the slave-morality religion.
 
 #### 1.1 Bosporan Imperial Cult
 
@@ -402,7 +399,7 @@ The area of modern-day Istanbul was once called 'Basileía tôn Rhômaíôn' ('K
 
 There is genetic and historical evidence proving the Rome on the Bosphorus theory. Rome was founded by Italic tribes of "Indo-Europeans”. However, this is where academic definitions fail because those founders of Rome were actually 85%+ Anatolian Early European Farmer (EAF). The Etruscans who established Rome were invaders from Anatolia, and the Carians who hailed from southwest Anatolia have a strong connection with the settlement of Rome (Aquilla = Qos = god of Kos of Caria). 
 
-Fomenko also makes the claim that the original Biblical Jerusalem (the city of Yoros) is situated on the eastern shore of Bosphorus, which ties into my theories in Chapter 3.
+Anatoly Fomenko also makes the claim that the original Biblical Jerusalem (the city of Yoros) is situated on the eastern shore of Bosphorus, which ties into my theories in Chapter 3.
 
 Endnotes (Chapter 1)
 
@@ -1262,14 +1259,10 @@ Footnotes
     person, but one of the phantom individuals Catholic Church made up
     to fill in their phantom 1000 years and Charlemagne is based on a
     real-life man known as Odoacer. Plato and Gemistus Plethon were one
-    and the same. Genghis Khan and Attila The Hun were the same person.
+    and the same person. Genghis Khan and Attila The Hun were the same person.
     The Black Plague / Great Plague / Black Death / Bubonic Plague (it's
     a copy to fill in the phantom 1000 years of supposed "Dark Ages") is
-    exactly the same event as the Justinian Plague. Also, the 'first
-    Rome' was based out of Anatolia, in an area that is modern Istanbul.
-    The last point I independently confirmed. Julius Caesar = Asander of
-    Bosphorus, and all early Christianity traces back to to the
-    Bosphorus.
+    exactly the same event as the Justinian Plague. The Trojan War and the Crusades were the same conflict. Also, that there were multiple 'Romes' and the major one was based out of Anatolia, in an area that is modern Istanbul. The last point I independently confirmed. Julius Caesar = Asander of Bosphorus, and all early Christianity traces back to to the Bosphorus.
 
 [^2]: Julius Caesar was his title (Caesar is etymologically similar to
     the Indo-Aryan word for 'king' and Julius (Iulius) is similar to
