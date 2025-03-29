@@ -394,9 +394,6 @@ claiming to be the son of Herod who faked his death [^11], so he was
 
 It is likely that each Roman emperor after Julius Caesar took on the I(J)upiter-Zeus [^12] ('I-Zeus' -> Iesus) role as an avatar, which is why I identify many prominent Romans as having contributed to the bible (e.g. Titus Flavian Clemens aka 'Clement of Rome').
 
-Then, after the Bar Kokhba Revolt (132--136 CE), this imperial slave-morality cult was subverted by a confederation
-of rabbi's who were headed by a rabbi named Akiva.
-
 #### 1.2 Rome on the Bosphorus?
 
 My research on the origins of Christianity takes me to the Bosphorus river in classical Anatolia (Julius Caesar = Asander, King of Bosphorus, and Cleopatra = Dynamis). This is incongruent to mainstream history. However, there are a few revisionist authors such as Anatoly Fomenko and Gunnar Heinsohn who make the claim that the Western Roman Empire is a duplicate of the Eastern Roman Empire not the other way around and that much of the history of the Western Roman Empire was conjured up by the Church Fathers, Jesuits, Joseph Justus Scaliger, and medieval forgers, either to retrofit history to align with the Bible, due to conflicts between the Vatican and the Eastern Byzantine Church, or for profit.
@@ -437,6 +434,8 @@ Endnotes (Chapter 1)
     [[link](https://www.henryhdavis.com/theroyalancestryofemperorvespasian)])\ 
 
 ### Chapter 2: The Subversion of the Bosporan Imperial Cult
+
+After the Bar Kokhba Revolt (132--136 CE), this imperial slave-morality cult was subverted by a confederation of rabbi's who were headed by a rabbi named Akiva.
 
 #### 2.1 The Cult of Antinous and the Bar Kokhba Revolt (132--136 CE)
 
