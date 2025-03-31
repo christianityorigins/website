@@ -721,6 +721,8 @@ Voltaire claimed that Abraham descended from some of the numerous Brahman priest
 
 There was an ancient Celtic conquerer named 'Ram the Druid' and Abraham = Ab Ram, or 'Ab אֲב (father) of Ram', he was also Ra in Egyptian mythology, the basis of the name 'Ram'esses in Egypt, Ram the Aries, Rama in the Vedas, Brahmin caste in India refers to him, and Lama in Tibet. 
 
+The name Abaris or Abharas, from Abaris the Hyperborian, the teacher of Pythagoras, derives from the Old Irish word abhar, which means chief or noble and was a generic term for Druid or Chief Druid. Abharas is also related to the Sanskrit word Bhārata, a legendary king in the Vedas. Bhārata is at the root of the word Bharatvarsha which is a term that is used to refer to the Indian subcontinent as a whole. 
+
 These "jews" that made it to India were the Celtic Iudii or Iudaei and the ancient Vedas are just the eastern branch of Druidism. [^41]
 
 #### 7.2 The Evolution of Indian Religions
