@@ -195,11 +195,19 @@ Speculative
     by Ranajit Pal
     https://www.academia.edu/695219/Diodotus_I_was_Ashoka_An_Altar_of_Alexander_Now_Standing_Near_Delhi
     [[link](https://www.academia.edu/695219/Diodotus_I_was_Ashoka_An_Altar_of_Alexander_Now_Standing_Near_Delhi)])
--   "Piso" cognomen = "Appius" is a cognomen (personal name) of the Claudian family. Appius and Piso are synonymous. The name Piso itself would be a form of Peisistratos/Pisistratos, the leading name of ancient Athens in Greece. (Pisistratos is a Latinized spelling of the Greek Peisistratos.) It could be said that all the ruling elite of the Julio-Claudian dynasty were "Piso's", including Nero who was nearly deposed by a Piso. Appius is also cognate with "Arrius".
 -   Ptolemy XIII Theos Philopator = Gaius Octavius aka Emperor Gaius Julius Caesar Augustus, son of Julius Caesar and Berenice IV aka Alfidia (Cleopatra VII sister).
 -   Rabbi Akiva (c. 50–135) = Epictetus (c. 50–135)? Epictetus was the slave to Nero's scribe Tiberius Claudius Epaphroditus or Epaphroditos (c. 20–25 – died c. 95). Epictetus had a Roman teacher named Gaius Musonius Rufus (c. 20-30-died c. 101) who was a Roman Stoic philosopher. Gaius Musonius Rufus was also a teacher of Dio Chrysostom (c. 40 – c. 115 AD). Josephus opened his book 'Jewish Wars' and 'History of the Jews' (Antiquities) by addressing them to: "kratistos (most excellent) Epaphroditus". Rabbi Akiva also likely took on the role of 'Paul the Apostle'. (Akiva and Epictetus were born and died on the same date, and Epictetus had a hand in writing the new testament. See: 'Epictetus and the New Testament' by Douglas Simmonds Sharp (1914)). Epicteus and Pilny the Younger were both in the same places at the same time; Rome, Nicopolis, and Bithynia-Pontus, and Pliny the Younger was a Roman administrator in Bithynia and Pontus at the same time Marcion was in Sinope.
 -   Zoroaster = Baruch ben Neriah. Scribe of Joshua the High Priest
     (possibly the same person).
+
+
+Name and Title Meanings
+---------------------
+
+-   Cotys: In Thracian, "Cotys" is related to the word "kotys" which is a title that means "lord".
+-   Izates or Izas: An ancient Greek translation of the Avestan word Yazatas (Persian:
+izad), meaning "lord".
+-   Piso cognomen: "Appius" is a cognomen (personal name) of the Claudian family. Appius and Piso are synonymous. The name Piso itself would be a form of Peisistratos/Pisistratos, the leading name of ancient Athens in Greece. (Pisistratos is a Latinized spelling of the Greek Peisistratos.) It could be said that all the ruling elite of the Julio-Claudian dynasty were "Piso's", including Nero who was nearly deposed by a Piso. Appius is also cognate with "Arrius".
 
 
 Definitions
