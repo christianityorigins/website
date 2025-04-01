@@ -205,6 +205,7 @@ Speculative
 Name and Title Meanings
 ---------------------
 
+-   Christ: In Greek "The Anointed One" is Chréstos/Christ or Soter. Several historical figures were Christs/Soters. In Isaiah 45:1 the jews called Cyrus the Great "The Anointed One". Alexander the Great was also a Chréstos/Soter (Josephus. Antiquities, XI. 8. Talmud, Yoma 67b). Religiously, up until the First Council of Nicaea "Christ", or "Christian", refered to the Serapis Cult ("those who worship Serapis are, in fact, Christians, and those who call themselves bishops of Christ are, in fact, devotees of Serapis.". Source: The Letter of Hadrian to Servianus).
 -   Cotys: In Thracian, "Cotys" is related to the word "kotys" which is a title that means "lord".
 -   Izates or Izas: An ancient Greek translation of the Avestan word Yazatas (Persian:
 izad), meaning "lord".
@@ -437,6 +438,7 @@ Endnotes (Chapter 1)
     Ancestry of Emperor Vespasian. Henry Davis,
     https://www.henryhdavis.com/theroyalancestryofemperorvespasian
     [[link](https://www.henryhdavis.com/theroyalancestryofemperorvespasian)])\ 
+(e) The Celts of Galatia in classical Anatolia worshiped a deity called Esus/Hesus/Iesus. There is a first century bronze bust that was dedicated to Esus with the inscription "Esumopas Cnusticus". Esumopas = Slave or servant of Esus in Celtic languages, and Cnusticus is phoneticaly related to both Gnosticus (which is obviously related to Gnosticism) and also Christus. Was Esus/Hesus/Iesus the deified Asander of Bosphorus/Julius Caesar (I-Zeus)? Esus also means "lord" in Celtic languages. The location, Celtic language and deity, Esus meaning "lord" in Celtic languages, Essu being a christ, proves my theory that Asander was the progenitor, or prime avatar, in this imperial cult. 
 
 ### Chapter 2: The Subversion of the Bosporan Imperial Cult
 
@@ -784,7 +786,7 @@ Egyptian deities like Osiris and Apis.
 
 ####  8.2 Serapis Cult
 
-After the Ptolemaic Cult of Alexander the Great failed to catch on in Egypt, Ptolemy I Soter built the Library of Alexandria and then summoned philosophers from across the oecumene to create a state religion. The result was the Serapis Cult. Serapis was a blend of the Egyptian gods Osiris and Apis with the Greek god Zeus (and others) and was a composite deity that was intended to resonate with the multicultural society Ptolemy I Soter envisioned for Egypt. (Serapis = Osiris + Apis = Osir-Apis = Ser-Apis). Serapis was depicted with an Egyptian body and Greek head.
+After the Ptolemaic Cult of Alexander the Great failed to catch on in Egypt, Ptolemy I Soter built the Library of Alexandria and then summoned philosophers from across the oecumene to create a state religion. The result was the Serapis Christus Cult. Serapis was a blend of the Egyptian gods Osiris and Apis with the Greek god Zeus (and others) and was a composite deity that was intended to resonate with the multicultural society Ptolemy I Soter envisioned for Egypt. (Serapis = Osiris + Apis = Osir-Apis = Ser-Apis). Serapis was depicted with an Egyptian body and Greek head.
 
 After the creation of the Serapis Cult the Alexandrian School then became a religion making factory. The Serapis cult, Gnosticism, Mithraism, Christianity, Manichaeanism, Valentinianism, Hermeticism (Philo of Alexandria’s syncretic philosophy to Hellenize the Canaanite religion of the levant), Buddhism (most likely Philo of Alexandria’s expansion of Pyrrho of Elis's syncretic attempt at using a slave morality to subvert the Bactrians and Indo-Aryans). The Sibylline Oracles were a style guide for their student.
 
