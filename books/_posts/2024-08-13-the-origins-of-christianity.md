@@ -207,7 +207,7 @@ Name and Title Meanings
 -   Izates or Izas: An ancient Greek translation of the Avestan word Yazatas (Persian:
 izad), meaning "lord".
 -   Monobazus: Sabazios is the Phrygian and Thracian version of Zeus. Ma'nu is likely a diminutive of Menneus ("son of man"), and then Manu-Sabazios becomes Monobazus. Monobazus also becomes "Bazus" or "Bar Izates" shortened to "baYZTus" (or bar YZT) through frequent oral repetition which then becomes "bOETHus". The Boethusians were a jewish priestly sect.
--   Piso cognomen: "Appius" is a cognomen (personal name) of the Claudian family. Appius and Piso are synonymous. The name Piso itself would be a form of Peisistratos/Pisistratos, the leading name of ancient Athens in Greece. (Pisistratos is a Latinized spelling of the Greek Peisistratos.) It could be said that all the ruling elite of the Julio-Claudian dynasty were "Piso's", including Nero who was nearly deposed by a Piso. Appius is also cognate with "Arrius" (through rhotacization in ancient Latin the /p/ and /r/ could be swapped).
+-   Piso cognomen: "Appius" is a cognomen (personal name) of the Claudian family. Appius and Piso are synonymous (In Greek, Appius is rendered as Appios, from there Piso). The name Piso itself would be a form of Peisistratos/Pisistratos, the leading name of ancient Athens in Greece. (Pisistratos is a Latinized spelling of the Greek Peisistratos.) It could be said that all the ruling elite of the Julio-Claudian dynasty were Piso's, including Nero who was nearly deposed by a Piso. Appius is also cognate with Arrius (through rhotacization in ancient Latin the /p/ and /r/ could be swapped).
 
 
 Definitions
@@ -480,7 +480,7 @@ the Evangelist ('Aristo', or 'Ariston' is a name that is related to
 sixteenth bishop of Jerusalem was the secretary of Aristo and Marcion is
 known to have had a disciple named Lucanus as documented by Tertullian,
 so Mark, or Mahalia, first Gentile bishop of Jerusalem was also
-Markianos of Alexandria aka Marcion of Sinope?). One other student of
+Markianos of Alexandria aka Marcion of Sinope? Was he also Marcus Annaeus Lucanus who was a nephew and student of Seneca the Younger?). One other student of
 rabbi Akiva was Ketia bar Shalom which was the jewish name of Titus
 Flavian Clemens, who was the nephew of emperor Domitian [^17]. Titus
 Flavian Clemens is a likely candidate for being 'Clement of Rome'. Rabbi
