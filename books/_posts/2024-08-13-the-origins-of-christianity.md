@@ -41,12 +41,14 @@ Chapter 5: The Origins of Buddhism\
 Chapter 6: Alexander the Great\
 § 6.1 Alexander's Influence on Religious Thought\
 § 6.2 Alexander as a Prototype for the Jesus Figure\
+§ 6.3 Ptolemaic Cult of Alexander the Great \
 Chapter 7: Ancient India\
 § 7.1 Jewish Influence in India \
 § 7.2 The Evolution of Indian Religions \
 Chapter 8: The Alexandrian School\
 § 8.1 The Role of the Alexandrian School in Religious Syncretism\
-§ 8.2 The Creation of the Septuagint and Its Impact\
+§ 8.2 Serapis Cult \
+§ 8.3 The Creation of the Septuagint and Its Impact\
 Chapter 9: The Origins of Gnosticism\
 § 9.1 Simon Magus and the Creation of Gnosticism\
 § 9.2 Gnosticism's Influence on Early Christianity\
@@ -674,6 +676,10 @@ so he was divinely birthed. He died at 33. 'The Son of the Man' is a
 Koine->Aramaic->Koine mistranslation of Alexander and he was the "King
 of Kings" [^32].
 
+#### 6.3 Ptolemaic Cult of Alexander the Great
+
+The Ptolemaic cult of Alexander the Great was a forerunner of christianity. Alexander was a student of Aristotle and Aristotle's teacher Plato wrote about the 'Noble Lie' in The Republic which is a myth or a lie in a society that is propagated by an elite in order to maintain social order or for the "greater good". Alexander envisioned a global religion to subjugate the diverse populations in his vast empire. This idea of using religion to subjugate a population would be taken up by his Diadochi (successors), especially in Alexandria at the Alexandrian School. See: Chapter 8: The Alexandrian School.
+
 Endnotes (Chapter 6)
 
 (a) Alexander indirectly became the Jesus prototype. Julius Caesar
@@ -774,11 +780,15 @@ which was Zoroastrianism + slave morality), and the Bactrians
 called the Serapis Christus cult [^44] which was meant to bridge the gap
 between the Greek and Egyptian cultures and subjugate the foreign
 Egyptian people to his rule. This new god, Serapis, combined aspects of
-Egyptian deities like Osiris and Apis  (Serapis = Osiris + Apis =
-Osir-Apis = Ser-Apis) with Greek gods like Zeus, and had an Egyptian
-body and Greek head.
+Egyptian deities like Osiris and Apis.
 
-#### 8.2 The Creation of the Septuagint and Its Impact
+####  8.2 Serapis Cult
+
+After the Ptolemaic Cult of Alexander the Great failed to catch on in Egypt, Ptolemy I Soter built the Library of Alexandria and then summoned philosophers from across the oecumene to create a state religion. The result was the Serapis Cult. Serapis was a blend of the Egyptian gods Osiris and Apis with the Greek god Zeus (and others) and was a composite deity that was intended to resonate with the multicultural society Ptolemy I Soter envisioned for Egypt. (Serapis = Osiris + Apis = Osir-Apis = Ser-Apis). Serapis was depicted with an Egyptian body and Greek head.
+
+After the creation of the Serapis Cult the Alexandrian School then became a religion making factory. The Serapis cult, Gnosticism, Mithraism, Christianity, Manichaeanism, Valentinianism, Hermeticism (Philo of Alexandria’s syncretic philosophy to Hellenize the Canaanite religion of the levant), Buddhism (most likely Philo of Alexandria’s expansion of Pyrrho of Elis's syncretic attempt at using a slave morality to subvert the Bactrians and Indo-Aryans). The Sibylline Oracles were a style guide for their student.
+
+#### 8.3 The Creation of the Septuagint and Its Impact
 
 According to the Letter of Aristeas [^45] Ptolemy I Soter summoned 72
 Babylonian Jewish high priests (kohanim) to Alexandria to translate the
