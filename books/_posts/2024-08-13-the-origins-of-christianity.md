@@ -437,8 +437,8 @@ Endnotes (Chapter 1)
     (King Herod) (The Royal Ancestry of Emperor Vespasian (The Royal
     Ancestry of Emperor Vespasian. Henry Davis,
     https://www.henryhdavis.com/theroyalancestryofemperorvespasian
-    [[link](https://www.henryhdavis.com/theroyalancestryofemperorvespasian)])\ 
-(e) The Celts of Galatia in classical Anatolia worshiped a deity called Esus/Hesus/Iesus. There is a first century bronze bust that was dedicated to Esus with the inscription "Esumopas Cnusticus". Esumopas = Slave or servant of Esus in Celtic languages, and Cnusticus is phoneticaly related to both Gnosticus (which is obviously related to Gnosticism) and also Christus. Was Esus/Hesus/Iesus the deified Asander of Bosphorus/Julius Caesar (I-Zeus)? Esus also means "lord" in Celtic languages. The location, Celtic language and deity, Esus meaning "lord" in Celtic languages, Essu being a christ, proves my theory that Asander was the progenitor, or prime avatar, in this imperial cult. 
+    [[link](https://www.henryhdavis.com/theroyalancestryofemperorvespasian)]) \
+(e) The Celts of Galatia in classical Anatolia worshiped a deity called Esus/Hesus/Iesus. There is a first century bronze bust that was dedicated to Esus with the inscription "Esumopas Cnusticus". Esumopas = Slave or servant of Esus in Celtic languages, and Cnusticus is phoneticaly related to both Gnosticus (which is obviously related to Gnosticism) and also Christus. Was Esus/Hesus/Iesus the deified Asander of Bosphorus/Julius Caesar (I-Zeus)? Esus also means "lord" in Celtic languages. The location, Celtic language and deity, Esus meaning "lord" in Celtic languages, Esus being a christ, proves my theory that Asander was the progenitor, or prime avatar, in this imperial cult. 
 
 ### Chapter 2: The Subversion of the Bosporan Imperial Cult
 
