@@ -1292,7 +1292,9 @@ Footnotes
     Iulius derives from (I)Jupiter). He had a claimed divine birth, was
     put on trial, betrayed, sacrificed, and was a pontifex maximus (high
     priest) in his religion. \
-    
+    --A statue from the Bosporan Kingdom, dated to Asander’s reign (ca. 47–17 BCE) refers to Asander/Asandros as Asandros Philoromaios Soter and gives him the title "King of Kings". So he was a "Soter"/Christ. Source: Corpus Inscriptionum Regni Bosporani (CIRB 30)
+https://www.researchgate.net/publication/333149205_CIRB_30_Asandros_and_Dynamis_CIRB_Corpus_Inscriptionum_Regni_Bospori.
+
 
 [^3]: "The Gospel of Jesus' Wife Papyrus." The Nazarene Way,
     https://www.thenazareneway.com/Gospel%20of%20Jesus%20Wife%20Papyrus.htm.[[link](https://www.thenazareneway.com/Gospel%20of%20Jesus%20Wife%20Papyrus.htm)] \
