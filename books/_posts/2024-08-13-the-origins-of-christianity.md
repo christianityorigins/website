@@ -291,15 +291,13 @@ Mauritania's full name was Gaius Iulius Iuba, prenomen and nomen after
 his adopted father Gaius Iulius Caesar, and 'Iuba' is most likely a
 diminutive of 'Iehuva'. He was the claimed royal heir of the Massylii
 tribe, which is the 'Messiah' lineage from David's firstborn son with
-Saul's daughter Michal ('Helio' and Celtic 'Hesus' both derive from the
-Proto-Indo-European root 'sawel-', meaning 'sun', and 'Selene'
-translates to 'moon' in Greek).
+Saul's daughter Michal (one way to prove that Mark Antony was also King Herod is through the equivalence of Alexander Helios aka Alexander (son of King Herod) aka Juba II).
 
 Cleopatra aka Dynamis's son with Mark Antony (aka King Herod aka
 Tiberius Claudius Nero aka Phraates IV of Parthia) = Ptolemy
 Philadelphus who was Sampsiceramus I?
 
-Mark Antony's (aka King Herod aka Tiberius Claudius Nero aka Phraates IV of Parthia) son with Livia Drusilla = emperor Tiberius Julius Caesar Augustus (one way to make this connection and prove his King Herod and Tiberius Claudius Nero aliases is through the equivalence of Doris the first wife of Herod the Great and Livia Drusilla the second wife of Octavius/Caesar Augustus (the Greek name Doris is a transliteration of the Roman Drus-us). Augustus was first married to Scribonia, but was divorced and he became engaged to Livia Drusilla (Doris), who was at the time pregnant, not by Augustus but by her own first husband Tiberius Claudius Nero, praetor of 41 BC and son of another Tiberius Claudius Nero, praetor of 62 BC).
+Mark Antony's (aka King Herod aka Tiberius Claudius Nero aka Phraates IV of Parthia) son with Livia Drusilla = emperor Tiberius Julius Caesar Augustus (one way to prove that Mark Antony was both King Herod and Tiberius Claudius Nero is through the equivalence of Doris the first wife of Herod the Great and Livia Drusilla the second wife of Octavius/Caesar Augustus (the Greek name Doris is a transliteration of the Roman Drus-us). Augustus was first married to Scribonia, but was divorced and he became engaged to Livia Drusilla (Doris), who was at the time pregnant, not by Augustus but by her own first husband Tiberius Claudius Nero, praetor of 41 BC and son of another Tiberius Claudius Nero, praetor of 62 BC).
 
 Cleopatra aka Dynamis's grandson with Mark Antony (aka King Herod aka
 Tiberius Claudius Nero aka Phraates IV of Parthia) = Alexander (grandson
