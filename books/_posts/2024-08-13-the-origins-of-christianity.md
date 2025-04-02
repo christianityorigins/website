@@ -277,7 +277,7 @@ Asander was born in 110BCE, the same year as Julius Caesar. Dynamis was born in 
 A statue from the Bosporan Kingdom, dated to Asander’s reign (ca. 47–17 BCE), refers to as Asander as the 'Great King of Kings Asandros Philoromaios Soter' (Corpus Inscriptionum Regni Bosporani 30). So, he was a 'King of Kings', Soter (savior), and 'The Great' ('Great King of Kings' was a title used by Cyrus the Great and Alexander).
 
 Dynamis's grandfather was Mithridates VI Eupator who also carried the title
-"King of Kings". Her uncle was Mithridates 'Chrestus' [^5]. Mithridates translates to 'the gift of Mithra' in ancient Persian and is an obvious reference to the Mithras cult. Asander beat Mithridates 'Chrestus' in battle to become King of Bosphorus. One source I read claimed that this was a brotherly war and Asander and Mithridates 'Chrestus were brothers. This would make Asander Dynamis's uncle and husband. 
+"King of Kings". Her uncle was Mithridates 'Chrestus' [^5]. Mithridates translates to 'the gift of Mithra' in ancient Persian and is an obvious reference to the Mithras cult. Asander beat Mithridates Chrestus in battle to become King of Bosphorus. One source I read claimed that this was a brotherly war and Asander and Mithridates Chrestus were brothers. This would make Asander Dynamis's uncle and husband. Asander beating Mithridates Chrestus in battle to become ruler of Bosphorus parallels Julius Caesar beating Gnaeus Pompeius Magnus (Pompey the Great) to become ruler of Rome.
 
 Amyntas Nikator aka Amyntas of Galatia aka Jesus ben Fabus aka Isa Amen
 (Jesus Amen of Rev. iii. 14) [^6] was married to Stratonice who was the
