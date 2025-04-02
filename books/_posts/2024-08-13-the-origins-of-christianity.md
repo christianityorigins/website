@@ -272,7 +272,9 @@ aka Ptolemy Philadelphus aka Sampsiceramus I? The Bosphorus Kingdom,
 also known as the Kingdom of the Cimmerian Bosphorus, was located next
 to the Pontus Kingdom
 
-Dynamis's grandfather was Mithridates VI Eupator who carried the title
+A statue from the Bosporan Kingdom, dated to Asander’s reign (ca. 47–17 BCE), refers to as Asander as the "Great King of Kings Asandros Philoromaios Soter" (Corpus Inscriptionum Regni Bosporani 30). So, he was a "King of Kings", Soter (savior), and "The Great" ("Great King of Kings" was a tile used by Cyrus the Great and Alexander).
+
+Dynamis's grandfather was Mithridates VI Eupator who also carried the title
 "King of Kings". Her uncle was Mithridates 'Chrestus' [^5].
 
 Amyntas Nikator aka Amyntas of Galatia aka Jesus ben Fabus aka Isa Amen
