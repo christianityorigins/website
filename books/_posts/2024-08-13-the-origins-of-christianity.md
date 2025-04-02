@@ -249,7 +249,7 @@ There was a Byzantine [^1] imperial cult where Julius Caesar [^2] took
 on the role of Asander, King of Bosphorus [^3] (the city of Byzantine,
 later called Constantinople and now Istanbul was/is located in the area
 called Bosphorus), and his wife Cleopatra used the regional alias of
-Dynamis Ourania [^4] (translates to 'heavenly power'), queen of Bosporus
+Dynamis Ourania [^4] (translates to 'heavenly power'), queen of Bosporus.
 
 ![Fig.1.1](/images/caesarasander.png){:width="400px"}
 
@@ -272,10 +272,12 @@ aka Ptolemy Philadelphus aka Sampsiceramus I? The Bosphorus Kingdom,
 also known as the Kingdom of the Cimmerian Bosphorus, was located next
 to the Pontus Kingdom
 
-A statue from the Bosporan Kingdom, dated to Asander’s reign (ca. 47–17 BCE), refers to as Asander as the 'Great King of Kings Asandros Philoromaios Soter' (Corpus Inscriptionum Regni Bosporani 30). So, he was a 'King of Kings', Soter (savior), and 'The Great' ('Great King of Kings' was a tile used by Cyrus the Great and Alexander).
+Asander was born in 110BCE, the same year as Julius Caesar. Dynamis was born in 70/69 BCE, the same year as Cleopatra VII. Julius Caesar was 30 years older than Cleopatra, and Asander was also 30 years older than Dynamis. 
+
+A statue from the Bosporan Kingdom, dated to Asander’s reign (ca. 47–17 BCE), refers to as Asander as the 'Great King of Kings Asandros Philoromaios Soter' (Corpus Inscriptionum Regni Bosporani 30). So, he was a 'King of Kings', Soter (savior), and 'The Great' ('Great King of Kings' was a title used by Cyrus the Great and Alexander).
 
 Dynamis's grandfather was Mithridates VI Eupator who also carried the title
-"King of Kings". Her uncle was Mithridates 'Chrestus' [^5]. Mithridates translates to ;the gift of Mithra' in ancient Persian and is an obvious reference to the Mithras cult. 
+"King of Kings". Her uncle was Mithridates 'Chrestus' [^5]. Mithridates translates to 'the gift of Mithra' in ancient Persian and is an obvious reference to the Mithras cult. Asander beat Mithridates 'Chrestus' in battle to become King of Bosphorus. One source I read claimed that this was a brotherly war and Asander and Mithridates 'Chrestus were brothers. This would make Asander Dynamis's uncle and husband. 
 
 Amyntas Nikator aka Amyntas of Galatia aka Jesus ben Fabus aka Isa Amen
 (Jesus Amen of Rev. iii. 14) [^6] was married to Stratonice who was the
