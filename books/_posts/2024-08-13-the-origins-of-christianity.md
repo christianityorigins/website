@@ -261,7 +261,7 @@ Fig. 1.2. Another depition of Asander which shows the star and cresent that is v
 
 ![Fig.1.3](/images/caesarnike.jpg){:width="400px"}
 
-Fig. 1.3. Coin of Juilus Caesar depicting a Nike which was the Greek goddess of victory and a close companion to Zeus.
+Fig. 1.3. Coin of Juilus Caesar depicting a Nike which was the Greek goddess of victory and a close companion to Zeus. One the left he is wearing a prists veil signifying his position as Pontifex Maximus (high priest) in the Flammen Dialis cult. 
 
 ![Fig.1.4](/images/asandernike.jpg){:width="400px"}
 
