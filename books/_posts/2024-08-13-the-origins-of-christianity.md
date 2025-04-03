@@ -239,7 +239,7 @@ BOOK I. THE ORIGINS OF CHRISTIANITY
 
 ### Chapter 1: The Creation of Christianity
 
-Over two millennia ago, the term "Jew" denoted the Iudii or Iudaei, a Celtic tribe whose religious practices were rooted in Druidism. The Greek Ptolemaioi at the Alexandrian School in Ptolemaic Egypt sought to bring this group under their control and assimilate them by incorporating Hellenistic elements into their religious beliefs which lead to the creation of what was the first draft of Judaism. Subsequently, a few centuries later, the Romans replicated this strategy of subversion by further undermining the already transformed religious framework of the Jews through the imposition of the Roman imperial cult, specifically, the Flamen Dialis cult or the cult of the Divine Julius. The jewish storm god Baal-Hadad (Baal, meaning lord, while Hadad was specifically revered as the god of rain, thunder, and storms) then became I(J)upiter (who was also called Jove or Iove to the Romans. The Latin pronunciation of Iove would have been Yoh-Way, or Yahweh), and their Moshiach (Messiah) was reinterpreted as Julius Caesar, I(J)upiter-Zeus (I-Zeus-> Izeus-> Iseus).
+Over two millennia ago, the term "Jew" denoted the Iudii or Iudaei who were a Celtic tribe whose religious practices were rooted in Druidism. Ptolemy I Soter subverted their religion which resuted in the first draft of judaism. This was done to achieve three goals: 1)Foment the Maccabean revolt in order to exile Greeks back to Hellas since the homeland population was low after Alexander's conquests, 2)Get them to go to war with the eastern diadochi (successor) Seleucids which benefited the other diadochi rulers including Ptolemy I Soter, 3)Subvert Canaanite identity once and for all, destroying the only contestant to Greco-Roman power in the world up to that point. Subsequently, a few centuries later, the Romans replicated this strategy of subversion by further undermining the already transformed religious framework of the Jews through the imposition of the Roman imperial cult, specifically, the Flamen Dialis cult or the cult of the Divine Julius. The jewish storm god Baal-Hadad (Baal, meaning lord, while Hadad was specifically revered as the god of rain, thunder, and storms) then became I(J)upiter (who was also called Jove or Iove to the Romans. The Latin pronunciation of Iove would have been Yoh-Way, or Yahweh), and their Moshiach (Messiah) was reinterpreted as Julius Caesar, I(J)upiter-Zeus (I-Zeus-> Izeus-> Iseus).
 
 Julius Caesar was the first "Jesus" (I(J)upiter-Zeus (I-Zeus-> Izeus-> Iseus)). The Romans used a system called 'interpretatio romana' to associate their gods with local ones as part of their colonial program. Julius Caesar, as the claimed 'son of I(J)upiter' (there was no J in Latin) would have been Iupiter-Zeus to let the Greeks know that Iupiter and Zeus were equivalent deities (Roman Jupiter and Greek Zeus both derive from the Aryan skyfather 'Dyeus Pter'. The name Zeus comes from the pronunciation of Dyeus, and Jupiter comes from the pronunciation of "Dyeus Pter"). Then subsequent emperors took on this role. I-Zeus (Izeus) eventually phonetically shifted to I-zas/Izas/Izates.\
 
@@ -522,8 +522,7 @@ could cover-up the tracks of their psyop religion which was primarily engineered
 
 ### Chapter 3: The Origins of Judaism
 
-To fully understand the Christian religion it is necessary to explain its precursors and
-the context in which they were created.
+To fully understand the Christian religion it is necessary to explain its precursors and the context in which they were created.
 
 #### 3.1 Ethnogenesis of the Jews
 
@@ -539,7 +538,7 @@ These Celtic males mixed with Neolithic Anatolian woman before their descendants
 
 #### 3.2 The Myth of a Jewish People
 
-All jewish history was made up. Their religion was Celtic Druidism that was Hellenized at the Library of Alexandria and then combined with the Divine Julius cult. So, ancient judaism (up to Rabbi Akiva) was a syncretic attempt by the Alexandrians and then Romans to pacify the jews (who were then Celts) [^25]. 
+All jewish history is made up. Jewish people were invented by Ptolemy I Soter. Before Ptolemy I Soter their religion was Celtic Druidism that was Hellenized at the Library of Alexandria and then later combined with the Divine Julius cult. So, ancient judaism (up to Rabbi Akiva) was a syncretic attempt by the Alexandrians and then Romans to pacify the jews (who were then Celts) [^25]. 
 
 #### 3.2.1 Alexandria
 
