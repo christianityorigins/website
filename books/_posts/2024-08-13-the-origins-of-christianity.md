@@ -12,12 +12,21 @@ By Ralph Perrier
 
 Contents
 
-1 The Creation of Christianity\
-2 Rome on the Bosphorus?\
-3 Subversion of the Bosphoran Imperial cult
+1 Name and Title Meanings \
+2 The Creation of Christianity\
+3 Rome on the Bosphorus?\
+4 Subversion of the Bosphoran Imperial cult
 
+1 Name and Title Meanings
 
-1 The Creation of Christianity
+-   Christ: In Greek "The Anointed One" is Chréstos/Christ or Soter. Several historical figures were Christs/Soters. In Isaiah 45:1 the jews called Cyrus the Great "The Anointed One". Alexander the Great was also a Chréstos/Soter (Josephus. Antiquities, XI. 8. Talmud, Yoma 67b).
+-   Cotys: In Thracian, "Cotys" is related to the word "kotys" which is a title that means "lord".
+-   Izates or Izas: An ancient Greek translation of the Avestan word Yazatas (Persian:
+izad), meaning "lord".
+-   Monobazus: Sabazios is the Phrygian and Thracian version of Zeus. Ma'nu is likely a diminutive of Menneus ("son of man"), and then Manu-Sabazios becomes Monobazus. Monobazus also becomes "Bazus" or "Bar Izates" shortened to "baYZTus" (or bar YZT) through frequent oral repetition which then becomes "bOETHus". The Boethusians were a jewish priestly sect.
+-   Piso cognomen: "Appius" is a cognomen (personal name) of the Claudian family. Appius and Piso are synonymous (In Greek, Appius is rendered as Appios, from there Piso). The name Piso itself would be a form of Peisistratos/Pisistratos, the leading name of ancient Athens in Greece. (Pisistratos is a Latinized spelling of the Greek Peisistratos.) It could be said that all the ruling elite of the Julio-Claudian dynasty were Piso's, including Nero who was nearly deposed by a Piso. Appius is also cognate with Arrius (through rhotacization in ancient Latin the /p/ and /r/ could be swapped).
+
+2 The Creation of Christianity
 
 There was a Byzantine [^1] imperial cult where Julius Caesar [^2] took
 on the role of Asander, King of Bosphorus [^3] (the city of Byzantine,
@@ -155,7 +164,7 @@ Cleopatros) aka Phraates V (the "King of Kings") aka Monobazus I King of
 Adiabene, who was married to his sister Cleopatra (Thea Philopator) of
 Mauretania aka Cleopatra IX aka Pythodorida Philometor aka Helene aka
 Drusilla of Mauretania aka Julia Ourania of Parthia aka 'Philo of
-Alexandria'.
+Alexandria'. She was also Claudius and Nero's secretary Pallas and Vespasian's first cousin and mistress Antonia Caenis. "The full name of Pallas was Marcus Antonius Pallas, the Antonius part is an obvious sign of descent from Mark Antony and that Pallas wasn't a random slave. 
 
 ![Fig.
 1.7](/images/AlexanderPhilo.jpg){:width="400px"}
@@ -270,7 +279,7 @@ I(J)upiter-Zeus [^12] ('I-Zeus' -> Iesus) role as an avatar, which is
 why I identify many prominent Romans as having contributed to the bible
 (e.g. Titus Flavian Clemens aka "Clement of Rome").
 
-2 Rome on the Bosphorus?
+3 Rome on the Bosphorus?
 
 My research on the origins of Christianity takes me to the Bosphorus
 river in classical Anatolia (Julius Caesar = Asander, King of Bosphorus,
@@ -302,7 +311,7 @@ Etruscans who established Rome were invaders from Anatolia, and the
 Carians who hailed from southwest Anatolia have a strong connection with
 the settlement of Rome (Aquilla = Qos = god of Kos of Caria).
 
-3 Subversion of the Bosphoran Imperial cult
+4 Subversion of the Bosphoran Imperial cult
 
 Sometime after the Bar Kokhba Revolt (132--136 CE), a group of rabbis
 that were headed by a rabbi named Akiva who lead the Talmudic Pharisees
