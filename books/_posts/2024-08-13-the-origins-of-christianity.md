@@ -16,6 +16,7 @@ Contents
 2 The Creation of Christianity\
 3 Rome on the Bosphorus?\
 4 Subversion of the Bosphoran Imperial cult
+5 Addendum
 
 1 Name and Title Meanings
 
@@ -400,6 +401,18 @@ in 19 AD by Tiberius, and in 41 AD by Claudius. Claudius in his letter
 of warning to the Jews in Egypt (preserved in a papyrus in the British
 Museum, P. Lond. 1912) described them as"the fomenters of a universal
 plague.".
+
+Addendum
+
+A few notes on the term "Jew".
+
+Ceasar's gentilice (surname) was Iulius. We are told by Virgil that it goes back to Ceasar's supposed ancestor Iulus or Iule, after the ancient Celtic tribe known as the Iudii or Iudaei, who inhabited the region of Gaul (modern-day France) and Britain. I(J)upiter was also called Jove or Iove to the Romans. The Latin pronunciation of Iove would have been Yoh-Way, i.e Yahweh/Yhwh, so Yahweh Saboath, the god of the hebrew bible, is I(J)ove (Roman Zeus) Sabazios (Thracian Zeus).
+
+Abel and Cain are just a copy of Romulus and Remus. Judas Iscariot is a copy of Brutus. Genesis 4:5-31. Enoch, Irad, Mehujael, Methuselah, Lamech, Seth, Enosh, Kenan, Mahalalel, are copies of Titus Livy's Regal Rome of the seven kings.
+
+The Proto-Indo-European root for "Julius" (Iulius in Latin) is reconstructed as "yews", while the Proto-Indo-European root for "Jew" (Iudaeus in Latin) is also reconstructed as "yews". 'Gaius' in the name Gaius Julius Caesar refers to his tribal affiliation in the Gallian (Gauls (Galli = Celt in Latin)) tribe. Also, Caesar, Kaiser (German for Caesar), Kesar or Kaysar (Persian for Caesar), Kaisar (Ancient Greek for Caesar), Tsar (Russian for Caesar) and Khazar are not just phonetic coincidences. It all ties back to the Divine Julius cult. As explained in Chapter 1, Julius Caesar was a title, so Gaius Julius Caesar could conceivably translate to: King Jew of the Celtic tribe Galli. 
+
+So, it seems that the Romans (in Anatolia) tried to subjugate the tribe that became modern jews by forcing an imperial cult on them and they got their identity from here. This is why several prominant members of this royal family identified as "Jews" despite being Aryan Sarmatians and Celtic Galatians.
 
 Further reading
 
