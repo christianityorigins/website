@@ -1,8 +1,8 @@
 ---
 layout: default
 open_links_in_new_tab: true
-title: "Book I: On the Origins of Christianity"
-date: 2024-09-13
+title: "Book I: On the Origins of Judaism"
+date: 2024-07-13
 category: books
 ---
 
