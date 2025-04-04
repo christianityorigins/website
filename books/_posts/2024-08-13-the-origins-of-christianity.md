@@ -157,6 +157,17 @@ Mauretania aka Cleopatra IX aka Pythodorida Philometor aka Helene aka
 Drusilla of Mauretania aka Julia Ourania of Parthia aka 'Philo of
 Alexandria'.
 
+![Fig.
+1.7](/images/AlexanderPhilo.jpg){:width="400px"}
+
+Fig. 1.7. (L) Alexander (grandson of King Herod) aka Gaius Julius
+Alexander, Herodian Prince of Judaea aka Alexander the Alabarch aka
+(King/Tetrarch) Ptolemy (Alexander) bar Menneus aka Ptolemy of
+Mauretania aka "Jesus" in the bible. (R) Cleopatra (Thea Philopator) of
+Mauretania aka Cleopatra IX aka Pythodorida Philometor aka Helene aka
+Drusilla of Mauretania aka Julia Ourania of Parthia aka 'Philo of
+Alexandria'.
+
 Alexander (grandson of King Herod) and his sister wife Cleopatra (Thea
 Philopator) of Mauretania had two sons: Tiberius Julius Alexander aka
 Arrius Calpernius Piso aka Arrius Varus aka Tiberius Julius Cotys (In
@@ -166,9 +177,15 @@ Cleopatros (Cantheras/Panthera) ben Josephus bar Menneus aka Ma'nu of
 Adiabene/Edessa aka Ptolemy aka Yakov Zu Tolomoy aka Izates aka Jesus
 Emmanuel aka Monobazus of Adiabene [^8]
 
-![Fig. 1.7](/images/coin-abgar-phraates.png){:width="400px"}
+![Fig.
+1.8](/images/Josephus.jpg){:width="400px"}
 
-Fig. 1.7. (L) and (R) show King Izates Monobazus of Edessa (known in
+Fig. 1.8. 'Josephus' bust which I identify as
+Tiberius Julius Alexander. Compare it to Nerva's depictions. So, 'Josephus' was Philo of Alexandria's son.
+
+![Fig. 1.9](/images/coin-abgar-phraates.png){:width="400px"}
+
+Fig. 1.9. (L) and (R) show King Izates Monobazus of Edessa (known in
 Greek as the "Kingdom of Ourania" or in English as the "Kingdom of
 Heaven") wearing a crown of thorns. Izates or Izas is his title which is
 an ancient Greek translation of the Avestan word Yazatas (Persian:
@@ -177,9 +194,9 @@ and Sultan Ezid in the Yazadi ('Iza'di) religion. He was the uncle of
 Tiberius Julius Sauromates II, King of Bosphorus. The middle image
 source: The Alexander Mosaic, Huqoq, Israel.
 
-![Fig.1.8](/images/SauromatesII.jpg){:width="400px"}
+![Fig.1.10](/images/SauromatesII.jpg){:width="400px"}
 
-Fig. 1.8. Tiberius Julius Sauromates II, King of Bosphorus, who was the
+Fig. 1.10. Tiberius Julius Sauromates II, King of Bosphorus, who was the
 son of Tiberius Julius Cotys (aka Tiberius Julius Alexander aka Arrius
 Calpernius Piso aka Arrius Varus aka Emperor Nerva), great-grandson of
 Dynamis aka Cleopatra and Mark Antony. Does he look familiar? ΒΑCΙΛΕΩC
@@ -321,21 +338,6 @@ religion makes it easier for a population to adapt. So, they just took
 one of the imperial cults of the time and infused a slave morality into
 it.
 
-This conspiracy was so elaborate that this group even rewrote history to
-make it fit with their new religion. Josephus was an alias for
-Hegesippus [^13] (the name Hegesippus is most likely a Latin to Greek
-corruption of 'Iosippus', the Latinized spelling of Josephus) who was
-another person associated with the 'Alexandrian School' in Egypt and who
-was possibly a student of rabbi Akiva. The book 'The Antiquities of the
-Jews' was a pseudo-epigraphical work (of propaganda) that was backdated
-to make christianity look legitimate in the same way that the 'Letter of
-Aristeas' was backdated to exaggerate the age of the Septuagint. It was
-historical fiction. I would even hazard a guess that this group was
-responsible for burining down the Library of Alexandria which resulted
-in the loss of all recorded history up until that point so that they
-could cover-up the tracks of their psyop religion which was primarily
-engineered at the Alexandrian School.
-
 Endnotes
 
 (a) The symbol of the cross, Celtic cross/high cross/sun cross/solar
@@ -362,7 +364,7 @@ Endnotes
 
 (c) How did christianity spread? Vespasian and his sons Titus and Domitian
 brought 100,000 jewish "slaves" to Rome (Josephus, Jewish War vi, 9)
-[^14]. It seems likely that the 100,000 jewish "slaves" joined the jews
+[^13]. It seems likely that the 100,000 jewish "slaves" joined the jews
 that were already in Rome and they became the early church missionaries
 and profited from selling this religion to the slaves and exploited
 classes.
@@ -386,7 +388,7 @@ classes.
     progenitor, or prime avatar, in this imperial cult. \
 (f) The jews were expelled at least three times from Rome after being
 accused of missionary efforts/co-opting Roman religions and making them
-jewish [^15]. In 139 BC they were expelled by Gnaeus Cornelius Hispanus
+jewish [^14]. In 139 BC they were expelled by Gnaeus Cornelius Hispanus
 for "corrupting the cult of"Jupiter Sabazius". They were then expelled
 in 19 AD by Tiberius, and in 41 AD by Claudius. Claudius in his letter
 of warning to the Jews in Egypt (preserved in a papyrus in the British
@@ -635,16 +637,10 @@ Footnotes
     https://en.wikipedia.org/wiki/Interpretatio_graeca.
     [[link](https://en.wikipedia.org/wiki/Interpretatio_graeca)]
 
-[^13]: "Josephan Corpus Began Life as a Christian Forgery" by Stephan
-    Huller
-    [[link](https://stephanhuller.blogspot.com/2010/08/i-think-i-can-prove-that-our-josephan.html)
-    --"Chasing Hegesippus" by Peter Kirby
-    [link](https://peterkirby.com/chasing-hegesippus.html)
-
-[^14]: Josephus, Jewish War vi, 9 --How Yahweh Conquered Rome. Laurent
+[^13]: Josephus, Jewish War vi, 9 --How Yahweh Conquered Rome. Laurent
     Guyénot. https://www.unz.com/article/how-yahweh-conquered-rome/
 
-[^15]: https://en.wikipedia.org/wiki/Claudius%27_expulsion_of_Jews_from_Rome
+[^14]: https://en.wikipedia.org/wiki/Claudius%27_expulsion_of_Jews_from_Rome
     ---https://en.wikipedia.org/wiki/Sabazios#Jewish_connection
     ---Emperor Caligula Brought an End to the Illustrious Ptolemies, but
     Why?. Ancient Origins Reconstructing the Story of Humanity's Past.
