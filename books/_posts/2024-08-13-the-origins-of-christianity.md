@@ -23,6 +23,14 @@ Contents
 -   Cotys: In Thracian, "Cotys" is related to the word "kotys" which is a title that means "lord".
 -   Izates or Izas: An ancient Greek translation of the Avestan word Yazatas (Persian:
 izad), meaning "lord".
+-   Jesus: Iupiter-Zeus (I(J)upiter-Zeus (I-Zeus-> Izeus-> Iseus)). Julius Caesar was the first "Jesus". The Romans used a system called 'interpretatio romana' to associate their gods with local ones as part of their colonial program.
+Julius Caesar, as the claimed 'son of I(J)upiter' (there was no J in
+Latin) would have been Iupiter-Zeus to let the Greeks know that Iupiter
+and Zeus were equivalent deities (Roman Jupiter and Greek Zeus both
+derive from the Aryan skyfather 'Dyeus Pter'. The name Zeus comes from
+the pronunciation of Dyeus, and Jupiter comes from the pronunciation of
+"Dyeus Pter"). Then subsequent emperors took on this role. I-Zeus
+(Izeus) eventually phonetically shifted to I-zas/Izas/Izates.
 -   Monobazus: Sabazios is the Phrygian and Thracian version of Zeus. Ma'nu is likely a diminutive of Menneus ("son of man"), and then Manu-Sabazios becomes Monobazus. Monobazus also becomes "Bazus" or "Bar Izates" shortened to "baYZTus" (or bar YZT) through frequent oral repetition which then becomes "bOETHus". The Boethusians were a jewish priestly sect.
 -   Piso cognomen: "Appius" is a cognomen (personal name) of the Claudian family. Appius and Piso are synonymous (In Greek, Appius is rendered as Appios, from there Piso). The name Piso itself would be a form of Peisistratos/Pisistratos, the leading name of ancient Athens in Greece. (Pisistratos is a Latinized spelling of the Greek Peisistratos.) It could be said that all the ruling elite of the Julio-Claudian dynasty were Piso's, including Nero who was nearly deposed by a Piso. Appius is also cognate with Arrius (through rhotacization in ancient Latin the /p/ and /r/ could be swapped).
 
@@ -34,17 +42,6 @@ later called Constantinople and now Istanbul was/is located in the area
 called Bosphorus), and his wife Cleopatra used the regional alias of
 Dynamis Ourania [^4] (translates to 'heavenly power'), queen of
 Bosporus.
-
-Julius Caesar was the first "Jesus" (I(J)upiter-Zeus (I-Zeus-> Izeus->
-Iseus)). The Romans used a system called 'interpretatio romana' to
-associate their gods with local ones as part of their colonial program.
-Julius Caesar, as the claimed 'son of I(J)upiter' (there was no J in
-Latin) would have been Iupiter-Zeus to let the Greeks know that Iupiter
-and Zeus were equivalent deities (Roman Jupiter and Greek Zeus both
-derive from the Aryan skyfather 'Dyeus Pter'. The name Zeus comes from
-the pronunciation of Dyeus, and Jupiter comes from the pronunciation of
-"Dyeus Pter"). Then subsequent emperors took on this role. I-Zeus
-(Izeus) eventually phonetically shifted to I-zas/Izas/Izates.
 
 ![Fig.1.1](/images/caesarasander.png){:width="400px"}
 
