@@ -1,7 +1,7 @@
 ---
 layout: default
 open_links_in_new_tab: true
-title:  "Book II: Christianity as a Slave Morality Religion and its Modern Secularized Variants: A Jewish Conspiracy and Hoax on the Gentiles"
+title:  "Christianity as a Slave Morality Religion and its Modern Secularized Variants"
 date:   2016-08-12 09:00:00 +0200
 updated: 2024-08-12 19:46:50 +0200
 category: books

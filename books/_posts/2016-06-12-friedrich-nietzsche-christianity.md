@@ -3,7 +3,7 @@ layout: post
 open_links_in_new_tab: true
 title:  "Friedrich Nietzsche on Christianity"
 date:   2016-06-12 09:00:00 +0200
-category: blog
+category: books
 ---
 
 Quotes
