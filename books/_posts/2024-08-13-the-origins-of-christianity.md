@@ -556,6 +556,8 @@ All jewish history is made up. Jewish people were invented by Ptolemy I Soter. B
 
 It was in Alexandria at the Library of Alexandria where the Pentateuch and Septuagint were written. See: Chapter 7. The Alexandrian School. Sometime after 283-246 BCE (Ptolemy I Soter's reign) their religion (Druidism) was Hellenized. The myth of the jewish people and the Laws of Moses were based on Plato’s hypothetical colony of Magnesia from his thesis called The Laws (347 BC) in which the proposed charter for the Cretan colony of Magnesia was modeled in large part on Athenian legal and constitutional traditions. Ancestor received law from a deity, hereditary priesthood rather than king, as well as the division into 12 tribes were all part of the formula. Plato's Timaeus (360 BC) is where the story of Abraham comes from. Plato's Timaeus is also the source for Genesis 1-11. Homer's Odysseey was the source of Genesis 24, 42-46 [^26]. The biblical concept of hell was stolen from Plato's Replublic ('Myth of Er'), and the spiritual plane of Heaven is ripped off from Plato's 'World of Forms'. Exodus is just a semitized retcon of Jason and the Argonauts, and the Oracles Against the Nations plagiarize the Sibylline Oracles. 
 
+Moses = Osarseph (Osar (Osiris) and seph (son) = Son of Osirus) or Serapis. The "Ser" symbol in Ser-apis is the same as seph meaning "son of". Serapis can be interpreted as "Son of Apis", but also potentially as "Son of Osiris", so Sarapis is just another word for Osarseph. The Serapis cult was invented by Ptolemy I Soter to subjugate the Egyptians to their Greek rulers.
+
 The reason their relgion was subverted in Alexandria was because Ptolemy I Soter was trying to achieve three main goals: 1)Foment the Maccabean revolt in order to exile Greeks back to Hellas since the homeland population was low after Alexander's conquests, 2)Get them to go to war with the eastern diadochi (successor) Seleucids which benefited the other diadochi rulers including Ptolemy I Soter, 3)Subvert Canaanite identity once and for all, destroying the only contestant to Greco-Roman power in the world up to that point. He was also probably trying to civilize them as well (child sacrifice of the firstborn on the 8th day at Gehinnom was replaced with circumcision, etc.).
 
 #### 3.2.2 Romanization
@@ -884,15 +886,6 @@ Endnotes (Chapter 8)
     "With its character largely determined by Jewish elements" --
     Encyclopedia Britannica article on the Alexandrian School (1911)
     https://en.wikisource.org/wiki/1911_Encyclopædia_Britannica/Alexandrian_School\
-(b) Manetho in his book 'Aegyptiaca' wrote that the Hyksos or Habiru
-    were lead by a priest named Osarseph and that Osarseph = Moses.
-    Interestingly, Osarseph also = Ahmose Sipair or Serapis. The "Si"
-    symbol in Si-pair, ie. "son of", is really "Ser". Also, pharaoh
-    Thutmose who expelled jews to Jerusalem has been proposed as
-    "Moses". Was the Serapis Cult invented by the same family of jewish
-    high priests who invented Zoroastrianism as a way of connecting the
-    Egyptian people to them and flattering Thutmose III and then was
-    later retconned for Ptolemy Soter?
 
 ### Chapter 9: The Origins of Gnosticism
 
