@@ -285,52 +285,6 @@ Etruscans who established Rome were invaders from Anatolia, and the
 Carians who hailed from southwest Anatolia have a strong connection with
 the settlement of Rome (Aquilla = Qos = god of Kos of Caria).
 
-Endnotes (Chapter 1)
-
-(a) The symbol of the cross, Celtic cross/high cross/sun cross/solar
-    wheel, et.al., which predate christianity by thousands of years
-    (Callanish Stones. Wikipedia,
-    https://en.wikipedia.org/wiki/Callanish_Stones
-    [[link](https://en.wikipedia.org/wiki/Callanish_Stones)]), was a
-    prominant symbol in ancient Europe. The circle is a sunwheel that
-    together with the cross served as a sundial that had markings to
-    track the time, date, and lunar and agricultural cycles. Also, in
-    portable form it was a sundial clock and compass. Although not a
-    religious symbol, as they were astronomical tools, every city in
-    ancient Europe would have had a large cross raised at its center in
-    the same way that every city today has a clock tower at it's center.
-    So you can see how christianity spread throughout Europe, through
-    subversion. Most Europeans must have thought that christianity was
-    simply the same relgion that they were already worshiping, and
-    because of widespread illiteracy at the time, they had no idea what
-    garbage was inside the bible.
-
-(b) Suetonius (Divus Julius 88) notes Caesar's comet or 'Julian Star'
-    (or Sidus Iulium) rose during his funeral games, interpreted as his
-    soul's ascent---eerily similar to Christ's resurrection narrative.
-
-(c) The Letter to Flora and the Tripartite Tractate write about a
-    Gnostic teacher called "Ptolemy" who I identify as Ptolemy Menneus
-    aka Simon Boethus aka Simon Magus.
-
-(d) Vespassian was also a great-grandson of Cleopatra and Mark Antony
-    (King Herod) (The Royal Ancestry of Emperor Vespasian (The Royal
-    Ancestry of Emperor Vespasian. Henry Davis,
-    https://www.henryhdavis.com/theroyalancestryofemperorvespasian
-    [[link](https://www.henryhdavis.com/theroyalancestryofemperorvespasian)])
-
-(e) The Celts of Galatia in classical Anatolia worshiped a deity called
-    Esus/Hesus/Iesus. There is a first century bronze bust that was
-    dedicated to Esus with the inscription "Esumopas Cnusticus".
-    Esumopas = Slave or servant of Esus in Celtic languages, and
-    Cnusticus is phoneticaly related to both Gnosticus (which is
-    obviously related to Gnosticism) and also Christus. Was
-    Esus/Hesus/Iesus the deified Asander of Bosphorus/Julius Caesar
-    (I-Zeus)? Esus also means "lord" in Celtic languages. The location,
-    Celtic language and deity, Esus meaning "lord" in Celtic languages,
-    Esus being a christ, proves my theory that Asander was the
-    progenitor, or prime avatar, in this imperial cult.
-
 3 Subversion of the Bosphoran Imperial cult
 
 Sometime after the Bar Kokhba Revolt (132--136 CE), a group of rabbis
@@ -382,18 +336,55 @@ in the loss of all recorded history up until that point so that they
 could cover-up the tracks of their psyop religion which was primarily
 engineered at the Alexandrian School.
 
-Appendix A
+Endnotes
 
-How did christianity spread? Vespasian and his sons Titus and Domitian
+(a) The symbol of the cross, Celtic cross/high cross/sun cross/solar
+    wheel, et.al., which predate christianity by thousands of years
+    (Callanish Stones. Wikipedia,
+    https://en.wikipedia.org/wiki/Callanish_Stones
+    [[link](https://en.wikipedia.org/wiki/Callanish_Stones)]), was a
+    prominant symbol in ancient Europe. The circle is a sunwheel that
+    together with the cross served as a sundial that had markings to
+    track the time, date, and lunar and agricultural cycles. Also, in
+    portable form it was a sundial clock and compass. Although not a
+    religious symbol, as they were astronomical tools, every city in
+    ancient Europe would have had a large cross raised at its center in
+    the same way that every city today has a clock tower at it's center.
+    So you can see how christianity spread throughout Europe, through
+    subversion. Most Europeans must have thought that christianity was
+    simply the same relgion that they were already worshiping, and
+    because of widespread illiteracy at the time, they had no idea what
+    garbage was inside the bible.
+
+(b) Suetonius (Divus Julius 88) notes Caesar's comet or 'Julian Star'
+    (or Sidus Iulium) rose during his funeral games, interpreted as his
+    soul's ascent---eerily similar to Christ's resurrection narrative.
+
+(c) How did christianity spread? Vespasian and his sons Titus and Domitian
 brought 100,000 jewish "slaves" to Rome (Josephus, Jewish War vi, 9)
 [^14]. It seems likely that the 100,000 jewish "slaves" joined the jews
 that were already in Rome and they became the early church missionaries
 and profited from selling this religion to the slaves and exploited
 classes.
 
-Appendix B
+(d) Vespassian was also a great-grandson of Cleopatra and Mark Antony
+    (King Herod) (The Royal Ancestry of Emperor Vespasian (The Royal
+    Ancestry of Emperor Vespasian. Henry Davis,
+    https://www.henryhdavis.com/theroyalancestryofemperorvespasian
+    [[link](https://www.henryhdavis.com/theroyalancestryofemperorvespasian)])
 
-The jews were expelled at least three times from Rome after being
+(e) The Celts of Galatia in classical Anatolia worshiped a deity called
+    Esus/Hesus/Iesus. There is a first century bronze bust that was
+    dedicated to Esus with the inscription "Esumopas Cnusticus".
+    Esumopas = Slave or servant of Esus in Celtic languages, and
+    Cnusticus is phoneticaly related to both Gnosticus (which is
+    obviously related to Gnosticism) and also Christus. Was
+    Esus/Hesus/Iesus the deified Asander of Bosphorus/Julius Caesar
+    (I-Zeus)? Esus also means "lord" in Celtic languages. The location,
+    Celtic language and deity, Esus meaning "lord" in Celtic languages,
+    Esus being a christ, proves my theory that Asander was the
+    progenitor, or prime avatar, in this imperial cult. \
+(f) The jews were expelled at least three times from Rome after being
 accused of missionary efforts/co-opting Roman religions and making them
 jewish [^15]. In 139 BC they were expelled by Gnaeus Cornelius Hispanus
 for "corrupting the cult of"Jupiter Sabazius". They were then expelled
