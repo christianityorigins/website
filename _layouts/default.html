@@ -1,20 +1,10 @@
 <!DOCTYPE html>
 <html lang="en">
+<html>
 <head>
   {% include head.html %}
-  {% seo %}
-  <style>
-    html, body {
-      margin: 0;
-      padding: 0;
-      background-color: white;
-      color: black; /* Ensures links/text are visible */
-    }
-    * {
-      box-sizing: border-box;
-      text-decoration: none; /* Optional: plain links */
-    }
-  </style>
+{% seo %}
+
 </head>
 <body>
   {% include header.html %}
@@ -25,12 +15,13 @@
     <script>
       document.addEventListener('DOMContentLoaded', function() {
         const links = document.querySelectorAll('a');
-        const siteBaseUrl = '{{ site.url }}';
+        const siteBaseUrl = '{{ site.url }}'; // Get the base URL of your site
+
         links.forEach(link => {
           const href = link.getAttribute('href');
           if (href && (href.startsWith('http') || href.startsWith('https')) && !href.startsWith(siteBaseUrl)) {
             link.setAttribute('target', '_blank');
-            link.setAttribute('rel', 'noopener noreferrer');
+            link.setAttribute('rel', 'noopener noreferrer'); // For security reasons
           }
         });
       });
