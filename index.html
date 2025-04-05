@@ -9,10 +9,12 @@ Welcome to the homepage of Ralph Perrier (B.A. Philosophy). I am an independent 
 
 <!-- Books section -->
 <h3>Writing</h3>
-<p style="margin: 0; padding: 0;">
+<ul>
   {% for post in site.posts %}
     {% if post.category == "books" %}
-      <a href="{{ post.url }}">{{ post.title }}</a><br>
+      <li>
+        <a href="{{ post.url }}">{{ post.title }}</a>
+      </li>
     {% endif %}
   {% endfor %}
-</p>
+</ul>
