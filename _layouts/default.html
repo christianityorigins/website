@@ -4,10 +4,15 @@
   {% include head.html %}
   {% seo %}
   <style>
-    body {
-      background-color: white;
+    html, body {
       margin: 0;
       padding: 0;
+      background-color: white;
+      color: black; /* Ensures links/text are visible */
+    }
+    * {
+      box-sizing: border-box;
+      text-decoration: none; /* Optional: plain links */
     }
   </style>
 </head>
@@ -21,7 +26,6 @@
       document.addEventListener('DOMContentLoaded', function() {
         const links = document.querySelectorAll('a');
         const siteBaseUrl = '{{ site.url }}';
-
         links.forEach(link => {
           const href = link.getAttribute('href');
           if (href && (href.startsWith('http') || href.startsWith('https')) && !href.startsWith(siteBaseUrl)) {
