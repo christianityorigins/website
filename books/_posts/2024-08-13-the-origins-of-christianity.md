@@ -35,9 +35,11 @@ the pronunciation of Dyeus, and Jupiter comes from the pronunciation of
 "Dyeus Pter"). Then subsequent emperors took on this role. I-Zeus
 (Izeus) eventually phonetically shifted to I-zas/Izas/Izates.
 -   Monobazus: Sabazios is the Phrygian and Thracian version of Zeus. Ma'nu is likely a diminutive of Menneus ("son of man"), and then Manu-Sabazios becomes Monobazus. Monobazus also becomes "Bazus" or "Bar Izates" shortened to "baYZTus" (or bar YZT) through frequent oral repetition which then becomes "bOETHus". The Boethusians were a jewish priestly sect.
--   Piso cognomen: "Appius" is a cognomen (personal name) of the Claudian family. Appius and Piso are synonymous (In Greek, Appius is rendered as Appios, from there Piso). The name Piso itself would be a form of Peisistratos/Pisistratos, the leading name of ancient Athens in Greece. (Pisistratos is a Latinized spelling of the Greek Peisistratos.) It could be said that all the ruling elite of the Julio-Claudian dynasty were Piso's, including Nero who was nearly deposed by a Piso. Appius is also cognate with Arrius (through rhotacization in ancient Latin the /p/ and /r/ could be swapped).
+-   Piso cognomen: "Appius" is a cognomen (personal name) of the Claudian family. Appius and Piso are synonymous (In Greek, Appius is rendered as Appios, from there Piso). The name Piso itself would be a form of Peisistratos/Pisistratos, the leading name of ancient Athens in Greece. (Pisistratos is a Latinized spelling of the Greek Peisistratos) It could be said that all the ruling elite of the Julio-Claudian dynasty were Piso's, including Nero who was nearly deposed by a Piso. Appius is also cognate with Arrius (through rhotacization in ancient Latin the /p/ and /r/ could be swapped).
 
 2 The Creation of Christianity
+
+The early rulers of Sumer were all priests. In Egypt, the Pharaohs were the claimed sons of gods. The Persians copied this formula of deifying their leaders but took it a step further by turning their imperial cult into a slave-morality religion as part of their colonial program. The Persians created Zoroastrianism and Buddhism (Gautama Buddha was Gaumata Bardya the son of Cyrus the Great who was the satrap (governor) of the Persian province of Bactra (modern day Afghanistan)) and then the Greeks followed suit with the Ptolemic cult of Alexander and the Serapis cult invented by Ptolemy I Soter. Then the Romans followed this formula with their imperial cults. Religious syncreticism and slave-morality religions that stripped the population of their will to power, as well as employing an incredible number of regional aliases, locations, fictional stories, faked adoptions, and fabricated deaths for their family members is how the imperial powers maintained their empire and prevented any rebellion. Christianity is a relic of one of these imperial slave moralities.
 
 2.2 Julius Caesar aka Asander of Bosphorus \
 
@@ -188,7 +190,7 @@ Emmanuel aka Monobazus of Adiabene [^8]
 1.7](/images/Josephus.jpg){:width="400px"}
 
 Fig. 1.7. 'Josephus' bust which I identify as
-Tiberius Julius Alexander. Compare it to Nerva's depictions. So, 'Josephus' was Philo of Alexandria's son. Tiberius Julius Alexander's son was named 'Philopappos' and one of his mothers aliases was 'Alexandria bat Matthias' which is where the pseudonym 'Joseph bar Matthias' comes from. Also, drop the initial b and final s in the name "Bar Mathias" and you get (Joseph of) Arimathea). Also, drop the initial b and final s in the name "Bar Mathias" and you get (Joseph of) Arimathea).
+Tiberius Julius Alexander. Compare it to Nerva's depictions. So, 'Josephus' was Philo of Alexandria's son. Tiberius Julius Alexander's son was named 'Philopappos' and one of his mothers aliases was 'Alexandria bat Matthias' which is where the pseudonym 'Joseph bar Matthias' comes from. Also, drop the initial b and final s in the name "Bar Mathias" and you get (Joseph of) Arimathea.
 
 ![Fig. 1.8](/images/coin-abgar-phraates.png){:width="400px"}
 
