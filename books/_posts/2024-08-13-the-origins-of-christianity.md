@@ -283,7 +283,7 @@ Vespassian was also a great-grandson of Cleopatra and Mark Antony (King Herod). 
 
 Fig. 1.10. Compare Vespasian's depiction to Herod Agrippa I
 
-'Antonia Caenis' was Vespassians mistress who was his first cousin who was Cleopatra (Thea Philopator) of Mauretania aka Cleopatra IX aka Helene aka Drusilla of Mauretania aka Julia Ourania of Parthia aka Philo of Alexandria. Caenis was the Greek goddess who was transformed into a man, and she role-played as a man (Philo).
+'Antonia Caenis' was Vespassians mistress who was his first cousin who was Cleopatra (Thea Philopator) of Mauretania aka Cleopatra IX aka Helene aka Drusilla of Mauretania aka Julia Ourania of Parthia aka Philo of Alexandria. (Caenis was the Greek goddess who was transformed into a man, and she role-played as two men: Marcus Antonius Pallas and Philo).
 
 Cleopatra (Thea Philopator) of Mauretania aka Cleopatra IX aka Helene aka Drusilla of Mauretania aka Julia Ourania of Parthia aka Philo of Alexandria aka Antonia Caenis's son was Tiberius Julius Alexander aka Josephus.
 
