@@ -316,7 +316,7 @@ brought up in Jerusalem "at the feet of Gamaliel" (Acts 22:3)), and who
 was the one that came up with the idea that "Rome was Edom", realized
 that subversion was the only way to defeat the Romans. So, rabbi Akiva
 and his students Aquila of Sinope aka Onkelos, Markianos of Alexandria
-aka Marcion of Sinope, Simon ben Yohai (Justin Martyr?), Ketia bar
+aka Marcion (Greek Markion) of Sinope, Simon ben Yohai (Justin Martyr?), Ketia bar
 Shalom aka 'Clement of Rome', Aristo of Pella, who is a good candidate
 for being Luke the Evangelist ('Aristo', or 'Ariston' is a name that is
 related to 'Proteus' The former means 'first-rank, noble' the second
@@ -331,10 +331,7 @@ Many of rabbi Akiva's students and contemporaries had connections to the
 Alexandrian School in Egypt and were themselves students of Philo of
 Alexandria.
 
-Rabbi Akiva was likely Paul the Apostle. In Acts 18:2-3 and Romans 16:3
-NASB, it is claimed that Aquila of Sinope and his wife Prisca or
-Priscilla lived with Paul the Apostle and Paul called them "my fellow
-workers in Christ Jesus.
+Rabbi Akiva was likely Paul the Apostle. In Acts 22:3 "Paul" claims to have been educated at the feet of Gamaliel who was the teacher of rabbi Akiva, and in Acts 18:2-3 and Romans 16:3 NASB, it is claimed that Aquila of Sinope and his wife Prisca or Priscilla lived with Paul the Apostle and Paul called them “my fellow workers in Christ Jesus.
 
 Getting people to abandon their religons for a new one is an almost impossible task, so instead, through religious syncrenism and intertextuality, creating a new sect of an established
 religion makes it easier for a population to adapt. So, they just took
