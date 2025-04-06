@@ -15,7 +15,7 @@ Contents
 1 Name and Title Meanings \
 2 The Creation of Christianity\
 3 Rome on the Bosphorus?\
-4 Subversion of the Bosphoran Imperial cult
+4 Subversion of the Bosphoran Imperial cult\
 5 Addendum
 
 1 Name and Title Meanings
@@ -44,29 +44,25 @@ called Bosphorus), and his wife Cleopatra used the regional alias of
 Dynamis Ourania [^4] (translates to 'heavenly power'), queen of
 Bosporus.
 
-![Fig.1.1](/images/caesarasander.png){:width="400px"}
+![Fig.1.1](/images/caesarstar.jpg){:width="400px"}
 
-Fig. 1.1. (L) Asander, King of Bosphorus, (R) Julius Caesar 
+Fig. 1.1. Julius Caesar. One side of the coin shows a cresent and the other side shows a Nike which was the Greek goddess of victory and a close companion to Zeus.
 
-![Fig.1.2](/images/asander.jpg){:width="400px"}
+![Fig.1.2](/images/asandernike.jpg){:width="400px"}
 
-Fig. 1.2. Another depition of Asander which shows the star and cresent that is visible in the Julius Caesar coin above. The coin also shows a winged Pegasus all within a Dionysiac wreath of ivy and fruit. 
+Fig. 1.2. Coin of Asander, King of Bosphorus depicting a Nike
 
-![Fig.1.3](/images/caesarnike.jpg){:width="400px"}
+![Fig.1.3](/images/asander.jpg){:width="400px"}
 
-Fig. 1.3. Coin of Juilus Caesar depicting a Nike which was the Greek goddess of victory and a close companion to Zeus. On the left he is wearing a prists veil signifying his position as Pontifex Maximus (high priest) in the Flammen Dialis cult. 
+Fig. 1.3. Another depition of Asander which shows the star and cresent that is visible in the Julius Caesar coin above. The coin also shows a winged Pegasus all within a Dionysiac wreath of ivy and fruit. 
 
-![Fig.1.4](/images/asandernike.jpg){:width="400px"}
+![Fig.1.4](/images/Cleopatra%20VIIDynamis.png){:width="400px"}
 
-Fig. 1.4. Coin of Asander, King of Bosphorus depicting a Nike
+Fig. 1.4. (L) Dynamis, Queen of Bosphorus, (R) Cleopatra VII. There was obviously many years in between the ages that she was depicted, however, even in the elder Dynamis bust you can see her lazy eye and abnormally large eyes which she was reported to have had, possibly as a consequence of inbreeding. 
 
-![Fig.1.5](/images/Cleopatra%20VIIDynamis.png){:width="400px"}
+![Fig.1.5](/images/cleopatra.png){:width="400px"}
 
-Fig. 1.5. (L) Dynamis, Queen of Bosphorus, (R) Cleopatra VII. There was obviously many years in between the ages that she was depicted, however, even in the elder Dynamis bust you can see her lazy eye and abnormally large eyes which she was reported to have had, possibly as a consequence of inbreeding. 
-
-![Fig.1.6](/images/cleopatra.png){:width="400px"}
-
-Fig. 1.6. (L) Julia Mamaea, Queen of Pontus (wife of Polemon II), (R)
+Fig. 1.5. (L) Julia Mamaea, Queen of Pontus (wife of Polemon II), (R)
 Cleopatra VII. Polemon Pythodoros, King of Pontus was Julius Caesar/Asander's
 regional alias (Asander and Polemon were both married to Dynamis), and if he also played the religious role of Gaius Julius
 Sohaemus of Emesa, Priest-King of Emesa, and Cleopatra played the
@@ -165,9 +161,9 @@ Drusilla of Mauretania aka Julia Ourania of Parthia aka 'Philo of
 Alexandria'. She was also Claudius and Nero's secretary Pallas and Vespasian's first cousin and mistress Antonia Caenis. "The full name of Pallas was Marcus Antonius Pallas, the Antonius part is an obvious sign of descent from Mark Antony and that Pallas wasn't a random slave. 
 
 ![Fig.
-1.7](/images/AlexanderPhilo.jpg){:width="400px"}
+1.6](/images/AlexanderPhilo.jpg){:width="400px"}
 
-Fig. 1.7. (L) Alexander (grandson of King Herod) aka Gaius Julius
+Fig. 1.6. (L) Alexander (grandson of King Herod) aka Gaius Julius
 Alexander, Herodian Prince of Judaea aka Alexander the Alabarch aka
 (King/Tetrarch) Ptolemy (Alexander) bar Menneus aka Ptolemy of
 Mauretania aka "Jesus" in the bible. (R) Cleopatra (Thea Philopator) of
@@ -185,14 +181,14 @@ Adiabene/Edessa aka Ptolemy aka Yakov Zu Tolomoy aka Izates aka Jesus
 Emmanuel aka Monobazus of Adiabene [^8]
 
 ![Fig.
-1.8](/images/Josephus.jpg){:width="400px"}
+1.7](/images/Josephus.jpg){:width="400px"}
 
-Fig. 1.8. 'Josephus' bust which I identify as
+Fig. 1.7. 'Josephus' bust which I identify as
 Tiberius Julius Alexander. Compare it to Nerva's depictions. So, 'Josephus' was Philo of Alexandria's son.
 
-![Fig. 1.9](/images/coin-abgar-phraates.png){:width="400px"}
+![Fig. 1.8](/images/coin-abgar-phraates.png){:width="400px"}
 
-Fig. 1.9. (L) and (R) show King Izates Monobazus of Edessa (known in
+Fig. 1.8. (L) and (R) show King Izates Monobazus of Edessa (known in
 Greek as the "Kingdom of Ourania" or in English as the "Kingdom of
 Heaven") wearing a crown of thorns. Izates or Izas is his title which is
 an ancient Greek translation of the Avestan word Yazatas (Persian:
@@ -201,9 +197,9 @@ and Sultan Ezid in the Yazadi ('Iza'di) religion. He was the uncle of
 Tiberius Julius Sauromates II, King of Bosphorus. The middle image
 source: The Alexander Mosaic, Huqoq, Israel.
 
-![Fig.1.10](/images/SauromatesII.jpg){:width="400px"}
+![Fig.1.9](/images/SauromatesII.jpg){:width="400px"}
 
-Fig. 1.10. Tiberius Julius Sauromates II, King of Bosphorus, who was the
+Fig. 1.9. Tiberius Julius Sauromates II, King of Bosphorus, who was the
 son of Tiberius Julius Cotys (aka Tiberius Julius Alexander aka Arrius
 Calpernius Piso aka Arrius Varus aka Emperor Nerva), great-grandson of
 Dynamis aka Cleopatra and Mark Antony. Does he look familiar? ΒΑCΙΛΕΩC
