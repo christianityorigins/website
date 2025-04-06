@@ -303,6 +303,32 @@ I(J)upiter-Zeus [^12] ('I-Zeus' -> Iesus) role as an avatar, which is
 why I identify many prominent Romans as having contributed to the bible
 across multiple generations.
 
+Endnotes (chapter 2)
+
+(a) The symbol of the cross, Celtic cross/high cross/sun cross/solar
+    wheel, et.al., which predate christianity by thousands of years
+    (Callanish Stones. Wikipedia,
+    https://en.wikipedia.org/wiki/Callanish_Stones
+    [[link](https://en.wikipedia.org/wiki/Callanish_Stones)]), was a
+    prominant symbol in ancient Europe. The circle is a sunwheel that
+    together with the cross served as a sundial that had markings to
+    track the time, date, and lunar and agricultural cycles. Also, in
+    portable form it was a sundial clock and compass. Although not a
+    religious symbol, as they were astronomical tools, every city in
+    ancient Europe would have had a large cross raised at its center in
+    the same way that every city today has a clock tower at it's center.
+    So you can see how christianity spread throughout Europe, through
+    subversion. Most Europeans must have thought that christianity was
+    simply the same relgion that they were already worshiping, and
+    because of widespread illiteracy at the time, they had no idea what
+    garbage was inside the bible.
+
+(b) Suetonius (Divus Julius 88) notes Caesar's comet or 'Julian Star'
+    (or Sidus Iulium) rose during his funeral games, interpreted as his
+    soul's ascent---eerily similar to Christ's resurrection narrative.
+
+(c) Mithridates VI Eupator was a direct descendant of Ptolemy II Philadelphus (Ptolemy II Philadelphus (285-246 BCE) married Arsinoe I, and they had a daughter, Berenice Syra. Berenice Syra married Antiochus II Theos, a Seleucid king, and they had a son, Seleucus II Callinicus. Seleucus II Callinicus (246-225 BCE) married Laodice II, and they had a daughter, Laodice III. Laodice III married Mithridates III of Pontus, and they had a son, Pharnaces I of Pontus. Pharnaces I of Pontus (190-155 BCE) married Nysa, and they had a son, Mithridates V of Pontus.Mithridates V of Pontus (150-120 BCE) married Laodice VI, and they had a son, Mithridates VI Eupator (120-63 BCE)). Some historians believe that Ptolemy II Philadelphus was Alexander the Great's biological son that was raised by Ptolemy I Soter. Statues of Alexander and Ptolemy II Philadelphus look strinkingly like father and son. This would make Asander (who name is an obvious reference to Alexander) and Dynamis Alexander's heirs.
+
 3 Rome on the Bosphorus?
 
 My research on the origins of Christianity takes me to the Bosphorus
@@ -368,62 +394,14 @@ religion makes it easier for a population to adapt. So, they just took
 one of the imperial cults of the time and infused a slave morality into
 it.
 
-Endnotes
+Endnotes (Chapter 4)
 
-(a) The symbol of the cross, Celtic cross/high cross/sun cross/solar
-    wheel, et.al., which predate christianity by thousands of years
-    (Callanish Stones. Wikipedia,
-    https://en.wikipedia.org/wiki/Callanish_Stones
-    [[link](https://en.wikipedia.org/wiki/Callanish_Stones)]), was a
-    prominant symbol in ancient Europe. The circle is a sunwheel that
-    together with the cross served as a sundial that had markings to
-    track the time, date, and lunar and agricultural cycles. Also, in
-    portable form it was a sundial clock and compass. Although not a
-    religious symbol, as they were astronomical tools, every city in
-    ancient Europe would have had a large cross raised at its center in
-    the same way that every city today has a clock tower at it's center.
-    So you can see how christianity spread throughout Europe, through
-    subversion. Most Europeans must have thought that christianity was
-    simply the same relgion that they were already worshiping, and
-    because of widespread illiteracy at the time, they had no idea what
-    garbage was inside the bible.
-
-(b) Suetonius (Divus Julius 88) notes Caesar's comet or 'Julian Star'
-    (or Sidus Iulium) rose during his funeral games, interpreted as his
-    soul's ascent---eerily similar to Christ's resurrection narrative.
-
-(c) How did christianity spread? Vespasian and his sons Titus and Domitian
+(a) How did christianity spread? Vespasian and his sons Titus and Domitian
 brought 100,000 jewish "slaves" to Rome (Josephus, Jewish War vi, 9)
 [^13]. It seems likely that the 100,000 jewish "slaves" joined the jews
 that were already in Rome and they became the early church missionaries
 and profited from selling this religion to the slaves and exploited
 classes.
-
-(d) Vespassian was also a great-grandson of Cleopatra and Mark Antony
-    (King Herod) (The Royal Ancestry of Emperor Vespasian (The Royal
-    Ancestry of Emperor Vespasian. Henry Davis,
-    https://www.henryhdavis.com/theroyalancestryofemperorvespasian
-    [[link](https://www.henryhdavis.com/theroyalancestryofemperorvespasian)])
-
-(e) The Celts of Galatia in classical Anatolia worshiped a deity called
-    Esus/Hesus/Iesus. There is a first century bronze bust that was
-    dedicated to Esus with the inscription "Esumopas Cnusticus".
-    Esumopas = Slave or servant of Esus in Celtic languages, and
-    Cnusticus is phoneticaly related to both Gnosticus (which is
-    obviously related to Gnosticism) and also Christus. Was
-    Esus/Hesus/Iesus the deified Asander of Bosphorus/Julius Caesar
-    (I-Zeus)? Esus also means "lord" in Celtic languages. The location,
-    Celtic language and deity, Esus meaning "lord" in Celtic languages,
-    Esus being a christ, proves my theory that Asander was the
-    progenitor, or prime avatar, in this imperial cult. \
-(f) The jews were expelled at least three times from Rome after being
-accused of missionary efforts/co-opting Roman religions and making them
-jewish [^14]. In 139 BC they were expelled by Gnaeus Cornelius Hispanus
-for "corrupting the cult of"Jupiter Sabazius". They were then expelled
-in 19 AD by Tiberius, and in 41 AD by Claudius. Claudius in his letter
-of warning to the Jews in Egypt (preserved in a papyrus in the British
-Museum, P. Lond. 1912) described them as"the fomenters of a universal
-plague.".
 
 Addendum
 
