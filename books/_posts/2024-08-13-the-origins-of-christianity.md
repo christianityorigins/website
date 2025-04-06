@@ -14,6 +14,8 @@ Contents
 
 1 Name and Title Meanings \
 2 The Creation of Christianity\
+2.2 Julius Caesar aka Asander of Bosphorus \
+2.3 Flavian Dynasty \
 3 Rome on the Bosphorus?\
 4 Subversion of the Bosphoran Imperial cult\
 5 Addendum
@@ -36,6 +38,8 @@ the pronunciation of Dyeus, and Jupiter comes from the pronunciation of
 -   Piso cognomen: "Appius" is a cognomen (personal name) of the Claudian family. Appius and Piso are synonymous (In Greek, Appius is rendered as Appios, from there Piso). The name Piso itself would be a form of Peisistratos/Pisistratos, the leading name of ancient Athens in Greece. (Pisistratos is a Latinized spelling of the Greek Peisistratos.) It could be said that all the ruling elite of the Julio-Claudian dynasty were Piso's, including Nero who was nearly deposed by a Piso. Appius is also cognate with Arrius (through rhotacization in ancient Latin the /p/ and /r/ could be swapped).
 
 2 The Creation of Christianity
+
+2.2 Julius Caesar aka Asander of Bosphorus \
 
 There was a Byzantine [^1] imperial cult where Julius Caesar [^2] took
 on the role of Asander, King of Bosphorus [^3] (the city of Byzantine,
@@ -168,7 +172,7 @@ Alexander, Herodian Prince of Judaea aka Alexander the Alabarch aka
 (King/Tetrarch) Ptolemy (Alexander) bar Menneus aka Ptolemy of
 Mauretania aka "Jesus" in the bible. (R) Cleopatra (Thea Philopator) of
 Mauretania aka Cleopatra IX aka Pythodorida Philometor aka Helene aka
-Drusilla of Mauretania aka Julia Ourania of Parthia aka 'Philo of
+Drusilla of Mauretania aka Julia Ourania of Parthia aka Alexandra bat Mattathias aka 'Philo of
 Alexandria'.
 
 Alexander (grandson of King Herod) and his sister wife Cleopatra (Thea
@@ -184,7 +188,7 @@ Emmanuel aka Monobazus of Adiabene [^8]
 1.7](/images/Josephus.jpg){:width="400px"}
 
 Fig. 1.7. 'Josephus' bust which I identify as
-Tiberius Julius Alexander. Compare it to Nerva's depictions. So, 'Josephus' was Philo of Alexandria's son.
+Tiberius Julius Alexander. Compare it to Nerva's depictions. So, 'Josephus' was Philo of Alexandria's son. Tiberius Julius Alexander's son was named 'Philopappos' and one of his mothers aliases was 'Alexandria bat Matthias' which is where the pseudonym 'Joseph bar Matthias' comes from. Also, drop the initial b and final s in the name "Bar Mathias" and you get (Joseph of) Arimathea). Also, drop the initial b and final s in the name "Bar Mathias" and you get (Joseph of) Arimathea).
 
 ![Fig. 1.8](/images/coin-abgar-phraates.png){:width="400px"}
 
@@ -268,10 +272,37 @@ even has a story about a 'spurious Alexander' that showed up in Rome
 claiming to be the son of Herod who faked his death [^11], so he was
 'resurrected' as Juba II, king of Numidia and Mauretania. 
 
-It is likely that each Roman emperor after Julius Caesar took on the
+2.3 Flavian Dynasty \
+
+Vespassian was also a great-grandson of Cleopatra and Mark Antony (King Herod). He was Herod Pollio aka Herod Agrippa I, grandson of King Herod's son Aristobulus IV. Vespasian was his title, not his name (Vas/Bas was the royal abbreviation for the Greek word Basilius which = King, and Pasius = Peace. 'Vespasian' = 'King Peace'). He was also 'Flavius Scaevinus' the conspirator who was involved in Nero's assassination. 
+
+![Fig.
+1.10](/images/Vespasian.jpg){:width="400px"}
+
+Fig. 1.10. Compare Vespasian's depiction to Herod Agrippa I
+
+
+'Antonia Caenis' was Vespassians mistress who was his first cousin who was Cleopatra (Thea Philopator) of Mauretania aka Cleopatra IX aka
+    Helene aka Drusilla of Mauretania aka Julia Ourania of Parthia aka Philo of Alexandria. Caenis was
+    the Greek goddess who was transformed into a man, and she role-played as a man (Philo).
+
+Antonia Caenis's son was Tiberius Julius Alexander aka Josephus.
+
+Vespassian's son Titus was in a relationship with his aunt Berenice, granddaughter of King Herod, who was St. Veronica in the bible (Veronica is the Latin alteration of the Greek name
+    Berenice).
+
+Emperor Vitellius was probably an alias for Vespasian's older brother
+Titus Flavius Sabinus who was married to Mariamne III aka "Arria the
+Elder" ("Arria" from her father's name judean king Aristobulus IV who
+was the son of King Herod and he was also Julius Caesars adopted son.
+Aristobulus IV was likely Vespasian and Vitellius's father, so like his
+cousin Alexander (grandson of King Herod), he was also married to his
+sister). He abdicated his position in favor of his younger brother.
+
+So, it seems likely that each Roman emperor after Julius Caesar took on the
 I(J)upiter-Zeus [^12] ('I-Zeus' -> Iesus) role as an avatar, which is
 why I identify many prominent Romans as having contributed to the bible
-(e.g. Titus Flavian Clemens aka "Clement of Rome").
+across multiple dynasties.
 
 3 Rome on the Bosphorus?
 
