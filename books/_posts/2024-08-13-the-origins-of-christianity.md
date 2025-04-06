@@ -39,7 +39,7 @@ the pronunciation of Dyeus, and Jupiter comes from the pronunciation of
 
 2 The Creation of Christianity
 
-The early rulers of Sumer were all priests. In Egypt, the Pharaohs were the claimed sons of gods. The Persians copied this formula of deifying their leaders but took it a step further by turning their imperial cult into a slave-morality religion as part of their colonial program. The Persians created Zoroastrianism and Buddhism (Gautama Buddha was Gaumata Bardya the son of Cyrus the Great who was the satrap (governor) of the Persian province of Bactra (modern day Afghanistan)) and then the Greeks followed suit with the Ptolemic cult of Alexander and the Serapis cult invented by Ptolemy I Soter. Then the Romans followed this formula with their imperial cults. Religious syncreticism and slave-morality religions that stripped the population of their will to power, as well as employing an incredible number of regional aliases, locations, fictional stories, faked adoptions, and fabricated deaths for their family members is how the imperial powers maintained their empire and prevented any rebellion. Christianity is a relic of one of these imperial slave moralities.
+The early rulers of Sumer were all priests, while in Egypt, the Pharaohs claimed to be sons of gods. The Persians also deified their leaders, taking it a step further by incorporating a slave-morality religion into their imperial cult as part of their colonial program. They created Zoroastrianism and Buddhism (Gautama Buddha being Gaumata Bardya, the son of Cyrus the Great, who governed the Persian province of Bactra). The Greeks followed with the Ptolemaic cult of Alexander and the Serapis cult, and the Romans established their own imperial cults. These imperial powers maintained their empires through religious syncretism and slave-morality religions, which stripped the population of their will to power, while using an incredible number of regional aliases, locations, fictional stories, faked adoptions, and fabricated deaths for their family members to maintain their empire and prevent any rebellion. Christianity is a relic of one of these imperial slave moralities which itself was subverted by a confederaion of rabbis after the Bar Kokhba Revolt (132--136 CE).
 
 2.2 Julius Caesar aka Asander of Bosphorus \
 
@@ -283,12 +283,9 @@ Vespassian was also a great-grandson of Cleopatra and Mark Antony (King Herod). 
 
 Fig. 1.10. Compare Vespasian's depiction to Herod Agrippa I
 
+'Antonia Caenis' was Vespassians mistress who was his first cousin who was Cleopatra (Thea Philopator) of Mauretania aka Cleopatra IX aka Helene aka Drusilla of Mauretania aka Julia Ourania of Parthia aka Philo of Alexandria. Caenis was the Greek goddess who was transformed into a man, and she role-played as a man (Philo).
 
-'Antonia Caenis' was Vespassians mistress who was his first cousin who was Cleopatra (Thea Philopator) of Mauretania aka Cleopatra IX aka
-    Helene aka Drusilla of Mauretania aka Julia Ourania of Parthia aka Philo of Alexandria. Caenis was
-    the Greek goddess who was transformed into a man, and she role-played as a man (Philo).
-
-Antonia Caenis's son was Tiberius Julius Alexander aka Josephus.
+Cleopatra (Thea Philopator) of Mauretania aka Cleopatra IX aka Helene aka Drusilla of Mauretania aka Julia Ourania of Parthia aka Philo of Alexandria aka Antonia Caenis's son was Tiberius Julius Alexander aka Josephus.
 
 Vespassian's son Titus was in a relationship with his aunt Berenice, granddaughter of King Herod, who was St. Veronica in the bible (Veronica is the Latin alteration of the Greek name
     Berenice).
@@ -299,12 +296,12 @@ Elder" ("Arria" from her father's name judean king Aristobulus IV who
 was the son of King Herod and he was also Julius Caesars adopted son.
 Aristobulus IV was likely Vespasian and Vitellius's father, so like his
 cousin Alexander (grandson of King Herod), he was also married to his
-sister). He abdicated his position in favor of his younger brother.
+sister). 
 
-So, it seems likely that each Roman emperor after Julius Caesar took on the
+So, it seems that there was a Bosphoran/Roamn imperial cult and every emperor took on the
 I(J)upiter-Zeus [^12] ('I-Zeus' -> Iesus) role as an avatar, which is
 why I identify many prominent Romans as having contributed to the bible
-across multiple dynasties.
+across multiple generations.
 
 3 Rome on the Bosphorus?
 
