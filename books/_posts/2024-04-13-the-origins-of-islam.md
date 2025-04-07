@@ -1,7 +1,7 @@
 ---
 layout: default
 open_links_in_new_tab: true
-title: "The Origins of Christianity - Chapter 3: Islam"
+title: "The Origins of Christianity - Chapter 4: Islam"
 date: 2024-04-13
 category: books
 ---
