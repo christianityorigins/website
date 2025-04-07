@@ -1,7 +1,7 @@
 ---
 layout: default
 open_links_in_new_tab: true
-title: "The Origins of Islam"
+title: "Chapter 3: The Origins of Islam"
 date: 2024-04-13
 category: books
 ---
