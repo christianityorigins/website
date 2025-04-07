@@ -1,7 +1,7 @@
 ---
 layout: default
 open_links_in_new_tab: true
-title: "Chapter 1: The Origins of Christianity"
+title: "The Origins of Christianity - Chapter 1: Christianity"
 date: 2024-08-13
 category: books
 ---
