@@ -2,7 +2,7 @@
 layout: default
 open_links_in_new_tab: true
 title: "The Origins of Christianity - Chapter 2: Subversion of the Imperial Cult"
-date: 2024-07-11
+date: 2024-07-14
 category: books
 ---
 
