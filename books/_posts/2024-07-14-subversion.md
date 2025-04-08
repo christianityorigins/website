@@ -38,7 +38,7 @@ Quintus Tinnius Rufus (Turnus Rufus the Evil) was Pontius Pilate, the Roman gove
 Getting people to abandon their religons for a new one is an almost impossible task, so instead, through religious syncrenism and intertextuality, creating a new sect of an established
 religion makes it easier for a population to adapt. So, they just took
 one of the Bosphoran/Roman imperial cults of the time and infused a slave morality into
-it.
+it. Julius Caesar aka Asander of Bosphorus or one of his successors in the Bosphoran imperial cult (King Izates Monobazus or Tiberius Julius Sauromates II) was replaced with Simon bar Kokhba.
 
 Endnotes (Chapter 2)
 
