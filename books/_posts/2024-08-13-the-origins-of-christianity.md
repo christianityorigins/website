@@ -17,7 +17,7 @@ Contents
 2.2 Julius Caesar aka Asander of Bosphorus \
 2.3 Flavian Dynasty \
 3 Rome on the Bosphorus?\
-4 Subversion of the Imperial Cult
+4 Subversion of the Imperial Cult \
 5 Addendum
 
 1 Name and Title Meanings
@@ -416,11 +416,21 @@ Addendum
 
 A few notes on the term "Jew".
 
-Ceasar's gentilice (surname) was Iulius. We are told by Virgil that it goes back to Ceasar's supposed ancestor Iulus or Iule, after the ancient Celtic tribe known as the Iudii or Iudaei, who inhabited the region of Gaul (modern-day France) and Britain. I(J)upiter was also called Jove or Iove to the Romans. The Latin pronunciation of Iove would have been Yoh-Way, i.e Yahweh/Yhwh, so Yahweh Saboath, the god of the hebrew bible, is I(J)ove (Roman Zeus) Sabazios (Thracian Zeus).
+Identifying Julius Caesar as Asander of Bosphorus necessitates a re-examination of his name. 
+
+"Gaius" refers to Asander's connection to the  Gallian (Gauls (Galli = Celt in Latin)) people or his ancestry in the region.
+
+Ceasar's gentilice (surname) was Iulius. Iulius can refer to the ancient Celtic tribe known as the Iudii or Iudaei. "Ioulios" (ιούλιος) also means "descended from Jupiter" or "son of Jupiter".
+
+Caesarus refered to a Celtic a chieftain. For example, Caesorix was the leader of the Cimbri tribe during the Cimbrian War.
+
+Gaius Julius Caesar was a title, and Gaius Julius Caesar could conceivably translate to: Chieftan Gallian of the Iuddi or Iudaiei tribe.
+
+I(J)upiter was also called Jove or Iove to the Romans. The Latin pronunciation of Iove would have been Yoh-Way, i.e Yahweh/Yhwh, so Yahweh Saboath, the god of the hebrew bible, is I(J)ove (Roman Zeus) Sabazios (Thracian Zeus).
 
 Abel and Cain are just a copy of Romulus and Remus. Judas Iscariot is a copy of Brutus. Genesis 4:5-31. Enoch, Irad, Mehujael, Methuselah, Lamech, Seth, Enosh, Kenan, Mahalalel, are copies of Titus Livy's Regal Rome of the seven kings.
 
-The Proto-Indo-European root for "Julius" (Iulius in Latin) is reconstructed as "yews", while the Proto-Indo-European root for "Jew" (Iudaeus in Latin) is also reconstructed as "yews". 'Gaius' in the name Gaius Julius Caesar refers to his tribal affiliation in the Gallian (Gauls (Galli = Celt in Latin)) tribe. Also, Caesar, Kaiser (German for Caesar), Kesar or Kaysar (Persian for Caesar), Kaisar (Ancient Greek for Caesar), Tsar (Russian for Caesar) and Khazar are not just phonetic coincidences. It all ties back to the Divine Julius cult. As explained in Chapter 1, Julius Caesar was a title, so Gaius Julius Caesar could conceivably translate to: King Jew of the Celtic tribe Galli. 
+Also, Caesar, Kaiser (German for Caesar), Kesar or Kaysar (Persian for Caesar), Kaisar (Ancient Greek for Caesar), Tsar (Russian for Caesar) and Khazar are not just phonetic coincidences. It all ties back to the Divine Julius cult.
 
 So, it seems that the Romans (in Anatolia) tried to assimilate the tribe that became modern jews by forcing their imperial cult on them and they got their identity from here. This is why several prominant members of this royal family identified as "Jews" despite being Aryan Sarmatians and Celtic Galatians.
 
