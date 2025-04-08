@@ -17,7 +17,7 @@ Contents
 2.2 Julius Caesar aka Asander of Bosphorus \
 2.3 Flavian Dynasty \
 3 Rome on the Bosphorus?\
-5 Addendum
+4 Addendum
 
 1 Name and Title Meanings
 
@@ -163,7 +163,7 @@ Cleopatros) aka Phraates V (the "King of Kings") aka Monobazus I King of
 Adiabene, who was married to his sister Cleopatra (Thea Philopator) of
 Mauretania aka Cleopatra IX aka Pythodorida Philometor aka Helene aka
 Drusilla of Mauretania aka Julia Ourania of Parthia aka 'Philo of
-Alexandria'. She was also Claudius and Nero's secretary Pallas and Vespasian's first cousin and mistress Antonia Caenis. "The full name of Pallas was Marcus Antonius Pallas, the Antonius part is an obvious sign of descent from Mark Antony and that Pallas wasn't a random slave. 
+Alexandria' (aka Julius Philo, of the Julia gens, because she was the adopted granddaughter of Julius Caesar). She was also Claudius and Nero's secretary Pallas and Vespasian's first cousin and mistress Antonia Caenis. "The full name of Pallas was Marcus Antonius Pallas, the Antonius part is an obvious sign of descent from Mark Antony and that Pallas wasn't a random slave. 
 
 ![Fig.
 1.6](/images/AlexanderPhilo.jpg){:width="400px"}
@@ -284,10 +284,12 @@ Fig. 1.10. Compare Vespasian's depiction to Herod Agrippa I
 
 'Antonia Caenis' was Vespassians mistress who was his first cousin who was Cleopatra (Thea Philopator) of Mauretania aka Cleopatra IX aka Helene aka Drusilla of Mauretania aka Julia Ourania of Parthia aka Philo of Alexandria. (Caenis was the Greek goddess who was transformed into a man, and she role-played as two men: Marcus Antonius Pallas and Philo).
 
-Cleopatra (Thea Philopator) of Mauretania aka Cleopatra IX aka Helene aka Drusilla of Mauretania aka Julia Ourania of Parthia aka Philo of Alexandria aka Antonia Caenis's son was Tiberius Julius Alexander aka Josephus.
+Cleopatra (Thea Philopator) of Mauretania aka Cleopatra IX aka Helene aka Drusilla of Mauretania aka Julia Ourania of Parthia aka Philo of Alexandria aka Antonia Caenis's son was Tiberius Julius Alexander aka Josephus who was the Prefect (leader) of the
+Praetorian Guard which made him arguably the most powerful man in the empire during Vespasian's reign.
 
-Vespassian's son Titus was in a relationship with his aunt Berenice, granddaughter of King Herod, who was St. Veronica in the bible (Veronica is the Latin alteration of the Greek name
-    Berenice).
+Vespassian's son Titus was in a relationship with his aunt Berenice, granddaughter of King Herod, who was St. Veronica in the bible (Veronica is a transliteration of the Greek name Berenike meaning 'victory').
+
+Bernice's brother Marcus Julius Agrippa II, whom she was in an incestuous relationship with before moving on to her nephew, was the governor of all foreign Roman territories except Egypt (which was governed by Tiberius Julius Alexander) during the Flavian period..
 
 Emperor Vitellius was probably an alias for Vespasian's older brother
 Titus Flavius Sabinus who was married to Mariamne III aka "Arria the
@@ -380,7 +382,7 @@ Abel and Cain are just a copy of Romulus and Remus. Judas Iscariot is a copy of 
 
 The Proto-Indo-European root for "Julius" (Iulius in Latin) is reconstructed as "yews", while the Proto-Indo-European root for "Jew" (Iudaeus in Latin) is also reconstructed as "yews". 'Gaius' in the name Gaius Julius Caesar refers to his tribal affiliation in the Gallian (Gauls (Galli = Celt in Latin)) tribe. Also, Caesar, Kaiser (German for Caesar), Kesar or Kaysar (Persian for Caesar), Kaisar (Ancient Greek for Caesar), Tsar (Russian for Caesar) and Khazar are not just phonetic coincidences. It all ties back to the Divine Julius cult. As explained in Chapter 1, Julius Caesar was a title, so Gaius Julius Caesar could conceivably translate to: King Jew of the Celtic tribe Galli. 
 
-So, it seems that the Romans (in Anatolia) tried to subjugate the tribe that became modern jews by forcing an imperial cult on them and they got their identity from here. This is why several prominant members of this royal family identified as "Jews" despite being Aryan Sarmatians and Celtic Galatians.
+So, it seems that the Romans (in Anatolia) tried to assimilate the tribe that became modern jews by forcing their imperial cult on them and they got their identity from here. This is why several prominant members of this royal family identified as "Jews" despite being Aryan Sarmatians and Celtic Galatians.
 
 Further reading
 
