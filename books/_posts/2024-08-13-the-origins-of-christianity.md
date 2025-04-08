@@ -418,13 +418,13 @@ A few notes on the term "Jew".
 
 Identifying Julius Caesar as Asander of Bosphorus necessitates a re-examination of his name. 
 
-"Gaius" refers to Asander's connection to the  Gallian (Gauls (Galli = Celt in Latin)) people or his ancestry in the region.
+"Gaius" refers to Asander's connection to the Gallian (Gauls (Galli = Celt in Latin)) people or his ancestry in the region.
 
-Ceasar's gentilice (surname) was Iulius. Iulius can refer to the ancient Celtic tribe known as the Iudii or Iudaei. "Ioulios" (ιούλιος) also means "descended from Jupiter" or "son of Jupiter".
+Ceasar's gentilice (surname) was Iulius. Iulius can refer to the ancient Celtic tribe known as the Iudii or Iudaei. "Ioulios" (ιούλιος) in Greek also means "descended from Jupiter" or "son of Jupiter".
 
 Caesarus refered to a Celtic a chieftain. For example, Caesorix was the leader of the Cimbri tribe during the Cimbrian War.
 
-Gaius Julius Caesar was a title, and Gaius Julius Caesar could conceivably translate to: Chieftan Gallian of the Iuddi or Iudaiei tribe.
+Gaius Julius Caesar was a title, and Gaius Julius Caesar could conceivably translate to: Chieftan of the Iuddi or Iudaiei tribe from Galatia.
 
 I(J)upiter was also called Jove or Iove to the Romans. The Latin pronunciation of Iove would have been Yoh-Way, i.e Yahweh/Yhwh, so Yahweh Saboath, the god of the hebrew bible, is I(J)ove (Roman Zeus) Sabazios (Thracian Zeus).
 
