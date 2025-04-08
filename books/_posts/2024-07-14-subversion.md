@@ -33,7 +33,7 @@ Alexandria.
 
 Rabbi Akiva was likely Paul the Apostle. In Acts 22:3 "Paul" claims to have been educated at the feet of Gamaliel who was the teacher of rabbi Akiva, and in Acts 18:2-3 and Romans 16:3 NASB, it is claimed that Aquila of Sinope and his wife Prisca or Priscilla lived with Paul the Apostle and Paul called them “my fellow workers in Christ Jesus.
 
-Quintus Tinnius Rufus (Turnus Rufus the Evil) was Pontius Pilate, the Roman governor of Judaea who crucified Simon bar Kokhba and killed rabbi Akiva. Rabbi Akiva claimed rhat Simon bar Kokhba was the jewish messiah.
+Quintus Tinnius Rufus (Turnus Rufus the Evil) was Pontius Pilate, the Roman governor of Judaea who crucified Simon bar Kokhba and killed rabbi Akiva. Rabbi Akiva preached that Simon bar Kokhba was the jewish messiah.
 
 Getting people to abandon their religons for a new one is an almost impossible task, so instead, through religious syncrenism and intertextuality, creating a new sect of an established
 religion makes it easier for a population to adapt. So, they just took
