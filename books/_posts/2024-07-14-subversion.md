@@ -33,7 +33,7 @@ Alexandria.
 
 Rabbi Akiva was likely Paul the Apostle. In Acts 22:3 "Paul" claims to have been educated at the feet of Gamaliel who was the teacher of rabbi Akiva, and in Acts 18:2-3 and Romans 16:3 NASB, it is claimed that Aquila of Sinope and his wife Prisca or Priscilla lived with Paul the Apostle and Paul called them “my fellow workers in Christ Jesus.
 
-Quintus Tinnius Rufus (Turnus Rufus the Evil) was Pontius Pilate, the Roman governor of Judaea who crucified Simon bar Kokhba and killed rabbi Akiva.
+Quintus Tinnius Rufus (Turnus Rufus the Evil) was Pontius Pilate, the Roman governor of Judaea who crucified Simon bar Kokhba and killed rabbi Akiva. Rabbi Akiva claimed rhat Simon bar Kokhba was the jewish messiah.
 
 Getting people to abandon their religons for a new one is an almost impossible task, so instead, through religious syncrenism and intertextuality, creating a new sect of an established
 religion makes it easier for a population to adapt. So, they just took
@@ -45,3 +45,5 @@ Endnotes (Chapter 2)
 (a) Marcion of Sinope aka Markianos of Alexandria grew up in the Attis-Sabazios cult on Anatolia before traveling to Judea to study under rabbi Akiva and finally to Alexandria at the Alexandrian School.
 
 (b) Yohai is a nickname for yochai. The name Yochai means 'YHWAH is gracius' from the Hebrew word Yochanan sometimes transcribed as Johanan. Was he also Johanan the Alexandrian? This would place him in Alexandria at the same time as Markianos of Alexandria.
+
+(c) Quintus Tineius Sacerdos, the brother of Quintus Tinnius Rufus, was the govenor of Pontus in Anatolia, so the family likely derived from there. Pilate means the temperament of a warrior I.e.: famously temperamental. That's where the name Pontius Pilate comes from.
