@@ -6,9 +6,7 @@ date: 2024-07-14
 category: books
 ---
 
-Contents
-
-1 Subversion of the Bosphoran Imperial cult\
+Chapter 2: Subversion of the Imperial Cult
 
 Sometime after the Bar Kokhba Revolt (132--136 CE), a group of rabbis
 that were headed by a rabbi named Akiva who lead the Talmudic Pharisees
@@ -41,3 +39,9 @@ Getting people to abandon their religons for a new one is an almost impossible t
 religion makes it easier for a population to adapt. So, they just took
 one of the Bosphoran/Roman imperial cults of the time and infused a slave morality into
 it.
+
+Endnotes (Chapter 2)
+
+(a) Marcion of Sinope aka Markianos of Alexandria grew up in the Attis-Sabazios cult on Anatolia before traveling to Judea to study under rabbi Akiva and finally to Alexandria at the Alexandrian School.
+
+(b) Yohai is a nickname for yochai. The name Yochai means 'YHWAH is gracius' from the Hebrew word Yochanan sometimes transcribed as Johanan. Was he also Johanan the Alexandrian? This would place him in Alexandria at the same time as Markianos of Alexandria.
