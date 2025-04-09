@@ -269,7 +269,7 @@ claiming to be the son of Herod who faked his death [^11], so he was
 
 4 Flavian Dynasty \
 
-Vespassian was also a great-grandson of Cleopatra and Mark Antony (King Herod). He was Herod Pollio aka Herod Agrippa I, grandson of King Herod's son Aristobulus IV. Vespasian was his title, not his name (Vas/Bas was the royal abbreviation for the Greek word Basilius which = King, and Pasius = Peace. 'Vespasian' = 'King Peace'). He was also 'Flavius Scaevinus' the conspirator who was involved in Nero's assassination. 
+Vespassian was also a great-grandson of Cleopatra and Mark Antony (King Herod). He was Herod Pollio aka Herod Agrippa I, grandson of King Herod's son Aristobulus IV. Vespasian was his title, not his name (Vas/Bas was the royal abbreviation for the Greek word Basilius which = King, and Pasius = Peace. 'Vespasian' = 'King Peace') [^12]. He was also 'Flavius Scaevinus' the conspirator who was involved in Nero's assassination. 
 
 ![Fig.
 1.10](/images/Vespasian.jpg){:width="400px"}
@@ -292,11 +292,6 @@ was the son of King Herod and he was also Julius Caesars adopted son.
 Aristobulus IV was likely Vespasian and Vitellius's father, so like his
 cousin Alexander (grandson of King Herod), he was also married to his
 sister). 
-
-So, it seems that there was a Bosphoran/Roamn imperial cult and every emperor took on the
-I(J)upiter-Zeus [^12] ('I-Zeus' -> Iesus) role as an avatar, which is
-why I identify many prominent Romans as having contributed to the bible
-across multiple generations.
 
 Endnotes (chapter 4)
 
@@ -693,9 +688,10 @@ Footnotes
 [^11]: Josephus, "Antiquities of the Jews", Book 12
     [[link](https://www.ccel.org/ccel/josephus/complete.ii.xviii.xii.html)]
 
-[^12]: Interpretatio Graeca." Wikipedia,
-    https://en.wikipedia.org/wiki/Interpretatio_graeca.
-    [[link](https://en.wikipedia.org/wiki/Interpretatio_graeca)]
+[^12]: Davis, Henry. "The Royal Ancestry of the Roman Emperor
+    Vespasian." Medium,
+    https://henrydavis-cc.medium.com/the-royal-ancestry-of-the-roman-emperor-vespasian-72e144335299.
+    [[link](https://henrydavis-cc.medium.com/the-royal-ancestry-of-the-roman-emperor-vespasian-72e144335299)]
 
 [^13]: Josephus, Jewish War vi, 9 --How Yahweh Conquered Rome. Laurent
     Guyénot. https://www.unz.com/article/how-yahweh-conquered-rome/
