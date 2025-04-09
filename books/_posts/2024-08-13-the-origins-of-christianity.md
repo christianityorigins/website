@@ -393,19 +393,19 @@ So, it seems that the Romans (in Anatolia) tried to assimilate the tribe that be
 
 The Celts in classical Galatia worshiped a deity called Hesus/Esus/Iesus. The Celtic name Esus is believed to be related to the Proto-Celtic word "*aisu", which means "lord" or "master". The letter "J" was invented in the 17th century, so the name "Jesus" would have been "Esus" in the classical sense. 
 
-It is possible that the name Esus was a Celtic translation of Zeus, but another possibility is that Iesus comes from "Iupiter-Zeus" (I(J)upiter-Zeus (I-Zeus-> Izeus-> Iseus)). The Romans used a system called 'interpretatio romana' to associate their gods with local ones as part of their colonial program.
+The Romans used a system called 'interpretatio romana' to associate their gods with local ones as part of their colonial program.
 Julius Caesar, as the claimed 'son of I(J)upiter' would have been Iupiter-Zeus to let the Greeks know that Iupiter
 and Zeus were equivalent deities (Roman Jupiter and Greek Zeus both
 derive from the Aryan skyfather 'Dyeus Pter'. The name Zeus comes from
 the pronunciation of Dyeus, and Jupiter comes from the pronunciation of
-"Dyeus Pter"). 
+"Dyeus Pter"). I(J)upiter-Zeus-> I-Zeus-> Izeus-> Esus. Did the name Esus come from here?
 
-Then I-Zeus (Izeus)/Esus/Hesus eventually phonetically shifted to I-zas/Izas/Izates.
+I-Zeus (Izeus)/Esus/Hesus then eventually phonetically shifted to I-zas/Izas/Izates.
 
 ![Fig.
 1.11](/images/Esus.jpg){:width="400px"}
 
-Fig. 1.11. Statue from classical Anatolia that is dedicated to "Esumopas Cnusticus". Esumopas means "Slave to Esus", and if you combine the Etruscan word "cnus" with the suffix "-ticus" or "-tic-" you get a word that translates to "anointed one" or "consecrated one", ie. a "Christ". So, that inscription translates to: "Slave to Esus Christ".
+Fig. 1.11. Statue from classical Anatolia that is dedicated to "Esumopas Cnusticus". Esumopas means "Slave to Esus", and Esus means lord in proto-Celtic. If you combine the Etruscan word "cnus" with the suffix "-ticus" or "-tic-" you get a word that translates to "anointed one" or "consecrated one", ie. a "Christ". So, that inscription translates to: "Slave to Lord Christ".
 
 8 Subversion of the Imperial Cult
 
