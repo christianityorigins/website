@@ -424,11 +424,11 @@ king of Galatia during this time was Asander's brother-in-law Amyntas of
 Galatia who ruled an area that streched into India under the alias
 Amyntas Nikator.
 
-"Gaius" then can refers to Asander's connection to the Gallian (Gauls (Galli = Celt in Latin)) people or his ancestry in the region.
+"Gaius" then can refer to Asander's connection to the Gallian (Gauls (Galli = Celt in Latin)) people or his ancestry in the region.
 
 Ceasar's gentilice (surname) was Iulius. Iulius can refer to the ancient Celtic tribe known as the Iudii or Iudaei. "Ioulios" (ιούλιος) in Greek also means "descended from Jupiter" or "son of Jupiter". So, it is possible that the word "jew" comes from the Iudii or Iudaei.
  
-Caesarus refered to a Celtic a chieftain. For example, Caesorix was the leader of the Cimbri tribe during the Cimbrian War.
+Caesarus refered to a Celtic chieftain. For example, Caesorix was the leader of the Cimbri tribe during the Cimbrian War.
 
 Gaius Julius Caesar was a title, and Gaius Julius Caesar could conceivably translate to: Chieftan of the Iudii or Iudaiei tribe from Galatia.
 
@@ -436,8 +436,7 @@ I(J)upiter was called Jove or Iove to the Romans. The Latin pronunciation of Iov
 
 As for the term 'Hebrew", it comes from the Celts who called themselves
 Iberi. The name of Abaris the Hyperborean, a Druid priest who was
-Pythagoras's teacher, who was the son of Seuthes (Seth), shows this. The
-term Abaris was inspired by the Semitic Iber. Iber was sometimes
+Pythagoras's teacher shows this. Iber was sometimes
 rendered as Aber or Heber and is pronounced as Hebrew in the Hebrew
 languages. Hyperborea, which just like Atlantis, was another name for
 Ireland. The word Atlantis means 'The Island of Atlas'. The titan Atlas
