@@ -19,11 +19,11 @@ Cosmotheism is the belief that there is a spiritual or transcendent aspect to th
 
 2 Cosmology
 
-Cosmotheism cosmology revolves around the belief that the universe and the divine are interconnected, often seeing the cosmos as a manifestation of a higher spiritual presence. In its cosmology, it emphasizes that reality is not separate from the sacred but is an evolving expression of it. 
+Cosmotheism cosmology revolves around the belief that the universe and the divine are interconnected, often seeing the cosmos as a manifestation of a higher spiritual presence. It emphasizes that reality is not separate from the sacred but is an evolving expression of it. 
 
 Essentially it is about seeing divinity in the universe, laws of physics, etc. 
 
-There are also materialistic comotheists (all is matter) who believe that everything is made of matter, and even things like thoughts or consciousness are just products of physical processes. This view aligns with atheism. These cosmotheists just appreciate the interconnectedness of the universe without ascribing any supernatural power to it. 
+There are also materialistic cosmotheists (all is matter) who believe that everything is made of matter, and even things like thoughts or consciousness are just products of physical processes. This view aligns with atheism. These cosmotheists just appreciate the interconnectedness of the universe without ascribing any supernatural power to it. 
 
 3 Core Beliefs
 
@@ -35,6 +35,6 @@ In cosmotheist religions, rituals are about bringing someone to self-realization
 
 Read more
 
-https://en.metapedia.org/wiki/Cosmotheism\
-https://en.metapedia.org/wiki/Category:Cosmotheist_lectures\
-https://odysee.com/@SiegeCannon:a/Dr.-William-Pierce-Cosmotheism-is-the-Meaning-of-Life-Our-Cause:3
+https://en.metapedia.org/wiki/Cosmotheism <a href="https://en.metapedia.org/wiki/Cosmotheism">[link]</a>\
+https://en.metapedia.org/wiki/Category:Cosmotheist_lectures <a href="https://en.metapedia.org/wiki/Category:Cosmotheist_lectures">[link]</a>\
+https://odysee.com/@SiegeCannon:a/Dr.-William-Pierce-Cosmotheism-is-the-Meaning-of-Life-Our-Cause:3 <a href="https://odysee.com/@SiegeCannon:a/Dr.-William-Pierce-Cosmotheism-is-the-Meaning-of-Life-Our-Cause:3">[link]</a>
