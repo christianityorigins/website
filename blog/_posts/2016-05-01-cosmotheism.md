@@ -19,7 +19,7 @@ Cosmotheism is the belief that there is a spiritual or transcendent aspect to th
 
 2 Cosmology
 
-Cosmotheism cosmology revolves around the belief that the universe and the divine are interconnected, often seeing the cosmos as a manifestation of a higher spiritual presence. It emphasizes that reality is not separate from the sacred but is an evolving expression of it. 
+Cosmotheist cosmology revolves around the belief that the universe and the divine are interconnected, often seeing the cosmos as a manifestation of a higher spiritual presence. It emphasizes that reality is not separate from the sacred but is an evolving expression of it. 
 
 Essentially it is about seeing divinity in the universe, laws of physics, etc. 
 
@@ -32,6 +32,10 @@ In cosmotheist religions, cosmotheist cosmology posits that the divine is not a 
 4 Practices and Rituals
 
 In cosmotheist religions, rituals are about bringing someone to self-realization. For example, rituals like yoga, meditation, self-inquiry, and mantra recitation are used to help the individual realize their true nature as a manifestation of the divine. The goal is to awaken the individual's inner divinity and is aimed at helping the individual realize their true nature as the ultimate reality.
+
+Addenum
+
+Another way to look at cosmotheist cosmology is through the lens of Nietzschean philosophy where the "will to power" \[[link](https://en.wikipedia.org/wiki/Will_to_power)\] becomes the driving force behind the unfolding of the universe, and by extension, human existence. The single fundamental substance or reality that underlies cosmotheist cosmology is not just a passive, inert entity, but a dynamic, self-overcoming force that perpetually strives to express itself, to manifest its own power. The will to power is a force that courses through the universe, driving it towards ever greater heights of complexity. Humans, as manifestations of this divine force, are not separate from it, but rather, they are the focal points of its self-expression, the conduits through which the universe realizes its own potential.\
 
 Read more
 
