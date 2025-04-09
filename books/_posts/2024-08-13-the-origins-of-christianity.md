@@ -10,7 +10,11 @@ The Origins of Christianity
 
 By Ralph Perrier
 
-Contents
+*I will not presume to speak of anything except what Christ has
+accomplished through me in leading the Gentiles to obedience by word and
+deed* - Romans 15:18
+
+Table of Contents
 
 1 Name and Title Meanings \
 2 The Creation of Christianity\
