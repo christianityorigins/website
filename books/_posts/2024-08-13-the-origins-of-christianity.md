@@ -391,7 +391,7 @@ So, it seems that the Romans (in Anatolia) tried to assimilate the tribe that be
 
 7 Esus the Celtic Deity
 
-The Celts in classical Galatia also worshiped a deity called Hesus/Esus/Iesus. The letter "J" was invented in the 17th century, so the name "Jesus" would have been "Esus" in the classical sense. 
+The Celts in classical Galatia worshiped a deity called Hesus/Esus/Iesus. The Celtic name Esus is believed to be related to the Proto-Celtic word "*aisu", which means "lord" or "master". The letter "J" was invented in the 17th century, so the name "Jesus" would have been "Esus" in the classical sense. 
 
 It is possible that the name Esus was a Celtic translation of Zeus, but another possibility is that Iesus comes from "Iupiter-Zeus" (I(J)upiter-Zeus (I-Zeus-> Izeus-> Iseus)). The Romans used a system called 'interpretatio romana' to associate their gods with local ones as part of their colonial program.
 Julius Caesar, as the claimed 'son of I(J)upiter' would have been Iupiter-Zeus to let the Greeks know that Iupiter
