@@ -436,10 +436,12 @@ Rabbi Akiva was likely Paul the Apostle. In Acts 22:3 "Paul" claims to have been
 
 Quintus Tinnius Rufus (Turnus Rufus the Evil) was Pontius Pilate, the Roman governor of Judaea who crucified Simon bar Kokhba and killed rabbi Akiva. Rabbi Akiva preached that Simon bar Kokhba was the jewish messiah.
 
+Esus then became Esau (Edom) the progenitor of the Edomites in the bible, a metaphor for the forces of oppression and injustice. This was probably added to repulse their fellow jews from following/converting to their slave-morality religion they created. 
+
 Getting people to abandon their religons for a new one is an almost impossible task, so instead, through religious syncrenism and intertextuality, creating a new sect of an established
 religion makes it easier for a population to adapt. So, they just took
 one of the Bosphoran/Roman imperial cults of the time and infused a slave morality into
-it. Julius Caesar aka Asander of Bosphorus or one of his successors in the Bosphoran imperial cult (King Izates Monobazus or Tiberius Julius Sauromates II) was replaced with Simon bar Kokhba.
+it. Julius Caesar aka Asander of Bosphorus or one of his successors in the Bosphoran imperial cult (King Izates Monobazus or Tiberius Julius Sauromates II) was replaced with Simon bar Kokhba. This became modern Christianity.
 
 Endnotes (Chapter 8)
 
