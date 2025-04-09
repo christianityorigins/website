@@ -1,0 +1,40 @@
+---
+layout: post
+open_links_in_new_tab: true
+title:  "Introduction to Cosmotheism"
+date:   2016-05-01 09:00:00 +0200
+category: blog
+---
+
+CONTENTS
+
+1 Definition\
+2 Cosmology \
+3 Core Beliefs \
+4 Practices and Rituals 
+
+1 Definition
+
+Cosmotheism is the belief that there is a spiritual or transcendent aspect to the universe (cosmos) and the universe and the divine are interconnected, viewing the cosmos as a manifestation of the divine presence. It emphasizes the sacredness of the universe and often incorporates ideas of spiritual evolution and consciousness. 
+
+2 Cosmology
+
+Cosmotheism cosmology revolves around the belief that the universe and the divine are interconnected, often seeing the cosmos as a manifestation of a higher spiritual presence. In its cosmology, it emphasizes that reality is not separate from the sacred but is an evolving expression of it. 
+
+Essentially it is about seeing divinity in the universe, laws of physics, etc. 
+
+There are also materialistic comotheists (all is matter) who believe that everything is made of matter, and even things like thoughts or consciousness are just products of physical processes. This view aligns with atheism. These cosmotheists just appreciate the interconnectedness of the universe without ascribing any supernatural power to it. 
+
+3 Core Beliefs
+
+In cosmotheist religions, cosmotheist cosmology posits that the divine is not a separate and transcendent entity but rather an inherent aspect of the universe, and humans are not separate from the divine but rather an unfolding or manifestation of it. Therefore, in cosmotheist cosmology, self-realization or self-actualization is often seen as the process of recognizing and embodying one's true nature as an expression of the divine. This can be seen as a form of self-deification.
+
+4 Practices and Rituals
+
+In cosmotheist religions, rituals are about bringing someone to self-realization. For example, rituals like yoga, meditation, self-inquiry, and mantra recitation are used to help the individual realize their true nature as a manifestation of the divine. The goal is to awaken the individual's inner divinity and is aimed at helping the individual realize their true nature as the ultimate reality.
+
+Read more
+
+https://en.metapedia.org/wiki/Cosmotheism\
+https://en.metapedia.org/wiki/Category:Cosmotheist_lectures\
+https://odysee.com/@SiegeCannon:a/Dr.-William-Pierce-Cosmotheism-is-the-Meaning-of-Life-Our-Cause:3
