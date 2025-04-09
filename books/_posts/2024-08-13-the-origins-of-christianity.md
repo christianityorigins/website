@@ -387,11 +387,14 @@ Abel and Cain are just a copy of Romulus and Remus. Judas Iscariot is a copy of 
 
 Also, Caesar, Kaiser (German for Caesar), Kesar or Kaysar (Persian for Caesar), Kaisar (Ancient Greek for Caesar), Tsar (Russian for Caesar) and Khazar are not just phonetic coincidences. It all ties back to the Divine Julius cult.
 
+So, it seems that the Romans (in Anatolia) tried to assimilate the tribe that became modern jews by forcing their imperial cult on them and they got their identity from here. This is why several prominant members of this royal family identified as "Jews" despite being Aryan Sarmatians and Celtic Galatians.
+
 7 Esus the Celtic Deity
 
-The Celts in classical Galatia also worshiped a deity called Hesus/Esus/Iesus. This title likely came from Iupiter-Zeus (I(J)upiter-Zeus (I-Zeus-> Izeus-> Iseus)). The Romans used a system called 'interpretatio romana' to associate their gods with local ones as part of their colonial program.
-Julius Caesar, as the claimed 'son of I(J)upiter' (there was no J in
-Latin) would have been Iupiter-Zeus to let the Greeks know that Iupiter
+The Celts in classical Galatia also worshiped a deity called Hesus/Esus/Iesus. The letter "J" was invented in the 17th century, so the name "Jesus" would have been "Esus" in the classical sense. 
+
+It is possible that the name Esus was a Celtic translation of Zeus, but another possibility is that Iesus comes from "Iupiter-Zeus" (I(J)upiter-Zeus (I-Zeus-> Izeus-> Iseus)). The Romans used a system called 'interpretatio romana' to associate their gods with local ones as part of their colonial program.
+Julius Caesar, as the claimed 'son of I(J)upiter' would have been Iupiter-Zeus to let the Greeks know that Iupiter
 and Zeus were equivalent deities (Roman Jupiter and Greek Zeus both
 derive from the Aryan skyfather 'Dyeus Pter'. The name Zeus comes from
 the pronunciation of Dyeus, and Jupiter comes from the pronunciation of
@@ -402,9 +405,7 @@ Then I-Zeus (Izeus)/Esus/Hesus eventually phonetically shifted to I-zas/Izas/Iza
 ![Fig.
 1.11](/images/Esus.jpg){:width="400px"}
 
-Fig. 1.11. Statue from classical Anatolia that is dedicated to "Esumopas Cnusticus". Esumopas means "Slave to Esus", and if you combine the Etruscan word "cnus" with the suffix "-ticus" or "-tic-" you get a word that translates to "anointed one" or "consecrated one", ie. a "Christ". So, that inscription translates to: "Slave of Esus Christ".
-
-So, it seems that the Romans (in Anatolia) tried to assimilate the tribe that became modern jews by forcing their imperial cult on them and they got their identity from here. This is why several prominant members of this royal family identified as "Jews" despite being Aryan Sarmatians and Celtic Galatians.
+Fig. 1.11. Statue from classical Anatolia that is dedicated to "Esumopas Cnusticus". Esumopas means "Slave to Esus", and if you combine the Etruscan word "cnus" with the suffix "-ticus" or "-tic-" you get a word that translates to "anointed one" or "consecrated one", ie. a "Christ". So, that inscription translates to: "Slave to Esus Christ".
 
 8 Subversion of the Imperial Cult
 
