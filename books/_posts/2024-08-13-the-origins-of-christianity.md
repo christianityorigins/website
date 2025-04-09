@@ -397,7 +397,12 @@ derive from the Aryan skyfather 'Dyeus Pter'. The name Zeus comes from
 the pronunciation of Dyeus, and Jupiter comes from the pronunciation of
 "Dyeus Pter"). 
 
-Then subsequent emperors took on this role. I-Zeus (Izeus)/Esus/Hesus eventually phonetically shifted to I-zas/Izas/Izates.
+Then I-Zeus (Izeus)/Esus/Hesus eventually phonetically shifted to I-zas/Izas/Izates.
+
+![Fig.
+1.11](/images/Esus.jpg){:width="400px"}
+
+Fig. 1.11. Statue from classical Anatolia that is dedicated to "Esumopas Cnusticus". Esumopas means "Slave to Esus", and if you combine the Etruscan word "cnus" with the suffix "-ticus" or "-tic-" you get a word that translates to "anointed one" or "consecrated one", ie. a "Christ". So, that inscription translates to: "Slave of Esus Christ".
 
 So, it seems that the Romans (in Anatolia) tried to assimilate the tribe that became modern jews by forcing their imperial cult on them and they got their identity from here. This is why several prominant members of this royal family identified as "Jews" despite being Aryan Sarmatians and Celtic Galatians.
 
