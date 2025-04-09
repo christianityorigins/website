@@ -14,11 +14,12 @@ Contents
 
 1 Name and Title Meanings \
 2 The Creation of Christianity\
-2.2 Julius Caesar aka Asander of Bosphorus \
-2.3 Flavian Dynasty \
-3 Rome on the Bosphorus?\
-4 Subversion of the Imperial Cult \
-5 Addendum
+3 Julius Caesar aka Asander of Bosphorus \
+4 Flavian Dynasty \
+5 Rome on the Bosphorus?\
+6 Julius Caesar was a Title \
+7 Esus the Celtic Deity \
+8 Subversion of the Imperial Cult 
 
 1 Name and Title Meanings
 
@@ -26,14 +27,6 @@ Contents
 -   Cotys: In Thracian, "Cotys" is related to the word "kotys" which is a title that means "lord".
 -   Izates or Izas: An ancient Greek translation of the Avestan word Yazatas (Persian:
 izad), meaning "lord".
--   Jesus: Iupiter-Zeus (I(J)upiter-Zeus (I-Zeus-> Izeus-> Iseus)). Julius Caesar was the first "Jesus". The Romans used a system called 'interpretatio romana' to associate their gods with local ones as part of their colonial program.
-Julius Caesar, as the claimed 'son of I(J)upiter' (there was no J in
-Latin) would have been Iupiter-Zeus to let the Greeks know that Iupiter
-and Zeus were equivalent deities (Roman Jupiter and Greek Zeus both
-derive from the Aryan skyfather 'Dyeus Pter'. The name Zeus comes from
-the pronunciation of Dyeus, and Jupiter comes from the pronunciation of
-"Dyeus Pter"). Then subsequent emperors took on this role. I-Zeus
-(Izeus) eventually phonetically shifted to I-zas/Izas/Izates.
 -   Monobazus: Sabazios is the Phrygian and Thracian version of Zeus. Ma'nu is likely a diminutive of Menneus ("son of man"), and then Manu-Sabazios becomes Monobazus. Monobazus also becomes "Bazus" or "Bar Izates" shortened to "baYZTus" (or bar YZT) through frequent oral repetition which then becomes "bOETHus". The Boethusians were a jewish priestly sect.
 -   Piso cognomen: "Appius" is a cognomen (personal name) of the Claudian family. Appius and Piso are synonymous (In Greek, Appius is rendered as Appios, from there Piso). The name Piso itself would be a form of Peisistratos/Pisistratos, the leading name of ancient Athens in Greece. (Pisistratos is a Latinized spelling of the Greek Peisistratos) It could be said that all the ruling elite of the Julio-Claudian dynasty were Piso's, including Nero who was nearly deposed by a Piso. Appius is also cognate with Arrius (through rhotacization in ancient Latin the /p/ and /r/ could be swapped).
 
@@ -41,7 +34,7 @@ the pronunciation of Dyeus, and Jupiter comes from the pronunciation of
 
 The early rulers of Sumer were all priests, while in Egypt, the Pharaohs claimed to be sons of gods. The Persians also deified their leaders, taking it a step further by incorporating a slave-morality religion into their imperial cult as part of their colonial program. They created Zoroastrianism and Buddhism (Gautama Buddha being Gaumata Bardya, the son of Cyrus the Great, who governed the Persian province of Bactra). The Greeks followed with the Ptolemaic cult of Alexander and the Serapis cult, and the Romans established their own imperial cults. These imperial powers maintained their empires through religious syncretism and slave-morality religions, which stripped the population of their will to power, while using an incredible number of regional aliases, locations, fictional stories, faked adoptions, and fabricated deaths for their family members to maintain their empire and prevent any rebellion. Christianity is a relic of one of these imperial slave moralities which itself was subverted by a confederaion of rabbis after the Bar Kokhba Revolt (132--136 CE).
 
-2.2 Julius Caesar aka Asander of Bosphorus \
+3 Julius Caesar aka Asander of Bosphorus \
 
 There was a Byzantine [^1] imperial cult where Julius Caesar [^2] took
 on the role of Asander, King of Bosphorus [^3] (the city of Byzantine,
@@ -274,7 +267,7 @@ even has a story about a 'spurious Alexander' that showed up in Rome
 claiming to be the son of Herod who faked his death [^11], so he was
 'resurrected' as Juba II, king of Numidia and Mauretania. 
 
-2.3 Flavian Dynasty \
+4 Flavian Dynasty \
 
 Vespassian was also a great-grandson of Cleopatra and Mark Antony (King Herod). He was Herod Pollio aka Herod Agrippa I, grandson of King Herod's son Aristobulus IV. Vespasian was his title, not his name (Vas/Bas was the royal abbreviation for the Greek word Basilius which = King, and Pasius = Peace. 'Vespasian' = 'King Peace'). He was also 'Flavius Scaevinus' the conspirator who was involved in Nero's assassination. 
 
@@ -305,7 +298,7 @@ I(J)upiter-Zeus [^12] ('I-Zeus' -> Iesus) role as an avatar, which is
 why I identify many prominent Romans as having contributed to the bible
 across multiple generations.
 
-Endnotes (chapter 2)
+Endnotes (chapter 4)
 
 (a) The symbol of the cross, Celtic cross/high cross/sun cross/solar
     wheel, et.al., which predate christianity by thousands of years
@@ -331,7 +324,7 @@ Endnotes (chapter 2)
 
 (c) Mithridates VI Eupator was a direct descendant of Ptolemy II Philadelphus (Ptolemy II Philadelphus (285-246 BCE) married Arsinoe I, and they had a daughter, Berenice Syra. Berenice Syra married Antiochus II Theos, a Seleucid king, and they had a son, Seleucus II Callinicus. Seleucus II Callinicus (246-225 BCE) married Laodice II, and they had a daughter, Laodice III. Laodice III married Mithridates III of Pontus, and they had a son, Pharnaces I of Pontus. Pharnaces I of Pontus (190-155 BCE) married Nysa, and they had a son, Mithridates V of Pontus. Mithridates V of Pontus (150-120 BCE) married Laodice VI, and they had a son, Mithridates VI Eupator (120-63 BCE)). Some historians believe that Ptolemy II Philadelphus was Alexander the Great's biological son who was raised by Ptolemy I Soter. Statues of Alexander and Ptolemy II Philadelphus look strikingly like father and son. Ptolemy I Soter married Alexanders mistress Thaïs, and his other wife Berenice had the same name as Barsine who was another mistress of Alexander. Barsine and Berenice are different forms of the Persian name Barsina. The Persian name Roshanak is translated as Barsina, so the names Barsine and Berenice are both related to the Roxana, which was the name of Alexander's Persian wife. This would make Asander (whose name is an obvious reference to Alexander) and Dynamis Alexander's heirs.
 
-3 Rome on the Bosphorus?
+5 Rome on the Bosphorus?
 
 My research on the origins of Christianity takes me to the Bosphorus
 river in classical Anatolia (Julius Caesar = Asander, King of Bosphorus,
@@ -363,58 +356,7 @@ Etruscans who established Rome were invaders from Anatolia, and the
 Carians who hailed from southwest Anatolia have a strong connection with
 the settlement of Rome (Aquilla = Qos = god of Kos of Caria).
 
-4 Subversion of the Imperial Cult
-
-Sometime after the Bar Kokhba Revolt (132--136 CE), a group of rabbis
-that were headed by a rabbi named Akiva who lead the Talmudic Pharisees
-and is responsible for large parts of the Talmud, Sefer Yetzirah (book
-of creation), the Mishna and the Midrash Halakha, and modern judaism,
-and who was a student of Gamaliel (Paul the Apostle claimed that he was
-brought up in Jerusalem "at the feet of Gamaliel" (Acts 22:3)), and who
-was the one that came up with the idea that "Rome was Edom", realized
-that subversion was the only way to defeat the Romans. So, rabbi Akiva
-and his students Aquila of Sinope aka Onkelos, Markianos of Alexandria
-aka Marcion (Greek Markion) of Sinope, Simon ben Yohai (Justin Martyr?), Ketia bar
-Shalom aka 'Clement of Rome' (hebrew Ketia is the same as Latin Clement), Aristo of Pella, who is a good candidate
-for being Luke the Evangelist ('Aristo', or 'Ariston' is a name that is
-related to 'Proteus' The former means 'first-rank, noble' the second
-derives from 'first'. So, was he also Peregrinus Proteus? Also, Mark or
-Mahalia, sixteenth bishop of Jerusalem was the secretary of Aristo and
-Marcion is known to have had a disciple named Lucanus as documented by
-Tertullian, so Mark, or Mahalia, first Gentile bishop of Jerusalem was
-also Markianos of Alexandria aka Marcion of Sinope?) and Rabbi Meir aka Polycarp aka Bishop ignatius (Ignatius means firely one and Polycarp was famous for lighting himself on fire), added a slave-morality suicide cult to the imperial cult.
-
-Many of rabbi Akiva's students and contemporaries had connections to the
-Alexandrian School in Egypt and were themselves students of Philo of
-Alexandria.
-
-Rabbi Akiva was likely Paul the Apostle. In Acts 22:3 "Paul" claims to have been educated at the feet of Gamaliel who was the teacher of rabbi Akiva, and in Acts 18:2-3 and Romans 16:3 NASB, it is claimed that Aquila of Sinope and his wife Prisca or Priscilla lived with Paul the Apostle and Paul called them “my fellow workers in Christ Jesus.
-
-Quintus Tinnius Rufus (Turnus Rufus the Evil) was Pontius Pilate, the Roman governor of Judaea who crucified Simon bar Kokhba and killed rabbi Akiva. Rabbi Akiva preached that Simon bar Kokhba was the jewish messiah.
-
-Getting people to abandon their religons for a new one is an almost impossible task, so instead, through religious syncrenism and intertextuality, creating a new sect of an established
-religion makes it easier for a population to adapt. So, they just took
-one of the Bosphoran/Roman imperial cults of the time and infused a slave morality into
-it. Julius Caesar aka Asander of Bosphorus or one of his successors in the Bosphoran imperial cult (King Izates Monobazus or Tiberius Julius Sauromates II) was replaced with Simon bar Kokhba.
-
-Endnotes (Chapter 4)
-
-(a) Marcion of Sinope aka Markianos of Alexandria grew up in the Attis-Sabazios cult on Anatolia before traveling to Judea to study under rabbi Akiva and finally to Alexandria at the Alexandrian School.
-
-(b) Yohai is a nickname for yochai. The name Yochai means 'YHWAH is gracius' from the Hebrew word Yochanan sometimes transcribed as Johanan. Was he also Johanan the Alexandrian? This would place him in Alexandria at the same time as Markianos of Alexandria.
-
-(c) Quintus Tineius Sacerdos, the brother of Quintus Tinnius Rufus, was the govenor of Pontus in Anatolia, so the family likely derived from there. Pilate means the temperament of a warrior I.e.: famously temperamental. That's where the name Pontius Pilate comes from.
-
-(d) How did christianity spread? Vespasian and his sons Titus and Domitian
-brought 100,000 jewish "slaves" to Rome (Josephus, Jewish War vi, 9)
-[^13]. It seems likely that the 100,000 jewish "slaves" joined the jews
-that were already in Rome and they became the early church missionaries
-and profited from selling this religion to the slaves and exploited
-classes.
-
-Addendum
-
-A few notes on the term "Jew".
+6 Julius Caesar was a Title 
 
 Identifying Julius Caesar as Asander of Bosphorus necessitates a re-examination of his name. 
 
@@ -450,7 +392,68 @@ Abel and Cain are just a copy of Romulus and Remus. Judas Iscariot is a copy of 
 
 Also, Caesar, Kaiser (German for Caesar), Kesar or Kaysar (Persian for Caesar), Kaisar (Ancient Greek for Caesar), Tsar (Russian for Caesar) and Khazar are not just phonetic coincidences. It all ties back to the Divine Julius cult.
 
+7 Esus the Celtic Deity
+
+The Celts in classical Galatia also worshiped a deity called Hesus/Esus/Iesus. This title likely came from Iupiter-Zeus (I(J)upiter-Zeus (I-Zeus-> Izeus-> Iseus)). The Romans used a system called 'interpretatio romana' to associate their gods with local ones as part of their colonial program.
+Julius Caesar, as the claimed 'son of I(J)upiter' (there was no J in
+Latin) would have been Iupiter-Zeus to let the Greeks know that Iupiter
+and Zeus were equivalent deities (Roman Jupiter and Greek Zeus both
+derive from the Aryan skyfather 'Dyeus Pter'. The name Zeus comes from
+the pronunciation of Dyeus, and Jupiter comes from the pronunciation of
+"Dyeus Pter"). 
+
+Then subsequent emperors took on this role. I-Zeus (Izeus)/Esus/Hesus eventually phonetically shifted to I-zas/Izas/Izates.
+
 So, it seems that the Romans (in Anatolia) tried to assimilate the tribe that became modern jews by forcing their imperial cult on them and they got their identity from here. This is why several prominant members of this royal family identified as "Jews" despite being Aryan Sarmatians and Celtic Galatians.
+
+8 Subversion of the Imperial Cult
+
+Sometime after the Bar Kokhba Revolt (132--136 CE), a group of rabbis
+that were headed by a rabbi named Akiva who lead the Talmudic Pharisees
+and is responsible for large parts of the Talmud, Sefer Yetzirah (book
+of creation), the Mishna and the Midrash Halakha, and modern judaism,
+and who was a student of Gamaliel (Paul the Apostle claimed that he was
+brought up in Jerusalem "at the feet of Gamaliel" (Acts 22:3)), and who
+was the one that came up with the idea that "Rome was Edom", realized
+that subversion was the only way to defeat the Romans. So, rabbi Akiva
+and his students Aquila of Sinope aka Onkelos, Markianos of Alexandria
+aka Marcion (Greek Markion) of Sinope, Simon ben Yohai (Justin Martyr?), Ketia bar
+Shalom aka 'Clement of Rome' (hebrew Ketia is the same as Latin Clement), Aristo of Pella, who is a good candidate
+for being Luke the Evangelist ('Aristo', or 'Ariston' is a name that is
+related to 'Proteus' The former means 'first-rank, noble' the second
+derives from 'first'. So, was he also Peregrinus Proteus? Also, Mark or
+Mahalia, sixteenth bishop of Jerusalem was the secretary of Aristo and
+Marcion is known to have had a disciple named Lucanus as documented by
+Tertullian, so Mark, or Mahalia, first Gentile bishop of Jerusalem was
+also Markianos of Alexandria aka Marcion of Sinope?) and Rabbi Meir aka Polycarp aka Bishop ignatius (Ignatius means firely one and Polycarp was famous for lighting himself on fire), added a slave-morality suicide cult to the imperial cult.
+
+Many of rabbi Akiva's students and contemporaries had connections to the
+Alexandrian School in Egypt and were themselves students of Philo of
+Alexandria.
+
+Rabbi Akiva was likely Paul the Apostle. In Acts 22:3 "Paul" claims to have been educated at the feet of Gamaliel who was the teacher of rabbi Akiva, and in Acts 18:2-3 and Romans 16:3 NASB, it is claimed that Aquila of Sinope and his wife Prisca or Priscilla lived with Paul the Apostle and Paul called them “my fellow workers in Christ Jesus.
+
+Quintus Tinnius Rufus (Turnus Rufus the Evil) was Pontius Pilate, the Roman governor of Judaea who crucified Simon bar Kokhba and killed rabbi Akiva. Rabbi Akiva preached that Simon bar Kokhba was the jewish messiah.
+
+Getting people to abandon their religons for a new one is an almost impossible task, so instead, through religious syncrenism and intertextuality, creating a new sect of an established
+religion makes it easier for a population to adapt. So, they just took
+one of the Bosphoran/Roman imperial cults of the time and infused a slave morality into
+it. Julius Caesar aka Asander of Bosphorus or one of his successors in the Bosphoran imperial cult (King Izates Monobazus or Tiberius Julius Sauromates II) was replaced with Simon bar Kokhba.
+
+Endnotes (Chapter 8)
+
+(a) Marcion of Sinope aka Markianos of Alexandria grew up in the Attis-Sabazios cult on Anatolia before traveling to Judea to study under rabbi Akiva and finally to Alexandria at the Alexandrian School.
+
+(b) Yohai is a nickname for yochai. The name Yochai means 'YHWAH is gracius' from the Hebrew word Yochanan sometimes transcribed as Johanan. Was he also Johanan the Alexandrian? This would place him in Alexandria at the same time as Markianos of Alexandria.
+
+(c) Quintus Tineius Sacerdos, the brother of Quintus Tinnius Rufus, was the govenor of Pontus in Anatolia, so the family likely derived from there. Pilate means the temperament of a warrior I.e.: famously temperamental. That's where the name Pontius Pilate comes from.
+
+(d) How did christianity spread? Vespasian and his sons Titus and Domitian
+brought 100,000 jewish "slaves" to Rome (Josephus, Jewish War vi, 9)
+[^13]. It seems likely that the 100,000 jewish "slaves" joined the jews
+that were already in Rome and they became the early church missionaries
+and profited from selling this religion to the slaves and exploited
+classes.
 
 Further reading
 
