@@ -418,15 +418,34 @@ A few notes on the term "Jew".
 
 Identifying Julius Caesar as Asander of Bosphorus necessitates a re-examination of his name. 
 
-"Gaius" refers to Asander's connection to the Gallian (Gauls (Galli = Celt in Latin)) people or his ancestry in the region.
+Galata in Classical Anatolia was settled by the Gauls. Galatia bordered
+the Bosphorus, and Julius Caesar/Asander was king of this region. The
+king of Galatia during this time was Asander's brother-in-law Amyntas of
+Galatia who ruled an area that streched into India under the alias
+Amyntas Nikator.
 
-Ceasar's gentilice (surname) was Iulius. Iulius can refer to the ancient Celtic tribe known as the Iudii or Iudaei. "Ioulios" (ιούλιος) in Greek also means "descended from Jupiter" or "son of Jupiter".
+"Gaius" then can refers to Asander's connection to the Gallian (Gauls (Galli = Celt in Latin)) people or his ancestry in the region.
 
+Ceasar's gentilice (surname) was Iulius. Iulius can refer to the ancient Celtic tribe known as the Iudii or Iudaei. "Ioulios" (ιούλιος) in Greek also means "descended from Jupiter" or "son of Jupiter". So, it is possible that the word "jew" comes from the Iudii or Iudaei.
+ 
 Caesarus refered to a Celtic a chieftain. For example, Caesorix was the leader of the Cimbri tribe during the Cimbrian War.
 
-Gaius Julius Caesar was a title, and Gaius Julius Caesar could conceivably translate to: Chieftan of the Iuddi or Iudaiei tribe from Galatia.
+Gaius Julius Caesar was a title, and Gaius Julius Caesar could conceivably translate to: Chieftan of the Iudii or Iudaiei tribe from Galatia.
 
-I(J)upiter was also called Jove or Iove to the Romans. The Latin pronunciation of Iove would have been Yoh-Way, i.e Yahweh/Yhwh, so Yahweh Saboath, the god of the hebrew bible, is I(J)ove (Roman Zeus) Sabazios (Thracian Zeus).
+I(J)upiter was called Jove or Iove to the Romans. The Latin pronunciation of Iove would have been Yoh-Way, i.e Yahweh/Yhwh, so Yahweh Saboath, the god of the hebrew bible, is I(J)ove (Roman Zeus) Sabazios (Thracian Zeus).
+
+As for the term 'Hebrew", it comes from the Celts who called themselves
+Iberi. The name of Abaris the Hyperborean, a Druid priest who was
+Pythagoras's teacher, who was the son of Seuthes (Seth), shows this. The
+term Abaris was inspired by the Semitic Iber. Iber was sometimes
+rendered as Aber or Heber and is pronounced as Hebrew in the Hebrew
+languages. Hyperborea, which just like Atlantis, was another name for
+Ireland. The word Atlantis means 'The Island of Atlas'. The titan Atlas
+was a key figure in Greek mythology and is depicted as being the bearer
+of the heavens. According to early Greek mythology, Atlas lived on the
+island of Hyperborea. Over time Hyperborea became Hybernia or Hibernia,
+the Roman name for Ireland. Iber is an ethnonym that shows up in areas
+where the Celtic people settled (Ebro river, Iberia, Hibernia, etc.).
 
 Abel and Cain are just a copy of Romulus and Remus. Judas Iscariot is a copy of Brutus. Genesis 4:5-31. Enoch, Irad, Mehujael, Methuselah, Lamech, Seth, Enosh, Kenan, Mahalalel, are copies of Titus Livy's Regal Rome of the seven kings.
 
