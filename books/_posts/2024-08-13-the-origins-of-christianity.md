@@ -273,12 +273,12 @@ claiming to be the son of Herod who faked his death [^11], so he was
 
 Endnotes (Chapter 3)
 
-(a) Amyntas Nikator aka Amyntas of Galatia aka Jesus ben Fabus aka Isa Amen (Jesus Amen of Rev. iii. 14) is an interesting figure. Historian Ranajit Pal has made the claim that Alexander the Great = Chandragupta (Alakshandra is a Sanskritized
+(a) Amyntas Nikator aka Amyntas of Galatia aka Jesus ben Fabus aka Isa Amen (Jesus Amen of Rev. iii. 14) is an interesting figure. Historian Ranajit Pal has made the claim that Alexander the Great = Chandragupta Maurya (Alakshandra is a Sanskritized
     translation of Alexander and Gupta means guardian or protector in
-    Sanskrit, the exact meaning of Alexander). (See: "Alexander and
+    Sanskrit, the exact meaning of Alexander) who was an Indian emperor who founded the Mauryan Empire, one of the largest and most powerful empires in ancient India. (See: "Alexander and
     Chandragupta in Sanskrit Drama" by Ranajit Pal
     https://www.academia.edu/40074507/ALEXANDER_AND_CHANDRAGUPTA_IN_A_SANSKRIT_DRAMA
-    [[link](https://www.academia.edu/40074507/ALEXANDER_AND_CHANDRAGUPTA_IN_A_SANSKRIT_DRAMA)]). and also that Diodotus I Soter = Ashoka the Great. (See: "Diodotus I was Ashoka"
+    [[link](https://www.academia.edu/40074507/ALEXANDER_AND_CHANDRAGUPTA_IN_A_SANSKRIT_DRAMA)]). He also claims that Diodotus I Soter (Alexander's successor to eastern territories) = Ashoka the Great (Chandragupta's successor). (See: "Diodotus I was Ashoka"
     by Ranajit Pal
     https://www.academia.edu/695219/Diodotus_I_was_Ashoka_An_Altar_of_Alexander_Now_Standing_Near_Delhi
     [[link](https://www.academia.edu/695219/Diodotus_I_was_Ashoka_An_Altar_of_Alexander_Now_Standing_Near_Delhi)]). This would mean that Alexander completed his conquest of India and then adopted a local identity. So, India was under Greek rule since Alexander. Being the king of a region populated by Gauls, Amyntas of Galatia's religion would have been Druidism. The ancient Vedas are just the eastern branch of Druidism (https://www.academia.edu/13113385/Druidism_and_Vedism_Compared). The name Abaris or Abharas, from Abaris the Hyperborian, the Druid teacher of Pythagoras, derives from the Old Irish word abhar, which means chief or noble and was a generic term for Druid or Chief Druid. Abharas is also related to the Sanskrit word Bhārata, a legendary king in the Vedas. Bhārata is at the root of the word Bharatvarsha which is a term that is used to refer to the Indian subcontinent as a whole. 
