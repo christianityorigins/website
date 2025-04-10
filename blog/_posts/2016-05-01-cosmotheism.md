@@ -23,7 +23,7 @@ Cosmotheist cosmology revolves around the belief that the universe and the divin
 
 Essentially it is about seeing divinity in the universe, laws of physics, etc. 
 
-There are also materialistic cosmotheists (all is matter) who believe that everything is made of matter, and even things like thoughts or consciousness are just products of physical processes. This view aligns with atheism. These cosmotheists just appreciate the interconnectedness of the universe without ascribing any supernatural power to it. 
+There are also materialistic cosmotheists (all is matter) who believe that everything is made of matter, and even things like thoughts or consciousness are just products of physical processes. This view aligns with atheism. These cosmotheists just appreciate the interconnectedness of the universe without ascribing any supernatural power to it. Atheists join cosmotheist Pagan groups for a sense of community, social network, and connection to their ancestry.
 
 3 Core Beliefs
 
