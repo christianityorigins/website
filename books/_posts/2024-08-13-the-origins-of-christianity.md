@@ -421,7 +421,7 @@ I-Zeus (Izeus)/Esus/Hesus then eventually phonetically shifted to I-zas/Izas/Iza
 ![Fig.
 1.11](/images/Esus.jpg){:width="400px"}
 
-Fig. 1.11. Statue from classical Anatolia that is dedicated to "Esumopas Cnusticus". Esumopas means "Slave to Esus", and Esus means lord in proto-Celtic. If you combine the Etruscan word "cnus" with the suffix "-ticus" or "-tic-" you get a word that translates to "anointed one" or "consecrated one", ie. a "Christ". So, that inscription translates to: "Slave to Lord (Esus) Christ". The "VSLM" inscription is an abbreviation for the Latin phrase "Votum Solvit Libens Merito" which is a Latin phrase that translates to "He pays his vow willingly and with merit" or "He fulfills his vow with pleasure and deserving", which is often found on Roman coins and other artifacts. Esus was crucified in mythology and his symbol was an axe, so he was associated with woodcutting, forestry, carpentry. 
+Fig. 1.11. Statue from classical Anatolia that is dedicated to "Esumopas Cnusticus". Esumopas means "Slave to Esus", and Esus means lord in proto-Celtic. If you combine the Etruscan word "cnus" with the suffix "-ticus" or "-tic-" you get a word that translates to "anointed one" or "consecrated one", ie. a "Christ". So, that inscription translates to: "Slave to Lord (Esus) Christ". The "VSLM" inscription is an abbreviation for the Latin phrase "Votum Solvit Libens Merito" which translates to "He pays his vow willingly and with merit" or "He fulfills his vow with pleasure and deserving", which is often found on Roman coins and other artifacts. Esus was crucified in mythology and his symbol was an axe, so he was associated with woodcutting, forestry, carpentry. 
 
 8 Subversion of the Imperial Cult
 
