@@ -27,7 +27,7 @@ Table of Contents
 
 #### 1 Name and Title Meanings
 
--   Christ: In Greek "The Anointed One" is Chréstos/Christ or Soter. Several historical figures were Christs/Soters. In Isaiah 45:1 the jews called Cyrus the Great "The Anointed One". Alexander the Great was also a Chréstos/Soter (Josephus. Antiquities, XI. 8. Talmud, Yoma 67b).
+-   Christ: In Greek "The Anointed One" is Chréstos/Christ. Christ is identical to the title Soter. Several historical figures were Christs/Soters. In Isaiah 45:1 the jews called Cyrus the Great "The Anointed One". Alexander the Great was also a Chréstos/Soter (Josephus. Antiquities, XI. 8. Talmud, Yoma 67b).
 -   Cotys: In Thracian, "Cotys" is related to the word "kotys" which is a title that means "lord".
 -   Izates or Izas: An ancient Greek translation of the Avestan word Yazatas (Persian:
 izad), meaning "lord".
