@@ -8,7 +8,7 @@ If you appreciate my work please consider supporting me!<br /><br />
 
 
 
-<div class="copyable-email"><a href="bitcoin:bc1qtgj8ucnpt532uu963wlcdaaxu0m4dzwfrw3d93">bitcoin:bc1qtgj8ucnpt532uu963wlcdaaxu0m4dzwfrw3d93</a></div>
+Bitcoin: <div class="copyable-email"><a href="bitcoin:bc1qtgj8ucnpt532uu963wlcdaaxu0m4dzwfrw3d93">bc1qtgj8ucnpt532uu963wlcdaaxu0m4dzwfrw3d93</a></div>
 
 
 <script>
