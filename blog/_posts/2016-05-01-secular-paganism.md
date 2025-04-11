@@ -22,7 +22,7 @@ CONTENTS
 
 Ancient European religions were always dharmic (non-dogmatic). Some polytheistic religious followers see the polytheistic deities as sentient personal gods, others see them as allegorical personifications of natural forces (numen/animism) or as emanations or forms/symbolic representations of a particular quality or principle. 
 
-Secular paganism is mostly a new movement that is growing rapidly. Atheists join Pagan groups for a sense of community, social network, and connection to their ancestry.
+Secular paganism is mostly a new movement that is growing rapidly. Atheists join Pagan groups for a sense of community, social network, and connection to their ancestry. These Pagans don't worship a particular thing, they just appreciate the unity of existence, or seek to understand the ultimate nature of reality. Ancestor veneration is the only worship they do. 
 
 Many modern secular polytheistic Pagans (3) are inspired by Carl Jung who combined psychoanalysis with Heathenry. The polytheistic deities = 'archetypes (4) of the collective unconscious (5)' to these Pagans.
 
@@ -36,12 +36,12 @@ In polytheistic religions, rituals are centered around the worship of multiple d
 
 5 Footnotes
 
-1\. https://en.wikipedia.org/wiki/Secular_paganism [link]. These Pagans don't worship a particular thing, they just appreciate the unity of existence, or seek to understand the ultimate nature of reality. Ancestor veneration is the only worship they do. \
-2.\ https://en.wikipedia.org/wiki/Jungian_archetypes [link] \
-3.\ https://en.wikipedia.org/wiki/Collective_unconscious [link] \
-4.\ https://en.wikipedia.org/wiki/Active_imagination#Carl_Gustav_Jung [link] \
-5.\ https://en.wikipedia.org/wiki/Individuation#Carl_Jung [link] \
-6.\ https://archive.org/details/carl-jung-on-wotan_20230629
+1\. https://en.wikipedia.org/wiki/Secular_paganism [link] \
+2\. https://en.wikipedia.org/wiki/Jungian_archetypes [link] \
+3\. https://en.wikipedia.org/wiki/Collective_unconscious [link] \
+4\. https://en.wikipedia.org/wiki/Active_imagination#Carl_Gustav_Jung [link] \
+5\. https://en.wikipedia.org/wiki/Individuation#Carl_Jung [link] \
+6\. https://archive.org/details/carl-jung-on-wotan_20230629
 
 Read more 
 
