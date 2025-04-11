@@ -22,7 +22,7 @@ CONTENTS
 
 Ancient European religions were always dharmic (non-dogmatic). Some polytheistic religious followers see the polytheistic deities as sentient personal gods, others see them as allegorical personifications of natural forces (numen/animism) or as emanations or forms/symbolic representations of a particular quality or principle. 
 
-Secular paganism is mostly a new movement that is growing rapidly. Atheists join Pagan groups for a sense of community, social network, and connection to their ancestry. These Pagans don't worship a particular thing, they just appreciate the unity of existence, or seek to understand the ultimate nature of reality. Ancestor veneration is the only worship they do. 
+Secular paganism is mostly a new movement that is growing rapidly. Atheists join Pagan groups for a sense of community, social network, shared culture, and connection to their ancestry. These Pagans don't worship a particular thing, they just appreciate the unity of existence, or seek to understand the ultimate nature of reality. Ancestor veneration is the only worship they do. 
 
 Many modern secular polytheistic Pagans (3) are inspired by Carl Jung who combined psychoanalysis with Heathenry. The polytheistic deities = 'archetypes (4) of the collective unconscious (5)' to these Pagans.
 
