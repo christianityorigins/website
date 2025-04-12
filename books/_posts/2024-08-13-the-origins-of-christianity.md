@@ -16,7 +16,9 @@ deed* - Romans 15:18
 
 Contents
 
-Introduction\
+_Preface_
+
+  Introduction\
 1 Name and Title Meanings \
 2 Julius Caesar aka Asander of Bosphorus \
 3 Flavian Dynasty \
@@ -24,17 +26,20 @@ Introduction\
 5 Julius Caesar was a Title \
 6 Esus the Celtic Deity \
 7 Subversion of the Imperial Cult\
-Conclusion
+  Conclusion
 
 _Appendix A: How did Christianity Spread?_
 
 _Further reading_ \
 _Footnotes_
 
+_Preface_
+
+I am a revisionist historian who believes that most history was falsified by the church fathers, Jesuits, and Joseph justus Scalinger. My research methodologies are multifaceted, encompassing revisionist historiography, counter-narrative analysis, and historical deconstruction. The primary sources that inspired my research are listed in the Further Reading section at the end of the book.
+
 #### Introduction
 
 The early rulers of Sumer were all priests, while in Egypt, the Pharaohs claimed to be sons of gods. The Persians also deified their leaders, taking it a step further by incorporating a slave-morality religion into their imperial cult as part of their colonial program. They created Zoroastrianism and Buddhism (Gautama Buddha being Gaumata Bardya, the son of Cyrus the Great, who governed the Persian province of Bactra). The Greeks followed with the Ptolemaic cult of Alexander and the Serapis cult, and the Romans established their own imperial cults. These imperial powers maintained their empires through religious syncretism and slave-morality religions, which stripped the population of their will to power, while using an incredible number of regional aliases, locations, fictional stories, faked adoptions, and fabricated deaths for their family members to maintain their empire and prevent any rebellion. Christianity is a relic of one of these imperial slave moralities which itself was subverted by a confederaion of rabbis after the Bar Kokhba Revolt (132--136 CE).
-
 
 #### 1 Name and Title Meanings
 
@@ -483,7 +488,7 @@ that were already in Rome and they became the early church missionaries
 and profited from selling this religion to the slaves and exploited
 classes.
 
-Further reading
+_Further reading_
 
 *A Forgery of Our Own* (1991) by Revilo P. Oliver
 [[link](http://www.revilo-oliver.com/rpo/Forgery_of_Our_Own.html)]
@@ -535,7 +540,7 @@ their aliases with those of Cleopatra and Mark Antony's grandchildren,
 but it was my starting point to understanding the many aliases this
 family used*)
 
-Footnotes
+_Footnotes_
 
 [^1]: See: "History: Fiction or Science? Russia. Britain. Byzantium.
     Rome. New Chronology Vol.IV" (2008) by Anatoly T. Fomenko, "Jesus
