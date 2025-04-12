@@ -33,13 +33,13 @@ _Appendix A: How did Christianity Spread?_
 _Further reading_ \
 _Footnotes_
 
-_Preface_
-
-I am a revisionist historian who believes that most history was falsified by the church fathers, Jesuits, and Joseph justus Scalinger. My research methodologies are multifaceted, encompassing revisionist historiography, counter-narrative analysis, and historical deconstruction. The primary sources that inspired my research are listed in the Further Reading section at the end of the book.
-
 #### Introduction
 
 The early rulers of Sumer were all priests, while in Egypt, the Pharaohs claimed to be sons of gods. The Persians also deified their leaders, taking it a step further by incorporating a slave-morality religion into their imperial cult as part of their colonial program. They created Zoroastrianism and Buddhism (Gautama Buddha being Gaumata Bardya, the son of Cyrus the Great, who governed the Persian province of Bactra). The Greeks followed with the Ptolemaic cult of Alexander and the Serapis cult, and the Romans established their own imperial cults. These imperial powers maintained their empires through religious syncretism and slave-morality religions, which stripped the population of their will to power, while using an incredible number of regional aliases, locations, fictional stories, faked adoptions, and fabricated deaths for their family members to maintain their empire and prevent any rebellion. Christianity is a relic of one of these imperial slave moralities which itself was subverted by a confederaion of rabbis after the Bar Kokhba Revolt (132--136 CE).
+
+Note on aliases: I believe that the royal elites in antiquity role-played as if they were characters in a play, and they used aliases and fictional deaths as story patterns or archetypes. They killed off one character then assumed the role of another one in a different location. For example, the governor of Roman Egypt from 33 CE to 38, Aulus Avillius Flaccus, was also Polemon II of Pontus who was the prince of the Bosporan, Pontus, Cilicia, and Cappadocia, which was the regional alias of Emperor Titus. The character of Aulus Avillius Flaccus dies at the same time Polemon II of Pontus takes power and then Polemon II of Pontus dies around the same time Titus becomes emperor. The way of connecting them is through the fact that they were all married to the same woman, Berenice, grandaughter of King Herod.
+
+Julius Caesar was Asander of Bosphorus. Cleopatra was Dynamis, queen of Bosphorus. Mark Antony was King Herod the king of Judea, Tiberius Claudius Nero, and Phraates IV the 'King of Kings' of the Parthian Empire. Vespasian was Herod Pollio and Herod Agrippa I, grandson of King Herod's son Aristobulus IV. All evidence to prove my claims will be found in the following chapters.
 
 #### 1 Name and Title Meanings
 
@@ -460,7 +460,7 @@ Many of rabbi Akiva's students and contemporaries had connections to the
 Alexandrian School in Egypt and were themselves students of Philo of
 Alexandria.
 
-Rabbi Akiva was likely Paul the Apostle. In Acts 22:3 "Paul" claims to have been educated at the feet of Gamaliel who was the teacher of rabbi Akiva, and in Acts 18:2-3 and Romans 16:3 NASB, it is claimed that Aquila of Sinope and his wife Prisca or Priscilla lived with Paul the Apostle and Paul called them “my fellow workers in Christ Jesus.
+Rabbi Akiva was likely Paul the Apostle. In Acts 22:3 "Paul" claims to have been educated at the feet of Gamaliel who was the teacher of rabbi Akiva, and in Acts 18:2-3 and Romans 16:3 NASB, it is claimed that Aquila of Sinope and his wife Prisca or Priscilla lived with Paul the Apostle and Paul called them “my fellow workers in Christ Jesus. Paul/Saul's fictional life story was stolen from the ancient Egyptian story "Tale of the Shipwrecked Sailor". 
 
 Quintus Tinnius Rufus (Turnus Rufus the Evil) was Pontius Pilate, the Roman governor of Judaea who crucified Simon bar Kokhba and killed rabbi Akiva. Rabbi Akiva preached that Simon bar Kokhba was the jewish messiah.
 
