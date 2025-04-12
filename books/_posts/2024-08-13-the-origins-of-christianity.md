@@ -27,8 +27,9 @@ _Preface_
 6 Esus the Celtic Deity \
 7 Subversion of the Imperial Cult\
   Conclusion
-
-_Appendix A: How did Christianity Spread?_
+  
+_Appendix A: The Symbol of the Cross_\
+_Appendix B: How did Christianity Spread?_
 
 _Further reading_ \
 _Footnotes_
@@ -323,29 +324,10 @@ sister).
 
 Endnotes (chapter 3)
 
-(a) The symbol of the cross, Celtic cross/high cross/sun cross/solar
-    wheel, et.al., which predate christianity by thousands of years
-    (Callanish Stones. Wikipedia,
-    https://en.wikipedia.org/wiki/Callanish_Stones
-    [[link](https://en.wikipedia.org/wiki/Callanish_Stones)]), was a
-    prominant symbol in ancient Europe. The circle is a sunwheel that
-    together with the cross served as a sundial that had markings to
-    track the time, date, and lunar and agricultural cycles. Also, in
-    portable form it was a sundial clock and compass. Although not a
-    religious symbol, as they were astronomical tools, every city in
-    ancient Europe would have had a large cross raised at its center in
-    the same way that every city today has a clock tower at it's center.
-    So you can see how christianity spread throughout Europe, through
-    subversion. Most Europeans must have thought that christianity was
-    simply the same relgion that they were already worshiping, and
-    because of widespread illiteracy at the time, they had no idea what
-    garbage was inside the bible.
-
-(b) Suetonius (Divus Julius 88) notes Caesar's comet or 'Julian Star'
+(a) Suetonius (Divus Julius 88) notes Caesar's comet or 'Julian Star'
     (or Sidus Iulium) rose during his funeral games, interpreted as his
     soul's ascent---eerily similar to Christ's resurrection narrative.
-
-(c) Mithridates VI Eupator was a direct descendant of Ptolemy II Philadelphus (Ptolemy II Philadelphus (285-246 BCE) married Arsinoe I, and they had a daughter, Berenice Syra. Berenice Syra married Antiochus II Theos, a Seleucid king, and they had a son, Seleucus II Callinicus. Seleucus II Callinicus (246-225 BCE) married Laodice II, and they had a daughter, Laodice III. Laodice III married Mithridates III of Pontus, and they had a son, Pharnaces I of Pontus. Pharnaces I of Pontus (190-155 BCE) married Nysa, and they had a son, Mithridates V of Pontus. Mithridates V of Pontus (150-120 BCE) married Laodice VI, and they had a son, Mithridates VI Eupator (120-63 BCE)). Some historians believe that Ptolemy II Philadelphus was Alexander the Great's biological son who was raised by Ptolemy I Soter. Statues of Alexander and Ptolemy II Philadelphus look strikingly like father and son. Ptolemy I Soter married Alexanders mistress Thaïs, and his other wife Berenice had the same name as Barsine who was another mistress of Alexander. Barsine and Berenice are different forms of the Persian name Barsina. The Persian name Roshanak is translated as Barsina, so the names Barsine and Berenice are both related to the Roxana, which was the name of Alexander's Persian wife. This would make Asander (whose name is an obvious reference to Alexander) and Dynamis Alexander's heirs.
+(b) Mithridates VI Eupator was a direct descendant of Ptolemy II Philadelphus (Ptolemy II Philadelphus (285-246 BCE) married Arsinoe I, and they had a daughter, Berenice Syra. Berenice Syra married Antiochus II Theos, a Seleucid king, and they had a son, Seleucus II Callinicus. Seleucus II Callinicus (246-225 BCE) married Laodice II, and they had a daughter, Laodice III. Laodice III married Mithridates III of Pontus, and they had a son, Pharnaces I of Pontus. Pharnaces I of Pontus (190-155 BCE) married Nysa, and they had a son, Mithridates V of Pontus. Mithridates V of Pontus (150-120 BCE) married Laodice VI, and they had a son, Mithridates VI Eupator (120-63 BCE)). Some historians believe that Ptolemy II Philadelphus was Alexander the Great's biological son who was raised by Ptolemy I Soter. Statues of Alexander and Ptolemy II Philadelphus look strikingly like father and son. Ptolemy I Soter married Alexanders mistress Thaïs, and his other wife Berenice had the same name as Barsine who was another mistress of Alexander. Barsine and Berenice are different forms of the Persian name Barsina. The Persian name Roshanak is translated as Barsina, so the names Barsine and Berenice are both related to the Roxana, which was the name of Alexander's Persian wife. This would make Asander (whose name is an obvious reference to Alexander) and Dynamis Alexander's heirs.
 
 #### 4 Rome on the Bosphorus?
 
@@ -479,7 +461,27 @@ Endnotes (Chapter 7)
 
 (c) Quintus Tineius Sacerdos, the brother of Quintus Tinnius Rufus, was the govenor of Pontus in Anatolia, so the family likely derived from there. Pilate means the temperament of a warrior I.e.: famously temperamental. That's where the name Pontius Pilate comes from.
 
-Appendix A: How did Christianity spread? 
+_Appendix A: The Symbol of the Cross_
+
+The symbol of the cross, Celtic cross/high cross/sun cross/solar
+    wheel, et.al., which predate christianity by thousands of years
+    (Callanish Stones. Wikipedia,
+    https://en.wikipedia.org/wiki/Callanish_Stones
+    [[link](https://en.wikipedia.org/wiki/Callanish_Stones)]), was a
+    prominant symbol in ancient Europe. The circle is a sunwheel that
+    together with the cross served as a sundial that had markings to
+    track the time, date, and lunar and agricultural cycles. Also, in
+    portable form it was a sundial clock and compass. Although not a
+    religious symbol, as they were astronomical tools, every city in
+    ancient Europe would have had a large cross raised at its center in
+    the same way that every city today has a clock tower at it's center.
+    So you can see how christianity spread throughout Europe, through
+    subversion. Most Europeans must have thought that christianity was
+    simply the same relgion that they were already worshiping, and
+    because of widespread illiteracy at the time, they had no idea what
+    garbage was inside the bible.
+
+_Appendix B: How did Christianity spread?_
 
 Vespasian and his sons Titus and Domitian
 brought 100,000 jewish "slaves" to Rome (Josephus, Jewish War vi, 9)
