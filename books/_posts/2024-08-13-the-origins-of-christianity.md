@@ -14,16 +14,27 @@ By Ralph Perrier
 accomplished through me in leading the Gentiles to obedience by word and
 deed* - Romans 15:18
 
-Table of Contents
+Contents
 
+Introduction\
 1 Name and Title Meanings \
-2 The Creation of Christianity\
-3 Julius Caesar aka Asander of Bosphorus \
-4 Flavian Dynasty \
-5 Rome on the Bosphorus?\
-6 Julius Caesar was a Title \
-7 Esus the Celtic Deity \
-8 Subversion of the Imperial Cult 
+2 Julius Caesar aka Asander of Bosphorus \
+3 Flavian Dynasty \
+4 Rome on the Bosphorus?\
+5 Julius Caesar was a Title \
+6 Esus the Celtic Deity \
+7 Subversion of the Imperial Cult\
+Conclusion
+
+_Appendix A: How did Christianity Spread?_
+
+_Further reading_ \
+_Footnotes_
+
+#### Introduction
+
+The early rulers of Sumer were all priests, while in Egypt, the Pharaohs claimed to be sons of gods. The Persians also deified their leaders, taking it a step further by incorporating a slave-morality religion into their imperial cult as part of their colonial program. They created Zoroastrianism and Buddhism (Gautama Buddha being Gaumata Bardya, the son of Cyrus the Great, who governed the Persian province of Bactra). The Greeks followed with the Ptolemaic cult of Alexander and the Serapis cult, and the Romans established their own imperial cults. These imperial powers maintained their empires through religious syncretism and slave-morality religions, which stripped the population of their will to power, while using an incredible number of regional aliases, locations, fictional stories, faked adoptions, and fabricated deaths for their family members to maintain their empire and prevent any rebellion. Christianity is a relic of one of these imperial slave moralities which itself was subverted by a confederaion of rabbis after the Bar Kokhba Revolt (132--136 CE).
+
 
 #### 1 Name and Title Meanings
 
@@ -34,11 +45,7 @@ izad), meaning "lord".
 -   Monobazus: Sabazios is the Phrygian and Thracian version of Zeus. Ma'nu is likely a diminutive of Menneus ("son of man"), and then Manu-Sabazios becomes Monobazus. Monobazus also becomes "Bazus" or "Bar Izates" shortened to "baYZTus" (or bar YZT) through frequent oral repetition which then becomes "bOETHus". The Boethusians were a jewish priestly sect.
 -   Piso cognomen: "Appius" is a cognomen (personal name) of the Claudian family. Appius and Piso are synonymous (In Greek, Appius is rendered as Appios, from there Piso). The name Piso itself would be a form of Peisistratos/Pisistratos, the leading name of ancient Athens in Greece. (Pisistratos is a Latinized spelling of the Greek Peisistratos) It could be said that all the ruling elite of the Julio-Claudian dynasty were Piso's, including Nero who was nearly deposed by a Piso. Appius is also cognate with Arrius (through rhotacization in ancient Latin the /p/ and /r/ could be swapped).
 
-#### 2 The Creation of Christianity
-
-The early rulers of Sumer were all priests, while in Egypt, the Pharaohs claimed to be sons of gods. The Persians also deified their leaders, taking it a step further by incorporating a slave-morality religion into their imperial cult as part of their colonial program. They created Zoroastrianism and Buddhism (Gautama Buddha being Gaumata Bardya, the son of Cyrus the Great, who governed the Persian province of Bactra). The Greeks followed with the Ptolemaic cult of Alexander and the Serapis cult, and the Romans established their own imperial cults. These imperial powers maintained their empires through religious syncretism and slave-morality religions, which stripped the population of their will to power, while using an incredible number of regional aliases, locations, fictional stories, faked adoptions, and fabricated deaths for their family members to maintain their empire and prevent any rebellion. Christianity is a relic of one of these imperial slave moralities which itself was subverted by a confederaion of rabbis after the Bar Kokhba Revolt (132--136 CE).
-
-#### 3 Julius Caesar aka Asander of Bosphorus \
+#### 2 Julius Caesar aka Asander of Bosphorus \
 
 There was a Byzantine [^1] imperial cult where Julius Caesar [^2] took
 on the role of Asander, King of Bosphorus [^3] (the city of Byzantine,
@@ -271,7 +278,7 @@ even has a story about a 'spurious Alexander' that showed up in Rome
 claiming to be the son of Herod who faked his death [^11], so he was
 'resurrected' as Juba II, king of Numidia and Mauretania. 
 
-Endnotes (Chapter 3)
+Endnotes (Chapter 2)
 
 (a) Amyntas Nikator aka Amyntas of Galatia aka Jesus ben Fabus aka Isa Amen (Jesus Amen of Rev. iii. 14) is an interesting figure. Historian Ranajit Pal has made the claim that Alexander the Great = Chandragupta Maurya (Alakshandra is a Sanskritized
     translation of Alexander and Gupta means guardian or protector in
@@ -283,7 +290,7 @@ Endnotes (Chapter 3)
     https://www.academia.edu/695219/Diodotus_I_was_Ashoka_An_Altar_of_Alexander_Now_Standing_Near_Delhi
     [[link](https://www.academia.edu/695219/Diodotus_I_was_Ashoka_An_Altar_of_Alexander_Now_Standing_Near_Delhi)]). This would mean that Alexander completed his conquest of India and then adopted a local identity. So, India was under Greek rule since Alexander. Being the king of a region populated by Gauls, Amyntas of Galatia's religion would have been Druidism. The ancient Vedas are just the eastern branch of Druidism (https://www.academia.edu/13113385/Druidism_and_Vedism_Compared). The name Abaris or Abharas, from Abaris the Hyperborian, the Druid teacher of Pythagoras, derives from the Old Irish word abhar, which means chief or noble and was a generic term for Druid or Chief Druid. Abharas is also related to the Sanskrit word Bhārata, a legendary king in the Vedas. Bhārata is at the root of the word Bharatvarsha which is a term that is used to refer to the Indian subcontinent as a whole. 
     
-#### 4 Flavian Dynasty \
+#### 3 Flavian Dynasty \
 
 Vespassian was also a great-grandson of Cleopatra and Mark Antony (King Herod). He was Herod Pollio aka Herod Agrippa I, grandson of King Herod's son Aristobulus IV. Vespasian was his title, not his name (Vas/Bas was the royal abbreviation for the Greek word Basilius which = King, and Pasius = Peace. 'Vespasian' = 'King Peace') [^12]. He was also 'Flavius Scaevinus' the conspirator who was involved in Nero's assassination. 
 
@@ -309,7 +316,7 @@ Aristobulus IV was likely Vespasian and Vitellius's father, so like his
 cousin Alexander (grandson of King Herod), he was also married to his
 sister). 
 
-Endnotes (chapter 4)
+Endnotes (chapter 3)
 
 (a) The symbol of the cross, Celtic cross/high cross/sun cross/solar
     wheel, et.al., which predate christianity by thousands of years
@@ -335,7 +342,7 @@ Endnotes (chapter 4)
 
 (c) Mithridates VI Eupator was a direct descendant of Ptolemy II Philadelphus (Ptolemy II Philadelphus (285-246 BCE) married Arsinoe I, and they had a daughter, Berenice Syra. Berenice Syra married Antiochus II Theos, a Seleucid king, and they had a son, Seleucus II Callinicus. Seleucus II Callinicus (246-225 BCE) married Laodice II, and they had a daughter, Laodice III. Laodice III married Mithridates III of Pontus, and they had a son, Pharnaces I of Pontus. Pharnaces I of Pontus (190-155 BCE) married Nysa, and they had a son, Mithridates V of Pontus. Mithridates V of Pontus (150-120 BCE) married Laodice VI, and they had a son, Mithridates VI Eupator (120-63 BCE)). Some historians believe that Ptolemy II Philadelphus was Alexander the Great's biological son who was raised by Ptolemy I Soter. Statues of Alexander and Ptolemy II Philadelphus look strikingly like father and son. Ptolemy I Soter married Alexanders mistress Thaïs, and his other wife Berenice had the same name as Barsine who was another mistress of Alexander. Barsine and Berenice are different forms of the Persian name Barsina. The Persian name Roshanak is translated as Barsina, so the names Barsine and Berenice are both related to the Roxana, which was the name of Alexander's Persian wife. This would make Asander (whose name is an obvious reference to Alexander) and Dynamis Alexander's heirs.
 
-#### 5 Rome on the Bosphorus?
+#### 4 Rome on the Bosphorus?
 
 My research on the origins of Christianity takes me to the Bosphorus
 river in classical Anatolia (Julius Caesar = Asander, King of Bosphorus,
@@ -367,7 +374,7 @@ Etruscans who established Rome were invaders from Anatolia, and the
 Carians who hailed from southwest Anatolia have a strong connection with
 the settlement of Rome (Aquilla = Qos = god of Kos of Caria).
 
-#### 6 Julius Caesar was a Title 
+#### 5 Julius Caesar was a Title 
 
 Identifying Julius Caesar as Asander of Bosphorus necessitates a re-examination of his name. 
 
@@ -405,7 +412,7 @@ Also, Caesar, Kaiser (German for Caesar), Kesar or Kaysar (Persian for Caesar), 
 
 So, it seems that the Romans (in Anatolia) tried to assimilate the tribe that became modern jews by forcing their imperial cult on them and they got their identity from here. This is why several prominant members of this royal family identified as "Jews" despite being Aryan Sarmatians and Celtic Galatians.
 
-#### 7 Esus the Celtic Deity
+#### 6 Esus the Celtic Deity
 
 The Celts in classical Galatia worshiped a deity called Hesus/Esus/Iesus. The Celtic name Esus is believed to be related to the Proto-Celtic word "*aisu", which means "lord" or "master". The letter "J" was invented in the 17th century, so the name "Jesus" would have been "Esus" in the classical sense. 
 
@@ -423,7 +430,7 @@ I-Zeus (Izeus)/Esus/Hesus then eventually phonetically shifted to I-zas/Izas/Iza
 
 Fig. 1.11. Statue from classical Anatolia that is dedicated to "Esumopas Cnusticus". Esumopas means "Slave to Esus", and Esus means lord in proto-Celtic. If you combine the Etruscan word "cnus" with the suffix "-ticus" or "-tic-" you get a word that translates to "anointed one" or "consecrated one", ie. a "Christ". So, that inscription translates to: "Slave to Lord (Esus) Christ". The "VSLM" inscription is an abbreviation for the Latin phrase "Votum Solvit Libens Merito" which translates to "He pays his vow willingly and with merit" or "He fulfills his vow with pleasure and deserving", which is often found on Roman coins and other artifacts. Esus was crucified in mythology and his symbol was an axe, so he was associated with woodcutting, forestry, carpentry. 
 
-#### 8 Subversion of the Imperial Cult
+#### 7 Subversion of the Imperial Cult
 
 Sometime after the Bar Kokhba Revolt (132--136 CE), a group of rabbis
 that were headed by a rabbi named Akiva who lead the Talmudic Pharisees
@@ -459,7 +466,7 @@ religion makes it easier for a population to adapt. So, they just took
 one of the Bosphoran/Roman imperial cults of the time and infused a slave morality into
 it. Julius Caesar aka Asander of Bosphorus or one of his successors in the Bosphoran imperial cult (King Izates Monobazus or Tiberius Julius Sauromates II) was replaced with Simon bar Kokhba. This became modern Christianity.
 
-Endnotes (Chapter 8)
+Endnotes (Chapter 7)
 
 (a) Marcion of Sinope aka Markianos of Alexandria grew up in the Attis-Sabazios cult on Anatolia before traveling to Judea to study under rabbi Akiva and finally to Alexandria at the Alexandrian School.
 
@@ -467,7 +474,9 @@ Endnotes (Chapter 8)
 
 (c) Quintus Tineius Sacerdos, the brother of Quintus Tinnius Rufus, was the govenor of Pontus in Anatolia, so the family likely derived from there. Pilate means the temperament of a warrior I.e.: famously temperamental. That's where the name Pontius Pilate comes from.
 
-(d) How did christianity spread? Vespasian and his sons Titus and Domitian
+Appendix A: How did Christianity spread? 
+
+Vespasian and his sons Titus and Domitian
 brought 100,000 jewish "slaves" to Rome (Josephus, Jewish War vi, 9)
 [^13]. It seems likely that the 100,000 jewish "slaves" joined the jews
 that were already in Rome and they became the early church missionaries
