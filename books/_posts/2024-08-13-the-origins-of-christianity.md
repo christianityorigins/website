@@ -381,7 +381,7 @@ Gaius Julius Caesar was a title, and Gaius Julius Caesar could conceivably trans
 
 I(J)upiter was called Jove or Iove to the Romans. The Latin pronunciation of Iove would have been Yoh-Way, i.e Yahweh/Yhwh, so Yahweh Saboath, the god of the hebrew bible, is I(J)ove (Roman Zeus) Sabazios (Thracian Zeus).
 
-As for the term 'Hebrew", it comes from the Celts who called themselves
+As for the term 'Hebrew", it comes from the Celts as well who called themselves
 Iberi. The name of Abaris the Hyperborean, a Druid priest who was
 Pythagoras's teacher shows this. Iber was sometimes
 rendered as Aber or Heber and is pronounced as Hebrew in the Hebrew
@@ -448,10 +448,10 @@ Quintus Tinnius Rufus (Turnus Rufus the Evil) was Pontius Pilate, the Roman gove
 
 Esus then became Esau (Edom) the progenitor of the Edomites in the bible, a metaphor for the forces of oppression and injustice. This was probably added to repulse their fellow jews from following/converting to their slave-morality religion they created. 
 
-Getting people to abandon their religons for a new one is an almost impossible task, so instead, through religious syncrenism and intertextuality, creating a new sect of an established
-religion makes it easier for a population to adapt. So, they just took
-one of the Bosphoran/Roman imperial cults of the time and infused a slave morality into
-it. Julius Caesar aka Asander of Bosphorus or one of his successors in the Bosphoran imperial cult (King Izates Monobazus or Tiberius Julius Sauromates II) was replaced with Simon bar Kokhba. This became modern Christianity.
+So, Talmudic jews who were hiding out in the Himyarite Kingdom after Emperor
+Hadrian kicked them out of judea basically just cut-and-pasted from one of the Bosphoran/Roman imperial cults of the time and infused a slave morality into
+it. Getting people to abandon their religons for a new one is an almost impossible task, so instead, through religious syncrenism and intertextuality, creating a new sect of an established
+religion makes it easier for a population to adapt. Julius Caesar aka Asander of Bosphorus or one of his successors in the Bosphoran imperial cult (King Izates Monobazus or Tiberius Julius Sauromates II) was replaced with Simon bar Kokhba. This became modern Christianity.
 
 Endnotes (Chapter 7)
 
