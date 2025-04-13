@@ -417,7 +417,7 @@ I-Zeus (Izeus)/Esus/Hesus then eventually phonetically shifted to I-zas/Izas/Iza
 
 Fig. 1.11. Statue from classical Anatolia that is dedicated to "Esumopas Cnusticus". Esumopas means "Slave to Esus", and Esus means lord in proto-Celtic. If you combine the Etruscan word "cnus" with the suffix "-ticus" or "-tic-" you get a word that translates to "anointed one" or "consecrated one", ie. a "Christ". So, that inscription translates to: "Slave to Lord (Esus) Christ". The "VSLM" inscription is an abbreviation for the Latin phrase "Votum Solvit Libens Merito" which translates to "He pays his vow willingly and with merit" or "He fulfills his vow with pleasure and deserving", which is often found on Roman coins and other artifacts. Esus was crucified in mythology and his symbol was an axe, so he was associated with woodcutting, forestry, carpentry. 
 
-Endnotes (chaper 7)
+Endnotes (chapter 7)
 
 (a) This is why all christian celebrations derive from Druidism. Druidic Calendar: Yule (Winter Solstice) - December 21/22 Celebrate the rebirth of the sun (Christian Equivalent: Christmas (December 25)). Imbolc - February 1/2 Mark the midpoint between Yule and the spring equinox (Christian Equivalent: Candlemas (February 2)). Ostara (Spring Equinox) - March 20/21 Welcome the return of spring with eggs, rabbits, and feasting (Cristian Equivalent: Easter (movable date, typically in March or April)). Beltane - May 1/2 Honor the spirits of the land and the cycles of nature (Christian Equivalent: May Day (May 1) or Ascension Day (movable date, typically in May)). Litha (Summer Solstice) - June 20/21 Celebrate the peak of the sun's power (Christian Equivalent: St. John's Day (June 24)). Lammas - July 31/August 1 Mark the beginning of harvest time (Christian Equivalent: Feast of the Transfiguration (August 6) or Lammas Sunday (movable date, typically in August)). Mabon (Autumn Equinox) - September 20/21 Celebrate the second harvest (Christian Equivalent: Michaelmas (September 29) or Harvest Festival (movable date, typically in September or October)). Samhain - October 31/November 1 Honor the ancestors (Christian Equivalent: All Saints' Eve (October 31) or All Souls' Day (November 2)).
 
@@ -453,9 +453,13 @@ Quintus Tinnius Rufus (Turnus Rufus the Evil) was Pontius Pilate, the Roman gove
 Esus then became Esau (Edom) the progenitor of the Edomites in the bible, a metaphor for the forces of oppression and injustice. This was probably added to repulse their fellow jews from following/converting to their slave-morality religion they created. 
 
 So, Talmudic jews who were hiding out in the Himyarite Kingdom after Emperor
-Hadrian kicked them out of judea basically just cut-and-pasted from one of the Bosphoran/Roman imperial cults of the time and infused a slave morality into
-it. Getting people to abandon their religons for a new one is an almost impossible task, so instead, through religious syncrenism and intertextuality, creating a new sect of an established
-religion makes it easier for a population to adapt. Julius Caesar aka Asander of Bosphorus or one of his successors in the Bosphoran imperial cult (King Izates Monobazus or Tiberius Julius Sauromates II) was replaced with Simon bar Kokhba. This became modern Christianity.
+Hadrian kicked them out of judea basically just cut-and-pasted from one of the Bosphoran/Roman imperial cults of the time and infused a slave morality into it. Getting people to abandon their religons for a new one is an almost impossible task, so instead, through religious syncrenism and intertextuality, creating a new sect of an established religion makes it easier for a population to adapt. Julius Caesar aka Asander of Bosphorus or one of his successors in the Bosphoran imperial cult (King Izates Monobazus or Tiberius Julius Sauromates II) was replaced with Simon bar Kokhba. This became modern Christianity.
+
+This conspiracy was so sophisticated that not only did they rewrite the imperial cult, but they rewrote history to align with their psyop. Josephus's (Tiberius Julius Alexander aka Emperor Nerva) works were rewritten by Rabbi Akiva's students under the alias Hegesippus. The book 'The Antiquities of the
+Jews' then became a pseudo-epigraphical work (of propaganda) that was backdated to make christianity look legitimate in the same way that the 'Letter of Aristeas' was backdated to exaggerate the age of the Septuagint. I would even hazard a guess that this group was responsible for burining down the Library of Alexandria which resulted
+in the loss of all recorded history up until that point so that they
+could cover-up the tracks of their psyop religion.
+
 
 Endnotes (Chapter 7)
 
