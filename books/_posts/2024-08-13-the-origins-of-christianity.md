@@ -420,7 +420,7 @@ Fig. 1.11. Statue from classical Anatolia that is dedicated to "Esumopas Cnustic
 ![Fig.
 1.12](/images/Romulus.jpg){:width="400px"}
 
-Fig. 1.12. Quirinus who was the defified Romulus, who in Roman mythology was the founder of Rome. In Proto-Celtic, the word "Kwerynos" means "lord" and is related to the Etruscan "Kuris" and the Roman "Quirinus". Quirinus then can potentially translate to "Deified Lord" or "Lord Esus" in the context of Celtic and Etruscan mythology. Like Esus Romulus was crucified in mythology.
+Fig. 1.12. Quirinus who was the defified Romulus, who in Roman mythology was the founder of Rome. In Proto-Celtic, the word "Kwerynos" means "lord" exactly like Esus, and is related to the Etruscan "Kuris" and the Roman "Quirinus". Quirinus then can potentially translate to "Deified Lord" or "Lord Esus" in the context of Celtic and Etruscan mythology. Like Esus Romulus was crucified in mythology.
 
 Endnotes (chapter 7)
 
