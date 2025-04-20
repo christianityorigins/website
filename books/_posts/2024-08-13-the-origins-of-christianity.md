@@ -526,8 +526,7 @@ Gott
 Mauretania who was married to her brother Alexander (grandson of King
 Herod)/Ptolemy of Mauretania, therefore, she was the mother of Tiberius
 Julius Alexander/Arrius Piso. Also, that she was Claudius and Nero's
-secretary *"*Pallas*"* and Vespasian's first cousin and mistress
-*"*Antonia Caenis*")
+secretary Pallas and Vespasian's first cousin and mistress Antonia Caenis.*)
 
 *Magdalene's Men. The historic identities of the many men in Mary
 Magdalene's life.* by P.J Gott
@@ -545,6 +544,9 @@ Cleopatra, Mark Antony = King Herod, so that chart confuses some of
 their aliases with those of Cleopatra and Mark Antony's grandchildren,
 but it was my starting point to understanding the many aliases this
 family used*)
+
+*The Royal Ancestry Of The Roman Emperor Vespasian* (2021) by Henry Davis
+[[link](https://henrydavis-cc.medium.com/the-royal-ancestry-of-the-roman-emperor-vespasian-72e144335299)] (*this article proves that Vespasian descended from King Herod. Once I realized that King Herod was Mark Antony's regional alias then all the pieces fell into place*)
 
 _Footnotes_
 
