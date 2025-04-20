@@ -24,7 +24,7 @@ In general, most polytheistic religious followers fall into two categories: 1)th
 
 But secular paganism is a new movement that is growing rapidly. Atheists join Pagan groups for a sense of community, social network, shared culture, and connection to their ancestry. These Pagans don't worship a particular thing, they just appreciate the unity of existence, or seek to understand the ultimate nature of reality. Ancestor veneration is the only worship they do. 
 
-Many modern secular polytheistic Pagans (3) are inspired by Carl Jung who combined psychoanalysis with Heathenry. The polytheistic deities = 'archetypes (4) of the collective unconscious (5)' to these Pagans.
+Many modern secular polytheistic Pagans (1) are inspired by Carl Jung who combined psychoanalysis with Heathenry. The polytheistic deities = 'archetypes (2) of the collective unconscious (3)' to these Pagans.
 
 3 Core Beliefs
 
@@ -32,7 +32,7 @@ In Pagan religions, beliefs revolve around ancestor veneration, animism, and the
 
 4 Practices and Rituals
 
-In polytheistic religions, rituals are centered around the worship of multiple deities, each often associated with specific aspects of nature, human experience, and societal functions.  To secular Pagans who are inspired by Carl Jung, rituals are ways of inducing 'active imagination' (6) or a part of the process of 'individuation' (7).
+In polytheistic religions, rituals are centered around the worship of multiple deities, each often associated with specific aspects of nature, human experience, and societal functions.  To secular Pagans who are inspired by Carl Jung, rituals are ways of inducing 'active imagination' (4) or a part of the process of 'individuation' (5).
 
 5 Footnotes
 
@@ -41,10 +41,9 @@ In polytheistic religions, rituals are centered around the worship of multiple d
 3\. https://en.wikipedia.org/wiki/Collective_unconscious [link] \
 4\. https://en.wikipedia.org/wiki/Active_imagination#Carl_Gustav_Jung [link] \
 5\. https://en.wikipedia.org/wiki/Individuation#Carl_Jung [link] \
-6\. https://archive.org/details/carl-jung-on-wotan_20230629
 
 Read more 
 
-http://ecer-org.eu <a href="http://ecer-org.eu" target="_blank">[link]</a> \
-https://en.wikipedia.org/wiki/Category:Modern_pagan_organizations_by_country <a href="https://en.wikipedia.org/wiki/Category:Modern_pagan_organizations_by_country" target="_blank">[link]</a>
-
+https://ecer-org.eu <a href="http://ecer-org.eu" target="_blank">[link]</a> \
+https://en.wikipedia.org/wiki/Category:Modern_pagan_organizations_by_country <a href="https://en.wikipedia.org/wiki/Category:Modern_pagan_organizations_by_country" target="_blank">[link]</a>\
+https://archive.org/details/carl-jung-on-wotan_20230629 <a href="https://archive.org/details/carl-jung-on-wotan_20230629" target="_blank">[link]</a> 
