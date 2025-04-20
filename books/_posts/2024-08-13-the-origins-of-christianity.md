@@ -498,6 +498,9 @@ classes.
 
 _Further reading_
 
+*By Their Fruits Ye Shall Know Them* (1985) by Revilo P. Oliver. 
+[[link](https://www.revilo-oliver.com/news/1985/08/by-their-fruits-ye-shall-know-them/)]
+
 *A Forgery of Our Own* (1991) by Revilo P. Oliver
 [[link](http://www.revilo-oliver.com/rpo/Forgery_of_Our_Own.html)]
 (*short article where professor Revilo P. Oliver points the finger at
@@ -514,11 +517,6 @@ psy-op religion to subjugte the Romans*)
 [[link](https://www.google.com/books/edition/Cleopatra_to_Christ/T7sqfHyWPuQC?hl=en&gbpv=1&dq=cleopatra+to+christ&printsec=frontcover)]
 (*reveals that the biblical Jesus was based on King Izates of Adiabene
 who was directly descended from Cleopatra VII*)
-
-*Jesus Among the Julio-Claudians* (2017) by Charles N. Pope
-[[link](https://books.google.se/books/about/Jesus_Among_the_Julio_Claudians.html?id=c7A3DwAAQBAJ&redir_esc=y)]
-(*identifies many Roman aliases, including that Mark Antony used the
-aliases of King Herod, Tiberius Claudius Nero, Phraates IV of Parthia*)
 
 *Following Philo to Pallas (the Freedman): The Most Powerful Man in
 First Century Rome, also known as Goddess (the Mother)* (2019) by P.J.
