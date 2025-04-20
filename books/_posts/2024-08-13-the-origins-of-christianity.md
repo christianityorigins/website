@@ -498,9 +498,6 @@ classes.
 
 _Further reading_
 
-*By Their Fruits Ye Shall Know Them* (1985) by Revilo P. Oliver. 
-[[link](https://www.revilo-oliver.com/news/1985/08/by-their-fruits-ye-shall-know-them/)]
-
 *A Forgery of Our Own* (1991) by Revilo P. Oliver
 [[link](http://www.revilo-oliver.com/rpo/Forgery_of_Our_Own.html)]
 (*short article where professor Revilo P. Oliver points the finger at
