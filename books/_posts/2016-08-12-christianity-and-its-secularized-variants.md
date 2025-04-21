@@ -19,19 +19,21 @@ _Do you think I came to bring peace on earth? No, I tell you, but division. From
 CONTENTS
 
 Preface\
-BOOK II. ON THE SLAVE MORALITY SYSTEM\
+BOOK I. ON THE SLAVE MORALITY SYSTEM\
 Chapter 1. The Christian System\
 1.1. Monotheism\
 1.2. Universalism\
-1.3. Nietzschean 'Transvaluation of Values'\
-1.4. Nietzschean 'Slave Morality' \
-1.5. Nietzschean 'Ressentiment' (Weaponizing the "Chandala" Castes)\
-1.6. Control Mechanisms\
-Chapter 2. Survival of the Weakest \
-Chapter 3. Secularization of Christianity\
-Chapter 4. Marxism is Secularized Christianity\
-4.1. Marxist Denominations\
-4.2. Secular Christian Tenets and Ethics\
+Chapter 2. Nietzschean Mechanisms of Subversion  
+2.1. Nietzschean 'Transvaluation of Values'\
+2.2. Nietzschean 'Slave Morality' \
+2.3. Nietzschean 'Ressentiment' (Weaponizing the "Chandala" Castes)\
+2.4. Survival of the Weakest: Inverting Natural Selection \
+Chapter 3. Control Mechanisms  
+BOOK II. SECULARIZATION AND MARXISM  
+Chapter 4. Secularization of Christianity\
+Chapter 5. Marxism is Secularized Christianity\
+5.1. Marxist Denominations\
+5.2. Secular Christian Tenets and Ethics\
 Chapter 5. Judaism Vs. Christianity: What do the Jews Believe?\
 Chapter 6. Conclusion\
 Footnotes
@@ -65,20 +67,21 @@ _There is no longer Jew or Greek, there is no longer slave or free, there is no 
 Christian universalism derives from monotheism. The universalization of a group into a singular monolith not only allows a group to become top-down controlled, but it also becomes a tool of empowerment for the oppressed. Friedrich Nietzsche believed that the universalistic claims of Christianity allowed the lower classes, or "chandala" as he called them, to feel equal to the higher classes. The "all is one" doctrine incentivizes the inclusion of outcastes and foreigners and when combined with an emphasis on a shared humanity and a common destiny in the afterlife this system undermines traditional social hierarchies that were traditionally based on biological kinship, intelligence, wealth, or power.  
         Christian universalism also led to ethnic erasure. The catholic church deliberately destroyed ethnic customs and beliefs to emphasize the universality of Christianity. Pre-Christian Europe was a patchwork of ethnicities, each with its own gods and traditions and christianity deliberately destroyed these ethnic bonds so that a religious identity replaced an ethnic identity. "Christendom" then became the first universalized identity that was built around a shared morality that transcended ethnic and cultural boundaries. "Christendom" was then replaced by the word "European" after the enlightenment, but that label still retained Christendom's universal nature. "European" like "Christendom" is a state and political identity, opposed to an ethnic or national identity, and the adoption of this universalist identity destroyed what little of specific ethnic European customs and traditions that were left. 
 
+Chapter 2. Nietzschean Mechanisms of Subversion  
   
-1.3. Nietzschean 'Transvaluation of Values' 
+2.1. Nietzschean 'Transvaluation of Values' 
 
 _But God chose the foolish things of the world to shame the wise; God chose the weak things of the world to shame the strong. God chose the lowly things of this world and the despised things—and the things that are not—to nullify the things that are_ - 1 Corinthians 1:26-28
 
 Friedrich Nietzsche's concept of the "transvaluation of values" is central to understanding how Christianity reshaped societal norms. This theory states that traditional christian values, which emphasize humility, selflessness, guilt and pity, were created to undermine the strong. Essentially, by redefining "good" as virtues of the "chandala", i.e., by replacing a groups aristocratic values with "chandala" values: guilt, pity, self-hate, weakness, and victimhood/oppression replace strength, pride, honor, loyalty, family, race, and tradition, etc., essentially through vilifying the powerful the lowest "chandala" castes can become the nobility. This leads to a culture that celebrates mediocrity while demonizing excellence.\
 &nbsp;&nbsp; &nbsp;&nbsp;&nbsp;&nbsp;        Also, by glorifying chandala traits (e.g., humility, weakness), Christianity acts as a reverse eugenic force, selectively breeding out traits of dominance and vitality while rewarding submission and mediocrity.
 
-1.4. Nietzschean 'Slave Morality' 
+2.2. Nietzschean 'Slave Morality' 
 
 Christianity is a slave morality that is designed to suppress an individual's will to power. When an individual is unable to express their will to power in a constructive, outward manner, they redirect this energy inward, manifesting as self-destructive tendencies. This is what Friedrich Nietzsche called a "slave morality" where the individual's creative and life-affirming energies are turned against themselves. As a result, in Christianity, many people's will to power becomes directed inward, becoming satiated through masochistic self-harm. This twisted form of self-assertion allows the individual's "upper self" to find satisfaction in dominating and punishing their "lower self," perpetuating a cycle of self-destruction.\
  &nbsp;&nbsp; &nbsp;&nbsp;&nbsp;&nbsp;This phenomenon can be observed in various aspects of human behavior, from the self-flagellating tendencies of Christiantiy to the equally destructive habits of self-sabotage and addiction. If the individual's will to power is unable to find an external outlet it turns inward, creating a perverse cycle of self-inflicted pain and suffering.
 
-1.5. Nietzschean 'Ressentiment' (Weaponizing the "Chandala" Castes)
+2.3. Nietzschean 'Ressentiment' (Weaponizing the "Chandala" Castes)
   
 Universalism, the transvaluation of traditional ethnic values, monotheism (good vs. evil), and the concept of sin exist to self-deify and weaponize the lowest castes. This allows the slaves and lower castes to feel morally and socially superior to the higher castes because of the concept of sin and set commandments of behavior.
 \
@@ -88,7 +91,19 @@ Universalism, the transvaluation of traditional ethnic values, monotheism (good 
 
 See also: [Ressentiment](https://en.wikipedia.org/wiki/Ressentiment), [Conflict Theory](https://en.wikipedia.org/wiki/Conflict_theories), and [Class Conflict](https://en.wikipedia.org/wiki/Class_conflict)
 
-1.6. Control Mechanisms  
+2.4 Survival of the Weakest: Inverting Natural Selection \
+
+High-status males in hierarchical societies (e.g., chieftains, warriors) often had greater access to females, either through polygyny or social prestige. This amplified the genetic spread of traits associated with dominance.
+
+Christianity disrupted this dynamic by redefining “fitness” in moral rather than biological terms. By exalting humility, meekness, and self-denial as virtues, it created a cultural selection pressure that rewarded individuals who exhibited traits maladaptive in competitive contexts. For instance, through the transvaluation traditional values based on heirarchy and power, and through glorifying the meek and downtrodden, Christianity incentivized the survival and reproduction of traits (e.g., passivity, low ambition) that natural selection would typically cull.
+
+Also, through the Church’s promotion of celibacy (e.g., for priests, monks, and nuns) and antinatalist teachings (e.g., Matthew 19:11-12, praising eunuchs) disproportionately affected high-status and highly intelligent individuals who were drawn to religious vocations. This removed dominant, intelligent, and ambitious individuals from the gene pool, reducing the prevalence of traits associated with leadership and vitality.
+
+Over centuries, these relaxed condition of Darwinian Selection led to traits like aggression and dominance being bred out of Europeans. 
+
+This is likely the cause of the pathological altruism phenomenon that is seen in the west today. Christianity’s emphasis on charity and loving one’s enemies fostered what evolutionary psychologists call pathological altruism—self-destructive behaviors that benefit others at the expense of one’s own in-group.  
+
+Chapter 3. Control Mechanisms  
 
 While Christianity empowers the 'chandala' caste through universalism and the 'transvaluation of values', thereby elevating them to a position of authority over the aristocratic and warrior castes, it also functions as a system of domestication. This system is designed to instill fear, self-loathing, and a loss of autonomy in its adherents, while fostering feelings of guilt, shame, and intellectual apathy. By discouraging critical thinking and intellectual curiosity, which are seen as threats to faith, Christianity can create a culture that devalues learning and promotes a mentality of subservience (this is the reason why every Christian white trash town is filled with people whose culture is built around a contempt for learning) (13). Furthermore, this system can lead to a disconnection from one's ancestral heritage and genetic identity. Ultimately, it seeks to create a population that is obedient and submissive, with a subconscious affinity for Jewish culture. It does this through:
 
@@ -116,30 +131,20 @@ Themes and symbols that parallel an animal being domesticated also fill the bibl
 
 See also: [Tschandala](https://en.wikipedia.org/wiki/Tschandala), [Master–slave morality](https://en.wikipedia.org/wiki/Master%E2%80%93slave_morality), and [Transvaluation of values](https://en.wikipedia.org/wiki/Transvaluation_of_values)  
 
-Chapter 2. Survival of the Weakest \
 
-High-status males in hierarchical societies (e.g., chieftains, warriors) often had greater access to females, either through polygyny or social prestige. This amplified the genetic spread of traits associated with dominance.
 
-Christianity disrupted this dynamic by redefining “fitness” in moral rather than biological terms. By exalting humility, meekness, and self-denial as virtues, it created a cultural selection pressure that rewarded individuals who exhibited traits maladaptive in competitive contexts. For instance, through the transvaluation traditional values based on heirarchy and power, and through glorifying the meek and downtrodden, Christianity incentivized the survival and reproduction of traits (e.g., passivity, low ambition) that natural selection would typically cull.
-
-Also, through the Church’s promotion of celibacy (e.g., for priests, monks, and nuns) and antinatalist teachings (e.g., Matthew 19:11-12, praising eunuchs) disproportionately affected high-status and highly intelligent individuals who were drawn to religious vocations. This removed dominant, intelligent, and ambitious individuals from the gene pool, reducing the prevalence of traits associated with leadership and vitality.
-
-Over centuries, these relaxed condition of Darwinian Selection led to traits like aggression and dominance being bred out of Europeans. 
-
-This is likely the cause of the pathological altruism phenomenon that is seen in the west today. Christianity’s emphasis on charity and loving one’s enemies fostered what evolutionary psychologists call pathological altruism—self-destructive behaviors that benefit others at the expense of one’s own in-group.  
-
-Chapter 3. Secularization of Christianity
+Chapter 4. Secularization of Christianity
   
 As well as Christianity being a slave-morality system, Fredrich Nietzsche wrote that Liberalism is a secularized Christian political-theological religion (16). The Reformation coincided with the invention of the Gutenberg printing press which increased literacy and this is when a myriad of Protestant sects sprung forth: the Anabaptists, the Mennonites, the Amish, the Digger Movement, the Ranters, etc., all of whom adhered to a system of communism and preached about universalism and a utopia on earth. Marxism was one of these sects. The only difference is that Marxism was the first secularized Christian sect where the belief in a supernatural god was replaced with a belief in an omnipresent government. 
 
   
-Chapter 4. Marxism is Secularized Christianity  
+Chapter 5. Marxism is Secularized Christianity  
 
 _Nothing is easier than to give Christian asceticism a Socialist tinge. Has not Christianity declaimed against private property, against marriage, against the State? Has it not preached in the place of these, charity and poverty, celibacy and mortification of the flesh, monastic life and Mother Church? Christian Socialism is but the holy water with which the priest consecrates the heart-burnings of the aristocrat."_ Marx and Engels, ‘Manifesto of the Communist Party’, Selected Works, Volume 1, p 56.
   
 Marxism is a secularized Christian sect that replaces god with the government. The central organizing principle of classical Marxist economics, “from each according to his ability, to each according to his need”, was lifted verbatim from the pages of the New Testament. Communal property comes from Acts 4:32-35" "For from time to time those who owned land or houses sold them, brought the money from the sales and put it at the apostles’ feet, and it was distributed to anyone who had need". Marx's historical materialism (theory of history) is the eschatological framework of Christian orthodoxy in secularized form. Christian salvation is Marxian emancipation. The Marxist fetishization of labor mirrors Christian veneration of toil (e.g., "by the sweat of your brow"). Marxism glorifies the downtrodden as virtuous, similar to Christianity’s Beatitudes (Matthew 5:3-12). Also, Marxism is built on the philosophy of liberation and universalism (17) and preys on the impoverished and outcastes of society by promising them a future utopia through the triumph of the proletariat. Marxism, like christianity, is also dogmatic and sectarian; both exhault collectivism over individualism; both justify violence as a catalyst for social change; both prohibit private property; "take from the rich to give to the poor", and "may the last be first", etc. If you strip away the Marxian narrative you will see that at its core it is the exact same christian divide-and-conquer population control system that is designed to weaponize the resentment of the lower classes for the overthrow of society. This is not a coincidence. Influenced by his teacher Bruno Bauer who wrote extensively about how Leftism was a secular christian cult, Karl Marx approached a Christian communist group called the 'League of the Just' (18) and got them to finance him while he came up with an atheist-compatible sect of christianity.  
   
-4.1 Marxist Denominations
+5.1 Marxist Denominations
 
   
 
@@ -148,7 +153,7 @@ Marxism is a secularized sect of Christianity that sees class as the main cause 
 
   
 
-4.2 Secular Christian Tenets and Ethics
+5.2 Secular Christian Tenets and Ethics
 
   
 
@@ -178,7 +183,7 @@ See also: [What Is ‘Liberalism’?](https://www.revilo-oliver.com/news/2010/0
 
   
 
-Chapter 5. Judaism vs. Christianity: What do the Jews Believe?
+Chapter 6. Judaism vs. Christianity: What do the Jews Believe?
 
   
 
@@ -199,7 +204,7 @@ You can prove that Christianity is a slave morality system that is designed to s
 *   The Old Testament is filled with hatred, violence, killing, and war. The New Testament is filled with love, unconditional tolerance, and anti-rebellion: "for all who draw the sword will die by the sword".
 *   Jews loath Christians, but Christians believe that Jews are "God's chosen" and they exist to serve Israel.
 
-Chapter 6. Conclusion
+Chapter 7. Conclusion
 
 In conclusion, it took 2000 years of domestication to reach the point where Europeans would sacrifice their nations and the future of their children on the altar of equality, but the seeds for this was inculcated through this system. \
    &nbsp;&nbsp; &nbsp;&nbsp;&nbsp;&nbsp;It is horrifying to think of the scale that this psyop grew to, how this system became institutionalized, how it changed the evolutionary group strategy of billions of people, how it created hell on earth for the entire planet for centuries, and how it is the system that is responsible for the needless destruction of billions of people.
