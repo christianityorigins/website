@@ -27,12 +27,13 @@ Chapter 1. The Christian System\
 1.4. Nietzschean 'Slave Morality' \
 1.5. Nietzschean 'Ressentiment' (Weaponizing the "Chandala" Castes)\
 1.6. Control Mechanisms\
-Chapter 2. Secularization of Christianity\
-Chapter 3. Marxism is Secularized Christianity\
-3.1. Marxist Denominations\
-3.2. Secular Christian Tenets and Ethics\
-Chapter 4. Judaism Vs. Christianity: What do the Jews Believe?\
-Chapter 5. Conclusion\
+Chapter 2. Survival of the Weakest \
+Chapter 3. Secularization of Christianity\
+Chapter 4. Marxism is Secularized Christianity\
+4.1. Marxist Denominations\
+4.2. Secular Christian Tenets and Ethics\
+Chapter 5. Judaism Vs. Christianity: What do the Jews Believe?\
+Chapter 6. Conclusion\
 Footnotes
 
 Preface
@@ -103,6 +104,7 @@ While Christianity empowers the 'chandala' caste through universalism and the 't
 *   Moral absolutism: The insistence on absolute moral truths fosters a binary worldview, reducing complex human experiences into simplistic categories of good and evil. This moral absolutism undermines the individual's ability to navigate ethical dilemmas through personal judgment.
 *   Learned helplessness: no matter how enslaved and exploited you are you shouldn't resist because a savior will eventually come rescue you if you pray hard enough, and if a savior doesn't come, you will be rewarded when you die.
 *   Penance: Evangelism and missionary work as part of a program of salvation that will expiate your guilt. Evangelism makes the psyop self-perpetuating.
+*   Repititive behaviors: The repetitive nature of Christian practices (prayer, confession, Eucharist) mirrors operant conditioning, reinforcing submissive behaviors.
 *   Prayer: The purpose of prayer is to reinforce the brainwashing (guilt, shame, fear) by continually repeating directed affirmations.
 *   Confession: To further reinforce the guilt and shame complexes by continually confessing guilt. Confession also creates a religious commandment that turns its followers into informants, exposes traitors to the church or state, exposes rebellions, and makes the system self-regulating. 
 
@@ -114,20 +116,30 @@ Themes and symbols that parallel an animal being domesticated also fill the bibl
 
 See also: [Tschandala](https://en.wikipedia.org/wiki/Tschandala), [Master–slave morality](https://en.wikipedia.org/wiki/Master%E2%80%93slave_morality), and [Transvaluation of values](https://en.wikipedia.org/wiki/Transvaluation_of_values)  
 
-  
+Chapter 2. Survival of the Weakest \
 
-Chapter 2. Secularization of Christianity
+High-status males in hierarchical societies (e.g., chieftains, warriors) often had greater access to females, either through polygyny or social prestige. This amplified the genetic spread of traits associated with dominance.
+
+Christianity disrupted this dynamic by redefining “fitness” in moral rather than biological terms. By exalting humility, meekness, and self-denial as virtues, it created a cultural selection pressure that rewarded individuals who exhibited traits maladaptive in competitive contexts. For instance, through the transvaluation traditional values based on heirarchy and power, and through glorifying the meek and downtrodden, Christianity incentivized the survival and reproduction of traits (e.g., passivity, low ambition) that natural selection would typically cull.
+
+Also, through the Church’s promotion of celibacy (e.g., for priests, monks, and nuns) and antinatalist teachings (e.g., Matthew 19:11-12, praising eunuchs) disproportionately affected high-status and highly intelligent individuals who were drawn to religious vocations. This removed dominant, intelligent, and ambitious individuals from the gene pool, reducing the prevalence of traits associated with leadership and vitality.
+
+Over centuries, these relaxed condition of Darwinian Selection led to traits like aggression and dominance being bred out of Europeans. 
+
+This is likely the cause of the pathological altruism phenomenon that is seen in the west today. Christianity’s emphasis on charity and loving one’s enemies fostered what evolutionary psychologists call pathological altruism—self-destructive behaviors that benefit others at the expense of one’s own in-group.  
+
+Chapter 3. Secularization of Christianity
   
 As well as Christianity being a slave-morality system, Fredrich Nietzsche wrote that Liberalism is a secularized Christian political-theological religion (16). The Reformation coincided with the invention of the Gutenberg printing press which increased literacy and this is when a myriad of Protestant sects sprung forth: the Anabaptists, the Mennonites, the Amish, the Digger Movement, the Ranters, etc., all of whom adhered to a system of communism and preached about universalism and a utopia on earth. Marxism was one of these sects. The only difference is that Marxism was the first secularized Christian sect where the belief in a supernatural god was replaced with a belief in an omnipresent government. 
 
   
-Chapter 3. Marxism is Secularized Christianity  
+Chapter 4. Marxism is Secularized Christianity  
 
 _Nothing is easier than to give Christian asceticism a Socialist tinge. Has not Christianity declaimed against private property, against marriage, against the State? Has it not preached in the place of these, charity and poverty, celibacy and mortification of the flesh, monastic life and Mother Church? Christian Socialism is but the holy water with which the priest consecrates the heart-burnings of the aristocrat."_ Marx and Engels, ‘Manifesto of the Communist Party’, Selected Works, Volume 1, p 56.
   
 Marxism is a secularized Christian sect that replaces god with the government. The central organizing principle of classical Marxist economics, “from each according to his ability, to each according to his need”, was lifted verbatim from the pages of the New Testament. Communal property comes from Acts 4:32-35" "For from time to time those who owned land or houses sold them, brought the money from the sales and put it at the apostles’ feet, and it was distributed to anyone who had need". Marx's historical materialism (theory of history) is the eschatological framework of Christian orthodoxy in secularized form. Christian salvation is Marxian emancipation. The Marxist fetishization of labor mirrors Christian veneration of toil (e.g., "by the sweat of your brow"). Marxism glorifies the downtrodden as virtuous, similar to Christianity’s Beatitudes (Matthew 5:3-12). Also, Marxism is built on the philosophy of liberation and universalism (17) and preys on the impoverished and outcastes of society by promising them a future utopia through the triumph of the proletariat. Marxism, like christianity, is also dogmatic and sectarian; both exhault collectivism over individualism; both justify violence as a catalyst for social change; both prohibit private property; "take from the rich to give to the poor", and "may the last be first", etc. If you strip away the Marxian narrative you will see that at its core it is the exact same christian divide-and-conquer population control system that is designed to weaponize the resentment of the lower classes for the overthrow of society. This is not a coincidence. Influenced by his teacher Bruno Bauer who wrote extensively about how Leftism was a secular christian cult, Karl Marx approached a Christian communist group called the 'League of the Just' (18) and got them to finance him while he came up with an atheist-compatible sect of christianity.  
   
-3.1 Marxist Denominations
+4.1 Marxist Denominations
 
   
 
@@ -136,7 +148,7 @@ Marxism is a secularized sect of Christianity that sees class as the main cause 
 
   
 
-3.2 Secular Christian Tenets and Ethics
+4.2 Secular Christian Tenets and Ethics
 
   
 
@@ -166,7 +178,7 @@ See also: [What Is ‘Liberalism’?](https://www.revilo-oliver.com/news/2010/0
 
   
 
-Chapter 4. Judaism vs. Christianity: What do the Jews Believe?
+Chapter 5. Judaism vs. Christianity: What do the Jews Believe?
 
   
 
@@ -180,14 +192,14 @@ You can prove that Christianity is a slave morality system that is designed to s
 *   Jews: "life should be endowed with material worth." Jews do not believe in an afterlife and believe in achieving riches and pleasure in this life. Christians believe in asceticism and that they will be rewarded in the afterlife.
 *   Jews: the Torah contains over 100 mitzvot concerning business and money-making. Christians: "usury" and money lending is one of the worst sins.
 *   Jews: master race/"God's chosen people", outbreeding or conversion is forbidden. Christians: Universalist/"all are one in Jesus", "love thy brother". Having "pride" is one of the worst sins.
-*   Jews: multiple mitzvots that command them to be fruitful and have as many kids as possible. Christians: the bible preaches celibacy \[too many verses to quote, so go here: link\] and antinatalism (Ecclesiastes 4:3, Job 3:16, Matthew 26:24), and moreover, "jesus" even says that men should castrate themselves to gain entry into the kingdom of heaven! (Matthew 19:11-12 \[link\])
+*   Jews: multiple mitzvots that command them to be fruitful and have as many kids as possible. Christians: the bible preaches celibacy \[too many verses to quote, so go here: link\], antinatalism (Ecclesiastes 4:3, Job 3:16, Matthew 26:24), sex is a sin and virginity is exhaulted, and moreover, "jesus" even says that men should castrate themselves to gain entry into the kingdom of heaven! (Matthew 19:11-12 \[link\])
 *   The “New Testament” was built on Judaism, which unconsciously ties Christians to Jewish masters.
 *   Judaism is tribal. Christianity is universal.
 *   Judaism is an ethnocentric religion that does not accept converts. Christians actively seek converts of all races because Christian Universalism considers everyone equal.
 *   The Old Testament is filled with hatred, violence, killing, and war. The New Testament is filled with love, unconditional tolerance, and anti-rebellion: "for all who draw the sword will die by the sword".
 *   Jews loath Christians, but Christians believe that Jews are "God's chosen" and they exist to serve Israel.
 
-Chapter 5. Conclusion
+Chapter 6. Conclusion
 
 In conclusion, it took 2000 years of domestication to reach the point where Europeans would sacrifice their nations and the future of their children on the altar of equality, but the seeds for this was inculcated through this system. \
    &nbsp;&nbsp; &nbsp;&nbsp;&nbsp;&nbsp;It is horrifying to think of the scale that this psyop grew to, how this system became institutionalized, how it changed the evolutionary group strategy of billions of people, how it created hell on earth for the entire planet for centuries, and how it is the system that is responsible for the needless destruction of billions of people.
