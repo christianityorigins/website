@@ -24,8 +24,9 @@ Chapter 1. The Christian System\
 1.1. Monotheism\
 1.2. Universalism\
 1.3. Nietzschean 'Transvaluation of Values'\
-1.4. Nietzschean 'Ressentiment' (Weaponizing the "Chandala" Castes)\
-1.5. Control Mechanisms\
+1.4. Nietzschean 'Slave Morality' \
+1.5. Nietzschean 'Ressentiment' (Weaponizing the "Chandala" Castes)\
+1.6. Control Mechanisms\
 Chapter 2. Secularization of Christianity\
 Chapter 3. Marxism is Secularized Christianity\
 3.1. Marxist Denominations\
@@ -64,7 +65,6 @@ Christian universalism derives from monotheism. The universalization of a group 
         Christian universalism also led to ethnic erasure. The catholic church deliberately destroyed ethnic customs and beliefs to emphasize the universality of Christianity. Pre-Christian Europe was a patchwork of ethnicities, each with its own gods and traditions and christianity deliberately destroyed these ethnic bonds so that a religious identity replaced an ethnic identity. "Christendom" then became the first universalized identity that was built around a shared morality that transcended ethnic and cultural boundaries. "Christendom" was then replaced by the word "European" after the enlightenment, but that label still retained Christendom's universal nature. "European" like "Christendom" is a state and political identity, opposed to an ethnic or national identity, and the adoption of this universalist identity destroyed what little of specific ethnic European customs and traditions that were left. 
 
   
-
 1.3. Nietzschean 'Transvaluation of Values' 
 
 _But God chose the foolish things of the world to shame the wise; God chose the weak things of the world to shame the strong. God chose the lowly things of this world and the despised things—and the things that are not—to nullify the things that are_ - 1 Corinthians 1:26-28
@@ -72,13 +72,14 @@ _But God chose the foolish things of the world to shame the wise; God chose the 
 Friedrich Nietzsche's concept of the "transvaluation of values" is central to understanding how Christianity reshaped societal norms. This theory states that traditional christian values, which emphasize humility, selflessness, guilt and pity, were created to undermine the strong. Essentially, by redefining "good" as virtues of the "chandala", i.e., by replacing a groups aristocratic values with "chandala" values: guilt, pity, self-hate, weakness, and victimhood/oppression replace strength, pride, honor, loyalty, family, race, and tradition, etc., essentially through vilifying the powerful the lowest "chandala" castes can become the nobility. This leads to a culture that celebrates mediocrity while demonizing excellence.\
 &nbsp;&nbsp; &nbsp;&nbsp;&nbsp;&nbsp;        Also, by glorifying chandala traits (e.g., humility, weakness), Christianity acts as a reverse eugenic force, selectively breeding out traits of dominance and vitality while rewarding submission and mediocrity.
 
+1.4. Nietzschean 'Slave Morality' 
 
+Christianity is a slave morality that is designed to suppress an individual's will to power. When an individual is unable to express their will to power in a constructive, outward manner, they redirect this energy inward, manifesting as self-destructive tendencies. This is what Friedrich Nietzsche called a "slave morality" where the individual's creative and life-affirming energies are turned against themselves. As a result, in Christianity, many people's will to power becomes directed inward, becoming satiated through masochistic self-harm. This twisted form of self-assertion allows the individual's "upper self" to find satisfaction in dominating and punishing their "lower self," perpetuating a cycle of self-destruction.\
+ &nbsp;&nbsp; &nbsp;&nbsp;&nbsp;&nbsp;This phenomenon can be observed in various aspects of human behavior, from the self-flagellating tendencies of Christiantiy to the equally destructive habits of self-sabotage and addiction. If the individual's will to power is unable to find an external outlet it turns inward, creating a perverse cycle of self-inflicted pain and suffering.
 
+1.5. Nietzschean 'Ressentiment' (Weaponizing the "Chandala" Castes)
   
-
-1.4. Nietzschean 'Ressentiment' (Weaponizing the "Chandala" Castes)
-  
-Universalism, the transvaluation of traditional ethnic values, monotheism (good vs. evil), and the concept of sin exist to self-deify and weaponize the lowest castes. This is why Friedrich Nietzsche called christiantiy and it's secularized variant of leftism "slave-moralities", because it allowed the slaves to feel morally and socially superior to the higher castes because of the concept of sin and set commandments of behavior.
+Universalism, the transvaluation of traditional ethnic values, monotheism (good vs. evil), and the concept of sin exist to self-deify and weaponize the lowest castes. This allows the slaves and lower castes to feel morally and socially superior to the higher castes because of the concept of sin and set commandments of behavior.
 \
  &nbsp;&nbsp; &nbsp;&nbsp;&nbsp;&nbsp;       In his book 'On the Genealogy of Morality' (1887) Friedrich Nietzsche wrote that the jews (5), who he claimed are motivated by deep resentment and hatred (6), create these "slave morality" systems (7) to empower the lowest "chandala" castes (8). This is what makes the system self-policing and self-regulating. The savior complex (9) is a subset of christian self-deification and is a heritage of monotheism and messianism (10). Self-deification (11) is the foundation for attacking those that are identified as heretics (12) and redeeming others.
 
@@ -86,7 +87,7 @@ Universalism, the transvaluation of traditional ethnic values, monotheism (good 
 
 See also: [Ressentiment](https://en.wikipedia.org/wiki/Ressentiment), [Conflict Theory](https://en.wikipedia.org/wiki/Conflict_theories), and [Class Conflict](https://en.wikipedia.org/wiki/Class_conflict)
 
-1.5. Control Mechanisms  
+1.6. Control Mechanisms  
 
 While Christianity empowers the 'chandala' caste through universalism and the 'transvaluation of values', thereby elevating them to a position of authority over the aristocratic and warrior castes, it also functions as a system of domestication. This system is designed to instill fear, self-loathing, and a loss of autonomy in its adherents, while fostering feelings of guilt, shame, and intellectual apathy. By discouraging critical thinking and intellectual curiosity, which are seen as threats to faith, Christianity can create a culture that devalues learning and promotes a mentality of subservience (this is the reason why every Christian white trash town is filled with people whose culture is built around a contempt for learning) (13). Furthermore, this system can lead to a disconnection from one's ancestral heritage and genetic identity. Ultimately, it seeks to create a population that is obedient and submissive, with a subconscious affinity for Jewish culture. It does this through:
 
@@ -188,9 +189,7 @@ You can prove that Christianity is a slave morality system that is designed to s
 
 Chapter 5. Conclusion
 
-In conclusion, Christianity is a slave morality that is designed to suppress an individual's will to power. When an individual is unable to express their will to power in a constructive, outward manner, they redirect this energy inward, manifesting as self-destructive tendencies. This is what Friedrich Nietzsche called a "slave morality" where the individual's creative and life-affirming energies are turned against themselves. As a result, in Christianity, many people's will to power becomes directed inward, becoming satiated through masochistic self-harm. This twisted form of self-assertion allows the individual's "upper self" to find satisfaction in dominating and punishing their "lower self," perpetuating a cycle of self-destruction.\
- &nbsp;&nbsp; &nbsp;&nbsp;&nbsp;&nbsp;   Futhermore, Christianity is not only a slave morality, but also a domestication system that is designed to subvert a population through the transvaluation of values. Monotheism, universalism, and the concept of sin all act to empower the outcastes to police the behavior of higher castes. \
-&nbsp;&nbsp; &nbsp;&nbsp;&nbsp;&nbsp;It took 2000 years of domestication to reach the point where Europeans would sacrifice their nations and the future of their children on the altar of equality, but the seeds for this was inculcated through this system. \
+In conclusion, it took 2000 years of domestication to reach the point where Europeans would sacrifice their nations and the future of their children on the altar of equality, but the seeds for this was inculcated through this system. \
    &nbsp;&nbsp; &nbsp;&nbsp;&nbsp;&nbsp;It is horrifying to think of the scale that this psyop grew to, how this system became institutionalized, how it changed the evolutionary group strategy of billions of people, how it created hell on earth for the entire planet for centuries, and how it is the system that is responsible for the needless destruction of billions of people.
 
 Addendum
