@@ -93,6 +93,9 @@ See also: [Ressentiment](https://en.wikipedia.org/wiki/Ressentiment), [Conflict
 
 2.4 Survival of the Weakest: Inverting Natural Selection \
 
+_“Christianity has waged a war to the death against this higher type of man; it has excommunicated all the fundamental instincts of this type, it has distilled evil, the Evil One, out of these instincts—the strong human being as the typically reprehensible, the ‘reprobate.’ Christianity has taken the side of everything weak, base, ill-constituted, it has made an ideal out of opposition to the preservative instincts of strong life; it has corrupted the reason even of the intellectually strongest natures by teaching men to feel the supreme values of intellectuality as sinful, as misleading, as temptations.”_ --  Friedrich Nietzsche - The Antichrist (Section 50) 
+
+
 High-status males in hierarchical societies (e.g., chieftains, warriors) often had greater access to females, either through polygyny or social prestige. This amplified the genetic spread of traits associated with dominance.
 
 Christianity disrupted this dynamic by redefining “fitness” in moral rather than biological terms. By exalting humility, meekness, and self-denial as virtues, it created a cultural selection pressure that rewarded individuals who exhibited traits maladaptive in competitive contexts. For instance, through the transvaluation traditional values based on heirarchy and power, and through glorifying the meek and downtrodden, Christianity incentivized the survival and reproduction of traits (e.g., passivity, low ambition) that natural selection would typically cull.
