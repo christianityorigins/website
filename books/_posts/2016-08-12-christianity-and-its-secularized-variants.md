@@ -12,30 +12,30 @@ The Christian Roots of Marxist Thought: A Critical Examination of the Slave Mora
 
 By Ralph Perrier
 
-_"Do not suppose that I have come to bring peace to the earth. I did not come to bring peace, but a sword. For I have come to turn a man against his father, a daughter against her mother, a daughter-in-law against her mother-in-law, a man’s enemies will be the members of his own household"_ -- Matthew 10:34-36
+_"Do not suppose that I have come to bring peace to the earth. I did not come to bring peace, but a sword. For I have come to turn a man against his father, a daughter against her mother, a daughter-in-law against her mother-in-law, a man’s enemies will be the members of his own household"_ -- Matthew 10:34-36\
 
 _Do you think I came to bring peace on earth? No, I tell you, but division. From now on there will be five in one family divided against each other, three against two and two against three. They will be divided, father against son and son against father, mother against daughter and daughter against mother, mother-in-law against daughter-in-law and daughter-in-law against mother-in-law._ -- Luke 12:51
 
 CONTENTS
 
 Preface\
-BOOK I. ON THE SLAVE MORALITY SYSTEM\
-Chapter 1. The Christian System\
-1.1. Monotheism\
-1.2. Universalism\
+Book I. The Christian Slave Morality System\
+Chapter 1. The Foundations of Christian Slave Morality\
+1.1. Monotheism and Centralized Authority\
+1.2. Universalism and the Erosion of Hierarchy\
 Chapter 2. Nietzschean Mechanisms of Subversion  
 2.1. Nietzschean 'Transvaluation of Values'\
 2.2. Nietzschean 'Slave Morality' \
 2.3. Nietzschean 'Ressentiment' (Weaponizing the "Chandala" Castes)\
 2.4. Survival of the Weakest: Inverting Natural Selection \
-Chapter 3. Control Mechanisms  
-BOOK II. SECULARIZATION AND MARXISM  
+Chapter 3. Mechanisms of Social Control  
+Book II: Secularization and Marxism\
 Chapter 4. Secularization of Christianity\
 Chapter 5. Marxism is Secularized Christianity\
 5.1. Marxist Denominations\
 5.2. Secular Christian Tenets and Ethics\
-Chapter 5. Judaism Vs. Christianity: What do the Jews Believe?\
-Chapter 6. Conclusion\
+Chapter 6. Judaism Vs. Christianity: What do the Jews Believe?\
+Chapter 7. Conclusion\
 Footnotes
 
 Preface
@@ -44,14 +44,13 @@ Every single species on earth works towards the preservation and strengthening o
         The first part of this book explains how the Christian slave morality works and is heavily dependent upon the work of Friedrich Nietzsche, and the second part explains how Leftism and Marxism are Christianity's atheist-compatible sects.  \
 &nbsp;&nbsp; &nbsp;&nbsp;&nbsp;&nbsp;         Essentially, the christian slave morality system is designed to transvaluate a groups ethnic values so that the weak, debased, and traitorous become the nobility. Weaponizing the outcastes is how the system gains power and becomes self-regulating, and is why it is such a powerful divide-and-conquer Trojan Horse religion. 
         
+Book I: The Christian Slave Morality System
 
-  
-
-Chapter 1. The Christian System
+Chapter 1. The Foundations of Christian Slave Morality\
   
 Christianity is a sophisticated divide-and-conquer millenarianist (1) slave morality (2) system that is packaged as a religion. The system works by weaponizing the lowest "chandala" (3) (outcastes and untouchables in the Hindu caste system) of society (4) to attack and overthrow the aristocratic and warrior castes; and secondly, the christian system contains within it a pacifist slave morality system that is designed to transvaluate a groups aristocratic and warrior values while turning these aristocratic and warrior castes into obedient and submissive slaves.  
   
-1.1. Monotheism
+1.1. Monotheism and Centralized Authority
 
   
 
@@ -60,7 +59,7 @@ The collectivization of divine authority reinforces a universal morality. Everyt
 
   
 
-1.2. Universalism
+1.2. Universalism and the Erosion of Hierarchy
 
 _There is no longer Jew or Greek, there is no longer slave or free, there is no longer male and female; for all of you are one in Christ Jesus._ - Galatians 3:28
 
@@ -106,7 +105,7 @@ Over centuries, these relaxed condition of Darwinian Selection led to traits lik
 
 This is likely the cause of the pathological altruism phenomenon that is seen in the west today. Christianity’s emphasis on charity and loving one’s enemies fostered what evolutionary psychologists call pathological altruism—self-destructive behaviors that benefit others at the expense of one’s own in-group.  
 
-Chapter 3. Control Mechanisms  
+Chapter 3. Mechanisms of Social Control  
 
 While Christianity empowers the 'chandala' caste through universalism and the 'transvaluation of values', thereby elevating them to a position of authority over the aristocratic and warrior castes, it also functions as a system of domestication. This system is designed to instill fear, self-loathing, and a loss of autonomy in its adherents, while fostering feelings of guilt, shame, and intellectual apathy. By discouraging critical thinking and intellectual curiosity, which are seen as threats to faith, Christianity can create a culture that devalues learning and promotes a mentality of subservience (this is the reason why every Christian white trash town is filled with people whose culture is built around a contempt for learning) (13). Furthermore, this system can lead to a disconnection from one's ancestral heritage and genetic identity. Ultimately, it seeks to create a population that is obedient and submissive, with a subconscious affinity for Jewish culture. It does this through:
 
