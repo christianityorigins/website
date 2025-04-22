@@ -26,9 +26,9 @@ Chapter 1. The Foundations of Christian Slave Morality\
 Chapter 2. Nietzschean Mechanisms of Subversion  
 2.1. Nietzschean 'Transvaluation of Values'\
 2.2. Nietzschean 'Slave Morality' \
-2.3. Nietzschean 'Ressentiment' (Weaponizing the "Chandala" Castes)\
-2.4. Survival of the Weakest: Inverting Natural Selection \
-Chapter 3. Mechanisms of Social Control  
+2.3. Survival of the Weakest: Inverting Natural Selection \
+2.4. Nietzschean 'Ressentiment' (Weaponizing the "Chandala" Castes)\
+Chapter 3. Domestication Through Social Control\
 Book II: Secularization and Marxism\
 Chapter 4. Secularization of Christianity\
 Chapter 5. Marxism is Secularized Christianity\
@@ -68,45 +68,40 @@ Christian universalism derives from monotheism. The universalization of a group 
         Christian universalism also led to ethnic erasure. The catholic church deliberately destroyed ethnic customs and beliefs to emphasize the universality of Christianity. Pre-Christian Europe was a patchwork of ethnicities, each with its own gods and traditions and christianity deliberately destroyed these ethnic bonds so that a religious identity replaced an ethnic identity. "Christendom" then became the first universalized identity that was built around a shared morality that transcended ethnic and cultural boundaries. "Christendom" was then replaced by the word "European" after the enlightenment, but that label still retained Christendom's universal nature. "European" like "Christendom" is a state and political identity, opposed to an ethnic or national identity, and the adoption of this universalist identity destroyed what little of specific ethnic European customs and traditions that were left. 
 
 Chapter 2. Nietzschean Mechanisms of Subversion  
-  
+
 2.1. Nietzschean 'Transvaluation of Values' 
 
 _But God chose the foolish things of the world to shame the wise; God chose the weak things of the world to shame the strong. God chose the lowly things of this world and the despised things—and the things that are not—to nullify the things that are_ - 1 Corinthians 1:26-28
 
-Friedrich Nietzsche's concept of the "transvaluation of values" is central to understanding how Christianity reshaped societal norms. This theory states that traditional christian values, which emphasize humility, selflessness, guilt and pity, were created to undermine the strong. Essentially, by redefining "good" as virtues of the "chandala", i.e., by replacing a groups aristocratic values with "chandala" values: guilt, pity, self-hate, weakness, and victimhood/oppression replace strength, pride, honor, loyalty, family, race, and tradition, etc., essentially through vilifying the powerful the lowest "chandala" castes can become the nobility. This leads to a culture that celebrates mediocrity while demonizing excellence.\
-&nbsp;&nbsp; &nbsp;&nbsp;&nbsp;&nbsp;        Also, by glorifying chandala traits (e.g., humility, weakness), Christianity acts as a reverse eugenic force, selectively breeding out traits of dominance and vitality while rewarding submission and mediocrity.
+Friedrich Nietzsche's concept of the "transvaluation of values" is central to understanding how Christianity reshaped societal norms. This theory states that traditional christian values, which emphasize humility, selflessness, guilt and pity, were created to undermine the strong. Essentially, by redefining "good" as virtues of the "chandala", i.e., by replacing a groups aristocratic values with "chandala" values: guilt, pity, self-hate, weakness, and victimhood/oppression replace strength, pride, honor, loyalty, family, race, and tradition, etc., essentially through vilifying the powerful the lowest "chandala" castes can become the nobility. This leads to a culture that celebrates mediocrity while demonizing excellence.
 
 2.2. Nietzschean 'Slave Morality' 
 
 Christianity is a slave morality that is designed to suppress an individual's will to power. When an individual is unable to express their will to power in a constructive, outward manner, they redirect this energy inward, manifesting as self-destructive tendencies. This is what Friedrich Nietzsche called a "slave morality" where the individual's creative and life-affirming energies are turned against themselves. As a result, in Christianity, many people's will to power becomes directed inward, becoming satiated through masochistic self-harm. This twisted form of self-assertion allows the individual's "upper self" to find satisfaction in dominating and punishing their "lower self," perpetuating a cycle of self-destruction.\
  &nbsp;&nbsp; &nbsp;&nbsp;&nbsp;&nbsp;This phenomenon can be observed in various aspects of human behavior, from the self-flagellating tendencies of Christiantiy to the equally destructive habits of self-sabotage and addiction. If the individual's will to power is unable to find an external outlet it turns inward, creating a perverse cycle of self-inflicted pain and suffering.
 
-2.3. Nietzschean 'Ressentiment' (Weaponizing the "Chandala" Castes)
+2.3 Survival of the Weakest: Inverting Natural Selection \
+
+_“Christianity has waged a war to the death against this higher type of man; it has excommunicated all the fundamental instincts of this type, it has distilled evil, the Evil One, out of these instincts—the strong human being as the typically reprehensible, the ‘reprobate.’ Christianity has taken the side of everything weak, base, ill-constituted, it has made an ideal out of opposition to the preservative instincts of strong life; it has corrupted the reason even of the intellectually strongest natures by teaching men to feel the supreme values of intellectuality as sinful, as misleading, as temptations.”_ --  Friedrich Nietzsche - The Antichrist (Section 50) 
+
+High-status males in hierarchical societies (e.g., chieftains, warriors) often had greater access to females, either through polygyny or social prestige. This amplified the genetic spread of traits associated with dominance.\
+&nbsp;&nbsp; &nbsp;&nbsp;&nbsp;&nbsp;     Christianity disrupted this dynamic by redefining “fitness” in moral rather than biological terms. By exalting humility, meekness, and self-denial as virtues, it created a cultural selection pressure that rewarded individuals who exhibited traits maladaptive in competitive contexts. For instance, through the transvaluation traditional values based on heirarchy and power, and through glorifying the meek and downtrodden, Christianity incentivized the survival and reproduction of traits (e.g., passivity, low ambition) that natural selection would typically cull.\
+&nbsp;&nbsp; &nbsp;&nbsp;&nbsp;&nbsp;     Also, through the Church’s promotion of celibacy (e.g., for priests, monks, and nuns) and antinatalist teachings (e.g., Matthew 19:11-12, praising eunuchs) disproportionately affected high-status and highly intelligent individuals who were drawn to religious vocations. This removed dominant, intelligent, and ambitious individuals from the gene pool, reducing the prevalence of traits associated with leadership and vitality.\
+&nbsp;&nbsp; &nbsp;&nbsp;&nbsp;&nbsp;     Over centuries, these relaxed conditions of natural selection led to traits like aggression and dominance being bred out of Europeans. \
+&nbsp;&nbsp; &nbsp;&nbsp;&nbsp;&nbsp;     This is likely the cause of the pathological altruism phenomenon that is seen in the west today. Christianity’s emphasis on charity and loving one’s enemies fostered what evolutionary psychologists call pathological altruism—self-destructive behaviors that benefit others at the expense of one’s own in-group.   
+
+2.4. Nietzschean 'Ressentiment' (Weaponizing the "Chandala" Castes)
   
 Universalism, the transvaluation of traditional ethnic values, monotheism (good vs. evil), and the concept of sin exist to self-deify and weaponize the lowest castes. This allows the slaves and lower castes to feel morally and socially superior to the higher castes because of the concept of sin and set commandments of behavior.
 \
- &nbsp;&nbsp; &nbsp;&nbsp;&nbsp;&nbsp;       In his book 'On the Genealogy of Morality' (1887) Friedrich Nietzsche wrote that the jews (5), who he claimed are motivated by deep resentment and hatred (6), create these "slave morality" systems (7) to empower the lowest "chandala" castes (8). This is what makes the system self-policing and self-regulating. The savior complex (9) is a subset of christian self-deification and is a heritage of monotheism and messianism (10). Self-deification (11) is the foundation for attacking those that are identified as heretics (12) and redeeming others.
+ &nbsp;&nbsp; &nbsp;&nbsp;&nbsp;&nbsp;       In his book 'On the Genealogy of Morality' (1887) Friedrich Nietzsche wrote that the jews (5), who he claimed are motivated by deep resentment and hatred (6), create these "slave morality" systems (7) to empower the lowest "chandala" castes (8). This is what makes the system self-policing and self-regulating. The savior complex (9) is a subset of christian self-deification and is a heritage of monotheism and messianism (10). Self-deification (11) is the foundation for attacking those that are identified as heretics (12) and redeeming others.\
+ &nbsp;&nbsp; &nbsp;&nbsp;&nbsp;&nbsp;       So, Christianity is a slave morality system that becomes self-regulating. 
 
   
 
 See also: [Ressentiment](https://en.wikipedia.org/wiki/Ressentiment), [Conflict Theory](https://en.wikipedia.org/wiki/Conflict_theories), and [Class Conflict](https://en.wikipedia.org/wiki/Class_conflict)
 
-2.4 Survival of the Weakest: Inverting Natural Selection \
-
-_“Christianity has waged a war to the death against this higher type of man; it has excommunicated all the fundamental instincts of this type, it has distilled evil, the Evil One, out of these instincts—the strong human being as the typically reprehensible, the ‘reprobate.’ Christianity has taken the side of everything weak, base, ill-constituted, it has made an ideal out of opposition to the preservative instincts of strong life; it has corrupted the reason even of the intellectually strongest natures by teaching men to feel the supreme values of intellectuality as sinful, as misleading, as temptations.”_ --  Friedrich Nietzsche - The Antichrist (Section 50) 
-
-
-High-status males in hierarchical societies (e.g., chieftains, warriors) often had greater access to females, either through polygyny or social prestige. This amplified the genetic spread of traits associated with dominance.
-
-Christianity disrupted this dynamic by redefining “fitness” in moral rather than biological terms. By exalting humility, meekness, and self-denial as virtues, it created a cultural selection pressure that rewarded individuals who exhibited traits maladaptive in competitive contexts. For instance, through the transvaluation traditional values based on heirarchy and power, and through glorifying the meek and downtrodden, Christianity incentivized the survival and reproduction of traits (e.g., passivity, low ambition) that natural selection would typically cull.
-
-Also, through the Church’s promotion of celibacy (e.g., for priests, monks, and nuns) and antinatalist teachings (e.g., Matthew 19:11-12, praising eunuchs) disproportionately affected high-status and highly intelligent individuals who were drawn to religious vocations. This removed dominant, intelligent, and ambitious individuals from the gene pool, reducing the prevalence of traits associated with leadership and vitality.
-
-Over centuries, these relaxed condition of Darwinian Selection led to traits like aggression and dominance being bred out of Europeans. 
-
-This is likely the cause of the pathological altruism phenomenon that is seen in the west today. Christianity’s emphasis on charity and loving one’s enemies fostered what evolutionary psychologists call pathological altruism—self-destructive behaviors that benefit others at the expense of one’s own in-group.  
-
-Chapter 3. Mechanisms of Social Control  
+Chapter 3. Domestication Through Social Control  
 
 While Christianity empowers the 'chandala' caste through universalism and the 'transvaluation of values', thereby elevating them to a position of authority over the aristocratic and warrior castes, it also functions as a system of domestication. This system is designed to instill fear, self-loathing, and a loss of autonomy in its adherents, while fostering feelings of guilt, shame, and intellectual apathy. By discouraging critical thinking and intellectual curiosity, which are seen as threats to faith, Christianity can create a culture that devalues learning and promotes a mentality of subservience (this is the reason why every Christian white trash town is filled with people whose culture is built around a contempt for learning) (13). Furthermore, this system can lead to a disconnection from one's ancestral heritage and genetic identity. Ultimately, it seeks to create a population that is obedient and submissive, with a subconscious affinity for Jewish culture. It does this through:
 
