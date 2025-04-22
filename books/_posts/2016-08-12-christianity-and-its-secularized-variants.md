@@ -85,8 +85,7 @@ Friedrich Nietzsche's concept of the "transvaluation of values" is central to un
 
 2.2. Nietzschean 'Slave Morality' 
 
-Christianity is a slave morality that is designed to suppress an individual's will to power. When an individual is unable to express their will to power in a constructive, outward manner, they redirect this energy inward, manifesting as self-destructive tendencies. This is what Friedrich Nietzsche called a "slave morality" where the individual's creative and life-affirming energies are turned against themselves. As a result, in Christianity, many people's will to power becomes directed inward, becoming satiated through masochistic self-harm. This twisted form of self-assertion allows the individual's "upper self" to find satisfaction in dominating and punishing their "lower self," perpetuating a cycle of self-destruction.\
- &nbsp;&nbsp; &nbsp;&nbsp;&nbsp;&nbsp;This phenomenon can be observed in various aspects of human behavior, from the self-flagellating tendencies of Christiantiy to the equally destructive habits of self-sabotage and addiction. If the individual's will to power is unable to find an external outlet it turns inward, creating a perverse cycle of self-inflicted pain and suffering.
+Christianity is a slave morality that is designed to suppress an individual's will to power. When an individual is unable to express their will to power in a constructive, outward manner, they redirect this energy inward, manifesting as self-destructive tendencies. This is what Friedrich Nietzsche called a "slave morality" where the individual's creative and life-affirming energies are turned against themselves. As a result, in Christianity, many people's will to power becomes directed inward, becoming satiated through masochistic self-harm. This twisted form of self-assertion can be observed in various aspects of human behavior, from the self-flagellating tendencies of Christiantiy to the equally destructive habits of self-sabotage and addiction. If the individual's will to power is unable to find an external outlet it turns inward, creating a perverse cycle of self-inflicted pain and suffering.
 
 2.3 Survival of the Weakest: Inverting Natural Selection \
 
@@ -103,7 +102,7 @@ High-status males in hierarchical societies (e.g., chieftains, warriors) often h
 Universalism, the transvaluation of traditional ethnic values, monotheism (good vs. evil), and the concept of sin exist to self-deify and weaponize the lowest castes. This allows the slaves and lower castes to feel morally and socially superior to the higher castes because of the concept of sin and set commandments of behavior.
 \
  &nbsp;&nbsp; &nbsp;&nbsp;&nbsp;&nbsp;       In his book 'On the Genealogy of Morality' (1887) Friedrich Nietzsche wrote that the jews (5), who he claimed are motivated by deep resentment and hatred (6), create these "slave morality" systems (7) to empower the lowest "chandala" castes (8). This is what makes the system self-policing and self-regulating. The savior complex (9) is a subset of christian self-deification and is a heritage of monotheism and messianism (10). Self-deification (11) is the foundation for attacking those that are identified as heretics (12) and redeeming others.\
- &nbsp;&nbsp; &nbsp;&nbsp;&nbsp;&nbsp;       So, Christianity is a slave morality system that becomes self-regulating. 
+ &nbsp;&nbsp; &nbsp;&nbsp;&nbsp;&nbsp;       So, Christianity is a slave morality system that is designed to strip the will to power from people, but it is also a system that is engineered to be self-sustaining, allowing it to maintain control over the population with minimal external intervention by empowering the "chandala castes" and then weaponizing their sense of resentment. 
 
   
 
