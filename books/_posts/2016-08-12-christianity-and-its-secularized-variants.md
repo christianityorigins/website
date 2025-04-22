@@ -18,7 +18,9 @@ _Do you think I came to bring peace on earth? No, I tell you, but division. From
 
 CONTENTS
 
-Preface\
+_Preface_\
+
+Introduction\
 Book I. The Christian Slave Morality System\
 Chapter 1. The Foundations of Christian Slave Morality\
 1.1. Monotheism and Centralized Authority\
@@ -35,10 +37,16 @@ Chapter 5. Marxism is Secularized Christianity\
 5.1. Marxist Denominations\
 5.2. Secular Christian Tenets and Ethics\
 Chapter 6. Judaism Vs. Christianity: What do the Jews Believe?\
-Chapter 7. Conclusion\
-Footnotes
+Conclusion\
+
+_Addendum_\
+_Footnotes_
 
 Preface
+
+In my book 'The Origins of Christianity' I explain how imperial powers of antiquity employed slave morality religions as part of their colonial program. The Persians created Buddhism, with Gautama Buddha being Gaumata Bardya, the son of Cyrus the Great who governed the Persian province of Bactra, to subjugate the Bactians. The Greeks followed this formula with the Ptolemaic cult of Alexander and the Serapis cult. Serapis was a universal composite deity created by blending the Egyptian gods Osiris and Apis with the Greek god Zeus (and others) to resonate with the multicultural society that Ptolemy I envisioned for Egypt. The Romans adopted this formula and established their own imperial cults. These imperial powers maintained their empires through religious syncretism and slave-morality religions that stripped the population of their will to power. Christianity is the culmination of scribes working for the imperial elites, over many centuries, building on previous slave morality religions, with one of these slave morality religions being further subverted after the Bar Kokhba revolt (132-136 AD) by a group of rabbi's who were headed by a rabbi named Akiva. That is why Christianity is such a powerful slave morality religion. 
+
+Introduction
 
 Every single species on earth works towards the preservation and strengthening of its bloodline, from bonobos to pin oaks to jellyfish. Every single one. It is only through the domesticating forces of universal religions (Buddhism, Christianity, and Islam) that man has been able to 'overcome' these natural and deep biological drives and act in ways that are neutral or actually harm the reproductive success of his genes and offspring. Because of these universalizing religions, western man is an animal in the process of domestication. \
         The first part of this book explains how the Christian slave morality works and is heavily dependent upon the work of Friedrich Nietzsche, and the second part explains how Leftism and Marxism are Christianity's atheist-compatible sects.  \
@@ -202,16 +210,16 @@ You can prove that Christianity is a slave morality system that is designed to s
 *   The Old Testament is filled with hatred, violence, killing, and war. The New Testament is filled with love, unconditional tolerance, and anti-rebellion: "for all who draw the sword will die by the sword".
 *   Jews loath Christians, but Christians believe that Jews are "God's chosen" and they exist to serve Israel.
 
-Chapter 7. Conclusion
+Conclusion
 
 In conclusion, it took 2000 years of domestication to reach the point where Europeans would sacrifice their nations and the future of their children on the altar of equality, but the seeds for this was inculcated through this system. \
    &nbsp;&nbsp; &nbsp;&nbsp;&nbsp;&nbsp;It is horrifying to think of the scale that this psyop grew to, how this system became institutionalized, how it changed the evolutionary group strategy of billions of people, how it created hell on earth for the entire planet for centuries, and how it is the system that is responsible for the needless destruction of billions of people.
 
-Addendum
+_Addendum_
 
 My critique of leftism was not coming from a conservative perspective. Leftism is a secularized variant of protestantism (puritanism), but conservatism is secularized catholicism with its focus on hierarcy and tradtion. Western left vs. right politics is a relict of abrahamic monotheism.
 
-Footnotes
+_Footnotes_
   
 1\. Millenarianism. Wikipedia. https://en.wikipedia.org/wiki/Millenarianism \[[link](https://en.wikipedia.org/wiki/Millenarianism)\]  
 2\. Master–slave morality. Wikipedia. https://en.wikipedia.org/wiki/Master%E2%80%93slave\_morality \[[link](https://en.wikipedia.org/wiki/Master–slave_morality)\]  
