@@ -16,7 +16,7 @@ _"Do not suppose that I have come to bring peace to the earth. I did not come to
 
 _Do you think I came to bring peace on earth? No, I tell you, but division. From now on there will be five in one family divided against each other, three against two and two against three. They will be divided, father against son and son against father, mother against daughter and daughter against mother, mother-in-law against daughter-in-law and daughter-in-law against mother-in-law._ -- Luke 12:51
 
-CONTENTS
+Contents
 
 _Preface_\
 
