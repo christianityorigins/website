@@ -463,9 +463,11 @@ Endnotes (Chapter 7)
 
 (a) Marcion of Sinope aka Markianos of Alexandria grew up in the Attis-Sabazios cult on Anatolia before traveling to Judea to study under rabbi Akiva and finally to Alexandria at the Alexandrian School.
 
-(b) Yohai is a nickname for yochai. The name Yochai means 'YHWAH is gracius' from the Hebrew word Yochanan sometimes transcribed as Johanan. Was he also Johanan the Alexandrian? This would place him in Alexandria at the same time as Markianos of Alexandria.
+(b) There was a Marcus who founded the Marcosian Gnostic sect. He was a teacher of Bishop Irenaeus and a friend of Clement of Alexandria. Was he also Marcion of Sinope aka Markianos of Alexandria? (https://en.wikipedia.org/wiki/Marcus_%28Marcosian%29)
 
-(c) Quintus Tineius Sacerdos, the brother of Quintus Tinnius Rufus, was the govenor of Pontus in Anatolia, so the family likely derived from there. Pilate means the temperament of a warrior I.e.: famously temperamental. That's where the name Pontius Pilate comes from.
+(c) Yohai is a nickname for yochai. The name Yochai means 'YHWAH is gracius' from the Hebrew word Yochanan sometimes transcribed as Johanan. Was he also Johanan the Alexandrian? This would place him in Alexandria at the same time as Markianos of Alexandria.
+
+(d) Quintus Tineius Sacerdos, the brother of Quintus Tinnius Rufus, was the govenor of Pontus in Anatolia, so the family likely derived from there. Pilate means the temperament of a warrior I.e.: famously temperamental. That's where the name Pontius Pilate comes from.
 
 _Appendix A: The Symbol of the Cross_
 
