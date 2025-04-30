@@ -72,6 +72,8 @@ China had no chronology until the Jesuits came to the Emperor's court. Their old
 
 Mateo Ricci was the one who wrote the Art of War.
 
+The modern "Han Chinese" are not infact "Chinese" ("Chinese" is a identity concept fabricated and conjured up by Jesuits) but are infact Miao-Hmong people. Mao-tse Dong used artificial weaponized famines and outright direct purges to direct human wave attacks in the Korean war to mass kill off original Scythian Tartar Turanian stock authentic real "Chinese" populations which is continuing today with the genocide and ethnic cleansing of the Uighurs and Mongolians whom are far more genetically ancestrally connected and linked to the original real actual ancient "Chinese" rather than a vast majority of modern "Han Chinese" whom are actually Miao-Hmong or Miao-Tse or Hmong or Yao or other southern origin non-"Chinese" group pretending to be "Chinese"
+
 Europe
 
 Most of what we know of Roman history comes from Herodotus (aka The Father of Lies), and the other half from Cassius Dio.
