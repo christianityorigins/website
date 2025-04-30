@@ -78,7 +78,7 @@ Most of what we know of Roman history comes from Herodotus (aka The Father of Li
 
 Two other men are responsible for most of what we know of the rest of European history: Joseph Justus Scalinger Scaliger was the Jesuit who "authored" most texts historians use today (possibly had scribes), and Poggio Bracciolini was the guy who collected documents for him and even forged them (there are preserved letters from Bracciolini arranging a forgery with a remote monastery).
 
-The "first Rome" was based out of Anatolia. The Latin
+Ancient Rome in Italy, in its surviving monuments and buildings Rome, was a Middle Ages construction. The "first Rome" was based out of Anatolia. The Latin
     language likely derives from the Dacian language which was spoken by
     the Thracians and Phrygians who hailed from the region of modern
     Romania. The word Byzantine is a modern invention and the area
