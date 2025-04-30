@@ -92,7 +92,7 @@ The Dravidians of India are Ethiopians who the jews imported to India via South 
     and Habesha comes from "Abyssinia" which refers to Ethiopia. These
     Ethiopian slaves were likely jewish male - Ethiopian female slaves (i.e. the males were castrated), hence why modern Indians have a similar physiognomy to jews, who then mixed with indigenous Neolithic/Aryans (consentually or by force?).\
 
-Most ancinet history as it is taught today was filterd through the Jesuits. Most Jesuits, including their founder Ignatius Loyola, were marrano/converso jews. Joseph Justus Scalinger alone was credited with "discovering" around 80% of the European history texts that we are taught from today, usually on demand. Most history books from antiquity display Europeans in a negative light, and triumphs are downplayed, this is probably why. 
+Most ancinet history as it is taught today was filterd through the Jesuits. Most Jesuits, including their founder Ignatius Loyola, were marrano/converso jews. Joseph Justus Scalinger alone was credited with "discovering" around 80% of the European history texts that we are taught from today, usually on demand. Most history books from antiquity display Europeans in a negative light, jews as victims, and European triumphs are downplayed. This is probably why. 
 
 *A non-mainstream version of history, but one that is recorded in
     Persian and Islamic sources [2], is that Alexander the Great was a
