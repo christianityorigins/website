@@ -90,17 +90,17 @@ The Dravidians of India are Ethiopians who the jews imported to India via South 
     a thing, and Cochin Jews existing on the south west section of
     India. "Habshi" is what Northern Indians called  Southern Indians
     and Habesha comes from "Abyssinia" which refers to Ethiopia. These
-    Ethiopian slaves were likely jewish male - Ethiopian female slaves (i.e. the males were castrated), hence why modern Indians have a similar physiognomy to jews, who then mixed with indigenous Neolithic/Aryans (consentually or by force?).\
+    Ethiopian slaves were likely jewish male - Ethiopian female slaves (i.e. the males were castrated), hence why modern Indians have a similar physiognomy to jews, who then mixed with indigenous Neolithic/Aryans (consentually or by force?). [2]\
 
 Most ancinet history as it is taught today was filterd through the Jesuits. Most Jesuits, including their founder Ignatius Loyola, were marrano/converso jews. Joseph Justus Scalinger alone was credited with "discovering" around 80% of the European history texts that we are taught from today, usually on demand. Most history books from antiquity display Europeans in a negative light, jews as victims, and European triumphs are downplayed. This is probably why. 
 
 *A non-mainstream version of history, but one that is recorded in
-    Persian and Islamic sources [2], is that Alexander the Great was a
+    Persian and Islamic sources [3], is that Alexander the Great was a
     Persian prince (Bupares) who was the son of Kai Bahman (Artaxerxes
     II Memnon), half brother of "Dara" (Darius III), and that Macedon
     was a province of Persia that his father was governor of.
     Alexander's father Philip of Macedon was Artaxerxes II Memnon's
-    regional alias. The book 'The Life of Alexander of Macedon' [3]
+    regional alias. The book 'The Life of Alexander of Macedon' [4]
     also claims that he didn't die in Babylon in 232 BC at the age of 33
     (same as Jesus) but was only forced from power and he had a
     posthumous birth/'resurrection'. He resurrected in India with the
@@ -109,10 +109,10 @@ Most ancinet history as it is taught today was filterd through the Jesuits. Most
     in Sanskrit, the exact meaning of Alexander). Evidence of this is
     that the Sanskrit language might be a dialect of Avestan, or a
     Hellenized variant of Avestan, and the similarities of customs and
-    religions [4]. Also, there is strong evidence that Alexander's
+    religions [5]. Also, there is strong evidence that Alexander's
     successor to Bactria, Diodotus I Soter, ruled India with the
-    regional identity of Ashoka the Great [5]. See: Alexander Romance
-    [6], The life of Alexander of Macedon [7], and Alexander the
+    regional identity of Ashoka the Great [6]. See: Alexander Romance
+    [7], The life of Alexander of Macedon [8], and Alexander the
     Great: Beyond the Divide by Charles N. Pope [8].\
     
 1 https://www.smithsonianmag.com/smart-news/did-greeks-help-sculpt-chinas-terracotta-warriors-180960771/
@@ -121,21 +121,23 @@ Most ancinet history as it is taught today was filterd through the Jesuits. Most
 --https://www.history.com/news/greeks-may-have-influenced-chinas-terra-cotta-army
 --https://en.wikipedia.org/wiki/Terracotta_Army
 
-2 "Kay Bahman". Wikipedia.
+2 According to Strabo (II.5.12), by the time of Augustus, up to 120 ships were setting sail every year from Myos Hormos to India: "At any rate, when Gallus was prefect of Egypt, I accompanied him and ascended the Nile as far as Syene and the frontiers of Ethiopia, and I learned that as many as one hundred and twenty vessels were sailing from Myos Hormos to India, whereas formerly, under the Ptolemies, only a very few ventured to undertake the voyage and to carry on traffic in Indian merchandise. "— Strabo II.5.12. [https://penelope.uchicago.edu/Thayer/E/Roman/Texts/Strabo/2E1*.html]
+
+3 "Kay Bahman". Wikipedia.
     https://en.wikipedia.org/wiki/Kay_Bahman
 
-3 https://babel.hathitrust.org/cgi/pt?id=mdp.39015046413939&seq=7
+4 https://babel.hathitrust.org/cgi/pt?id=mdp.39015046413939&seq=7
 
-4 https://web.archive.org/web/20240118080032/https://www.hindupedia.com/en/Zoroastrianism_and_Hinduism
+5 https://web.archive.org/web/20240118080032/https://www.hindupedia.com/en/Zoroastrianism_and_Hinduism
 
-5 https://www.academia.edu/695219/Diodotus_I_was_Ashoka_An_Altar_of_Alexander_Now_Standing_Near_Delhi
+6 https://www.academia.edu/695219/Diodotus_I_was_Ashoka_An_Altar_of_Alexander_Now_Standing_Near_Delhi
     [[link](https://www.academia.edu/695219/Diodotus_I_was_Ashoka_An_Altar_of_Alexander_Now_Standing_Near_Delhi)
     --https://en.wikipedia.org/wiki/Kandahar_Greek_Edicts_of_Ashoka
 
-6 "Alexander Romance". Wikipedia.
+7 "Alexander Romance". Wikipedia.
     https://en.wikipedia.org/wiki/Category:Alexander_Romance
 
-7 https://babel.hathitrust.org/cgi/pt?id=mdp.39015046413939&seq=7
+8 https://babel.hathitrust.org/cgi/pt?id=mdp.39015046413939&seq=7
 
-8 "Jesus Among the Julio-Claudians" (2017) by Charles N. Pope
+9 "Jesus Among the Julio-Claudians" (2017) by Charles N. Pope
     [[link](https://books.google.se/books?id=8qZ2DAAAQBAJ&pg=PA2&hl=sv&source=gbs_selected_pages&cad=1#v=onepage&q&f=false)]
