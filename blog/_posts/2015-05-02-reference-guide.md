@@ -121,7 +121,7 @@ Most ancinet history as it is taught today was filterd through the Jesuits. Most
 --https://www.history.com/news/greeks-may-have-influenced-chinas-terra-cotta-army
 --https://en.wikipedia.org/wiki/Terracotta_Army
 
-2 According to Strabo (II.5.12), by the time of Augustus, up to 120 ships were setting sail every year from Myos Hormos to India: "At any rate, when Gallus was prefect of Egypt, I accompanied him and ascended the Nile as far as Syene and the frontiers of Ethiopia, and I learned that as many as one hundred and twenty vessels were sailing from Myos Hormos to India, whereas formerly, under the Ptolemies, only a very few ventured to undertake the voyage and to carry on traffic in Indian merchandise. "— Strabo II.5.12. [https://penelope.uchicago.edu/Thayer/E/Roman/Texts/Strabo/2E1*.html]
+2 According to Strabo (II.5.12), by the time of Augustus, up to 120 ships were setting sail every year from Myos Hormos to India: "At any rate, when Gallus was prefect of Egypt, I accompanied him and ascended the Nile as far as Syene and the frontiers of Ethiopia, and I learned that as many as one hundred and twenty vessels were sailing from Myos Hormos to India, whereas formerly, under the Ptolemies, only a very few ventured to undertake the voyage and to carry on traffic in Indian merchandise. "— Strabo II.5.12. [https://penelope.uchicago.edu/Thayer/E/Roman/Texts/Strabo/2E1*.html] (for reference: during the transatlatic slave trade 100 ships sailed each year transporting 15 million Africans to the Americas)
 
 3 "Kay Bahman". Wikipedia.
     https://en.wikipedia.org/wiki/Kay_Bahman
