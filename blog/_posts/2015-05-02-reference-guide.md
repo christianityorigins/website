@@ -8,10 +8,57 @@ category: blog
 ---
 
 
-
 ### Reference Guide
 
-Ancient Civilizations</p><p>Göbekli Tepe (c. 9000-8000 BCE). Located in Anatolia. Modern Turkey</p><p>Cucuteni–Trypillia culture&nbsp;(c. 5500-2750 BCE). Located in modern Romania, Moldova, Ukraine.&nbsp;</p><p>Vinca Culture (c. 5400–4500 BCE): Modern Balkan area. Founded by travelling Neolithic tribes out of Anatolia who would eventually found Sumeria.</p><p>Sumerians (c. 4500–1900 BCE): Located in Mesopotamia (modern-day Iraq). Known for their city-states, cuneiform writing, and ziggurats.</p><p>Indus Valley Civilization/Harrapan Civilization (c. 3300-1300 BCE)</p><p>Minoan civilization (c. 3100–1100 BCE)</p><p>Ancient Egyptians (c. 3100–30 BCE): Flourished along the Nile River in Egypt. Known for their pyramids, pharaohs, and hieroglyphics.</p><p>Assyrians (c. 2500–609 BCE): Located in northern Mesopotamia (modern-day Iraq, Syria, Turkey). Known for their military prowess and vast empire.</p><p>Akkadians (c. 2334–2154 BCE): Successors to the Sumerians in Mesopotamia. Established the Akkadian Empire.</p><p>Old Babylonian Empire (c. 1894–1595 BCE): Successors to the Akkadians in Mesopotamia. Established Babylon as a major center.</p><p>Mycenaeans (c. 1600–1100 BCE): Located in mainland Greece.</p><p>Hittites (c. 1600–1178 BCE): Anatolian civilization centered in modern-day Turkey. Known for their advanced metalworking and chariot warfare.</p><p>Mittani Empire (c. 1550–1350 BCE): An Indo-Iranian kingdom centered in northern Mesopotamia and Syria.</p><p>Phoenicians (c. 1500–300 BCE): Maritime traders and seafarers centered in Canaan (modern-day Lebanon, Israel, Palestine). Known for their alphabet and founding of Carthage.</p><p>Kassite Dynasty (c. 1350–1155 BCE): Ruled over Babylonia after the fall of the Middle Babylonian Empire.</p><p>Ancient Greece (c. 1100-146 BCE).&nbsp;</p><p>Neo-Assyrian Empire (c. 934–609 BCE): A revival of Assyrian power that established a vast empire across the Middle East.</p><p>Carthaginian Empire (c. 814–146 BCE): A Phoenician colony that became a major power in the western Mediterranean, rivaling Rome. Located in modern-day Tunisia.</p><p>Ancient Rome (c. 753 BCE-476 AD).</p><p>Neo-Babylonian Empire (c. 624–539 BCE): Ruled Mesopotamia after the fall of the Assyrian Empire. Babylon became a major cultural center again.</p><p>Achaemenid Empire (c. 550–330 BCE): The first Persian Empire, founded by Cyrus the Great. Stretched from Persia (Iran) to Egypt and beyond.</p><p>Seleucid Empire (c. 312–63 BCE): A Hellenistic kingdom established by Alexander the Great's successor, Seleucus I Nicator. Ruled over parts of Anatolia, Mesopotamia, and Persia.</p><p>Ptolemaic Kingdom (c. 305-30 BCE): Hellenistic kingdom established by Alexander the Great's successor, Ptolemy Soter. Ruled over Egypt.</p><p>The civilizations of Mesopotamia: Sumerians, Akkadians, Babylonians, Assyrians changed despite being in the same location usually because of conquest (eg. the Akkadians, led by Sargon the Great, conquering the Sumerian city-states around 2334 BCE), or assimilation with other groups, etc.
+Ancient Civilizations
+
+Göbekli Tepe (c. 9000-8000 BCE). Located in Anatolia. Modern Turkey
+
+Cucuteni–Trypillia culture (c. 5500-2750 BCE). Located in modern Romania, Moldova, Ukraine.
+
+Vinca Culture (c. 5400–4500 BCE). Modern Balkan area. Founded by travelling Neolithic tribes out of Anatolia who would eventually found Sumeria.
+
+Sumerians (c. 4500–1900 BCE). Located in Mesopotamia (modern-day Iraq). Known for their city-states, cuneiform writing, and ziggurats.
+
+Indus Valley Civilization/Harrapan Civilization (c. 3300-1300 BCE)
+
+Minoan civilization (c. 3100–1100 BCE)
+
+Ancient Egyptians (c. 3100–30 BCE). Flourished along the Nile River in Egypt. Known for their pyramids, pharaohs, and hieroglyphics.
+
+Assyrians (c. 2500–609 BCE). Located in northern Mesopotamia (modern-day Iraq, Syria, Turkey). Known for their military prowess and vast empire.
+
+Akkadians (c. 2334–2154 BCE). Successors to the Sumerians in Mesopotamia. Established the Akkadian Empire.
+
+Old Babylonian Empire (c. 1894–1595 BCE). Successors to the Akkadians in Mesopotamia. Established Babylon as a major center.
+
+Mycenaeans (c. 1600–1100 BCE). Located in mainland Greece.
+
+Hittites (c. 1600–1178 BCE). Anatolian civilization centered in modern-day Turkey. Known for their advanced metalworking and chariot warfare.
+
+Mittani Empire (c. 1550–1350 BCE). An Indo-Iranian kingdom centered in northern Mesopotamia and Syria.
+
+Phoenicians (c. 1500–300 BCE). Maritime traders and seafarers centered in Canaan (modern-day Lebanon, Israel, Palestine). Known for their alphabet and founding of Carthage.
+
+Kassite Dynasty (c. 1350–1155 BCE). Ruled over Babylonia after the fall of the Middle Babylonian Empire.
+
+Ancient Greece (c. 1100-146 BCE).
+
+Neo-Assyrian Empire (c. 934–609 BCE). A revival of Assyrian power that established a vast empire across the Middle East.
+
+Carthaginian Empire (c. 814–146 BCE). A Phoenician colony that became a major power in the western Mediterranean, rivaling Rome. Located in modern-day Tunisia.
+
+Ancient Rome (c. 753 BCE-476 AD).
+
+Neo-Babylonian Empire (c. 624–539 BCE). Ruled Mesopotamia after the fall of the Assyrian Empire. Babylon became a major cultural center again.
+
+Achaemenid Empire (c. 550–330 BCE). The first Persian Empire, founded by Cyrus the Great. Stretched from Persia (Iran) to Egypt and beyond.
+
+Seleucid Empire (c. 312–63 BCE). A Hellenistic kingdom established by Alexander the Great's successor, Seleucus I Nicator. Ruled over parts of Anatolia, Mesopotamia, and Persia.
+
+Ptolemaic Kingdom (c. 305-30 BCE). Hellenistic kingdom established by Alexander the Great's successor, Ptolemy Soter. Ruled over Egypt.
+
+The civilizations of Mesopotamia: Sumerians, Akkadians, Babylonians, Assyrians changed despite being in the same location usually because of conquest (e.g. the Akkadians, led by Sargon the Great, conquering the Sumerian city-states around 2334 BCE), or assimilation with other groups.
 
 ### Revisionist History
 
