@@ -17,9 +17,9 @@ Alexander finished his conquest of India and continued on throughout China. Only
 
 
 A non-mainstream version of history, but one that is recorded in
-    Persian and Islamic sources [1], is that Alexander the Great was a
-    Persian prince (Bupares) who was the son of Kai Bahman (Artaxerxes
-    II Memnon), half brother of "Dara" (Darius III), and that Macedon
+    Persian ('Iskandarnameh', or Book of Alexander and 'Shahnameh') and Islamic sources [1], is that Alexander the Great was a
+    Persian prince named Bupares who was the son of Artaxerxes
+    II Memnon (Kai Bahman), half brother of "Dara" (Darius III), and that Macedon
     was a province of Persia that his father was governor of.
     Alexander's father Philip of Macedon was Artaxerxes II Memnon's
     regional alias. The book 'The Life of Alexander of Macedon' [2]
@@ -123,7 +123,8 @@ The Dravidians of India are Ethiopians who the jews imported to India via South 
 
 Most ancient history as it is taught today was filterd through the Jesuits. Most Jesuits, including their founder Ignatius Loyola, were marrano/converso jews [11]. Joseph Justus Scalinger alone was credited with "discovering" around 80% of the European history texts that we are taught from today, usually on demand. Most history books from antiquity display Europeans in a negative light, jews as victims, and European triumphs are downplayed. This is probably why. 
 
-1 <a href="https://en.wikipedia.org/wiki/Kay_Bahman">https://en.wikipedia.org/wiki/Kay_Bahman</a>
+1 In the Shahnameh, Dara (Darius) is said to have married the daughter of Philip of Macedon, and was the father of Alexander. Dara's father is said to be Bahman, and his uncle Sasan (the progenitor of the Sassanians). This same basic story is told several centuries earlier in the Kar-namag e Ardashir. \
+--<a href="https://en.wikipedia.org/wiki/Kay_Bahman">https://en.wikipedia.org/wiki/Kay_Bahman</a>
 
 2 <a href="https://babel.hathitrust.org/cgi/pt?id=mdp.39015046413939&seq=7">https://babel.hathitrust.org/cgi/pt?id=mdp.39015046413939&seq=7</a>
 
