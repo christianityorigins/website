@@ -9,6 +9,8 @@ category: blog
 
 ### Revisionist History
 
+I am interested in revisionist history. These are some of my research notes that I will expand on eventually.
+
 Alexander the great finished his conquest of India and continued on throughout China. Only the identity of "Alexander" died at 33, he then assumed local identities. 
 
 China
