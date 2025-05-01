@@ -37,7 +37,7 @@ A non-mainstream version of history, but one that is recorded in
     [5], The life of Alexander of Macedon [6], and Alexander the
     Great: Beyond the Divide by Charles N. Pope [7].
 
-Bubares (https://en.wikipedia.org/wiki/Bubares) was a Persian prince who married Alexander's sister. They had a son named Amyntas (son of Bubares) (https://en.wikipedia.org/wiki/Amyntas_(son_of_Bubares)). He was the king of the city Phrygia that was located in Galatia in classical Anatolia. Further down the line there was an Amyntas Nikator aka Amyntas of Galatia (https://en.wikipedia.org/wiki/Amyntas_of_Galatia) who ruled an empire that streched from modern day Turkey through India. [[link](https://ranajitpal-jesus-from-asia-minor.blogspot.com/2011/06/jesus-christ-was-amyntas-of-galatia_20.html)])
+Bubares (https://en.wikipedia.org/wiki/Bubares) was a Persian prince who married Alexander's sister. They had a son named Amyntas (son of Bubares) (https://en.wikipedia.org/wiki/Amyntas_(son_of_Bubares)). He was the king of the city Phrygia that was located in Galatia in classical Anatolia. Further down the line there was an Amyntas Nikator aka Amyntas of Galatia (https://en.wikipedia.org/wiki/Amyntas_of_Galatia) who ruled an empire that streched from modern day Turkey through India. [[link](https://ranajitpal-jesus-from-asia-minor.blogspot.com/2011/06/jesus-christ-was-amyntas-of-galatia_20.html)]
 
 Amyntas Nikator aka Amyntas of Galatia was married to Stratonice who was the sister of Asander, king of Bosphorus (who I identify as Julius Caesar's real identity). He was also the cousin of Dynamis, Asander's wife who I identify as Celopatra's real identity.
 
@@ -156,3 +156,17 @@ Most ancient history as it is taught today was filterd through the Jesuits. Most
 (for reference: during the transatlantic slave trade 100 ships sailed each year transporting 15 million Africans to the Americas)
 
 11 <a href="https://www.unz.com/article/review-the-jesuit-order-as-a-synagogue-of-jews/">https://www.unz.com/article/review-the-jesuit-order-as-a-synagogue-of-jews/</a>
+
+Read more
+
+<a href="https://unz.com/article/how-fake-is-roman-antiquity/">https://unz.com/article/how-fake-is-roman-antiquity/</a>\
+<a href="https://unz.com/article/how-fake-is-church-history/">https://unz.com/article/how-fake-is-church-history/</a>\
+<a href="https://unz.com/article/how-long-was-the-first-millenium/">https://unz.com/article/how-long-was-the-first-millenium/</a>\
+<a href="https://q-mag.org/gunnar-heinsohns-latest.html">https://q-mag.org/gunnar-heinsohns-latest.html</a>\
+<a href="https://stolenhistory.net/threads/79-a-d-no-more-pompeii-got-buried-in-1631.113">https://stolenhistory.net/threads/79-a-d-no-more-pompeii-got-buried-in-1631.113</a>\
+<a href="https://stolenhistory.net/threads/the-history-of-rome-has-no-surviving-sources.2057">https://stolenhistory.net/threads/the-history-of-rome-has-no-surviving-sources.2057</a>\>\
+Isssue with Dark Ages by Anatoly Fomenko:\
+<a href="https://files.catbox.moe/81aj7z.epub">https://files.catbox.moe/81aj7z.epub</a>\
+<a href="https://files.catbox.moe/053lko.pdf">https://files.catbox.moe/053lko.pdf</a>\
+History: Fiction or Science Vol. I by Anatoly Fomenko:\
+<a href="https://archive.org/details/bub_gb_YcjFAV4WZ9MC">https://archive.org/details/bub_gb_YcjFAV4WZ9MC</a>
