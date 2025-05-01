@@ -463,7 +463,7 @@ Endnotes (Chapter 7)
 
 (a) Marcion of Sinope aka Markianos of Alexandria grew up in the Attis-Sabazios cult on Anatolia before traveling to Judea to study under rabbi Akiva and finally to Alexandria at the Alexandrian School.
 
-(b) There was a Marcus who founded the Marcosian Gnostic sect. He was a teacher of Bishop Irenaeus and a friend of Clement of Alexandria. Was he also Marcion of Sinope aka Markianos of Alexandria? (https://en.wikipedia.org/wiki/Marcus_%28Marcosian%29). St. Jerome in "Against Jovinian" describes Mark as a disciple of the Gnostic teacher Basilides.
+(b) There was a Marcus who founded the Marcosian Gnostic sect. He was a teacher of Bishop Irenaeus and a friend of Clement of Alexandria. Was he also Marcion of Sinope aka Markianos of Alexandria? (https://en.wikipedia.org/wiki/Marcus_%28Marcosian%29). St. Jerome in "Against Jovinian" describes Mark as a disciple of the Gnostic teacher Basilides. Here is a list of "Marks" who were active around the same time: Mark, the Evangelist, John Mark, Mark of Apollonias, Markianos of Alexandria, Mahalia, Marcus of Jerusalem, Marcus Pompeius, Marcus the Magician, Marcion of Sinope, Marcus the Marcosian. Mark of Apollonias, John Mark, Mark the cousin of Barnabas, and Mark the Apostle are considered to be the same person by historians, so it is conciveable that all these "Marks" were the same person.
 
 (c) Yohai is a nickname for yochai. The name Yochai means 'YHWAH is gracius' from the Hebrew word Yochanan sometimes transcribed as Johanan. Was he also Johanan the Alexandrian? This would place him in Alexandria at the same time as Markianos of Alexandria.
 
