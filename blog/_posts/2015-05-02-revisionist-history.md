@@ -123,6 +123,8 @@ The Dravidians of India are Ethiopians who the jews imported to India via South 
 
 Most ancient history as it is taught today was filterd through the Jesuits. Most Jesuits, including their founder Ignatius Loyola, were marrano/converso jews [11]. Joseph Justus Scalinger alone was credited with "discovering" around 80% of the European history texts that we are taught from today, usually on demand. Most history books from antiquity display Europeans in a negative light, jews as victims, and European triumphs are downplayed. This is probably why. 
 
+There was another Jesuit named Jean Hardouin who said that a 14th Century conspiracy forged practically all literature traditionally believed to have been written before that era. He was the official librarian to the King of France. He published a book called the Prolegomena, and it caused such controversy that the Pope and the King had him come before them and explain himself. He defended his work, and refused to retract it, so they threw him in jail. 
+
 1 In the Shahnameh, Dara (Darius) is said to have married the daughter of Philip of Macedon, and was the father of Alexander. Dara's father is said to be Bahman, and his uncle Sasan (the progenitor of the Sassanians). This same basic story is told several centuries earlier in the Kar-namag e Ardashir. \
 --<a href="https://en.wikipedia.org/wiki/Kay_Bahman">https://en.wikipedia.org/wiki/Kay_Bahman</a>
 
@@ -164,7 +166,7 @@ Read more
 <a href="https://unz.com/article/how-long-was-the-first-millenium/">https://unz.com/article/how-long-was-the-first-millenium/</a>\
 <a href="https://q-mag.org/gunnar-heinsohns-latest.html">https://q-mag.org/gunnar-heinsohns-latest.html</a>\
 <a href="https://stolenhistory.net/threads/79-a-d-no-more-pompeii-got-buried-in-1631.113">https://stolenhistory.net/threads/79-a-d-no-more-pompeii-got-buried-in-1631.113</a>\
-<a href="https://stolenhistory.net/threads/the-history-of-rome-has-no-surviving-sources.2057">https://stolenhistory.net/threads/the-history-of-rome-has-no-surviving-sources.2057</a>\>\
+<a href="https://stolenhistory.net/threads/the-history-of-rome-has-no-surviving-sources.2057">https://stolenhistory.net/threads/the-history-of-rome-has-no-surviving-sources.2057</a>\\
 Isssue with Dark Ages by Anatoly Fomenko:\
 <a href="https://files.catbox.moe/81aj7z.epub">https://files.catbox.moe/81aj7z.epub</a>\
 <a href="https://files.catbox.moe/053lko.pdf">https://files.catbox.moe/053lko.pdf</a>\
