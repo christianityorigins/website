@@ -37,7 +37,7 @@ A non-mainstream version of history, but one that is recorded in
     [5], The life of Alexander of Macedon [6], and Alexander the
     Great: Beyond the Divide by Charles N. Pope [7].
 
-Bubares (https://en.wikipedia.org/wiki/Bubares) was a Persian prince who married Alexander's sister. They had a son named Amyntas (son of Bubares) (https://en.wikipedia.org/wiki/Amyntas_(son_of_Bubares)). Futher down the line there was an Amyntas Nikator aka Amyntas of Galatia (https://en.wikipedia.org/wiki/Amyntas_of_Galatia) who ruled an empire that strecged from modern day Turkey through India. [[link](https://ranajitpal-jesus-from-asia-minor.blogspot.com/2011/06/jesus-christ-was-amyntas-of-galatia_20.html)])
+Bubares (https://en.wikipedia.org/wiki/Bubares) was a Persian prince who married Alexander's sister. They had a son named Amyntas (son of Bubares) (https://en.wikipedia.org/wiki/Amyntas_(son_of_Bubares)). Further down the line there was an Amyntas Nikator aka Amyntas of Galatia (https://en.wikipedia.org/wiki/Amyntas_of_Galatia) who ruled an empire that streched from modern day Turkey through India. [[link](https://ranajitpal-jesus-from-asia-minor.blogspot.com/2011/06/jesus-christ-was-amyntas-of-galatia_20.html)])
 
 Amyntas Nikator aka Amyntas of Galatia was married to Stratonice who was the sister of Asander, king of Bosphorus (who I identify as Julius Caesar's real identity). He was also the cousin of Dynamis, Asander's wife who I identify as Celopatra's real identity.
 
