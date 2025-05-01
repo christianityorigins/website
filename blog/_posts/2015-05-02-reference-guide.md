@@ -78,7 +78,7 @@ Europe
 
 Most of what we know of Roman history comes from Herodotus (aka The Father of Lies), and the other half from Cassius Dio.
 
-Two other men are responsible for most of what we know of the rest of European history: Joseph Justus Scalinger Scaliger was the Jesuit who "authored" most texts historians use today (possibly had scribes), and Poggio Bracciolini was the guy who collected documents for him and even forged them (there are preserved letters from Bracciolini arranging a forgery with a remote monastery).
+Two other men are responsible for most of what we know about the rest of European history: Joseph Justus Scalinger Scaliger was the Jesuit who "authored" most texts historians use today (possibly had scribes), and Poggio Bracciolini was the guy who collected documents for him and even forged them (there are preserved letters from Bracciolini arranging a forgery with a remote monastery).
 
 Ancient Rome in Italy, in its surviving monuments and buildings, was a Middle Ages construction. The "first Rome" was based out of Anatolia [2]. The Latin
     language likely derives from the Dacian language which was spoken by
@@ -163,6 +163,7 @@ Most ancient history as it is taught today was filterd through the Jesuits. Most
 
 2 <a href="https://www.unz.com/article/how-fake-is-roman-antiquity/">https://www.unz.com/article/how-fake-is-roman-antiquity/</a>  
 -- <a href="https://www.unz.com/article/how-fake-is-church-history/">https://www.unz.com/article/how-fake-is-church-history/</a>
+-- <a href="https://www.unz.com/article/how-fake-is-church-history/">https://www.unz.com/article/how-long-was-the-first-millenium</a>
 
 3 According to Strabo (II.5.12), by the time of Augustus, up to 120 ships were setting sail every year from Myos Hormos to India:  
 "At any rate, when Gallus was prefect of Egypt, I accompanied him and ascended the Nile as far as Syene and the frontiers of Ethiopia, and I learned that as many as one hundred and twenty vessels were sailing from Myos Hormos to India, whereas formerly, under the Ptolemies, only a very few ventured to undertake the voyage and to carry on traffic in Indian merchandise." — Strabo II.5.12.  
