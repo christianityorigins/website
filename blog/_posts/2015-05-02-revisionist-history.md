@@ -18,7 +18,7 @@ Alexander finished his conquest of India and continued on throughout China. Only
 
 A non-mainstream version of history, but one that is recorded in
     Persian ('Iskandarnameh', or Book of Alexander and 'Shahnameh') and Islamic sources [1], is that Alexander the Great was a
-    Persian prince named Bupares who was the son of Artaxerxes
+    Persian prince named Bubares who was the son of Artaxerxes
     II Memnon (Kai Bahman), half brother of "Dara" (Darius III), and that Macedon
     was a province of Persia that his father was governor of.
     Alexander's father Philip of Macedon was Artaxerxes II Memnon's
@@ -126,7 +126,8 @@ Most ancient history as it is taught today was filterd through the Jesuits. Most
 There was another Jesuit named Jean Hardouin who said that a 14th Century conspiracy forged practically all literature traditionally believed to have been written before that era. He was the official librarian to the King of France. He published a book called the Prolegomena, and it caused such controversy that the Pope and the King had him come before them and explain himself. He defended his work, and refused to retract it, so they threw him in jail. 
 
 1 In the Shahnameh, Dara (Darius) is said to have married the daughter of Philip of Macedon, and was the father of Alexander. Dara's father is said to be Bahman, and his uncle Sasan (the progenitor of the Sassanians). This same basic story is told several centuries earlier in the Kar-namag e Ardashir. \
---<a href="https://en.wikipedia.org/wiki/Kay_Bahman">https://en.wikipedia.org/wiki/Kay_Bahman</a>
+--<a href="https://en.wikipedia.org/wiki/Kay_Bahman">https://en.wikipedia.org/wiki/Kay_Bahman</a>\
+--Artaxerxes II Memnon was married to Stateira. Alexander was also married to a Stateira who was sometimes called Barsine. Barsine and Berenice are different forms of the Persian name Barsina. The Persian name Roshanak is translated as Barsina, so the names Barsine and Berenice are both related to the Roxana, which was the name of Alexander's Persian wife. Barsine's father Artabazus was Satrap (govenor) of Phrygia (in west-central Anatolia).
 
 2 <a href="https://babel.hathitrust.org/cgi/pt?id=mdp.39015046413939&seq=7">https://babel.hathitrust.org/cgi/pt?id=mdp.39015046413939&seq=7</a>
 
