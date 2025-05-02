@@ -9,7 +9,7 @@ category: blog
 
 ### Revisionist History
 
-I am interested in revisionist history. These are some of my research notes that I will expand on eventually.
+I am interested in revisionist history. These are some of my notes that I will expand on eventually.
 
 Alexander the Great
 
@@ -55,6 +55,8 @@ title "King of Kings". Her uncle was Mithridates 'Chrestus'
 
 China
 
+The Tarim basin mummies are Tocharians, and the Kizilgaha cave portraits deprict redheaded "Chinese" people. Genetic studies show that indegenous people of Linzi in south east China were genetically more similar to Europeans than modern Chinese (https://eurogenes.blogspot.com/2017/07/north-european-admixture-in-han-chinese.html).
+
 Qin was founded by Greco-Bactrians and Seleucid "Greek" diaspora, it starts right exactly around the Greco-Bactrian city states era in Central Asia, it was started by people coming from the West right exactly bordering Central Asia during Greco-Bactrian rule, DA-QIN meaning BIG OR GREATER QIN as a word name term was used to refer to the Roman empire during the "Han dynasty" that came after Qin dynasty which means the QIN people had to have been Greco-Bactrian Seleucids since they equated with Roman type people and they came from the farthest West direction. Greek style coins and statues have been found from this time period, and the terracotta army was built by Greeks from Central Asia [8], to this day the Chinese currency which came about formally during Qin dynasty era is called a YUAN which is another name for YON-IONIAN Greeks etc. 
 
 China had no chronology until the Jesuits came to the Emperor's court. Their oldest "ancient" records date from this period. Stone inscriptions and bronze engravings and a few bamboo slips survive from older times, but they were never arranged into a consistent chronology. If you read the Bellum Tartaricum, a pre-edit Jesuit source, it gives a very different chronology as well as info about the white Slav-like race known as the Tartarians, their rulers and their wars with China.
@@ -62,6 +64,12 @@ China had no chronology until the Jesuits came to the Emperor's court. Their old
 Mateo Ricci was the one who wrote the Art of War.
 
 The modern "Han Chinese" are not infact "Chinese" ("Chinese" is a identity concept fabricated and conjured up by Jesuits) but are infact Miao-Hmong people. Mao-tse Dong used artificial weaponized famines and outright direct purges to direct human wave attacks in the Korean war to mass kill off original Scythian Tartar Turanian stock authentic real "Chinese" populations which is continuing today with the genocide and ethnic cleansing of the Uighurs and Mongolians whom are far more genetically ancestrally connected and linked to the original real actual ancient "Chinese" rather than a vast majority of modern "Han Chinese" whom are actually Miao-Hmong or Miao-Tse or Hmong or Yao or other southern origin non-"Chinese" group pretending to be "Chinese"
+
+The An Lushan rebellion was an ethnic war, mongoloids vs caucasoids which resulted the the slaughter of millions of caucasians. The Xianbei were mongoloids and and helped rape and sexually enslave Indo Europeans in China in the An Lushan rebellion. Goguryeo Korean general Gao Juren in the Tang dynasty committed genocide and rape against An Lushan's community after defeating An Lushan at his headquarters in Fanyang (Beijing).
+
+Similarly, Ran Min slaughtered and committed genocide on the entire Caucasian Jie people who were native to Chin.
+
+The Manchus had the Central Asian Indo-European children castrated. Manchu officials ordered British and American sailors who violated rules in ports executed before the Opium wars and had British and Indian sailors on the Nerbudda mass executed. The Manchus castrated and sliced up Indo-european Caucasians. The Manchus also raped caucasian women.
 
 Europe
 
@@ -149,8 +157,8 @@ There was another Jesuit named Jean Hardouin who said that a 14th Century conspi
 -- <a href="https://www.history.com/news/greeks-may-have-influenced-chinas-terra-cotta-army">https://www.history.com/news/greeks-may-have-influenced-chinas-terra-cotta-army</a>  
 -- <a href="https://en.wikipedia.org/wiki/Terracotta_Army">https://en.wikipedia.org/wiki/Terracotta_Army</a>
 
-9 <a href="https://www.unz.com/article/how-fake-is-roman-antiquity/">https://www.unz.com/article/how-fake-is-roman-antiquity/</a>  
--- <a href="https://www.unz.com/article/how-fake-is-church-history/">https://www.unz.com/article/how-fake-is-church-history/</a>
+9 <a href="https://www.unz.com/article/how-fake-is-roman-antiquity/">https://www.unz.com/article/how-fake-is-roman-antiquity/</a> \ 
+-- <a href="https://www.unz.com/article/how-fake-is-church-history/">https://www.unz.com/article/how-fake-is-church-history/</a>\
 -- <a href="https://www.unz.com/article/how-fake-is-church-history/">https://www.unz.com/article/how-long-was-the-first-millenium</a>
 
 10 According to Strabo (II.5.12), by the time of Augustus, up to 120 ships were setting sail every year from Myos Hormos to India:  
@@ -173,3 +181,9 @@ Isssue with Dark Ages by Anatoly Fomenko:\
 <a href="https://files.catbox.moe/053lko.pdf">https://files.catbox.moe/053lko.pdf</a>\
 History: Fiction or Science Vol. I by Anatoly Fomenko:\
 <a href="https://archive.org/details/bub_gb_YcjFAV4WZ9MC">https://archive.org/details/bub_gb_YcjFAV4WZ9MC</a>
+China:
+<a href="https://desuarchive.org/his/thread/10105977#p10106085">https://desuarchive.org/his/thread/10105977#p10106085</a><br>
+<a href="https://desuarchive.org/his/thread/10086459#p10087791">https://desuarchive.org/his/thread/10086459#p10087791</a><br>
+<a href="https://archived.moe/his/thread/9085500#p9086505">https://archived.moe/his/thread/9085500#p9086505</a><br>
+<a href="https://desuarchive.org/his/thread/10105977#p10106467">https://desuarchive.org/his/thread/10105977#p10106467</a><br>
+<a href="https://desuarchive.org/his/thread/9469475#09469707">https://desuarchive.org/his/thread/9469475#09469707</a>
