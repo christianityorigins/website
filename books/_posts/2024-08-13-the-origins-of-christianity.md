@@ -463,11 +463,38 @@ Endnotes (Chapter 7)
 
 (a) Marcion of Sinope aka Markianos of Alexandria grew up in the Attis-Sabazios cult on Anatolia before traveling to Judea to study under rabbi Akiva and finally to Alexandria at the Alexandrian School.
 
-(b) There was a Marcus who founded the Marcosian Gnostic sect. He was a teacher of Bishop Irenaeus and a friend of Clement of Alexandria. Was he also Marcion of Sinope aka Markianos of Alexandria? (https://en.wikipedia.org/wiki/Marcus_%28Marcosian%29). St. Jerome in "Against Jovinian" describes Mark as a disciple of the Gnostic teacher Basilides. Here is a list of "Marks" who were active around the same time: Mark, the Evangelist, John Mark, Mark of Apollonias, Markianos of Alexandria, Mahalia, Marcus of Jerusalem, Marcus Pompeius, Marcus the Magician, Marcion of Sinope, Marcus the Marcosian. Mark of Apollonias, John Mark, Mark the cousin of Barnabas, and Mark the Apostle are considered to be the same person by historians, so it is conciveable that all these "Marks" were the same person.
+(b) There was a Marcus who founded the Marcosian Gnostic sect. He was a teacher of Bishop Irenaeus and a friend of Clement of Alexandria. Was he also Marcion of Sinope aka Markianos of Alexandria? (https://en.wikipedia.org/wiki/Marcus_%28Marcosian%29). St. Jerome in "Against Jovinian" describes Mark as a disciple of the Gnostic teacher Basilides. Here is a list of "Marks" who were active around the same time: Mark, the Evangelist, John Mark, Mark of Apollonias, Markianos of Alexandria, Mahalia, Marcus of Jerusalem, Marcus Pompeius, Marcus Annaeus Lucanus, Marcus the Magician, Marcion of Sinope, Marcus the Marcosian. Mark of Apollonias, John Mark, Mark the cousin of Barnabas, and Mark the Apostle are considered to be the same person by historians, so it is conciveable that all these "Marks" were the same person.
 
 (c) Yohai is a nickname for yochai. The name Yochai means 'YHWAH is gracius' from the Hebrew word Yochanan sometimes transcribed as Johanan. Was he also Johanan the Alexandrian? This would place him in Alexandria at the same time as Markianos of Alexandria.
 
 (d) Quintus Tineius Sacerdos, the brother of Quintus Tinnius Rufus, was the govenor of Pontus in Anatolia, so the family likely derived from there. Pilate means the temperament of a warrior I.e.: famously temperamental. That's where the name Pontius Pilate comes from.
+
+(e) Many of these jewish rabbis align with prominent Roman figures. Is it because the term "Jew" refered to the Celtic Iudii or Iudaei tribe at the time and the people that became modern jews stole their identity from here, or were the Romans attempting to subvert these people?
+
+
+-Rabbi Akiva (c. 50–135) = Epictetus (c. 50–135)? Epictetus was the slave to Nero's scribe Tiberius Claudius Epaphroditus or Epaphroditos (c. 20–25 – died c. 95). Epictetus had a Roman teacher named Gaius Musonius Rufus (c. 20-30-died c. 101) who was a Roman Stoic philosopher. Gaius Musonius Rufus was also a teacher of Dio Chrysostom (c. 40 – c. 115 AD). Josephus opened his book "Jewish Wars" and "History of the Jews" (Antiquities) by addressing them to: "kratistos (most excellent) Epaphroditus". Epictetus had a hand in writing the new testament (See: "Epictetus and the New Testament" by Douglas Simmonds Sharp (1914)). Epicteus and Pilny the Younger were both in the same places at the same time; Rome, Nicopolis, and Bithynia-Pontus, and Pliny the Younger was a Roman administrator in Bithynia and Pontus at the same time Marcion was in Sinope.
+
+-Gamaliel/St. Gamaliel (Paul's teacher) = Tiberius Gemellus, grandson
+    of Emperor Tiberius and a cousin of Emperor Caligula. (The Aramaic
+    word Gemel means "twin", in Latin it is Gemellus, and in Hebrew it's
+    Gamaliel). He was a student of Herod Agrippa who was King Herod's
+    grandson (Antiquities of the Jews, Flavius Josephus. Chapter 6).
+    Gamaliel was the father of Jesus ben Gamala/Gamaliel aka Jesus ben
+    Sapphias who was also King Izas Ma'nu (Jesus Emmanuel) Monobazus of
+    Adiabene.
+
+-Bishop Ignatius of Antioch (-natius in Latin refers to "youth") = Pliny the Younger (Gaius Plinius Caecilius Secundus). He was also Polycarp (Ignatius means "fiery one" and Polycarp was famous for setting himself on fire). Likely also Paul the Apostle (either him or Rabbi Akiva (Epictetus)). He was also Pope Linus (just drop the P from his name Plinius).
+
+-St. Peter = Publius Petronius (father-in-law of emperor Vitellius
+    who I identify as Vespasian's older brother Titus Flavius Sabinus.
+    
+-Markianos of Alexandria aka Marcion of Sinope = Marcus Annaeus Lucanus who was a nephew and student of Seneca the Younger. 
+
+-One other student of rabbi Akiva was Ketia bar Shalom which was the jewish name of Titus
+Flavian Clemens, who was the nephew of emperor Domitian. Titus
+Flavian Clemens is a likely candidate for being 'Clement of Rome'. Rabbi
+Akiva's other student was Rabbi Meir who the Talmud (Gittin 56a) claims
+was a grandson of emperor Nero.
 
 _Appendix A: The Symbol of the Cross_
 
