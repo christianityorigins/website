@@ -65,7 +65,7 @@ Mateo Ricci was the one who wrote the Art of War.
 
 The modern "Han Chinese" are not infact "Chinese" ("Chinese" is a identity concept fabricated and conjured up by Jesuits) but are infact Miao-Hmong people. Mao-tse Dong used artificial weaponized famines and outright direct purges to direct human wave attacks in the Korean war to mass kill off original Scythian Tartar Turanian stock authentic real "Chinese" populations which is continuing today with the genocide and ethnic cleansing of the Uighurs and Mongolians whom are far more genetically ancestrally connected and linked to the original real actual ancient "Chinese" rather than a vast majority of modern "Han Chinese" whom are actually Miao-Hmong or Miao-Tse or Hmong or Yao or other southern origin non-"Chinese" group pretending to be "Chinese"
 
-The An Lushan rebellion was an ethnic war, mongoloids vs caucasoids which resulted the the slaughter of millions of caucasians. The Xianbei were mongoloids and and helped rape and sexually enslave Indo Europeans in China in the An Lushan rebellion. Goguryeo Korean general Gao Juren in the Tang dynasty committed genocide and rape against An Lushan's community after defeating An Lushan at his headquarters in Fanyang (Beijing).
+The An Lushan rebellion was an ethnic war, mongoloids vs caucasoids which resulted the slaughter of millions of caucasians. The Xianbei were mongoloids and helped rape and sexually enslave Indo Europeans in China in the An Lushan rebellion. Goguryeo Korean general Gao Juren in the Tang dynasty committed genocide and rape against An Lushan's community after defeating An Lushan at his headquarters in Fanyang (Beijing).
 
 Similarly, Ran Min slaughtered and committed genocide on the entire Caucasian Jie people who were native to Chin.
 
@@ -101,7 +101,7 @@ Charlemagne was not a real person, but one of the phantom individuals the Cathol
     to fill in their phantom 1000 years and Charlemagne is based on a
     real-life man known as Odoacer. Plato and Gemistus Plethon were one
     and the same person. Genghis Khan and Attila The Hun were the same person.
-    The Black Plague / Great Plague / Black Death / Bubonic Plague (it's
+    The Black Plague/Great Plague/Black Death/Bubonic Plague (it's
     a copy to fill in the phantom 1000 years of supposed "Dark Ages") is
     exactly the same event as the Justinian Plague. The Trojan War and the Crusades were the same conflict. 
 
