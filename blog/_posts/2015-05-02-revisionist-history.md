@@ -109,14 +109,13 @@ India
 
 The Harappan civilization (Indus Valley civilization) was founded by Neolithic (Med) people from Iran. The "Aryan invasion into India" theory probably never happened. The R1a haplotye, Sanskrit language (Avestan language that was Hellinized), and Vedism (Druidism) came from the Persians and Greeks (who military would have been mostly Dorians).
 
-
 Alexander the Great = Chandragupta (Alakshandra is a Sanskritized translation of Alexander and Gupta means guardian or protector in Sanskrit, the exact meaning of Alexander). [<a href="https://www.academia.edu/40074507/ALEXANDER_AND_CHANDRAGUPTA_IN_A_SANSKRIT_DRAMA" rel="nofollow" target="_blank">link</a>]
 
 Diodotus I Soter = Ashoka the Great. [<a href="https://www.academia.edu/695219/Diodotus_I_was_Ashoka_An_Altar_of_Alexander_Now_Standing_Near_Delhi" rel="nofollow" target="_blank">link</a>]
 
 The name Abaris or Abharas, from Abaris the Hyperborian, the teacher of Pythagoras, derives from the Old Irish word abhar, which means chief or noble and was a generic term for Druid or Chief Druid. Abharas is also related to the Sanskrit word Bhārata, a legendary king in the Vedas. Bhārata is at the root of the word Bharatvarsha which is a term that is used to refer to the Indian subcontinent as a whole. 
 
-Alexander the Great was the "Ram god" who is Ramas in the Vedas.
+Alexander the Great was the "Ram god" who is Ramas in the Vedas (https://en.wikipedia.org/wiki/Horns_of_Alexander. Alexander is also identified as the Islamic prophet Dhu al-Qurnayn - He of Two Horns. His name comes from coins depicting him as Zeus Ammon, a two-horned pagan god).
 
 Up to 2000 years ago Indians were a Neolithic and Aryan race.
 
