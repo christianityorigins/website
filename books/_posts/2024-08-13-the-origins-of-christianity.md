@@ -488,7 +488,7 @@ Endnotes (Chapter 7)
 -St. Peter = Publius Petronius (father-in-law of emperor Vitellius
     who I identify as Vespasian's older brother Titus Flavius Sabinus.
     
--Markianos of Alexandria aka Marcion of Sinope = Marcus Annaeus Lucanus who was a nephew and student of Seneca the Younger. 
+-Markianos of Alexandria aka Marcion of Sinope = Marcus Annaeus Lucanus who was a nephew and student of Seneca the Younger (Marcus Annaeus Mela was another nephew of Seneca the Yonger).
 
 -One other student of rabbi Akiva was Ketia bar Shalom which was the jewish name of Titus
 Flavian Clemens, who was the nephew of emperor Domitian. Titus
