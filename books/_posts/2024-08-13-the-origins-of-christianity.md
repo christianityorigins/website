@@ -295,6 +295,10 @@ Endnotes (Chapter 2)
     by Ranajit Pal
     https://www.academia.edu/695219/Diodotus_I_was_Ashoka_An_Altar_of_Alexander_Now_Standing_Near_Delhi
     [[link](https://www.academia.edu/695219/Diodotus_I_was_Ashoka_An_Altar_of_Alexander_Now_Standing_Near_Delhi)]). This would mean that Alexander completed his conquest of India and then adopted a local identity. So, India was under Greek rule since Alexander. Being the king of a region populated by Gauls, Amyntas of Galatia's religion would have been Druidism. The ancient Vedas are just the eastern branch of Druidism (https://www.academia.edu/13113385/Druidism_and_Vedism_Compared). The name Abaris or Abharas, from Abaris the Hyperborian, the Druid teacher of Pythagoras, derives from the Old Irish word abhar, which means chief or noble and was a generic term for Druid or Chief Druid. Abharas is also related to the Sanskrit word Bhārata, a legendary king in the Vedas. Bhārata is at the root of the word Bharatvarsha which is a term that is used to refer to the Indian subcontinent as a whole. 
+
+(b) Suetonius (Divus Julius 88) notes Caesar's comet or 'Julian Star'
+    (or Sidus Iulium) rose during his funeral games, interpreted as his
+    soul's ascent---eerily similar to Christ's resurrection narrative.
     
 #### 3 Flavian Dynasty \
 
@@ -324,9 +328,8 @@ sister).
 
 Endnotes (chapter 3)
 
-(a) Suetonius (Divus Julius 88) notes Caesar's comet or 'Julian Star'
-    (or Sidus Iulium) rose during his funeral games, interpreted as his
-    soul's ascent---eerily similar to Christ's resurrection narrative.
+(a) Theory: Alexander (grandson of King Herod) aka Gaius Julius Alexander, Herodian Prince of Judaea aka Alexander Lysimachus aka Alexander the Alabarch aka Tiberius Julius Alexander Major aka (King/Tetrarch) Ptolemy (Alexander) bar Menneus aka Ptolemy of Mauretania was also the Roman general 'Gnaeus Domitius Corbulo'. Gnaeus Domitius Corbulo conquered Armenia alongside Tiberius Julius Alexander (his son Tiberius Julius Alexander aka Arrius Calpernius Piso aka Arrius Varus aka Tiberius Julius Cotys aka Emperor Nerva), after which, Tigranes VI (Tiberius Julius Alexander) was instilled as king. Compare his bust [link] to the famous 'Josephus' (Tiberius Julius Alexander) bust [link]. Notice a resemblance? If this is correct, then he (Alexander) would have been the brother-in-law to Caligula and father-in-law to Domitian. Tiridates of Armenia (who would have been Mithridates Chrestus' great-great-grandson) was the one who spread the religion Mithraism which was a syncretic a slave-morality religion to subjugate the Parthians. Mithras is inspired from Zoroastrianism, the religion of the Persians/Parthians, but Mithras is the same as Sabazios. It’s a solar son deity, a Jupiter. 
+
 (b) Mithridates VI Eupator was a direct descendant of Ptolemy II Philadelphus (Ptolemy II Philadelphus (285-246 BCE) married Arsinoe I, and they had a daughter, Berenice Syra. Berenice Syra married Antiochus II Theos, a Seleucid king, and they had a son, Seleucus II Callinicus. Seleucus II Callinicus (246-225 BCE) married Laodice II, and they had a daughter, Laodice III. Laodice III married Mithridates III of Pontus, and they had a son, Pharnaces I of Pontus. Pharnaces I of Pontus (190-155 BCE) married Nysa, and they had a son, Mithridates V of Pontus. Mithridates V of Pontus (150-120 BCE) married Laodice VI, and they had a son, Mithridates VI Eupator (120-63 BCE)). Some historians believe that Ptolemy II Philadelphus was Alexander the Great's biological son who was raised by Ptolemy I Soter. Statues of Alexander and Ptolemy II Philadelphus look strikingly like father and son. Ptolemy I Soter married Alexanders mistress Thaïs, and his other wife Berenice had the same name as Barsine who was another mistress of Alexander. Barsine and Berenice are different forms of the Persian name Barsina. The Persian name Roshanak is translated as Barsina, so the names Barsine and Berenice are both related to the Roxana, which was the name of Alexander's Persian wife. This would make Asander (whose name is an obvious reference to Alexander) and Dynamis Alexander's heirs.
 
 #### 4 Rome on the Bosphorus?
