@@ -29,7 +29,7 @@ Part Two: Nietzschean Mechanisms of Subversion
 4 Nietzschean 'Slave Morality' \
 5 Survival of the Weakest: Inverting Natural Selection \
 6 Nietzschean 'Ressentiment' (Weaponizing the "Chandala" Castes)\
-Part Three: Domestication Through Social Control\
+Part Three: Tools of Herd Domestication\
 Part Four: Secularization of Christianity\
 7 Marxism is Secularized Christianity\
 8 Marxist Denominations\
@@ -104,7 +104,7 @@ Universalism, the transvaluation of traditional ethnic values, monotheism (good 
 
 See also: [Ressentiment](https://en.wikipedia.org/wiki/Ressentiment), [Conflict Theory](https://en.wikipedia.org/wiki/Conflict_theories), and [Class Conflict](https://en.wikipedia.org/wiki/Class_conflict)
 
-Part Three: Domestication Through Social Control\
+Part Three: Tools of Herd Domestication\
 
 While Christianity empowers the 'chandala' caste through universalism and the 'transvaluation of values', thereby elevating them to a position of authority over the aristocratic and warrior castes, it also functions as a system of domestication. This system is designed to instill fear, self-loathing, and a loss of autonomy in its adherents, while fostering feelings of guilt, shame, and intellectual apathy. By discouraging critical thinking and intellectual curiosity, which are seen as threats to faith, Christianity can create a culture that devalues learning and promotes a mentality of subservience (this is the reason why every Christian white trash town is filled with people whose culture is built around a contempt for learning) (13). Furthermore, this system can lead to a disconnection from one's ancestral heritage and genetic identity. Ultimately, it seeks to create a population that is obedient and submissive, with a subconscious affinity for Jewish culture. It does this through:
 
@@ -116,6 +116,7 @@ While Christianity empowers the 'chandala' caste through universalism and the 't
 *   Emphasis on Suffering: Christian narratives focus on the suffering of Christ and the martyrs which glorifies weakness and passivity making it seem more virtuous to endure suffering than to overcome it. This is a way for the the oppressed to find validation in their hardships.
 *   Group polarization (15).
 *   Guilt and shame: Instilling guilt and shame complexes from birth and then offering a program of "salvation" to cleanse you of that guilt and shame (through working against your own tribal and familial interests). Christians are brainwashed into believing that they are sinners (there are dozens of types) and that they were born with Original Sin (sin you inherit from simply being born). The result of this is a pathological need to seek approval from others. This need for approval is a pathology similar to what is sometimes found in battered women who are sure that if they show their abuser how good they’re being the abuser will cease his abuse.
+*   Salvation through submission: Christianity boils down to "believe in Jesus and you win". This world is only a temporary test, which is why Jesus explicitly says "do not resist evil". Anyone who believes in Jesus will be eternally rewarded when they die. It doesn't matter if this world is destroyed by evil, sinners will be punished one day, and Jesus will eventually fix everything.
 *   Humility, self-denial, and ascetic ideal: Christianity exalts humility and self-denial as virtues. These values encourage individuals to reject their innate desires for power and achievement. By promoting meekness and self-abnegation, Christianity suppresses the natural inclination to assert oneself and strive for greatness. This leads to a passive and submissive attitude, undermining one's potential for growth and excellence. This is designed to suppress the "will to power" and control the masses.
 *   Moral absolutism: The insistence on absolute moral truths fosters a binary worldview, reducing complex human experiences into simplistic categories of good and evil. This moral absolutism undermines the individual's ability to navigate ethical dilemmas through personal judgment.
 *   Learned helplessness: no matter how enslaved and exploited you are you shouldn't resist because a savior will eventually come rescue you if you pray hard enough, and if a savior doesn't come, you will be rewarded when you die.
