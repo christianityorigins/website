@@ -36,7 +36,7 @@ _Footnotes_
 
 #### Introduction
 
-To maintain control over their subjects, imperial powers in antiquity employed a variety of strategies as part of their colonial program, including the creation of slave-morality cults, fictional stories, faked deaths and adoptions, and an endless series of regional alias, to subjugate a population to their aristocratic rule and to prevent rebellions. In Sumer, the rulers were all priests, whereas in Egypt, the Pharaohs claimed to be sons of gods. It was in Egypt with Atenism, which was a religion to deify Pharaoh Akhenaten, where monotheism was first emerges. The collectivization of divine authority with monotheism reinforces a universal morality and everything becomes collectivized with the centralization of power. This makes a group easier to control and is why monotheism mirrors autocratic governance. The Persians also deified their leaders, promoted monotheism (Zoroastrianism), and even took it a step further by incorporating a very powerful slave-morality religion into their imperial cult as part of their colonial program. They created Buddhism, with Gautama Buddha being Gaumata Bardya, the son of Cyrus the Great, who governed the Persian province of Bactra. The Greeks followed this forumla with the Ptolemaic cult of Alexander and the Serapis cult. Serapis was a universal composite deity created by blending the Egyptian gods Osiris and Apis with the Greek god Zeus (and others) to resonate with the multicultural society that Ptolemy I envisioned for Egypt. The Romans adopted this formula and established their own imperial cults. These imperial powers maintained their empires through religious syncretism and slave-morality religions, which stripped the population of their will to power. Christianity is a relic of one of these imperial slave moralities which itself was subverted by a confederaion of rabbis after the Bar Kokhba Revolt (132--136 CE).
+To maintain control over their subjects, imperial powers in antiquity employed a variety of strategies as part of their colonial program, including the creation of slave-morality cults, fictional stories, faked deaths and adoptions, and an endless series of regional alias, to subjugate a population to their aristocratic rule and to prevent rebellions. In Sumer, the rulers were all priests, whereas in Egypt, the Pharaohs claimed to be sons of gods. It was in Egypt with Atenism, which was a religion to deify Pharaoh Akhenaten, where monotheism first emerges. The collectivization of divine authority with monotheism reinforces a universal morality and everything becomes collectivized with the centralization of power. This makes a group easier to control and is why monotheism mirrors autocratic governance. The Persians also deified their leaders, promoted monotheism (Zoroastrianism), and even took it a step further by incorporating a very powerful slave-morality religion into their imperial cult as part of their colonial program. They created Buddhism, with Gautama Buddha being Gaumata Bardya, the son of Cyrus the Great, who governed the Persian province of Bactra. The Greeks followed this forumla with the Ptolemaic cult of Alexander and the Serapis cult. Serapis was a universal composite deity created by blending the Egyptian gods Osiris and Apis with the Greek god Zeus (and others) to resonate with the multicultural society that Ptolemy I envisioned for Egypt. The Romans adopted this formula and established their own imperial cults. These imperial powers maintained their empires through religious syncretism and slave-morality religions, which stripped the population of their will to power. Christianity is a relic of one of these imperial slave moralities which itself was subverted by a confederaion of rabbis after the Bar Kokhba Revolt (132--136 CE).
 
 Note on aliases: I believe that the royal elites in antiquity role-played as if they were characters in a play, and they used aliases and fictional deaths as story patterns or archetypes. They killed off one character then assumed the role of another one in a different location. For example, the governor of Roman Egypt from 33 CE to 38, Aulus Avillius Flaccus, was also Polemon II of Pontus who was the prince of the Bosporan, Pontus, Cilicia, and Cappadocia, which was the regional alias of Emperor Titus. The character of Aulus Avillius Flaccus dies at the same time Polemon II of Pontus takes power and then Polemon II of Pontus dies around the same time Titus becomes emperor. The way of connecting them is through the fact that they were all married to the same woman, Berenice, grandaughter of King Herod.
 
@@ -712,7 +712,7 @@ _Footnotes_
     king of judaea around the time of Mark Antony's "suicide". This is
     typical for these elites, they would kill off one character and then
     assume another one in a different location as if they were actors in
-    a play
+    a play.\
     --The Shekel of Tyre that King Herod minted depicts Mark Antony and
     an image of Hercules:
     https://www.forumancientcoins.com/numiswiki/view.asp?key=tyrian%20shekels
@@ -728,8 +728,8 @@ _Footnotes_
     Caligula and Claudius were descendants of Antonia I. Probably
     Antonia I and/or II was the sister of Herod the Great called Salome.
     Probably there is also a connection between "Costabar" husband of
-    Salome and the Roman "Ahenobarbus" who married Antonia I. --Mark
-    Antony (King Herod) = Tiberius Claudius Nero. The way to make this
+    Salome and the Roman "Ahenobarbus" who married Antonia I.\
+    --Mark Antony (King Herod) = Tiberius Claudius Nero. The way to make this
     connection is through the equivalence of Doris the first wife of
     Herod the Great and Livia Drusilla the second wife of
     Octavius/Caesar Augustus. Augustus was first married to Scribonia,
@@ -748,7 +748,8 @@ _Footnotes_
     Ellis
     [[link](https://x.com/ralfellis/status/1809520320077803525)]).
     King Izates of Monobazus was married to the sister of Dynamis's
-    mother. --Cleopatros in Hebrew is QLPTRS and was shortened on
+    mother.\
+    --Cleopatros in Hebrew is QLPTRS and was shortened on
     inscriptions to QTRS or Katros, later mistakenly recorded as
     Cantheras. So the Jews for derogatory reasons called it as Panthera.
     ie. Jesus Panthera.
