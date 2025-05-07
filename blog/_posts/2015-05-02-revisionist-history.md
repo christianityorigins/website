@@ -99,7 +99,7 @@ Sir Isaac Newton, in his book "The Chronology of Ancient Kingdoms
     
 Charlemagne was not a real person, but one of the phantom individuals the Catholic Church made up
     to fill in their phantom 1000 years and Charlemagne is based on a
-    real-life man known as Odoacer. Plato and Gemistus Plethon were one
+    real-life man known as Odoacer. Plato and Gemistus Pletho (or Plethon) were one
     and the same person. Genghis Khan and Attila The Hun were the same person.
     The Black Plague/Great Plague/Black Death/Bubonic Plague (it's
     a copy to fill in the phantom 1000 years of supposed "Dark Ages") is
