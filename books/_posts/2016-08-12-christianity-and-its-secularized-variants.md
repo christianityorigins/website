@@ -48,8 +48,7 @@ In my book "The Origins of Christianity", I show how imperial powers of antiquit
 Introduction
 
 Every single species on earth works towards the preservation and strengthening of its bloodline, from bonobos to pin oaks to jellyfish. Every single one. It is only through the domesticating forces of universal religions (Buddhism, Christianity, and Islam) that man has been able to 'overcome' these natural and deep biological drives and act in ways that are neutral or actually harm the reproductive success of his genes and offspring. Because of these universalizing religions, western man is an animal in the process of domestication. \
-        The first part of this book explains how the Christian slave morality works and is heavily dependent upon the work of Friedrich Nietzsche, and the second part explains how Leftism and Marxism are Christianity's atheist-compatible sects.  \
-&nbsp;&nbsp; &nbsp;&nbsp;&nbsp;&nbsp;         Essentially, the christian slave morality system is designed to transvaluate a groups ethnic values so that the weak, debased, and traitorous become the nobility. Weaponizing the outcastes is how the system gains power and becomes self-regulating, and is why it is such a powerful divide-and-conquer Trojan Horse religion. 
+&nbsp;&nbsp; &nbsp;&nbsp;&nbsp;&nbsp;         Part One of this book examines Christianity’s foundational mechanisms—monotheism, universalism, and sin, and how these three concepts empower the weak, debased, and the traitorous to become the nobility. Weaponizing the outcastes is how the system becomes self-regulating. Part Two applies Nietzsche’s concepts to reveal how these mechanisms act as domestication sysyem that subverts the strong. Part Three details the tools of domestication, Part Four traces Marxism’s inheritance of Christian ethics, and the Conclusion reflects on the 2000-year impact of this slave morality system. 
 
 
 Part One: The Foundations of Christian Slave Morality\
