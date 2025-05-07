@@ -24,7 +24,6 @@ Introduction\
 Part One: The Foundations of Christian Slave Morality\
 1 Monotheism and Centralized Authority\
 2 Universalism and the Erosion of Hierarchy\
-3 Sin and the Weaponization of Guilt\
 Part Two: Nietzschean Mechanisms of Subversion  
 4 Nietzschean 'Transvaluation of Values'\
 5 Nietzschean 'Slave Morality' \
@@ -70,10 +69,6 @@ _There is no longer Jew or Greek, there is no longer slave or free, there is no 
 
 Christian universalism derives from monotheism. The universalization of a group into a singular monolith not only allows a group to become top-down controlled, but it also becomes a tool of empowerment for the oppressed. Friedrich Nietzsche believed that the universalistic claims of Christianity allowed the lower classes, or "chandala" as he called them, to feel equal to the higher classes. The "all is one" doctrine incentivizes the inclusion of outcastes and when combined with an emphasis on a shared humanity and a common destiny in the afterlife this system undermines traditional social hierarchies that were traditionally based on biological kinship, intelligence, wealth, or power.  
         Christian universalism also led to ethnic erasure. The catholic church deliberately destroyed ethnic customs and beliefs to emphasize the universality of Christianity. Pre-Christian Europe was a patchwork of ethnicities, each with its own gods and traditions and christianity deliberately destroyed these ethnic bonds so that a religious identity replaced an ethnic identity. "Christendom" then became the first universalized identity that was built around a shared morality that transcended ethnic and cultural boundaries. "Christendom" was then replaced by the word "European" after the enlightenment, but that label still retained Christendom's universal nature. "European" like "Christendom" is a state and political identity, opposed to an ethnic or national identity, and the adoption of this universalist identity destroyed what little of specific ethnic European customs and traditions that were left. 
-
-3 Sin and the Weaponization of Guilt 
-
-The concept of sin, particularly Original Sin, forms a cornerstone of Christianity’s slave morality and population control system, functioning as a psychological mechanism to domesticate individuals and empower the "chandala" castes to police the strong. By declaring all humans inherently sinful from birth (Romans 5:12), Christianity instills a pervasive sense of guilt, framing existence itself as a moral failing that requires constant atonement through submission to divine authority. This guilt is weaponized through a rigid moral code, exemplified by the Ten Commandments, which lower castes wield to accuse and shame aristocratic and warrior castes for perceived transgressions, creating a self-regulating surveillance network. As Nietzsche notes in On the Genealogy of Morality, sin empowers the weak by granting them moral superiority, enabling them to judge the powerful and invert traditional hierarchies (5). The ritual of confession, a tool of herd domestication, further entrenches this system by compelling individuals to expose their thoughts, turning the "chandala" into informants who ensure conformity (Part Three). Sin’s omnipresent threat, coupled with the promise of salvation through obedience, mirrors the divide-and-conquer strategy of imperial cults, binding populations to a cycle of guilt and redemption that suppresses the will to power and maintains centralized control.
 
 Part Two: Nietzschean Mechanisms of Subversion  
 
