@@ -117,7 +117,7 @@ The name Abaris or Abharas, from Abaris the Hyperborian, the teacher of Pythagor
 
 Alexander the Great was the "Ram god" who is Ramas in the Vedas (https://en.wikipedia.org/wiki/Horns_of_Alexander. Alexander is also identified as the Islamic prophet Dhu al-Qurnayn - He of Two Horns. His name comes from coins depicting him as Zeus Ammon, a two-horned pagan god).
 
-Up to 2000 years ago Indians were a Neolithic and Aryan race.
+Up to 2000 years ago Indians were a Neolithic and Aryan race with a small minority of Australo-Melanesians existing (Denisovans, similar to Australian Aborignines).
 
 The Dravidians of India are Ethiopians who the jews imported to India via South India and Sri Lanka to work as
     slaves in the spice trade and in the marble mines. From Ethiopia it is a straight line route to Sri Lanka via
