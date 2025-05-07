@@ -25,15 +25,15 @@ Part One: The Foundations of Christian Slave Morality\
 1 Monotheism and Centralized Authority\
 2 Universalism and the Erosion of Hierarchy\
 Part Two: Nietzschean Mechanisms of Subversion  
-4 Nietzschean 'Transvaluation of Values'\
-5 Nietzschean 'Slave Morality' \
-6 Survival of the Weakest: Inverting Natural Selection \
-7 Nietzschean 'Ressentiment' (Weaponizing the "Chandala" Castes)\
+3 Nietzschean 'Transvaluation of Values'\
+4 Nietzschean 'Slave Morality' \
+5 Survival of the Weakest: Inverting Natural Selection \
+6 Nietzschean 'Ressentiment' (Weaponizing the "Chandala" Castes)\
 Part Three: Tools of Herd Domestication\
 Part Four: Secularization of Christianity\
-8 Marxism is Secularized Christianity\
-9 Marxist Denominations\
-10 Secular Christian Tenets and Ethics\
+7 Marxism is Secularized Christianity\
+8 Marxist Denominations\
+9 Secular Christian Tenets and Ethics\
 Part Five: Judaism Vs. Christianity: What do the Jews Believe?\
 Conclusion
 
@@ -72,17 +72,17 @@ Christian universalism derives from monotheism. The universalization of a group 
 
 Part Two: Nietzschean Mechanisms of Subversion  
 
-4 Nietzschean 'Transvaluation of Values' 
+3 Nietzschean 'Transvaluation of Values' 
 
 _But God chose the foolish things of the world to shame the wise; God chose the weak things of the world to shame the strong. God chose the lowly things of this world and the despised things—and the things that are not—to nullify the things that are_ - 1 Corinthians 1:26-28
 
 Friedrich Nietzsche's concept of the "transvaluation of values" is central to understanding how Christianity reshaped societal norms. This theory states that traditional christian values, which emphasize humility, selflessness, guilt and pity, were created to undermine the strong. Essentially, by redefining "good" as virtues of the "chandala", i.e., by replacing a groups aristocratic values with "chandala" values: guilt, pity, self-hate, weakness, and victimhood/oppression replace strength, pride, honor, loyalty, family, race, and tradition, etc., essentially through vilifying the powerful the lowest "chandala" castes can become the nobility. This leads to a culture that celebrates mediocrity while demonizing excellence.
 
-5 Nietzschean 'Slave Morality' 
+4 Nietzschean 'Slave Morality' 
 
 Christianity is a slave morality that is designed to suppress an individual's will to power. When an individual is unable to express their will to power in a constructive, outward manner, they redirect this energy inward, manifesting as self-destructive tendencies. This is what Friedrich Nietzsche called a "slave morality" where the individual's creative and life-affirming energies are turned against themselves. As a result, in Christianity, many people's will to power becomes directed inward, becoming satiated through masochistic self-harm. This twisted form of self-assertion can be observed in various aspects of human behavior, from the self-flagellating tendencies of Christiantiy to the equally destructive habits of self-sabotage and addiction. If the individual's will to power is unable to find an external outlet it turns inward, creating a perverse cycle of self-inflicted pain and suffering.
 
-6 Survival of the Weakest: Inverting Natural Selection \
+5 Survival of the Weakest: Inverting Natural Selection \
 
 _“Christianity has waged a war to the death against this higher type of man; it has excommunicated all the fundamental instincts of this type, it has distilled evil, the Evil One, out of these instincts—the strong human being as the typically reprehensible, the ‘reprobate.’ Christianity has taken the side of everything weak, base, ill-constituted, it has made an ideal out of opposition to the preservative instincts of strong life; it has corrupted the reason even of the intellectually strongest natures by teaching men to feel the supreme values of intellectuality as sinful, as misleading, as temptations.”_ --  Friedrich Nietzsche - The Antichrist (Section 50) 
 
@@ -92,7 +92,7 @@ High-status males in hierarchical societies (e.g., chieftains, warriors) often h
 &nbsp;&nbsp; &nbsp;&nbsp;&nbsp;&nbsp;     Over centuries, these relaxed conditions of natural selection led to traits like aggression and dominance being bred out of Europeans. \
 &nbsp;&nbsp; &nbsp;&nbsp;&nbsp;&nbsp;     This is likely the cause of the pathological altruism phenomenon that is seen in the west today. Christianity’s emphasis on charity and loving one’s enemies fostered what evolutionary psychologists call pathological altruism—self-destructive behaviors that benefit others at the expense of one’s own in-group.   
 
-7 Nietzschean 'Ressentiment' (Weaponizing the "Chandala" Castes)
+6 Nietzschean 'Ressentiment' (Weaponizing the "Chandala" Castes)
   
 Universalism, the transvaluation of traditional ethnic values, monotheism (good vs. evil), and the concept of sin exist to self-deify and weaponize the lowest castes. This allows the slaves and lower castes to feel morally and socially superior to the higher castes because of the concept of sin and set commandments of behavior.
 \
@@ -139,13 +139,13 @@ Part Four: Secularization of Christianity\
 As well as Christianity being a slave-morality system, Fredrich Nietzsche wrote that Liberalism is a secularized Christian political-theological religion (16). The Reformation coincided with the invention of the Gutenberg printing press which increased literacy and this is when a myriad of Protestant sects sprung forth: the Anabaptists, the Mennonites, the Amish, the Digger Movement, the Ranters, etc., all of whom adhered to a system of communism and preached about universalism and a utopia on earth. Marxism was one of these sects. The only difference is that Marxism was the first secularized Christian sect where the belief in a supernatural god was replaced with a belief in an omnipresent government. 
 
   
-8 Marxism is Secularized Christianity  
+7 Marxism is Secularized Christianity  
 
 _Nothing is easier than to give Christian asceticism a Socialist tinge. Has not Christianity declaimed against private property, against marriage, against the State? Has it not preached in the place of these, charity and poverty, celibacy and mortification of the flesh, monastic life and Mother Church? Christian Socialism is but the holy water with which the priest consecrates the heart-burnings of the aristocrat."_ Marx and Engels, ‘Manifesto of the Communist Party’, Selected Works, Volume 1, p 56.
   
 Marxism is a secularized Christian sect that replaces god with the government. The central organizing principle of classical Marxist economics, “from each according to his ability, to each according to his need”, was lifted verbatim from the pages of the New Testament. Communal property comes from Acts 4:32-35" "For from time to time those who owned land or houses sold them, brought the money from the sales and put it at the apostles’ feet, and it was distributed to anyone who had need". Marx's historical materialism (theory of history) is the eschatological framework of Christian orthodoxy in secularized form. Christian salvation is Marxian emancipation. The Marxist fetishization of labor mirrors Christian veneration of toil (e.g., "by the sweat of your brow"). Marxism glorifies the downtrodden as virtuous, similar to Christianity’s Beatitudes (Matthew 5:3-12). Also, Marxism is built on the philosophy of liberation and universalism (17) and preys on the impoverished and outcastes of society by promising them a future utopia through the triumph of the proletariat. Marxism, like christianity, is also dogmatic and sectarian; both exhault collectivism over individualism; both justify violence as a catalyst for social change; both prohibit private property; "take from the rich to give to the poor", and "may the last be first", etc. If you strip away the Marxian narrative you will see that at its core it is the exact same christian divide-and-conquer population control system that is designed to weaponize the resentment of the lower classes for the overthrow of society. This is not a coincidence. Influenced by his teacher Bruno Bauer who wrote extensively about how Leftism was a secular christian cult, Karl Marx approached a Christian communist group called the 'League of the Just' (18) and got them to finance him while he came up with an atheist-compatible sect of christianity.  
   
-9 Marxist Denominations
+8 Marxist Denominations
 
   
 
@@ -154,7 +154,7 @@ Marxism is a secularized sect of Christianity that sees class as the main cause 
 
   
 
-10 Secular Christian Tenets and Ethics
+9 Secular Christian Tenets and Ethics
 
   
 
