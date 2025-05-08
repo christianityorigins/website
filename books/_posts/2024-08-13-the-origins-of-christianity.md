@@ -21,8 +21,8 @@ _Preface_
   Introduction\
 1 Name and Title Meanings \
 2 Julius Caesar aka Asander of Bosphorus \
-3 Flavian Dynasty \
-4 Rome on the Bosphorus?\
+3 Rome on the Bosphorus?\
+4 Flavian Dynasty\
 5 Julius Caesar was a Title \
 6 Esus the Celtic Deity \
 7 Subversion of the Imperial Cult\
@@ -304,37 +304,7 @@ Endnotes (Chapter 2)
 
 (c) Mithridates VI Eupator was a direct descendant of Ptolemy II Philadelphus (Ptolemy II Philadelphus (285-246 BCE) married Arsinoe I, and they had a daughter, Berenice Syra. Berenice Syra married Antiochus II Theos, a Seleucid king, and they had a son, Seleucus II Callinicus. Seleucus II Callinicus (246-225 BCE) married Laodice II, and they had a daughter, Laodice III. Laodice III married Mithridates III of Pontus, and they had a son, Pharnaces I of Pontus. Pharnaces I of Pontus (190-155 BCE) married Nysa, and they had a son, Mithridates V of Pontus. Mithridates V of Pontus (150-120 BCE) married Laodice VI, and they had a son, Mithridates VI Eupator (120-63 BCE)). Some historians believe that Ptolemy II Philadelphus was Alexander the Great's biological son who was raised by Ptolemy I Soter. Statues of Alexander and Ptolemy II Philadelphus look strikingly like father and son. Ptolemy I Soter married Alexanders mistress Thaïs, and his other wife Berenice had the same name as Barsine who was another mistress of Alexander. Barsine and Berenice are different forms of the Persian name Barsina. The Persian name Roshanak is translated as Barsina, so the names Barsine and Berenice are both related to the Roxana, which was the name of Alexander's Persian wife. This would make Asander (whose name is an obvious reference to Alexander) and Dynamis Alexander's heirs.
     
-#### 3 Flavian Dynasty \
-
-Vespassian was also a great-grandson of Cleopatra and Mark Antony (King Herod). He was Herod Pollio aka Herod Agrippa I, grandson of King Herod's son Aristobulus IV. Vespasian was his title, not his name (Vas/Bas was the royal abbreviation for the Greek word Basilius which = King, and Pasius = Peace. 'Vespasian' = 'King Peace') [^12]. He was also 'Flavius Scaevinus' the conspirator who was involved in Nero's assassination. 
-
-![Fig.
-1.10](/images/Vespasian.jpg){:width="400px"}
-
-Fig. 1.10. Compare Vespasian's depiction to Herod Agrippa I
-
-'Antonia Caenis' was Vespassians mistress who was his first cousin who was Cleopatra (Thea Philopator) of Mauretania aka Cleopatra IX aka Helene aka Drusilla of Mauretania aka Julia Ourania of Parthia aka Philo of Alexandria. (Caenis was the Greek goddess who was transformed into a man, and she role-played as two men: Marcus Antonius Pallas and Philo).
-
-Cleopatra (Thea Philopator) of Mauretania aka Cleopatra IX aka Helene aka Drusilla of Mauretania aka Julia Ourania of Parthia aka Philo of Alexandria aka Antonia Caenis's son was Tiberius Julius Alexander aka Josephus who was the Prefect (leader) of the
-Praetorian Guard which made him arguably the most powerful man in the empire during Vespasian's reign.
-
-Vespassian's son Titus was in a relationship with his aunt Berenice, granddaughter of King Herod, who was St. Veronica in the bible (Veronica is a transliteration of the Greek name Berenike meaning 'victory').
-
-Bernice's brother Marcus Julius Agrippa II, whom she was in an incestuous relationship with before moving on to her nephew, was the governor of all foreign Roman territories except Egypt (which was governed by Tiberius Julius Alexander) during the Flavian period..
-
-Emperor Vitellius was probably an alias for Vespasian's older brother
-Titus Flavius Sabinus who was married to Mariamne III aka "Arria the
-Elder" ("Arria" from her father's name judean king Aristobulus IV who
-was the son of King Herod and he was also Julius Caesars adopted son.
-Aristobulus IV was likely Vespasian and Vitellius's father, so like his
-cousin Alexander (grandson of King Herod), he was also married to his
-sister). 
-
-Endnotes (chapter 3)
-
-(a) Theory: Alexander (grandson of King Herod) aka Gaius Julius Alexander, Herodian Prince of Judaea aka Alexander Lysimachus aka Alexander the Alabarch aka Tiberius Julius Alexander Major aka (King/Tetrarch) Ptolemy (Alexander) bar Menneus aka Ptolemy of Mauretania was also the Roman general 'Gnaeus Domitius Corbulo'. Gnaeus Domitius Corbulo conquered Armenia alongside Tiberius Julius Alexander (his son Tiberius Julius Alexander aka Arrius Calpernius Piso aka Arrius Varus aka Tiberius Julius Cotys aka Emperor Nerva), after which, Tigranes VI (Tiberius Julius Alexander) was instilled as king. Compare his bust [link] to the famous 'Josephus' (Tiberius Julius Alexander) bust [link]. Notice a resemblance? If this is correct, then he (Alexander) would have been the brother-in-law to Caligula and father-in-law to Domitian. Tiridates of Armenia (who would have been Mithridates Chrestus' great-great-grandson) was the one who spread the religion Mithraism which was a syncretic a slave-morality religion to subjugate the Parthians. Mithras is inspired from Zoroastrianism, the religion of the Persians/Parthians, but Mithras is the same as Sabazios. It’s a solar son deity, a Jupiter. 
-
-#### 4 Rome on the Bosphorus?
+#### 3 Rome on the Bosphorus?
 
 My research on the origins of Christianity takes me to the Bosphorus
 river in classical Anatolia (Julius Caesar = Asander, King of Bosphorus,
@@ -366,9 +336,23 @@ Etruscans who established Rome were invaders from Anatolia, and the
 Carians who hailed from southwest Anatolia have a strong connection with
 the settlement of Rome (Aquilla = Qos = god of Kos of Caria).
 
-Endnotes (Chapter 4)
+Endnotes (Chapter 3)
 
-(a) I asked ChatGPT to translate Roman emperor names and Bosphorian princes and kings names into Celtic (the Galatians were Gauls), Latin, and Etruscan and try to find the Roman emperor identities among the Bosphoran elite. This is the result:
+(a) Asander and Dynamis had one known son, Tiberius Julius Aspurgus Philoromaios. He was born about the same time as "Caesarion" and "Emperor Tiberius Julius Caesar". His wife, known only through numismatic evidence, was Gepae-pyris. Tiberius and Gepaepyris had two sons; the eldest was "Tiberius Julius Mithridates Philo-Germanicus Philopatris" ("son of Mithra, lover of Germanicus, lover of father"). Their second son was "Tiberius Julius Cotys I Philocaesar Philoromaios Eusebes" ("lover of Caesar, lover of Rome who is the Pious One").
+
+Tiberius Julius Aspurgus Philoromaios (son). Married to: Gepae-pyris. Children:\
+        Tiberius Julius Mithridates Philo-Germanicus Philopatris (eldest son)\
+        Tiberius Julius Cotys I Philocaesar Philoromaios Eusebes (second son)
+
+Now, let's connect this family to the Roman Emperor's family:
+
+Emperor Tiberius Julius Caesar\
+        Adopted son and heir: Germanicus\
+        Biological son: Drusus
+
+Tiberius Julius Aspurgus Philoromaios and Emperor Tiberius Julius Caesar were born around the same time, and their sons were also born around the same time.
+
+Futhermore, I asked ChatGPT to translate Roman emperor names and Bosphorian princes and kings names into Celtic (the Galatians were Gauls), Latin, and Etruscan and try to find the Roman emperor identities among the Bosphoran elite. This is the result:
 
 -Augustus: The Celtic name "Ogur" or "Augus" could be transliterated to the Etruscan name "Avile" or "Aule", which means "great" or "magnificent". The Etruscan name "Avile" is similar to the Latin name "Augustus". Aspourgos, a king of the Bosphorus, has a similar name meaning, with the Greek name "Aspourgos" being similar to the Etruscan name "Avile". The Phoenician name "Asgar" or "Asgaros" could also be related, meaning "great leader" or "king". The Celtic name "Augus" could also mean "lord" or "master", similar to the Etruscan name "Avile".\
 -Tiberius: Tiberius means "of the Tiber" in Latin. The Bosphorus has a river called the Thibaris, which might be connected to the name Tiberius. A possible match is Tiberius Julius Aspurgus, a king of the Bosphorus, who ruled from 8 BC to 38 AD. His birth date is unknown, but his reign overlaps with Tiberius' (14 - 37 AD). The Celtic word "tibor" means "lord" or "master", which could be related to the name Tiberius. The Bosphorian king Tiberius Julius Aspurgus has a name that combines Latin and Celtic elements. The Celtic name "Tigernach" means "lord" or "master", which could be transiterated to "Tiberius". The Thracian name "Tiberios" or "Tiberos" could also be related, meaning "lord" or "master".\
@@ -377,6 +361,36 @@ Endnotes (Chapter 4)
 -Nero: The Celtic name "Nerach" could be transliterated to the Etruscan name "Nerke" or "Nerki", which means "strong" or "powerful". The Etruscan name "Nerke" is similar to the Latin name "Nero". Tiberius Julius Cotys II, a king of the Bosphorus, has a name that combines Latin and Celtic elements, with the Greek name "Cotys" being similar to the Etruscan name "Nerke". The Germanic name "Nerikos" or "Nerikus" could also be related, meaning "strong" or "powerful".\
 -Vespasian: The Celtic name "Vespag" could be transliterated to the Etruscan name "Vespe" or "Vespi", which means "wasp" or "stinging insect". The Etruscan name "Vespe" is similar to the Latin name "Vespasian". Rhescuporis, a king of the Bosphorus, has a name that means "he who is stung" in Greek, with the Celtic name "Rhescu" being similar to the Etruscan name "Vespe". The Phoenician name "Vespas" or "Vespasos" could also be related, meaning "wasp" or "stinging insect". Lord is found in the Celtic translation of "Vespag" as "lord of the wasps".\
 -Domitian: The Celtic name "Domnach" could be transliterated to the Etruscan name "Dumne" or "Dumni", which means "lord" or "master". The Etruscan name "Dumne" is similar to the Latin name "Domitian". Sauromates I, a king of the Bosphorus, has a name that means "ruler of the land" or "lord of the earth" in Greek, with the Celtic name "Domnach" being similar to the Etruscan name "Dumne". The Thracian name "Dom
+
+#### 4 Flavian Dynasty \
+
+Vespassian was also a great-grandson of Cleopatra and Mark Antony (King Herod). He was Herod Pollio aka Herod Agrippa I, grandson of King Herod's son Aristobulus IV. Vespasian was his title, not his name (Vas/Bas was the royal abbreviation for the Greek word Basilius which = King, and Pasius = Peace. 'Vespasian' = 'King Peace') [^12]. He was also 'Flavius Scaevinus' the conspirator who was involved in Nero's assassination. 
+
+![Fig.
+1.10](/images/Vespasian.jpg){:width="400px"}
+
+Fig. 1.10. Compare Vespasian's depiction to Herod Agrippa I
+
+'Antonia Caenis' was Vespassians mistress who was his first cousin who was Cleopatra (Thea Philopator) of Mauretania aka Cleopatra IX aka Helene aka Drusilla of Mauretania aka Julia Ourania of Parthia aka Philo of Alexandria. (Caenis was the Greek goddess who was transformed into a man, and she role-played as two men: Marcus Antonius Pallas and Philo).
+
+Cleopatra (Thea Philopator) of Mauretania aka Cleopatra IX aka Helene aka Drusilla of Mauretania aka Julia Ourania of Parthia aka Philo of Alexandria aka Antonia Caenis's son was Tiberius Julius Alexander aka Josephus who was the Prefect (leader) of the
+Praetorian Guard which made him arguably the most powerful man in the empire during Vespasian's reign.
+
+Vespassian's son Titus was in a relationship with his aunt Berenice, granddaughter of King Herod, who was St. Veronica in the bible (Veronica is a transliteration of the Greek name Berenike meaning 'victory').
+
+Bernice's brother Marcus Julius Agrippa II, whom she was in an incestuous relationship with before moving on to her nephew, was the governor of all foreign Roman territories except Egypt (which was governed by Tiberius Julius Alexander) during the Flavian period..
+
+Emperor Vitellius was probably an alias for Vespasian's older brother
+Titus Flavius Sabinus who was married to Mariamne III aka "Arria the
+Elder" ("Arria" from her father's name judean king Aristobulus IV who
+was the son of King Herod and he was also Julius Caesars adopted son.
+Aristobulus IV was likely Vespasian and Vitellius's father, so like his
+cousin Alexander (grandson of King Herod), he was also married to his
+sister). 
+
+Endnotes (Chapter 4)
+
+(a) Theory: Alexander (grandson of King Herod) aka Gaius Julius Alexander, Herodian Prince of Judaea aka Alexander Lysimachus aka Alexander the Alabarch aka Tiberius Julius Alexander Major aka (King/Tetrarch) Ptolemy (Alexander) bar Menneus aka Ptolemy of Mauretania was also the Roman general 'Gnaeus Domitius Corbulo'. Gnaeus Domitius Corbulo conquered Armenia alongside Tiberius Julius Alexander (his son Tiberius Julius Alexander aka Arrius Calpernius Piso aka Arrius Varus aka Tiberius Julius Cotys aka Emperor Nerva), after which, Tigranes VI (Tiberius Julius Alexander) was instilled as king. Compare his bust [link] to the famous 'Josephus' (Tiberius Julius Alexander) bust [link]. Notice a resemblance? If this is correct, then he (Alexander) would have been the brother-in-law to Caligula and father-in-law to Domitian. Tiridates of Armenia (who would have been Mithridates Chrestus' great-great-grandson) was the one who spread the religion Mithraism which was a syncretic a slave-morality religion to subjugate the Parthians. Mithras is inspired from Zoroastrianism, the religion of the Persians/Parthians, but Mithras is the same as Sabazios. It’s a solar son deity, a Jupiter. 
 
 #### 5 Julius Caesar was a Title 
 
