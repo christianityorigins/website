@@ -56,11 +56,11 @@ izad), meaning "lord".
 #### 2 Julius Caesar aka Asander of Bosphorus \
 
 There was a Byzantine [^1] imperial cult where Julius Caesar [^2] took
-on the role of Asander, King of Bosphorus [^3] (the city of Byzantine,
-later called Constantinople and now Istanbul was/is located in the area
-called Bosphorus), and his wife Cleopatra used the regional alias of
+on the role of Asander, King of Bosphorus [^3] ("Asa" means "lord" in Thracian, and "andros" means "man"), and his wife Cleopatra used the regional alias of
 Dynamis Ourania [^4] (translates to 'heavenly power'), queen of
-Bosporus.
+Bosporus. The city of Byzantine,
+later called Constantinople and now Istanbul was/is located in the area
+called Bosphorus.
 
 ![Fig.1.1](/images/caesarstar.jpg){:width="400px"}
 
@@ -352,7 +352,7 @@ Emperor Tiberius Julius Caesar\
 
 Tiberius Julius Aspurgus Philoromaios and Emperor Tiberius Julius Caesar were born around the same time, and their sons were also born around the same time.
 
-Also, Polemon Pythodoros (Julius Caesar/Asander) and Pythodorida of Pontus (Cleopatra/Dynamis) had a daughter Antonia Tryphaena. Her son was Rhoemetalces II whose reign coincided with emperor Claudius
+Also, Polemon Pythodoros (Julius Caesar/Asander) and Pythodorida of Pontus (Cleopatra/Dynamis) had a daughter Antonia Tryphaena. Her son was Rhoemetalces II whose reign coincided with emperor Claudius.
 
 I asked ChatGPT to translate Roman emperor names and Bosphorian princes and kings names into Celtic (the Galatians were Gauls), Latin, and Etruscan and try to find the Roman emperor identities among the Bosphoran elite. This is the result:
 
@@ -434,14 +434,15 @@ So, it seems that the Romans (in Anatolia) tried to assimilate the tribe that be
 
 #### 6 Esus the Celtic Deity
 
-The Celts in classical Galatia worshiped a deity called Hesus/Esus/Iesus. The Celtic name Esus is believed to be related to the Proto-Celtic word "*aisu", which means "lord" or "master". The letter "J" was invented in the 17th century, so the name "Jesus" would have been "Esus" in the classical sense. 
+The Celts in classical Galatia worshiped a deity called Hesus/Esus/Iesus. The Celtic name Esus is believed to be related to the Proto-Celtic word "aisu", which means "lord" or "master". The letter "J" was invented in the 17th century, so the name "Jesus" would have been "Esus" in the classical sense. 
 
-The Romans used a system called 'interpretatio romana' to associate their gods with local ones as part of their colonial program.
-Julius Caesar, as the claimed 'son of I(J)upiter' would have been Iupiter-Zeus to let the Greeks know that Iupiter
+The Romans used a system called 'interpretatio romana' to associate their gods with local ones as part of their colonial program. Julius Caesar, as the claimed 'son of I(J)upiter' would have been Iupiter-Zeus to let the Greeks know that Iupiter
 and Zeus were equivalent deities (Roman Jupiter and Greek Zeus both
 derive from the Aryan skyfather 'Dyeus Pter'. The name Zeus comes from
 the pronunciation of Dyeus, and Jupiter comes from the pronunciation of
-"Dyeus Pter"). I(J)upiter-Zeus-> I-Zeus-> Izeus-> Esus. Did the name Esus come from here?
+"Dyeus Pter"). I(J)upiter-Zeus-> I-Zeus-> Izeus-> Esus?
+
+Futhermore, in the name Asander, "asa" means "lord" in Thracian, and "andros" means "man". If we translate "Asander" from Ancient Thracian to Gaulish we might get a name that conveys a similar meaning to Esunertos (Lord Esus).
 
 I-Zeus (Izeus)/Esus/Hesus then eventually phonetically shifted to I-zas/Izas/Izates.
 
