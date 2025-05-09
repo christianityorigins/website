@@ -352,7 +352,9 @@ Emperor Tiberius Julius Caesar\
 
 Tiberius Julius Aspurgus Philoromaios and Emperor Tiberius Julius Caesar were born around the same time, and their sons were also born around the same time.
 
-Futhermore, I asked ChatGPT to translate Roman emperor names and Bosphorian princes and kings names into Celtic (the Galatians were Gauls), Latin, and Etruscan and try to find the Roman emperor identities among the Bosphoran elite. This is the result:
+Also, Polemon Pythodoros (Julius Caesar/Asander) and Pythodorida of Pontus (Cleopatra/Dynamis) had a daughter Antonia Tryphaena. Her son was Rhoemetalces II whose reign coincided with emperor Claudius
+
+I asked ChatGPT to translate Roman emperor names and Bosphorian princes and kings names into Celtic (the Galatians were Gauls), Latin, and Etruscan and try to find the Roman emperor identities among the Bosphoran elite. This is the result:
 
 -Augustus: The Celtic name "Ogur" or "Augus" could be transliterated to the Etruscan name "Avile" or "Aule", which means "great" or "magnificent". The Etruscan name "Avile" is similar to the Latin name "Augustus". Aspourgos, a king of the Bosphorus, has a similar name meaning, with the Greek name "Aspourgos" being similar to the Etruscan name "Avile". The Phoenician name "Asgar" or "Asgaros" could also be related, meaning "great leader" or "king". The Celtic name "Augus" could also mean "lord" or "master", similar to the Etruscan name "Avile".\
 -Tiberius: Tiberius means "of the Tiber" in Latin. The Bosphorus has a river called the Thibaris, which might be connected to the name Tiberius. A possible match is Tiberius Julius Aspurgus, a king of the Bosphorus, who ruled from 8 BC to 38 AD. His birth date is unknown, but his reign overlaps with Tiberius' (14 - 37 AD). The Celtic word "tibor" means "lord" or "master", which could be related to the name Tiberius. The Bosphorian king Tiberius Julius Aspurgus has a name that combines Latin and Celtic elements. The Celtic name "Tigernach" means "lord" or "master", which could be transiterated to "Tiberius". The Thracian name "Tiberios" or "Tiberos" could also be related, meaning "lord" or "master".\
