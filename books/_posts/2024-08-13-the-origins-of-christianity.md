@@ -47,7 +47,7 @@ Note on locations: After a year of research, I believe that much of what we know
 #### 1 Name and Title Meanings
 
 -   Christ: In Greek "The Anointed One" is Chréstos/Christ. Christ is identical to the title Soter. Several historical figures were Christs/Soters. In Isaiah 45:1 the jews called Cyrus the Great "The Anointed One". Alexander the Great was also a Chréstos/Soter (Josephus. Antiquities, XI. 8. Talmud, Yoma 67b).
--   Cotys: In Thracian, "Cotys" is related to the word "kotys" which is a title that means "lord".
+-   Cotys: In Thracian, "Cotys" is related to the word "kotys" which is a title that means "lord". In the Celtic languages the word "cottos" or "cottius" means "chieftain". 
 -   Izates or Izas: An ancient Greek translation of the Avestan word Yazatas (Persian:
 izad), meaning "lord".
 -   Monobazus: Sabazios is the Phrygian and Thracian version of Zeus. Ma'nu is likely a diminutive of Menneus ("son of man"), and then Manu-Sabazios becomes Monobazus. Monobazus also becomes "Bazus" or "Bar Izates" shortened to "baYZTus" (or bar YZT) through frequent oral repetition which then becomes "bOETHus". The Boethusians were a jewish priestly sect.
