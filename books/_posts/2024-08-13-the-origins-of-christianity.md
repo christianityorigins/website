@@ -416,6 +416,8 @@ Gaius Julius Caesar was a title, and Gaius Julius Caesar could conceivably trans
 
 I(J)upiter was called Jove or Iove to the Romans. The Latin pronunciation of Iove would have been Yoh-Way, i.e Yahweh/Yhwh, so Yahweh Saboath, the god of the hebrew bible, is I(J)ove (Roman Zeus) Sabazios (Thracian Zeus).
 
+'Ashkenazi', or 'Ashkuza', was the name given to the Scythians by the ancient Akkadians (Josephus. Vol. 5: Antiquities: 8:2:5, pp. 593-595). The Assyrians called the Scythians "Asguzaya" and the ancient Persians called the Scythians 'Saka'. In Biblical Hebrew, the Ashkuz (Ashkenaz) are considered to be a direct offshoot from the Gimirri, known as the Cimmerians to the ancient Greeks. Cimmerians were a middle eastern offshoot of the Celtic Cimbri tribe. The Bosphorus Kingdom that Asander ruled over was also known as the Kingdom of the Cimmerian Bosphorus.
+
 As for the term 'Hebrew", it comes from the Celts as well who called themselves
 Iberi. The name of Abaris the Hyperborean, a Druid priest who was
 Pythagoras's teacher shows this. Iber was sometimes
