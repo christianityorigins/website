@@ -354,6 +354,8 @@ Tiberius Julius Aspurgus Philoromaios and Emperor Tiberius Julius Caesar were bo
 
 Also, Polemon Pythodoros (Julius Caesar/Asander) and Pythodorida of Pontus (Cleopatra/Dynamis) had a daughter Antonia Tryphaena. Her son was Rhoemetalces II whose reign coincided with emperor Claudius.
 
+Emperor Titus = Polemon II of Pontus who was the prince of the Bosporan, Pontus, Cilicia, and Cappadocia.
+
 I asked ChatGPT to translate Roman emperor names and Bosphorian princes and kings names into Celtic (the Galatians were Gauls), Latin, and Etruscan and try to find the Roman emperor identities among the Bosphoran elite. This is the result:
 
 -Augustus: The Celtic name "Ogur" or "Augus" could be transliterated to the Etruscan name "Avile" or "Aule", which means "great" or "magnificent". The Etruscan name "Avile" is similar to the Latin name "Augustus". Aspourgos, a king of the Bosphorus, has a similar name meaning, with the Greek name "Aspourgos" being similar to the Etruscan name "Avile". The Phoenician name "Asgar" or "Asgaros" could also be related, meaning "great leader" or "king". The Celtic name "Augus" could also mean "lord" or "master", similar to the Etruscan name "Avile".\
