@@ -53,6 +53,8 @@ level of prestige and power because he was the direct descendant of Cyrus and Al
 Dynamis's grandfather was Mithridates VI Eupator who also carried the
 title "King of Kings". Her uncle was Mithridates 'Chrestus'
 
+Mithridates VI Eupator was a direct descendant of Ptolemy II Philadelphus: Ptolemy II Philadelphus (285-246 BCE) married Arsinoe I, and they had a daughter, Berenice Syra. Berenice Syra married Antiochus II Theos, a Seleucid king, and they had a son, Seleucus II Callinicus. Seleucus II Callinicus (246-225 BCE) married Laodice II, and they had a daughter, Laodice III. Laodice III married Mithridates III of Pontus, and they had a son, Pharnaces I of Pontus. Pharnaces I of Pontus (190-155 BCE) married Nysa, and they had a son, Mithridates V of Pontus. Mithridates V of Pontus (150-120 BCE) married Laodice VI, and they had a son, Mithridates VI Eupator (120-63 BCE)). This would make Asander (whose name is an obvious reference to Alexander) and Dynamis Alexander's heirs.
+
 China
 
 The Tarim basin mummies are Tocharians, and the Kizilgaha cave portraits deprict redheaded "Chinese" people. Genetic studies show that indegenous people of Linzi in south east China were genetically more similar to Europeans than modern Chinese (https://eurogenes.blogspot.com/2017/07/north-european-admixture-in-han-chinese.html). Tang dynasty mural in tomb unearthed in China portrays a 'Westerner' man with blond hair (https://www.livescience.com/archaeology/stunning-tang-dynasty-mural-in-tomb-unearthed-in-china-may-portray-a-westerner-man-with-blond-hair).
