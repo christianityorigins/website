@@ -385,7 +385,7 @@ Praetorian Guard which made him arguably the most powerful man in the empire dur
 
 Vespassian's son Titus was in a relationship with his aunt Berenice, granddaughter of King Herod, who was St. Veronica in the bible (Veronica is a transliteration of the Greek name Berenike meaning 'victory').
 
-Bernice's brother Marcus Julius Agrippa II, whom she was in an incestuous relationship with before moving on to her nephew, was the governor of all foreign Roman territories except Egypt (which was governed by Tiberius Julius Alexander) during the Flavian period..
+Bernice's brother Marcus Julius Agrippa II, whom she was in an incestuous relationship with before moving on to her nephew (previous to this she was married to her uncle Herod of Chalcis), was the governor of all foreign Roman territories except Egypt (which was governed by Tiberius Julius Alexander) during the Flavian period..
 
 Emperor Vitellius was probably an alias for Vespasian's older brother
 Titus Flavius Sabinus who was married to Mariamne III aka "Arria the
