@@ -302,10 +302,10 @@ Endnotes (Chapter 2)
     (or Sidus Iulium) rose during his funeral games, interpreted as his
     soul's ascent---eerily similar to Christ's resurrection narrative.
 
-(c) Apollonius of Tyre married the daughter of a king in Libya, likely Juba II (Alexander Helios aka Alexander (son of King Herod)) whose wife was Cleopatra Selene and his daughter would be Drusilla (aka Cleopatra (Thea Philopator) of Mauretania aka Cleopatra IX aka Helene aka Julia Ourania of Parthia aka Philo of Alexandria). Drusilla ends up being the wife of Azizus in Emesa (who was her brother Alexander (grandson of King Herod) aka Gaius Julius Alexander, Herodian Prince of Judaea aka Alexander Lysimachus aka Alexander the Alabarch aka Tiberius Julius Alexander Major aka (King/Tetrarch) Ptolemy (Alexander) bar Menneus aka Ptolemy of Mauretania aka Phraates V (the “King of Kings”) aka Monobazus I King of Adiabene).\
+(c) Apollonius of Tyre married to the daughter of of a king of Libya, who was Cleopatra Selene aka Drusilla (aka Cleopatra (Thea Philopator) of Mauretania aka Cleopatra IX aka Helene aka Julia Ourania of Parthia aka Philo of Alexandria. Drusilla was the wife of Azizus who was her brother Juba II (Alexander Helios aka Alexander (son of King Herod)) aka Gaius Julius Alexander, Herodian Prince of Judaea aka Alexander Lysimachus aka Alexander the Alabarch aka Tiberius Julius Alexander Major aka (King/Tetrarch) Ptolemy (Alexander) bar Menneus aka Ptolemy of Mauretania aka Phraates V (the “King of Kings”) aka Monobazus I King of Adiabene).\
 https://en.wikipedia.org/wiki/Apollonius_of_Tyre_(philosopher)\
 https://en.wikipedia.org/wiki/Apollonius_of_Tyre\
-So Alexander was also Apollonius of Tyre? Is Apollonius of Tyre the same person as Apollonius of Tyana? The would make Apollonius of Tyana the brother-husband of Philo of Alexandria and the father of Josephus.
+So, Alexander was also Apollonius of Tyre. Is Apollonius of Tyre the same person as Apollonius of Tyana? This would make Apollonius of Tyana the brother-husband of Philo of Alexandria and the father of Josephus. These three created the core of Christianity.
     
 #### 3 Rome on the Bosphorus?
 
