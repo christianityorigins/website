@@ -302,7 +302,11 @@ Endnotes (Chapter 2)
     (or Sidus Iulium) rose during his funeral games, interpreted as his
     soul's ascent---eerily similar to Christ's resurrection narrative.
 
-(c) Mithridates VI Eupator was a direct descendant of Ptolemy II Philadelphus (Ptolemy II Philadelphus (285-246 BCE) married Arsinoe I, and they had a daughter, Berenice Syra. Berenice Syra married Antiochus II Theos, a Seleucid king, and they had a son, Seleucus II Callinicus. Seleucus II Callinicus (246-225 BCE) married Laodice II, and they had a daughter, Laodice III. Laodice III married Mithridates III of Pontus, and they had a son, Pharnaces I of Pontus. Pharnaces I of Pontus (190-155 BCE) married Nysa, and they had a son, Mithridates V of Pontus. Mithridates V of Pontus (150-120 BCE) married Laodice VI, and they had a son, Mithridates VI Eupator (120-63 BCE)). Some historians believe that Ptolemy II Philadelphus was Alexander the Great's biological son who was raised by Ptolemy I Soter. Statues of Alexander and Ptolemy II Philadelphus look strikingly like father and son. Ptolemy I Soter married Alexanders mistress Thaïs, and his other wife Berenice had the same name as Barsine who was another mistress of Alexander. Barsine and Berenice are different forms of the Persian name Barsina. The Persian name Roshanak is translated as Barsina, so the names Barsine and Berenice are both related to the Roxana, which was the name of Alexander's Persian wife. This would make Asander (whose name is an obvious reference to Alexander) and Dynamis Alexander's heirs.
+(c) Apollonius of Tyre married the daughter of a king in Libya, likely Juba II (Alexander Helios
+aka Alexander (son of King Herod)) whose wife was Cleopatra Selene and his daughter would be Drusilla. Drusilla ends up being the wife of Azizus in Emesa.\
+https://en.wikipedia.org/wiki/Apollonius_of_Tyre_(philosopher)\
+https://en.wikipedia.org/wiki/Apollonius_of_Tyre\
+Is Apollonius of Tyre the same person as Apollonius of Tyana?
     
 #### 3 Rome on the Bosphorus?
 
