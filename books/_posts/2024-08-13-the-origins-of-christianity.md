@@ -306,6 +306,8 @@ Endnotes (Chapter 2)
 https://en.wikipedia.org/wiki/Apollonius_of_Tyre_(philosopher)\
 https://en.wikipedia.org/wiki/Apollonius_of_Tyre\
 So, Alexander aka Juba II was also Apollonius of Tyre. Juba II carried the title "Rex Literatissimus" which can be translated as "Most Learned King" or "The Most Scholarly King". He was known as a philosopher. Is Apollonius of Tyre the same person as Apollonius of Tyana? This would make Apollonius of Tyana the brother-husband of Philo of Alexandria and the father of Josephus. These three created the core of Christianity.
+
+(d) Gautama Buddha was Gaumata Bardya, the son of Cyrus the Great. "Jesus" was an avatar for the Bosphioran royal family. Apollonius of Tyana was king Juba II, the grandson of Julius Caesar/Asander and Cleopatea/Dynamis. All these aristocrats/kings took on religious personas that preached versions of Greco-Buddhism to the public. Renouce worldy possessions, asceticism, shame and guilt, you will be rewarded in the afterlife for your earthly suffering, etc. These cults were by design slave morality to strip the will to power from the population to prevent rebellions. 
     
 #### 3 Rome on the Bosphorus?
 
@@ -385,7 +387,7 @@ Praetorian Guard which made him arguably the most powerful man in the empire dur
 
 Vespassian's son Titus was in a relationship with his aunt Berenice, granddaughter of King Herod, who was St. Veronica in the bible (Veronica is a transliteration of the Greek name Berenike meaning 'victory').
 
-Bernice's brother Marcus Julius Agrippa II, whom she was in an incestuous relationship with before moving on to her nephew (previous to this she was married to her uncle Herod of Chalcis), was the governor of all foreign Roman territories except Egypt (which was governed by Tiberius Julius Alexander) during the Flavian period..
+Bernice's brother Marcus Julius Agrippa II, whom she was in an incestuous relationship with before moving on to her nephew (previous to this she was married to her uncle Herod of Chalcis), was the governor of all foreign Roman territories except Egypt (which was governed by Tiberius Julius Alexander) during the Flavian period.
 
 Emperor Vitellius was probably an alias for Vespasian's older brother
 Titus Flavius Sabinus who was married to Mariamne III aka "Arria the
