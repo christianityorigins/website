@@ -36,13 +36,13 @@ _Footnotes_
 
 #### Introduction
 
-To maintain control over their subjects, imperial powers in antiquity employed a variety of strategies as part of their colonial program, including the creation of slave-morality cults, fictional stories, faked deaths and adoptions, and an endless series of regional alias, to subjugate a population to their aristocratic rule and to prevent rebellions. In Sumer, the rulers were all priests, whereas in Egypt, the Pharaohs claimed to be sons of gods. It was in Egypt with Atenism, which was a religion to deify Pharaoh Akhenaten, where monotheism first emerges. The collectivization of divine authority with monotheism reinforces a universal morality and everything becomes collectivized with the centralization of power. This makes a group easier to control and is why monotheism mirrors autocratic governance. The Persians also deified their leaders, promoted monotheism (Zoroastrianism), and even took it a step further by incorporating a very powerful slave-morality religion into their imperial cult as part of their colonial program. They created Buddhism, with Gautama Buddha being Gaumata Bardya also known as Smerdis, the son of Cyrus the Great, who governed the Persian province of Bactra. The Greeks followed this forumla with the Ptolemaic cult of Alexander and the Serapis cult. Serapis was a universal composite deity created by blending the Egyptian gods Osiris and Apis with the Greek god Zeus (and others) to resonate with the multicultural society that Ptolemy I envisioned for Egypt. The Romans adopted this formula and established their own imperial cults. These imperial powers maintained their empires through religious syncretism and slave-morality religions, which stripped the population of their will to power. Christianity is a relic of one of these imperial slave moralities which itself was subverted by a confederaion of rabbis after the Bar Kokhba Revolt (132--136 CE).
+To maintain control over their subjects, imperial powers in antiquity employed a variety of strategies as part of their colonial program, including the creation of slave-morality cults, fictional stories, faked deaths and adoptions, and an endless series of regional aliases, to subjugate a population to their aristocratic rule and to prevent rebellions. In Sumer, the rulers were all priests, whereas in Egypt, the Pharaohs claimed to be sons of gods. It was in Egypt with Atenism, which was a religion to deify Pharaoh Akhenaten, where monotheism first emerged. The collectivization of divine authority with monotheism reinforces a universal morality and everything becomes collectivized with the centralization of power. This makes a group easier to control and is why monotheism mirrors autocratic governance. The Persians also deified their leaders, promoted monotheism (Zoroastrianism), and even took it a step further by incorporating a very powerful slave-morality religion into their imperial cult as part of their colonial program. They created Buddhism, with Gautama Buddha being Gaumata Bardya, also known as Smerdis, the son of Cyrus the Great, who governed the Persian province of Bactra. The Greeks followed this formula with the Ptolemaic cult of Alexander and the Serapis cult. Serapis was a universal composite deity created by blending the Egyptian gods Osiris and Apis with the Greek god Zeus (and others) to resonate with the multicultural society that Ptolemy I envisioned for Egypt. The Romans adopted this formula and established their own imperial cults. These imperial powers maintained their empires through religious syncretism and slave-morality religions, which stripped the population of their will to power. Christianity is a relic of one of these imperial slave moralities, which itself was subverted by a confederation of rabbis after the Bar Kokhba Revolt (132--136 CE).
 
-Note on aliases: I believe that the royal elites in antiquity role-played as if they were characters in a play, and they used regional aliases and fictional deaths as story patterns or archetypes. They killed off one character then assumed the role of another one in a different location. For example, the governor of Roman Egypt from 33 CE to 38, Aulus Avillius Flaccus, was also Polemon II of Pontus who was the prince of the Bosporan, Pontus, Cilicia, and Cappadocia, which was the regional alias of Emperor Titus. The character of Aulus Avillius Flaccus dies at the same time Polemon II of Pontus takes power and then Polemon II of Pontus dies around the same time Titus becomes emperor. The way of connecting them is through the fact that they were all married to the same woman, Berenice, grandaughter of King Herod.
+Note on aliases: I believe that the royal elites in antiquity role-played as if they were characters in a play, and they used regional aliases and fictional deaths as story patterns or archetypes. They killed off one character and then assumed the role of another one in a different location. For example, the governor of Roman Egypt from 33 CE to 38, Aulus Avillius Flaccus, was also Polemon II of Pontus, who was the prince of the Bosporan, Pontus, Cilicia, and Cappadocia, which was the regional alias of Emperor Titus. The character of Aulus Avillius Flaccus dies at the same time Polemon II of Pontus takes power, and then Polemon II of Pontus dies around the same time Titus becomes emperor. The way of connecting them is through the fact that they were all married to the same woman, Berenice, granddaughter of King Herod.
 
-Julius Caesar was Asander of Bosphorus. Cleopatra was Dynamis, queen of Bosphorus. Mark Antony was King Herod the king of Judea, Tiberius Claudius Nero, and Phraates IV the 'King of Kings' of the Parthian Empire. Vespasian was Herod Pollio and Herod Agrippa I, grandson of King Herod's son Aristobulus IV. All evidence to prove my claims will be found in the following chapters.
+Julius Caesar was Asander of Bosphorus. Cleopatra was Dynamis, queen of Bosphorus. Mark Antony was King Herod, the king of Judea; Tiberius Claudius Nero, and Phraates IV the 'King of Kings' of the Parthian Empire. Vespasian was Herod Pollio and Herod Agrippa I, grandson of King Herod's son Aristobulus IV. All evidence to prove my claims will be found in the following chapters.
 
-Note on locations: After a year of research, I believe that much of what we know about history from antiquity is fabricated. I believe that the Church Fathers and the Vatican transposed Rome from the Bosphorus in classical Anatolia to Italy and not the other way around as conventionally told. Later, the Jesuits, and people like Joseph Justus Scaliger, who was the Jesuit priest who "discovered" the majority of texts from antiquity that we use today, usually on demand, and Poggio Bracciolini, who was the individual responsible for collecting documents for him, further added to the distortion of historical records. This manipulation of historical facts has led to a distorted understanding of the past, and it is likely that many events, dates, and figures have been altered or fabricated to serve the interests of the Church and other powerful institutions.
+Note on locations: After a year of research, I believe that much of what we know about history from antiquity is fabricated. I believe that the Church Fathers and the Vatican transposed Rome from the Bosphorus in classical Anatolia to Italy and not the other way around as conventionally told. Later, the Jesuits and people like Joseph Justus Scaliger, who was the Jesuit priest who "discovered" the majority of texts from antiquity that we use today, usually on demand, and Poggio Bracciolini, who was the individual responsible for collecting documents for him, further added to the distortion of historical records. This manipulation of historical facts has led to a distorted understanding of the past, and it is likely that many events, dates, and figures have been altered or fabricated to serve the interests of the Church and other powerful institutions.
 
 #### 1 Name and Title Meanings
 
@@ -51,20 +51,22 @@ Note on locations: After a year of research, I believe that much of what we know
 -   Izates or Izas: An ancient Greek translation of the Avestan word Yazatas (Persian:
 izad), meaning "lord".
 -   Monobazus: Sabazios is the Phrygian and Thracian version of Zeus. Ma'nu is likely a diminutive of Menneus ("son of man"), and then Manu-Sabazios becomes Monobazus. Monobazus also becomes "Bazus" or "Bar Izates" shortened to "baYZTus" (or bar YZT) through frequent oral repetition which then becomes "bOETHus". The Boethusians were a jewish priestly sect.
--   Piso cognomen: "Appius" is a cognomen (personal name) of the Claudian family. Appius and Piso are synonymous (In Greek, Appius is rendered as Appios, from there Piso). The name Piso itself would be a form of Peisistratos/Pisistratos, the leading name of ancient Athens in Greece. (Pisistratos is a Latinized spelling of the Greek Peisistratos) It could be said that all the ruling elite of the Julio-Claudian dynasty were Piso's, including Nero who was nearly deposed by a Piso. Appius is also cognate with Arrius (through rhotacization in ancient Latin the /p/ and /r/ could be swapped).
+-   Piso cognomen: "Appius" is a cognomen (personal name) of the Claudian family. Appius and Piso are synonymous (In Greek, Appius is rendered as Appios, from there Piso). The name Piso itself would be a form of Peisistratos/Pisistratos, the leading name of ancient Athens in Greece. (Pisistratos is a Latinized spelling of the Greek Peisistratos) It could be said that all the ruling elite of the Julio-Claudian dynasty were Pisos, including Nero who was nearly deposed by a Piso. Appius is also cognate with Arrius (through rhotacization in ancient Latin the /p/ and /r/ could be swapped).
 
 #### 2 Julius Caesar aka Asander of Bosphorus \
 
 There was a Byzantine [^1] imperial cult where Julius Caesar [^2] took
 on the role of Asander, King of Bosphorus [^3] ("Asa" means "lord" in Thracian, and "andros" means "man"), and his wife Cleopatra used the regional alias of
 Dynamis Ourania [^4] (translates to 'heavenly power'), queen of
-Bosporus. The city of Byzantine,
+Bosporus. The city of Byzantium
+
+,
 later called Constantinople and now Istanbul was/is located in the area
 called Bosphorus.
 
 ![Fig.1.1](/images/caesarstar.jpg){:width="400px"}
 
-Fig. 1.1. Julius Caesar. One side of the coin shows a cresent and the other side shows a Nike which was the Greek goddess of victory and a close companion to Zeus.
+Fig. 1.1. Julius Caesar. One side of the coin shows a crescent and the other side shows a Nike which was the Greek goddess of victory and a close companion to Zeus.
 
 ![Fig.1.2](/images/asandernike.jpg){:width="400px"}
 
@@ -72,11 +74,11 @@ Fig. 1.2. Coin of Asander, King of Bosphorus depicting a Nike
 
 ![Fig.1.3](/images/asander.jpg){:width="400px"}
 
-Fig. 1.3. Another depition of Asander which shows the star and cresent that is visible in the Julius Caesar coin above. The coin also shows a winged Pegasus all within a Dionysiac wreath of ivy and fruit. 
+Fig. 1.3. Another depiction of Asander which shows the star and cresent that is visible in the Julius Caesar coin above. The coin also shows a winged Pegasus all within a Dionysiac wreath of ivy and fruit. 
 
 ![Fig.1.4](/images/Cleopatra%20VIIDynamis.png){:width="400px"}
 
-Fig. 1.4. (L) Dynamis, Queen of Bosphorus, (R) Cleopatra VII. There was obviously many years in between the ages that she was depicted, however, even in the elder Dynamis bust you can see her lazy eye and abnormally large eyes which she was reported to have had, possibly as a consequence of inbreeding. 
+Fig. 1.4. (L) Dynamis, Queen of Bosphorus, (R) Cleopatra VII. There were obviously many years between the ages that she was depicted, however, even in the elder Dynamis bust you can see her lazy eye and abnormally large eyes which she was reported to have had, possibly as a consequence of inbreeding. 
 
 ![Fig.1.5](/images/cleopatra.png){:width="400px"}
 
@@ -91,19 +93,19 @@ aka Ptolemy Philadelphus aka Sampsiceramus I? The Bosphorus Kingdom,
 also known as the Kingdom of the Cimmerian Bosphorus, was located next
 to the Pontus Kingdom
 
-Asander was born in 110BCE, the same year as Julius Caesar. Dynamis was
+Asander was born in 110 BCE, the same year as Julius Caesar. Dynamis was
 born in 70/69 BCE, the same year as Cleopatra VII. Julius Caesar was 30
 years older than Cleopatra, and Asander was also 30 years older than
 Dynamis.
 
 A statue from the Bosporan Kingdom, dated to Asander's reign (ca. 47--17
-BCE), refers to as Asander as the 'Great King of Kings Asandros
+BCE), refers to Asander as the 'Great King of Kings Asandros
 Philoromaios Soter' (Corpus Inscriptionum Regni Bosporani 30). So, he
 was a 'King of Kings', Soter (savior), and 'The Great'. Individually,
-each of those titles carry significance, but the 'Great King of Kings'
+each of those titles carries significance, but the 'Great King of Kings'
 title in that inscription stands out because it is a rare title that was
-used by Cyrus the Great and Alexander the Great, so this shows Asanders
-level of prestige and power to be placed along side those two. Julius
+used by Cyrus the Great and Alexander the Great, so this shows Asander's
+level of prestige and power to be placed alongside those two. Julius
 Caesar is the only historical figure who had a comparable level of
 prestige as Cyrus and Alexander.
 
@@ -115,14 +117,14 @@ Chrestus in battle to become King of Bosphorus. One source I read
 claimed that this was a fratricidal war and that Asander and Mithridates
 Chrestus were brothers. In the mythology of ancient Rome, the city is
 founded as the result of a fratricide, with the twins Romulus and Remus
-quarreling over who has the favour of the gods and over each other's
+quarreling over who has the favor of the gods and over each other's
 plans to build Rome, with Romulus becoming Rome's first king and
 namesake after killing his brother (this also mirrors the biblical
 account of Cain and Abel). This would make Asander Dynamis's uncle and
 husband. Asander beating Mithridates Chrestus in battle to become ruler
 of Bosphorus also parallels Julius Caesar beating Gnaeus Pompeius Magnus
 (Pompey the Great) to become ruler of Rome. If they were in fact
-brothers, then Mithridates VI Eupator's son Machares was born in 110BCE,
+brothers, then Mithridates VI Eupator's son Machares was born in 110 BCE,
 the same year as Asander and Julius Caesar, so that would be his real
 name.
 
@@ -130,7 +132,7 @@ Amyntas Nikator aka Amyntas of Galatia aka Jesus ben Fabus aka Isa Amen
 (Jesus Amen of Rev. iii. 14) [^6] was married to Stratonice who was the
 sister of Asander. He was also a cousin of Dynamis and Asander. Amyntas
 Nikator aka Amyntas of Galatia ruled an empire that stretched from
-modern day Turkey through India.
+modern-day Turkey through India.
 
 Cleopatra aka Dynamis's son with Julius Caesar aka Asander = Tiberius
 Julius Aspurgus Philoromaios, who was born about the same time as
@@ -189,7 +191,7 @@ Mauretania aka Cleopatra IX aka Pythodorida Philometor aka Helene aka
 Drusilla of Mauretania aka Julia Ourania of Parthia aka Alexandra bat Mattathias aka 'Philo of
 Alexandria'.
 
-Alexander (grandson of King Herod) and his sister wife Cleopatra (Thea
+Alexander (grandson of King Herod) and his sister-wife Cleopatra (Thea
 Philopator) of Mauretania had two sons: Tiberius Julius Alexander aka
 Arrius Calpernius Piso aka Arrius Varus aka Tiberius Julius Cotys (In
 Thracian, 'Cotys' is related to the word 'kotys' which is a title that
@@ -202,7 +204,7 @@ Emmanuel aka Monobazus of Adiabene [^8]
 1.7](/images/Josephus.jpg){:width="400px"}
 
 Fig. 1.7. 'Josephus' bust which I identify as
-Tiberius Julius Alexander. Compare it to Nerva's depictions. So, 'Josephus' was Philo of Alexandria's son. Tiberius Julius Alexander's son was named 'Philopappos' and one of his mothers aliases was 'Alexandria bat Matthias' which is where the pseudonym 'Joseph bar Matthias' comes from. Also, drop the initial b and final s in the name "Bar Mathias" and you get (Joseph of) Arimathea.
+Tiberius Julius Alexander. Compare it to Nerva's depictions. So, 'Josephus' was Philo of Alexandria's son. Tiberius Julius Alexander's son was named 'Philopappos' and one of his mother's aliases was 'Alexandria bat Matthias' which is where the pseudonym 'Joseph bar Matthias' comes from. Also, drop the initial b and final s in the name "Bar Mathias" and you get (Joseph of) Arimathea.
 
 ![Fig. 1.8](/images/coin-abgar-phraates.png){:width="400px"}
 
@@ -222,7 +224,7 @@ son of Tiberius Julius Cotys (aka Tiberius Julius Alexander aka Arrius
 Calpernius Piso aka Arrius Varus aka Emperor Nerva), great-grandson of
 Dynamis aka Cleopatra and Mark Antony. Does he look familiar? ΒΑCΙΛΕΩC
 CΑVΡΟΜΑΤΟΥ in the above coin translates to "King of the Sauromatians".
-Sauromates is a Greek rendering of 'Sarmatian', refering to the Scythian
+Sauromates is a Greek rendering of 'Sarmatian', referring to the Scythian
 tribe who came from the Pontic steppe. 'Saur' means 'lizard' or
 'reptile', and 'mates' means 'man' or 'warrior'. Therefore, translated
 literallly ΒΑCΙΛΕΩC CΑVΡΟΜΑΤΟΥ means "King of the lizard people", or
@@ -250,7 +252,7 @@ Herod) which makes him the grandson of Simon Boethus, and he was the
 great-great-grandfather of Vespasian.
 
 Sabazius is related to the Saba/Sheba root meaning seven, rest, sated
-etc. and Jupiter-Sabazius is a Semitic or Semitized form of Jupiter,
+etc., and Jupiter-Sabazius is a Semitic or Semitized form of Jupiter,
 i.e. Turkish Judaism (the day of Sabbath was a festival of Sabazius
 (Plutarch (Symp. iv. 6)). Also, I(J)upiter was also called Jove or Iove
 to the Romans. The Latin pronunciation of Iove would have been Yoh-Way,
@@ -272,7 +274,7 @@ The connection between Simon Boethus/Magus/Ptolemy X Alexander I/Ptolemy
 daughter Cleopatra whom Julius Caesar/Asander married. Using Josephus as
 a source, Antipater the Idumean's son King Herod was married to Simon
 Boethus's daughter Mariamme and Antipater the Idumean saved Julius
-Caesars life during the Battle of the Nile (47 BC). As a reward,
+Caesar's life during the Battle of the Nile (47 BC). As a reward,
 Josephus claims that Julius Caesar adopted King Herod's sons (Simon
 Boethus's grandsons) Aristobulus IV (Vespasian's grandfather [^10],
 Alexander (son of king Herod) aka Alexandros III aka Juba II, Herod
@@ -307,13 +309,13 @@ https://en.wikipedia.org/wiki/Apollonius_of_Tyre_(philosopher)\
 https://en.wikipedia.org/wiki/Apollonius_of_Tyre\
 So, Alexander aka Juba II was also Apollonius of Tyre. Juba II carried the title "Rex Literatissimus" which can be translated as "Most Learned King" or "The Most Scholarly King". He was known as a philosopher. Is Apollonius of Tyre the same person as Apollonius of Tyana? This would make Apollonius of Tyana the brother-husband of Philo of Alexandria and the father of Josephus. These three created the core of Christianity.
 
-(d) Gautama Buddha was Gaumata Bardya, the son of Cyrus the Great. Ptolemy I Soter and his successors were closely associated with Serapis. "Jesus" was an avatar for the Bosphioran royal family. Apollonius of Tyana was king Juba II, the grandson of Julius Caesar/Asander and Cleopatea/Dynamis. All these aristocrats/kings took on religious personas and preached syncretic versions of Greco-Buddhism to the public: monotheism, renouce worldy possessions, asceticism, shame and guilt, you will be rewarded in the afterlife for your earthly suffering, etc. These cults were by design slave moralities to strip the will to power from the population to prevent rebellions. 
+(d) Gautama Buddha was Gaumata Bardya, the son of Cyrus the Great. Ptolemy I Soter and his successors were closely associated with Serapis. "Jesus" was an avatar for the Bosphioran royal family. Apollonius of Tyana was king Juba II, the grandson of Julius Caesar/Asander and Cleopatra/Dynamis. All these aristocrats/kings took on religious personas and preached syncretic versions of Greco-Buddhism to the public: monotheism, renounce worldy possessions, asceticism, shame and guilt, you will be rewarded in the afterlife for your earthly suffering, etc. These cults were by design slave moralities to strip the will to power from the population to prevent rebellions. 
     
 #### 3 Rome on the Bosphorus?
 
 My research on the origins of Christianity takes me to the Bosphorus
 river in classical Anatolia (Julius Caesar = Asander, King of Bosphorus,
-and Cleopatra = Dynamis). This is incongruent to mainstream history.
+and Cleopatra = Dynamis). This is incongruent with mainstream history.
 However, there are a few revisionist authors such as Anatoly Fomenko and
 Gunnar Heinsohn who make the claim that the Western Roman Empire is a
 duplicate of the Eastern Roman Empire not the other way around and that
@@ -324,12 +326,12 @@ between the Vatican and the Eastern Byzantine Church, or for profit.
 
 The area of modern-day Istanbul was once called 'Basileía tôn Rhômaíôn'
 ('Kingdom of the Romans') and the people of that region called
-themsevles Rhōmaîoi (Romans). Historians assume that region got it's
+themselves Rhōmaîoi (Romans). Historians assume that region got it's
 name after Roman colonization, but why? Every romance language based on
 Latin underwent a linguistic evolution except Romanian, which is the
 closest language to classical Latin. Could it be that the original
 Romans hailed from Romania and then moved south to Anatolia? A
-substantial part of Byzantine coinage from two millenia ago boasts
+substantial part of Byzantine coinage from two millennia ago boasts
 inscriptions in Latin and not in Greek, including the Asander of
 Bosphorus coin in Fig. 1.1.
 
@@ -364,7 +366,7 @@ Emperor Titus = Polemon II of Pontus who was the prince of the Bosporan, Pontus,
 I asked ChatGPT to translate Roman emperor names and Bosphorian princes and kings names into Celtic (the Galatians were Gauls), Latin, and Etruscan and try to find the Roman emperor identities among the Bosphoran elite. This is the result:
 
 -Augustus: The Celtic name "Ogur" or "Augus" could be transliterated to the Etruscan name "Avile" or "Aule", which means "great" or "magnificent". The Etruscan name "Avile" is similar to the Latin name "Augustus". Aspourgos, a king of the Bosphorus, has a similar name meaning, with the Greek name "Aspourgos" being similar to the Etruscan name "Avile". The Phoenician name "Asgar" or "Asgaros" could also be related, meaning "great leader" or "king". The Celtic name "Augus" could also mean "lord" or "master", similar to the Etruscan name "Avile".\
--Tiberius: Tiberius means "of the Tiber" in Latin. The Bosphorus has a river called the Thibaris, which might be connected to the name Tiberius. A possible match is Tiberius Julius Aspurgus, a king of the Bosphorus, who ruled from 8 BC to 38 AD. His birth date is unknown, but his reign overlaps with Tiberius' (14 - 37 AD). The Celtic word "tibor" means "lord" or "master", which could be related to the name Tiberius. The Bosphorian king Tiberius Julius Aspurgus has a name that combines Latin and Celtic elements. The Celtic name "Tigernach" means "lord" or "master", which could be transiterated to "Tiberius". The Thracian name "Tiberios" or "Tiberos" could also be related, meaning "lord" or "master".\
+-Tiberius: Tiberius means "of the Tiber" in Latin. The Bosphorus has a river called the Thibaris, which might be connected to the name Tiberius. A possible match is Tiberius Julius Aspurgus, a king of the Bosphorus, who ruled from 8 BC to 38 AD. His birth date is unknown, but his reign overlaps with Tiberius' (14 - 37 AD). The Celtic word "tibor" means "lord" or "master", which could be related to the name Tiberius. The Bosphorian king Tiberius Julius Aspurgus has a name that combines Latin and Celtic elements. The Celtic name "Tigernach" means "lord" or "master", which could be transliterated to "Tiberius". The Thracian name "Tiberios" or "Tiberos" could also be related, meaning "lord" or "master".\
 -Caligula: The Celtic name "Caulgach" could be transliterated to the Etruscan name "Kalikle" or "Kalike", which means "warrior" or "soldier". The Etruscan name "Kalikle" is similar to the Latin name "Caligula". Cotys I, a king of the Bosphorus, has a name that means "warrior" or "soldier" in Greek, with the Celtic name "Cotys" being similar to the Etruscan name "Kalikle". The Illyrian name "Kalikos" or "Kalikus" could also be related, meaning "strong" or "powerful".\
 -Claudius: The Celtic name "Cladach" could be transliterated to the Etruscan name "Klute" or "Kluti", which means "shore" or "beach". The Etruscan name "Klute" is similar to the Latin name "Claudius". Mithridates III, a king of the Bosphorus, has a name that means "great warrior" in Greek, with the Celtic name "Mithrid" being similar to the Etruscan name "Klute". The Scythian name "Klutos" or "Klutus" could also be related, meaning "glorious" or "famous". Lord is found in the Celtic translation of "Cladach" as "lord of the shore". \
 -Nero: The Celtic name "Nerach" could be transliterated to the Etruscan name "Nerke" or "Nerki", which means "strong" or "powerful". The Etruscan name "Nerke" is similar to the Latin name "Nero". Tiberius Julius Cotys II, a king of the Bosphorus, has a name that combines Latin and Celtic elements, with the Greek name "Cotys" being similar to the Etruscan name "Nerke". The Germanic name "Nerikos" or "Nerikus" could also be related, meaning "strong" or "powerful".\
@@ -380,26 +382,26 @@ Vespassian was also a great-grandson of Cleopatra and Mark Antony (King Herod). 
 
 Fig. 1.10. Compare Vespasian's depiction to Herod Agrippa I
 
-'Antonia Caenis' was Vespassians mistress who was his first cousin who was Cleopatra (Thea Philopator) of Mauretania aka Cleopatra IX aka Helene aka Drusilla of Mauretania aka Julia Ourania of Parthia aka Philo of Alexandria. (Caenis was the Greek goddess who was transformed into a man, and she role-played as two men: Marcus Antonius Pallas and Philo).
+'Antonia Caenis' was Vespassian's mistress who was his first cousin who was Cleopatra (Thea Philopator) of Mauretania aka Cleopatra IX aka Helene aka Drusilla of Mauretania aka Julia Ourania of Parthia aka Philo of Alexandria. (Caenis was the Greek goddess who was transformed into a man, and she role-played as two men: Marcus Antonius Pallas and Philo).
 
 Cleopatra (Thea Philopator) of Mauretania aka Cleopatra IX aka Helene aka Drusilla of Mauretania aka Julia Ourania of Parthia aka Philo of Alexandria aka Antonia Caenis's son was Tiberius Julius Alexander aka Josephus who was the Prefect (leader) of the
 Praetorian Guard which made him arguably the most powerful man in the empire during Vespasian's reign.
 
-Vespassian's son Titus was in a relationship with his aunt Berenice, granddaughter of King Herod, who was St. Veronica in the bible (Veronica is a transliteration of the Greek name Berenike meaning 'victory').
+Vespasian's son Titus was in a relationship with his aunt Berenice, granddaughter of King Herod, who was St. Veronica in the bible (Veronica is a transliteration of the Greek name Berenike meaning 'victory').
 
-Bernice's brother Marcus Julius Agrippa II, whom she was in an incestuous relationship with before moving on to her nephew (previous to this she was married to her uncle Herod of Chalcis), was the governor of all foreign Roman territories except Egypt (which was governed by Tiberius Julius Alexander) during the Flavian period.
+Berenice's brother Marcus Julius Agrippa II, whom she was in an incestuous relationship with before moving on to her nephew (previous to this she was married to her uncle Herod of Chalcis), was the governor of all foreign Roman territories except Egypt (which was governed by Tiberius Julius Alexander) during the Flavian period.
 
 Emperor Vitellius was probably an alias for Vespasian's older brother
 Titus Flavius Sabinus who was married to Mariamne III aka "Arria the
 Elder" ("Arria" from her father's name judean king Aristobulus IV who
-was the son of King Herod and he was also Julius Caesars adopted son.
+was the son of King Herod and he was also Julius Caesar's adopted son.
 Aristobulus IV was likely Vespasian and Vitellius's father, so like his
 cousin Alexander (grandson of King Herod), he was also married to his
 sister). 
 
 Endnotes (Chapter 4)
 
-(a) Theory: Alexander (grandson of King Herod) aka Gaius Julius Alexander, Herodian Prince of Judaea aka Alexander Lysimachus aka Alexander the Alabarch aka Tiberius Julius Alexander Major aka (King/Tetrarch) Ptolemy (Alexander) bar Menneus aka Ptolemy of Mauretania was also the Roman general 'Gnaeus Domitius Corbulo'. Gnaeus Domitius Corbulo conquered Armenia alongside Tiberius Julius Alexander (his son Tiberius Julius Alexander aka Arrius Calpernius Piso aka Arrius Varus aka Tiberius Julius Cotys aka Emperor Nerva), after which, Tigranes VI (Tiberius Julius Alexander) was instilled as king. Compare his bust [link] to the famous 'Josephus' (Tiberius Julius Alexander) bust [link]. Notice a resemblance? If this is correct, then he (Alexander) would have been the brother-in-law to Caligula and father-in-law to Domitian. Tiridates of Armenia (who would have been Mithridates Chrestus' great-great-grandson) was the one who spread the religion Mithraism which was a syncretic a slave-morality religion to subjugate the Parthians. Mithras is inspired from Zoroastrianism, the religion of the Persians/Parthians, but Mithras is the same as Sabazios. It’s a solar son deity, a Jupiter. 
+(a) Theory: Alexander (grandson of King Herod) aka Gaius Julius Alexander, Herodian Prince of Judaea aka Alexander Lysimachus aka Alexander the Alabarch aka Tiberius Julius Alexander Major aka (King/Tetrarch) Ptolemy (Alexander) bar Menneus aka Ptolemy of Mauretania was also the Roman general 'Gnaeus Domitius Corbulo'. Gnaeus Domitius Corbulo conquered Armenia alongside Tiberius Julius Alexander (his son Tiberius Julius Alexander aka Arrius Calpernius Piso aka Arrius Varus aka Tiberius Julius Cotys aka Emperor Nerva), after which, Tigranes VI (Tiberius Julius Alexander) was installed as king. Compare his bust [link] to the famous 'Josephus' (Tiberius Julius Alexander) bust [link]. Notice a resemblance? If this is correct, then he (Alexander) would have been the brother-in-law to Caligula and father-in-law to Domitian. Tiridates of Armenia (who would have been Mithridates Chrestus' great-great-grandson) was the one who spread the religion Mithraism which was a syncretic a slave-morality religion to subjugate the Parthians. Mithras is inspired by Zoroastrianism, the religion of the Persians/Parthians, but Mithras is the same as Sabazios. It’s a solar son deity, a Jupiter. 
 
 #### 5 Julius Caesar was a Title 
 
@@ -408,22 +410,22 @@ Identifying Julius Caesar as Asander of Bosphorus necessitates a re-examination 
 Galata in Classical Anatolia was settled by the Gauls. Galatia bordered
 the Bosphorus, and Julius Caesar/Asander was king of this region. The
 king of Galatia during this time was Asander's brother-in-law Amyntas of
-Galatia who ruled an area that streched into India under the alias
+Galatia who ruled an area that stretched into India under the alias
 Amyntas Nikator.
 
-"Gaius" then can refer to Asander's connection to the Gallian (Gauls (Galli = Celt in Latin)) people or his ancestry in the region.
+"Gaius" then can refer to Asander's connection to the Gallian (Gauls (Galli = Celt in Latin))  people or his ancestry in the region.
 
 Ceasar's gentilice (surname) was Iulius. Iulius can refer to the ancient Celtic tribe known as the Iudii or Iudaei. "Ioulios" (ιούλιος) in Greek also means "descended from Jupiter" or "son of Jupiter". So, it is possible that the word "jew" comes from the Iudii or Iudaei.
  
-Caesarus refered to a Celtic chieftain. For example, Caesorix was the leader of the Cimbri tribe during the Cimbrian War.
+Caesarus referred to a Celtic chieftain. For example, Caesorix was the leader of the Cimbri tribe during the Cimbrian War.
 
-Gaius Julius Caesar was a title, and Gaius Julius Caesar could conceivably translate to: Chieftan of the Iudii or Iudaiei tribe from Galatia.
+Gaius Julius Caesar was a title, and Gaius Julius Caesar could conceivably translate to: Chieftain of the Iudii or Iudaiei tribe from Galatia.
 
-I(J)upiter was called Jove or Iove to the Romans. The Latin pronunciation of Iove would have been Yoh-Way, i.e Yahweh/Yhwh, so Yahweh Saboath, the god of the hebrew bible, is I(J)ove (Roman Zeus) Sabazios (Thracian Zeus).
+I(J)upiter was called Jove or Iove to the Romans. The Latin pronunciation of Iove would have been Yoh-Way, i.e., Yahweh/Yhwh, so Yahweh Saboath, the god of the hebrew bible, is I(J)ove (Roman Zeus) Sabazios (Thracian Zeus).
 
-'Ashkenazi', or 'Ashkuza', was the name given to the Scythians by the ancient Akkadians (Josephus. Vol. 5: Antiquities: 8:2:5, pp. 593-595). The Assyrians called the Scythians "Asguzaya" and the ancient Persians called the Scythians 'Saka'. In Biblical Hebrew, the Ashkuz (Ashkenaz) are considered to be a direct offshoot from the Gimirri, known as the Cimmerians to the ancient Greeks. Cimmerians were a middle eastern offshoot of the Celtic Cimbri tribe. The Bosphorus Kingdom that Asander ruled over was also known as the Kingdom of the Cimmerian Bosphorus.
+'Ashkenazi', or 'Ashkuza', was the name given to the Scythians by the ancient Akkadians (Josephus. Vol. 5: Antiquities: 8:2:5, pp. 593-595). The Assyrians called the Scythians "Asguzaya" and the ancient Persians called the Scythians 'Saka'. In Biblical Hebrew, the Ashkuz (Ashkenaz) are considered to be a direct offshoot from the Gimirri, known as the Cimmerians to the ancient Greeks. Cimmerians were a Middle Eastern offshoot of the Celtic Cimbri tribe. The Bosphorus Kingdom that Asander ruled over was also known as the Kingdom of the Cimmerian Bosphorus.
 
-As for the term 'Hebrew", it comes from the Celts as well who called themselves
+As for the term 'Hebrew", it comes from the Celts as well, who called themselves
 Iberi. The name of Abaris the Hyperborean, a Druid priest who was
 Pythagoras's teacher shows this. Iber was sometimes
 rendered as Aber or Heber and is pronounced as Hebrew in the Hebrew
@@ -439,7 +441,7 @@ Abel and Cain are just a copy of Romulus and Remus. Judas Iscariot is a copy of 
 
 Also, Caesar, Kaiser (German for Caesar), Kesar or Kaysar (Persian for Caesar), Kaisar (Ancient Greek for Caesar), Tsar (Russian for Caesar) and Khazar are not just phonetic coincidences. It all ties back to the Divine Julius cult.
 
-So, it seems that the Romans (in Anatolia) tried to assimilate the tribe that became modern jews by forcing their imperial cult on them and they got their identity from here. This is why several prominant members of this royal family identified as "Jews" despite being Aryan Sarmatians and Celtic Galatians.
+So, it seems that the Romans (in Anatolia) tried to assimilate the tribe that became modern jews by forcing their imperial cult on them and they got their identity from here. This is why several prominent members of this royal family identified as "Jews" despite being Aryan Sarmatians and Celtic Galatians.
 
 #### 6 Esus the Celtic Deity
 
@@ -458,7 +460,7 @@ I-Zeus (Izeus)/Esus/Hesus then eventually phonetically shifted to I-zas/Izas/Iza
 ![Fig.
 1.11](/images/Esus.jpg){:width="400px"}
 
-Fig. 1.11. Statue from classical Anatolia that is dedicated to "Esumopas Cnusticus". Esumopas means "Slave to Esus", and Esus means lord in proto-Celtic. If you combine the Etruscan word "cnus" with the suffix "-ticus" or "-tic-" you get a word that translates to "anointed one" or "consecrated one", ie. a "Christ". So, that inscription translates to: "Slave to Lord (Esus) Christ". The "VSLM" inscription is an abbreviation for the Latin phrase "Votum Solvit Libens Merito" which translates to "He pays his vow willingly and with merit" or "He fulfills his vow with pleasure and deserving", which is often found on Roman coins and other artifacts. Esus was crucified in mythology and his symbol was an axe, so he was associated with woodcutting, forestry, carpentry. 
+Fig. 1.11. Statue from classical Anatolia that is dedicated to "Esumopas Cnusticus". Esumopas means "Slave to Esus", and Esus means lord in Proto-Celtic. If you combine the Etruscan word "cnus" with the suffix "-ticus" or "-tic-" you get a word that translates to "anointed one" or "consecrated one", ie. a "Christ". So, that inscription translates to: "Slave to Lord (Esus) Christ". The "VSLM" inscription is an abbreviation for the Latin phrase "Votum Solvit Libens Merito" which translates to "He pays his vow willingly and with merit" or "He fulfills his vow with pleasure and deserving", which is often found on Roman coins and other artifacts. Esus was crucified in mythology and his symbol was an axe, so he was associated with woodcutting, forestry, carpentry. 
 
 Endnotes (chapter 7)
 
@@ -467,7 +469,7 @@ Endnotes (chapter 7)
 #### 7 Subversion of the Imperial Cult
 
 Sometime after the Bar Kokhba Revolt (132--136 CE), a group of rabbis
-that were headed by a rabbi named Akiva who lead the Talmudic Pharisees
+that were headed by a rabbi named Akiva who led the Talmudic Pharisees
 and is responsible for large parts of the Talmud, Sefer Yetzirah (book
 of creation), the Mishna and the Midrash Halakha, and modern judaism,
 and who was a student of Gamaliel (Paul the Apostle claimed that he was
@@ -476,43 +478,43 @@ was the one that came up with the idea that "Rome was Edom", realized
 that subversion was the only way to defeat the Romans. So, rabbi Akiva
 and his students Aquila of Sinope aka Onkelos, Markianos of Alexandria
 aka Marcion (Greek Markion) of Sinope, Shimon bar Yohai aka Simon Peter (Shimon bar Yonah) (Simon's mythology was stolen from the Roman deity Janus who was the keeper of keys/gatekeeper role. Eusebius reported that Philo had met Simon Peter in Rome), Ketia bar Shalom aka 'Clement of Rome' (hebrew Ketia is the same as Latin Clement), Aristo of Pella who is a good candidate for being Luke the Evangelist ('Aristo', or 'Ariston' is a name that is related to 'Proteus' The former means 'first-rank, noble' the second derives from 'first'. So, was he also Peregrinus Proteus? Also, Mark or
-Mahalia, sixteenth bishop of Jerusalem was the secretary of Aristo and Marcion is known to have had a disciple named Lucanus as documented by Tertullian, so Mark, or Mahalia, first Gentile bishop of Jerusalem was also Markianos of Alexandria aka Marcion of Sinope?), Rabbi Yehuda aka Jude the Apostle (Yehuda is the Hebrew equivalent of Greek Jude), and Rabbi Meir aka Polycarp aka Bishop ignatius (the name "Meir" means "one who illuminates". Ignatius means firely one and Polycarp was famous for lighting himself on fire), added a slave-morality suicide cult to the imperial cult.
+Mahalia, sixteenth bishop of Jerusalem was the secretary of Aristo and Marcion is known to have had a disciple named Lucanus as documented by Tertullian, so Mark, or Mahalia, first Gentile bishop of Jerusalem was also Markianos of Alexandria aka Marcion of Sinope?), Rabbi Yehuda aka Jude the Apostle (Yehuda is the Hebrew equivalent of Greek Jude), and Rabbi Meir aka Polycarp aka Bishop ignatius (the name "Meir" means "one who illuminates". Ignatius means firey one and Polycarp was famous for lighting himself on fire), added a slave-morality suicide cult to the imperial cult.
 
 Many of rabbi Akiva's students and contemporaries had connections to the
 Alexandrian School in Egypt and were themselves students of Philo of
 Alexandria.
 
-Rabbi Akiva was likely Paul the Apostle. In Acts 22:3 "Paul" claims to have been educated at the feet of Gamaliel who was the teacher of rabbi Akiva, and in Acts 18:2-3 and Romans 16:3 NASB, it is claimed that Aquila of Sinope and his wife Prisca or Priscilla lived with Paul the Apostle and Paul called them “my fellow workers in Christ Jesus. Paul/Saul's fictional life story was stolen from the ancient Egyptian story "Tale of the Shipwrecked Sailor". 
+Rabbi Akiva was likely Paul the Apostle. In Acts 22:3 "Paul" claims to have been educated at the feet of Gamaliel who was the teacher of rabbi Akiva, and in Acts 18:2-3 and Romans 16:3 NASB, it is claimed that Aquila of Sinope and his wife Prisca or Priscilla lived with Paul the Apostle and Paul called them “my fellow workers in Christ Jesus. Paul's/Saul's fictional life story was stolen from the ancient Egyptian story "Tale of the Shipwrecked Sailor". 
 
 Quintus Tinnius Rufus (Turnus Rufus the Evil) was Pontius Pilate, the Roman governor of Judaea who crucified Simon bar Kokhba and killed rabbi Akiva. Rabbi Akiva preached that Simon bar Kokhba was the jewish messiah.
 
-Esus then became Esau (Edom) the progenitor of the Edomites in the bible, a metaphor for the forces of oppression and injustice. The Jewish version of Antichrist (Armilus) is based on Romulus (Armilus is a Hebrew corruption or adaptation of the Latin name Romulus). The Greco-Egyptian deity Serapis (the horned deity) became Satan. Lucifer, or "lucem ferre", which means "light-bearer" or "morning star", is Venus who was the Roman goddess whose functions encompass love, beauty, desire, sex, fertility, prosperity, and victory. In Roman mythology, she was the ancestor of the Roman people through her son, Aeneas. Also, the jews' hated enemy in the bible are the Celts (Gog or Goy). Flavius Josephus in the 'Antiquities of the Jews'. Book I. Chapter 1: "For Gomer founded those whom the Greeks now call Galatians [Galls], but were then called Gomerites. Magog founded those that from him were named Magogites; but who are by the Greeks called Scythians". Josephus is suggesting that the Hebrew word "Goy" (meaning "nation" or "people") is related to the Greek word "Galatae" (meaning "Gauls" or "Galatians"), In biblical prophecy, Gog is described as a leader from the land of Magog in the north, who will gather a coalition of nations to attack Israel, but will be defeated by God in a great battle.
+Esus then became Esau (Edom) the progenitor of the Edomites in the bible, a metaphor for the forces of oppression and injustice. The Jewish version of Antichrist (Armilus) is based on Romulus (Armilus is a Hebrew corruption or adaptation of the Latin name Romulus). The Greco-Egyptian deity Serapis (the horned deity) became Satan. Lucifer, or "lucem ferre", which means "light-bearer" or "morning star", is Venus who was the Roman goddess whose functions encompassed love, beauty, desire, sex, fertility, prosperity, and victory. In Roman mythology, she was the ancestor of the Roman people through her son, Aeneas. Also, the jews' hated enemy in the bible are the Celts (Gog or Goy). Flavius Josephus in the 'Antiquities of the Jews'. Book I. Chapter 1: "For Gomer founded those whom the Greeks now call Galatians [Galls], but were then called Gomerites. Magog founded those that from him were named Magogites; but who are by the Greeks called Scythians". Josephus is suggesting that the Hebrew word "Goy" (meaning "nation" or "people") is related to the Greek word "Galatae" (meaning "Gauls" or "Galatians"), In biblical prophecy, Gog is described as a leader from the land of Magog in the north, who will gather a coalition of nations to attack Israel, but will be defeated by God in a great battle.
 
 ![Fig.
 1.12](/images/Romulus.jpg){:width="400px"}
 
-Fig. 1.12. Quirinus who was the defified Romulus, who in Roman mythology was the founder and first king of Rome. Romulus (Armilus) is the jewish antichrist. A link can be established between Quirinus and Esus. In Proto-Celtic, the word "Kwerynos" means "lord" exactly like Kyrios in ancient Greek, and is related to the Etruscan "Kuris" and the Roman "Quirinus". Quirinus then can potentially translate to "Deified Lord" or "Lord Esus" in the context of Celtic and Etruscan mythology. In Plutarch’s biography of Romulus we are told he was the son of god, born of a virgin (Rhea Silvia, a Vestal Virgin); an attempt is made to kill him as a baby, and he is saved, and raised by a poor family, becoming a lowly shepherd; then as a man he becomes beloved by the people, hailed as king, and killed by the conniving elite; then he rises from the dead, appears to a friend to tell the good news to his people, and ascends to heaven to rule from on high. Just like Esus and Jesus.   
+Fig. 1.12. Quirinus who was the deified Romulus, who in Roman mythology was the founder and first king of Rome. Romulus (Armilus) is the jewish antichrist. A link can be established between Quirinus and Esus. In Proto-Celtic, the word "Kwerynos" means "lord" exactly like Kyrios in ancient Greek, and is related to the Etruscan "Kuris" and the Roman "Quirinus". Quirinus then can potentially translate to "Deified Lord" or "Lord Esus" in the context of Celtic and Etruscan mythology. In Plutarch’s biography of Romulus we are told he was the son of god, born of a virgin (Rhea Silvia, a Vestal Virgin); an attempt is made to kill him as a baby, and he is saved, and raised by a poor family, becoming a lowly shepherd; then as a man he becomes beloved by the people, hailed as king, and killed by the conniving elite; then he rises from the dead, appears to a friend to tell the good news to his people, and ascends to heaven to rule from on high. Just like Esus and Jesus.   
 
 So, Talmudic jews who were hiding out in the Himyarite Kingdom after Emperor
-Hadrian kicked them out of judea basically just cut-and-pasted from one of the Bosphoran/Roman imperial cults of the time and infused a slave morality into it. Getting people to abandon their religons for a new one is an almost impossible task, so instead, through religious syncrenism and intertextuality, creating a new sect of an established religion makes it easier for a population to adapt. Julius Caesar aka Asander of Bosphorus or one of his successors in the Bosphoran imperial cult (King Izates Monobazus or Tiberius Julius Sauromates II) was replaced with Simon bar Kokhba. This became modern Christianity.
+Hadrian kicked them out of judea basically just cut-and-pasted from one of the Bosphoran/Roman imperial cults of the time and infused a slave morality into it. Getting people to abandon their religons for a new one is an almost impossible task, so instead, through religious syncretism and intertextuality, creating a new sect of an established religion makes it easier for a population to adapt. Julius Caesar aka Asander of Bosphorus or one of his successors in the Bosphoran imperial cult (King Izates Monobazus or Tiberius Julius Sauromates II) was replaced with Simon bar Kokhba. This became modern Christianity.
 
-This conspiracy was so sophisticated that not only did they rewrite the imperial cult, but they rewrote history to align with their psyop. Josephus's (Tiberius Julius Alexander aka Emperor Nerva) works were rewritten by Rabbi Akiva's students under the alias Hegesippus. The book 'The Antiquities of the
+This conspiracy was so sophisticated that not only did they rewrite the imperial cult, but they rewrote history to align with their psy-op. Josephus's (Tiberius Julius Alexander aka Emperor Nerva) works were rewritten by Rabbi Akiva's students under the alias Hegesippus. The book 'The Antiquities of the
 Jews' then became a pseudo-epigraphical work (of propaganda) that was backdated to make christianity look legitimate in the same way that the 'Letter of Aristeas' was backdated to exaggerate the age of the Septuagint. I would even hazard a guess that this group was responsible for burining down the Library of Alexandria which resulted
 in the loss of all recorded history up until that point so that they
-could cover-up the tracks of their psyop religion.
+could cover up the tracks of their psy-op religion.
 
 
 Endnotes (Chapter 7)
 
 (a) Marcion of Sinope aka Markianos of Alexandria grew up in the Attis-Sabazios cult on Anatolia before traveling to Judea to study under rabbi Akiva and finally to Alexandria at the Alexandrian School.
 
-(b) There was a Marcus who founded the Marcosian Gnostic sect. He was a teacher of Bishop Irenaeus and a friend of Clement of Alexandria. Was he also Marcion of Sinope aka Markianos of Alexandria? (https://en.wikipedia.org/wiki/Marcus_%28Marcosian%29). St. Jerome in "Against Jovinian" describes Mark as a disciple of the Gnostic teacher Basilides. Here is a list of "Marks" who were active around the same time: Mark, the Evangelist, John Mark, Mark of Apollonias, Markianos of Alexandria, Mahalia, Marcus of Jerusalem, Marcus Pompeius, Marcus Annaeus Lucanus, Marcus the Magician, Marcion of Sinope, Marcus the Marcosian. Mark of Apollonias, John Mark, Mark the cousin of Barnabas, and Mark the Apostle are considered to be the same person by historians, so it is conciveable that all these "Marks" were the same person.
+(b) There was a Marcus who founded the Marcosian Gnostic sect. He was a teacher of Bishop Irenaeus and a friend of Clement of Alexandria. Was he also Marcion of Sinope aka Markianos of Alexandria? (https://en.wikipedia.org/wiki/Marcus_%28Marcosian%29). St. Jerome in "Against Jovinian" describes Mark as a disciple of the Gnostic teacher Basilides. Here is a list of "Marks" who were active around the same time: Mark, the Evangelist, John Mark, Mark of Apollonias, Markianos of Alexandria, Mahalia, Marcus of Jerusalem, Marcus Pompeius, Marcus Annaeus Lucanus, Marcus the Magician, Marcion of Sinope, Marcus the Marcosian. Mark of Apollonias, John Mark, Mark the cousin of Barnabas, and Mark the Apostle are considered to be the same person by historians, so it is conceivable that all these "Marks" were the same person.
 
-(c) Yohai is a nickname for yochai. The name Yochai means 'YHWAH is gracius' from the Hebrew word Yochanan sometimes transcribed as Johanan. Was he also Johanan the Alexandrian? This would place him in Alexandria at the same time as Markianos of Alexandria.
+(c) Yohai is a nickname for Yochai. The name Yochai means 'YHWAH is gracious' from the Hebrew word Yochanan sometimes transcribed as Johanan. Was he also Johanan the Alexandrian? This would place him in Alexandria at the same time as Markianos of Alexandria.
 
-(d) Quintus Tineius Sacerdos, the brother of Quintus Tinnius Rufus, was the govenor of Pontus in Anatolia, so the family likely derived from there. Pilate means the temperament of a warrior I.e.: famously temperamental. That's where the name Pontius Pilate comes from.
+(d) Quintus Tineius Sacerdos, the brother of Quintus Tinnius Rufus, was the governor of Pontus in Anatolia, so the family likely derived from there. Pilate means the temperament of a warrior I.e., famously temperamental. That's where the name Pontius Pilate comes from.
 
-(e) Many of these jewish rabbis align with prominent Roman figures. Is it because the term "Jew" refered to the Celtic Iudii or Iudaei tribe at the time and the people that became modern jews stole their identity from here, or were the Romans attempting to subvert these people?
+(e) Many of these jewish rabbis align with prominent Roman figures. Is it because the term "Jew" referred to the Celtic Iudii or Iudaei tribe at the time and the people that became modern jews stole their identity from here, or were the Romans attempting to subvert these people?
 
 
 -Rabbi Akiva (c. 50–135) = Epictetus (c. 50–135)? Epictetus was the slave to Nero's scribe Tiberius Claudius Epaphroditus or Epaphroditos (c. 20–25 – died c. 95). Epictetus had a Roman teacher named Gaius Musonius Rufus (c. 20-30-died c. 101) who was a Roman Stoic philosopher. Gaius Musonius Rufus was also a teacher of Dio Chrysostom (c. 40 – c. 115 AD). Josephus opened his book "Jewish Wars" and "History of the Jews" (Antiquities) by addressing them to: "kratistos (most excellent) Epaphroditus". Epictetus had a hand in writing the new testament (See: "Epictetus and the New Testament" by Douglas Simmonds Sharp (1914)). Epicteus and Pilny the Younger were both in the same places at the same time; Rome, Nicopolis, and Bithynia-Pontus, and Pliny the Younger was a Roman administrator in Bithynia and Pontus at the same time Marcion was in Sinope.
@@ -542,11 +544,11 @@ was a grandson of emperor Nero.
 _Appendix A: The Symbol of the Cross_
 
 The symbol of the cross, Celtic cross/high cross/sun cross/solar
-    wheel, et.al., which predate christianity by thousands of years
+    wheel, et.al., which predates christianity by thousands of years
     (Callanish Stones. Wikipedia,
     https://en.wikipedia.org/wiki/Callanish_Stones
     [[link](https://en.wikipedia.org/wiki/Callanish_Stones)]), was a
-    prominant symbol in ancient Europe. The circle is a sunwheel that
+    prominent symbol in ancient Europe. The circle is a sunwheel that
     together with the cross served as a sundial that had markings to
     track the time, date, and lunar and agricultural cycles. Also, in
     portable form it was a sundial clock and compass. Although not a
