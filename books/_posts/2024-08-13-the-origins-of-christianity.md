@@ -442,7 +442,7 @@ The Celts in classical Galatia worshiped a deity called Hesus/Esus/Iesus. The Ce
 
 Futhermore, in the name Asander, "Asa" means "lord" in Thracian, and "andros" means "man" or "son of man" in Greek. Jesus is refered to as "the son of man" 81 times in the four canonical gospels. Asandro can also be interpreted as "son of the lord" or "son of Asa, the lord". The Thracian version of Zeus was Asa/Asaeus and the Celtic version of Zeus was Esus. So, Asandro could be interpreted as "son of Lord Esus". Another way of getting the name Esus from Asandros is if we translate "Asander" from Ancient Thracian to Gaulish and we might get a name that conveys a similar meaning to Esunertos (Lord Esus).
 
-Esus/Hesus/Iesus then eventually phonetically shifted to I-zas/Izas/Izates.
+Hesus/Esus//Iesus then eventually phonetically shifted to I-zas/Izas/Izates.
 
 ![Fig.
 1.11](/images/Esus.jpg){:width="400px"}
