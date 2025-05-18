@@ -178,7 +178,7 @@ Cleopatros) aka Phraates V (the "King of Kings") aka Monobazus I King of
 Adiabene, who was married to his sister Cleopatra (Thea Philopator) of
 Mauretania aka Cleopatra IX aka Pythodorida Philometor aka Helene aka
 Drusilla of Mauretania aka Julia Ourania of Parthia aka 'Philo of
-Alexandria' (aka Julius Philo, of the Julia gens, because she was the adopted granddaughter of Julius Caesar). She was also Claudius and Nero's secretary Pallas and Vespasian's first cousin and mistress Antonia Caenis. "The full name of Pallas was Marcus Antonius Pallas, the Antonius part is an obvious sign of descent from Mark Antony and that Pallas wasn't a random slave. 
+Alexandria' (aka Julius Philo, of the Julia gens, because she was the adopted granddaughter of Julius Caesar). She was also Claudius and Nero's secretary Pallas and Vespasian's first cousin and mistress Antonia Caenis. "The full name of Pallas was Marcus Antonius Pallas, the Antonius part is an obvious sign of descent from Mark Antony and that Pallas wasn't a random slave. (Philo's hebrew name was Yedidia which means "beloved of God", or "friend of God", which is the same as Theophilos in Greek. Around 26% of the New Testament was written to Theophilus in Luke and Acts of the Apostles).
 
 ![Fig.
 1.6](/images/AlexanderPhilo.jpg){:width="400px"}
