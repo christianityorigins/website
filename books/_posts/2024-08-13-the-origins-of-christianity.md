@@ -55,14 +55,7 @@ izad), meaning "lord".
 
 #### 2 Julius Caesar aka Asander of Bosphorus \
 
-There was a Byzantine [^1] imperial cult where Julius Caesar [^2] took
-on the role of Asander, King of Bosphorus [^3] ("Asa" means "lord" in Thracian, and "andros" means "man"), and his wife Cleopatra used the regional alias of
-Dynamis Ourania [^4] (translates to 'heavenly power'), queen of
-Bosporus. The city of Byzantium
-
-,
-later called Constantinople and now Istanbul was/is located in the area
-called Bosphorus.
+There was a Byzantine [^1] imperial cult where Julius Caesar [^2] took on the role of Asander, King of Bosphorus [^3] ("Asa" means "lord" in Thracian, and "andros" means "man" or "son of man" in Greek. Jesus is refered to as "the son of man" 81 times in the four canonical gospels. Asandro can also be interpreted as "son of the lord" or "son of Asa, the lord". The Thracian version of Zeus was Asa/Asaeus and the Celtic version of Zeus was Esus), and his wife Cleopatra used the regional alias of Dynamis Ourania [^4] (translates to 'heavenly power'), queen of Bosporus. The city of Byzantium, later called Constantinople and now Istanbul was/is located in the area called Bosphorus.
 
 ![Fig.1.1](/images/caesarstar.jpg){:width="400px"}
 
@@ -447,15 +440,9 @@ So, it seems that the Romans (in Anatolia) tried to assimilate the tribe that be
 
 The Celts in classical Galatia worshiped a deity called Hesus/Esus/Iesus. The Celtic name Esus is believed to be related to the Proto-Celtic word "aisu", which means "lord" or "master". The letter "J" was invented in the 17th century, so the name "Jesus" would have been "Esus" in the classical sense. 
 
-The Romans used a system called 'interpretatio romana' to associate their gods with local ones as part of their colonial program. Julius Caesar, as the claimed 'son of I(J)upiter' would have been Iupiter-Zeus to let the Greeks know that Iupiter
-and Zeus were equivalent deities (Roman Jupiter and Greek Zeus both
-derive from the Aryan skyfather 'Dyeus Pter'. The name Zeus comes from
-the pronunciation of Dyeus, and Jupiter comes from the pronunciation of
-"Dyeus Pter"). I(J)upiter-Zeus-> I-Zeus-> Izeus-> Esus?
+Futhermore, in the name Asander, "Asa" means "lord" in Thracian, and "andros" means "man" or "son of man" in Greek. Jesus is refered to as "the son of man" 81 times in the four canonical gospels. Asandro can also be interpreted as "son of the lord" or "son of Asa, the lord". The Thracian version of Zeus was Asa/Asaeus and the Celtic version of Zeus was Esus. So, Asandro could be interpreted as "son of Lord Esus". Another way of getting the name Esus from Asandros is if we translate "Asander" from Ancient Thracian to Gaulish and we might get a name that conveys a similar meaning to Esunertos (Lord Esus).
 
-Futhermore, in the name Asander, "asa" means "lord" in Thracian, and "andros" means "man". If we translate "Asander" from Ancient Thracian to Gaulish we might get a name that conveys a similar meaning to Esunertos (Lord Esus).
-
-I-Zeus (Izeus)/Esus/Hesus then eventually phonetically shifted to I-zas/Izas/Izates.
+Esus/Hesus/Iesus then eventually phonetically shifted to I-zas/Izas/Izates.
 
 ![Fig.
 1.11](/images/Esus.jpg){:width="400px"}
