@@ -440,9 +440,9 @@ So, it seems that the Romans (in Anatolia) tried to assimilate the tribe that be
 
 The Celts in classical Galatia worshiped a deity called Hesus/Esus/Iesus. The Celtic name Esus is believed to be related to the Proto-Celtic word "aisu", which means "lord" or "master". The letter "J" was invented in the 17th century, so the name "Jesus" would have been "Esus" in the classical sense. 
 
-In the name Asander, "Asa" means "lord" in Thracian, and "andros" means "man" or "son of man" in Greek. Jesus is refered to as "the son of man" 81 times in the four canonical gospels. Asandro can also be interpreted as "son of the lord" or "son of Asa, the lord". The Etruscan word "Aesar" (also spelled "Aeser" or "Aisar") where Asa could also derive from means "god" or "divine". So, Ansandro can translate to either "son of god", or "son of Lord Esus".
+In the name Asander, "Asa" means "lord" in Thracian, and "andros" means "man" or "son of man" in Greek. Jesus is refered to as "the son of man" 81 times in the four canonical gospels. Asandros can also be interpreted as "son of the lord" or "son of Asa, the lord". The Etruscan word "Aesar" (also spelled "Aeser" or "Aisar") where Asa could also derive from means "god" or "divine". So, Asandros can translate to either "son of god", or "son of Lord Esus".
 
-Hesus/Esus//Iesus then eventually phonetically shifted to I-zas/Izas/Izates.
+Hesus/Esus/Iesus then eventually phonetically shifted to I-zas/Izas/Izates.
 
 ![Fig.
 1.11](/images/Esus.jpg){:width="400px"}
