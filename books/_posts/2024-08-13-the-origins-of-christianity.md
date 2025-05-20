@@ -81,8 +81,7 @@ regional alias (Asander and Polemon were both married to Dynamis), and if he als
 Sohaemus of Emesa, Priest-King of Emesa, and Cleopatra played the
 regional role of Pythodorida Philometor, then Julia Avita Mamaea of
 Emessa would have been their daughter. Do you see a resemblance? She
-would have been married to her half-brother (Cleopatra and Mark Antony's son) Polemon II, King of Pontus
-aka Ptolemy Philadelphus aka Sampsiceramus I? The Bosphorus Kingdom,
+would have been married to her half-brother (Cleopatra and Mark Antony's son) Polemon II, King of Pontus aka Ptolemy Philadelphus aka Sampsiceramus I? The Bosphorus Kingdom,
 also known as the Kingdom of the Cimmerian Bosphorus, was located next
 to the Pontus Kingdom
 
@@ -106,9 +105,14 @@ Dynamis's grandfather was Mithridates VI Eupator who also carried the
 title "King of Kings". Her uncle was Mithridates 'Chrestus' [^5].
 Mithridates translates to 'the gift of Mithra' in ancient Persian and is
 an obvious reference to the Mithras cult. Asander beat Mithridates
-Chrestus in battle to become King of Bosphorus. One source I read
-claimed that this was a fratricidal war and that Asander and Mithridates
-Chrestus were brothers. In the mythology of ancient Rome, the city is
+Chrestus in battle to become King of Bosphorus. After Mithridates Chrestus's loss to Asander he was imprisoned and executed by his elder brother, Mithridates VI Eupator. So, was Asander was also Mithridates VI Eupator?
+
+![Fig.1.6](/images/MithridatesVIEupator.png){:width="400px"}
+
+Fig. 1.6. Coin depicting Mithridates VI Eupator. Notice the strong resemblance to the Asander coins above? Also notice the star and cresent that is visible in the Julius Caesar coin above and the winged Pegasus within a Dionysiac wreath of ivy and fruit that is seen in the Asander coin? 
+
+If Asander was also Mithridates VI Eupator then his war with Mithridates
+Chrestus was a fratricidal war. In the mythology of ancient Rome, the city is
 founded as the result of a fratricide, with the twins Romulus and Remus
 quarreling over who has the favor of the gods and over each other's
 plans to build Rome, with Romulus becoming Rome's first king and
@@ -116,10 +120,7 @@ namesake after killing his brother (this also mirrors the biblical
 account of Cain and Abel). This would make Asander Dynamis's uncle and
 husband. Asander beating Mithridates Chrestus in battle to become ruler
 of Bosphorus also parallels Julius Caesar beating Gnaeus Pompeius Magnus
-(Pompey the Great) to become ruler of Rome. If they were in fact
-brothers, then Mithridates VI Eupator's son Machares was born in 110 BCE,
-the same year as Asander and Julius Caesar, so that would be his real
-name.
+(Pompey the Great) to become ruler of Rome.
 
 Amyntas Nikator aka Amyntas of Galatia aka Jesus ben Fabus aka Isa Amen
 (Jesus Amen of Rev. iii. 14) [^6] was married to Stratonice who was the
@@ -174,9 +175,9 @@ Drusilla of Mauretania aka Julia Ourania of Parthia aka 'Philo of
 Alexandria' (aka Julius Philo, of the Julia gens, because she was the adopted granddaughter of Julius Caesar). She was also Claudius and Nero's secretary Pallas and Vespasian's first cousin and mistress Antonia Caenis. "The full name of Pallas was Marcus Antonius Pallas, the Antonius part is an obvious sign of descent from Mark Antony and that Pallas wasn't a random slave. (Philo's hebrew name was Yedidia which means "beloved of God", or "friend of God", which is the same as Theophilos in Greek. Around 26% of the New Testament was written to Theophilus in Luke and Acts of the Apostles).
 
 ![Fig.
-1.6](/images/AlexanderPhilo.jpg){:width="400px"}
+1.7](/images/AlexanderPhilo.jpg){:width="400px"}
 
-Fig. 1.6. (L) Alexander (grandson of King Herod) aka Gaius Julius
+Fig. 1.7. (L) Alexander (grandson of King Herod) aka Gaius Julius
 Alexander, Herodian Prince of Judaea aka Alexander the Alabarch aka
 (King/Tetrarch) Ptolemy (Alexander) bar Menneus aka Ptolemy of
 Mauretania aka "Jesus" in the bible. (R) Cleopatra (Thea Philopator) of
@@ -194,14 +195,14 @@ Adiabene/Edessa aka Ptolemy aka Yakov Zu Tolomoy aka Izates aka Jesus
 Emmanuel aka Monobazus of Adiabene [^8]
 
 ![Fig.
-1.7](/images/Josephus.jpg){:width="400px"}
+1.8](/images/Josephus.jpg){:width="400px"}
 
-Fig. 1.7. 'Josephus' bust which I identify as
+Fig. 1.8. 'Josephus' bust which I identify as
 Tiberius Julius Alexander. Compare it to Nerva's depictions. So, 'Josephus' was Philo of Alexandria's son. Tiberius Julius Alexander's son was named 'Philopappos' and one of his mother's aliases was 'Alexandria bat Matthias' which is where the pseudonym 'Joseph bar Matthias' comes from. Also, drop the initial b and final s in the name "Bar Mathias" and you get (Joseph of) Arimathea.
 
-![Fig. 1.8](/images/coin-abgar-phraates.png){:width="400px"}
+![Fig. 1.9](/images/coin-abgar-phraates.png){:width="400px"}
 
-Fig. 1.8. (L) and (R) show King Izates Monobazus of Edessa (known in
+Fig. 1.9. (L) and (R) show King Izates Monobazus of Edessa (known in
 Greek as the "Kingdom of Ourania" or in English as the "Kingdom of
 Heaven") wearing a crown of thorns. Izates or Izas is his title which is
 an ancient Greek translation of the Avestan word Yazatas (Persian:
@@ -210,9 +211,9 @@ and Sultan Ezid in the Yazadi ('Iza'di) religion. He was the uncle of
 Tiberius Julius Sauromates II, King of Bosphorus. The middle image
 source: The Alexander Mosaic, Huqoq, Israel.
 
-![Fig.1.9](/images/SauromatesII.jpg){:width="400px"}
+![Fig.1.10](/images/SauromatesII.jpg){:width="400px"}
 
-Fig. 1.9. Tiberius Julius Sauromates II, King of Bosphorus, who was the
+Fig. 1.10. Tiberius Julius Sauromates II, King of Bosphorus, who was the
 son of Tiberius Julius Cotys (aka Tiberius Julius Alexander aka Arrius
 Calpernius Piso aka Arrius Varus aka Emperor Nerva), great-grandson of
 Dynamis aka Cleopatra and Mark Antony. Does he look familiar? ΒΑCΙΛΕΩC
@@ -371,9 +372,9 @@ I asked ChatGPT to translate Roman emperor names and Bosphorian princes and king
 Vespassian was also a great-grandson of Cleopatra and Mark Antony (King Herod). He was Herod Pollio aka Herod Agrippa I, grandson of King Herod's son Aristobulus IV. Vespasian was his title, not his name (Vas/Bas was the royal abbreviation for the Greek word Basilius which = King, and Pasius = Peace. 'Vespasian' = 'King Peace') [^12]. He was also 'Flavius Scaevinus' the conspirator who was involved in Nero's assassination. 
 
 ![Fig.
-1.10](/images/Vespasian.jpg){:width="400px"}
+1.11](/images/Vespasian.jpg){:width="400px"}
 
-Fig. 1.10. Compare Vespasian's depiction to Herod Agrippa I
+Fig. 1.11. Compare Vespasian's depiction to Herod Agrippa I
 
 'Antonia Caenis' was Vespassian's mistress who was his first cousin who was Cleopatra (Thea Philopator) of Mauretania aka Cleopatra IX aka Helene aka Drusilla of Mauretania aka Julia Ourania of Parthia aka Philo of Alexandria. (Caenis was the Greek goddess who was transformed into a man, and she role-played as two men: Marcus Antonius Pallas and Philo).
 
@@ -445,9 +446,9 @@ In the name Asander, "Asa" means "lord" in Thracian, and "andros" means "man" or
 Hesus/Esus/Iesus then eventually phonetically shifted to I-zas/Izas/Izates.
 
 ![Fig.
-1.11](/images/Esus.jpg){:width="400px"}
+1.12](/images/Esus.jpg){:width="400px"}
 
-Fig. 1.11. Statue from classical Anatolia that is dedicated to "Esumopas Cnusticus". Esumopas means "Slave to Esus", and Esus means lord in Proto-Celtic. If you combine the Etruscan word "cnus" with the suffix "-ticus" or "-tic-" you get a word that translates to "anointed one" or "consecrated one", ie. a "Christ". So, that inscription translates to: "Slave to Lord (Esus) Christ". The "VSLM" inscription is an abbreviation for the Latin phrase "Votum Solvit Libens Merito" which translates to "He pays his vow willingly and with merit" or "He fulfills his vow with pleasure and deserving", which is often found on Roman coins and other artifacts. Esus was crucified in mythology and his symbol was an axe, so he was associated with woodcutting, forestry, carpentry. 
+Fig. 1.12. Statue from classical Anatolia that is dedicated to "Esumopas Cnusticus". Esumopas means "Slave to Esus", and Esus means lord in Proto-Celtic. If you combine the Etruscan word "cnus" with the suffix "-ticus" or "-tic-" you get a word that translates to "anointed one" or "consecrated one", ie. a "Christ". So, that inscription translates to: "Slave to Lord (Esus) Christ". The "VSLM" inscription is an abbreviation for the Latin phrase "Votum Solvit Libens Merito" which translates to "He pays his vow willingly and with merit" or "He fulfills his vow with pleasure and deserving", which is often found on Roman coins and other artifacts. Esus was crucified in mythology and his symbol was an axe, so he was associated with woodcutting, forestry, carpentry. 
 
 Endnotes (chapter 7)
 
@@ -480,9 +481,9 @@ Quintus Tinnius Rufus (Turnus Rufus the Evil) was Pontius Pilate, the Roman gove
 Esus then became Esau (Edom) the progenitor of the Edomites in the bible, a metaphor for the forces of oppression and injustice. The Jewish version of Antichrist (Armilus) is based on Romulus (Armilus is a Hebrew corruption or adaptation of the Latin name Romulus). The Greco-Egyptian deity Serapis (the horned deity) became Satan. Lucifer, or "lucem ferre", which means "light-bearer" or "morning star", is Venus who was the Roman goddess whose functions encompassed love, beauty, desire, sex, fertility, prosperity, and victory. In Roman mythology, she was the ancestor of the Roman people through her son, Aeneas. Also, the jews' hated enemy in the bible are the Celts (Gog or Goy). Flavius Josephus in the 'Antiquities of the Jews'. Book I. Chapter 1: "For Gomer founded those whom the Greeks now call Galatians [Galls], but were then called Gomerites. Magog founded those that from him were named Magogites; but who are by the Greeks called Scythians". Josephus is suggesting that the Hebrew word "Goy" (meaning "nation" or "people") is related to the Greek word "Galatae" (meaning "Gauls" or "Galatians"), In biblical prophecy, Gog is described as a leader from the land of Magog in the north, who will gather a coalition of nations to attack Israel, but will be defeated by God in a great battle.
 
 ![Fig.
-1.12](/images/Romulus.jpg){:width="400px"}
+1.13](/images/Romulus.jpg){:width="400px"}
 
-Fig. 1.12. Quirinus who was the deified Romulus, who in Roman mythology was the founder and first king of Rome. Romulus (Armilus) is the jewish antichrist. A link can be established between Quirinus and Esus. In Proto-Celtic, the word "Kwerynos" means "lord" exactly like Kyrios in ancient Greek, and is related to the Etruscan "Kuris" and the Roman "Quirinus". Quirinus then can potentially translate to "Deified Lord" or "Lord Esus" in the context of Celtic and Etruscan mythology. In Plutarch’s biography of Romulus we are told he was the son of god, born of a virgin (Rhea Silvia, a Vestal Virgin); an attempt is made to kill him as a baby, and he is saved, and raised by a poor family, becoming a lowly shepherd; then as a man he becomes beloved by the people, hailed as king, and killed by the conniving elite; then he rises from the dead, appears to a friend to tell the good news to his people, and ascends to heaven to rule from on high. Just like Esus and Jesus.   
+Fig. 1.13. Quirinus who was the deified Romulus, who in Roman mythology was the founder and first king of Rome. Romulus (Armilus) is the jewish antichrist. A link can be established between Quirinus and Esus. In Proto-Celtic, the word "Kwerynos" means "lord" exactly like Kyrios in ancient Greek, and is related to the Etruscan "Kuris" and the Roman "Quirinus". Quirinus then can potentially translate to "Deified Lord" or "Lord Esus" in the context of Celtic and Etruscan mythology. In Plutarch’s biography of Romulus we are told he was the son of god, born of a virgin (Rhea Silvia, a Vestal Virgin); an attempt is made to kill him as a baby, and he is saved, and raised by a poor family, becoming a lowly shepherd; then as a man he becomes beloved by the people, hailed as king, and killed by the conniving elite; then he rises from the dead, appears to a friend to tell the good news to his people, and ascends to heaven to rule from on high. Just like Esus and Jesus.   
 
 So, Talmudic jews who were hiding out in the Himyarite Kingdom after Emperor
 Hadrian kicked them out of judea basically just cut-and-pasted from one of the Bosphoran/Roman imperial cults of the time and infused a slave morality into it. Getting people to abandon their religons for a new one is an almost impossible task, so instead, through religious syncretism and intertextuality, creating a new sect of an established religion makes it easier for a population to adapt. Julius Caesar aka Asander of Bosphorus or one of his successors in the Bosphoran imperial cult (King Izates Monobazus or Tiberius Julius Sauromates II) was replaced with Simon bar Kokhba. This became modern Christianity.
