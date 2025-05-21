@@ -44,7 +44,7 @@ Julius Caesar was Asander of Bosphorus. Cleopatra was Dynamis, queen of Bosphoru
 
 Note on locations: After a year of research, I believe that much of what we know about history from antiquity is fabricated. I believe that the Church Fathers and the Vatican transposed Rome from the Bosphorus in classical Anatolia to Italy and not the other way around as conventionally told. Later, the Jesuits and people like Joseph Justus Scaliger, who was the Jesuit priest who "discovered" the majority of texts from antiquity that we use today, usually on demand, and Poggio Bracciolini, who was the individual responsible for collecting documents for him, further added to the distortion of historical records. This manipulation of historical facts has led to a distorted understanding of the past, and it is likely that many events, dates, and figures have been altered or fabricated to serve the interests of the Church and other powerful institutions.
 
-This book challenges mainstream historiography. My methodologies are: archaeological and numismatic evidence, linguistic and etymological analysis, historical correlation and timeline analysis. The sources that inspired my work is listed in the 'Further reading' section at the end of the book. 
+This book challenges mainstream historiography. My methodologies are: archaeological and numismatic evidence, linguistic and etymological analysis, historical correlation and timeline analysis. The sources that inspired my work are listed in the 'Further reading' section at the end of the book. 
 
 #### 1 Name and Title Meanings
 
