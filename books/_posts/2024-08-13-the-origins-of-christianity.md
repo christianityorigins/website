@@ -267,7 +267,7 @@ Boethus was another of Cleopatra's regional aliases?  If you identify
 King Herod as Mark Antony aka Tiberius Claudius Nero aka Phraates IV of
 Parthia's regional alias then the picture becomes clearer.
 
-![Fig.1.12](/images/PtolemyXII.jpg){:width="400px"}
+![Fig.1.12](/images/PtolemyXII.jpeg){:width="400px"}
 
 Fig. 1.12. Ptolemy X Alexander I, king of Egypt, who was also Mithridates VI Eupator, Simon Boethus/Magus/Ptolemy (Alexander) bar Menneus, et.al.
 
