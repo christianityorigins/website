@@ -267,6 +267,10 @@ Boethus was another of Cleopatra's regional aliases?  If you identify
 King Herod as Mark Antony aka Tiberius Claudius Nero aka Phraates IV of
 Parthia's regional alias then the picture becomes clearer.
 
+![Fig.1.12](/images/PtolemyXII.jpg){:width="400px"}
+
+Fig. 1.12. Ptolemy X Alexander I, king of Egypt, who was also Mithridates VI Eupator, Simon Boethus/Magus/Ptolemy (Alexander) bar Menneus, et.al.
+
 The connection between Simon Boethus/Magus/Ptolemy X Alexander I/Ptolemy
 (Alexander) bar Menneus and Julius Caesar is obviously through his
 daughter Cleopatra whom Julius Caesar/Asander married. Using Josephus as
@@ -378,9 +382,9 @@ I asked ChatGPT to translate Roman emperor names and Bosphorian princes and king
 Vespassian was also a great-grandson of Cleopatra and Mark Antony (King Herod). He was Herod Pollio aka Herod Agrippa I, grandson of King Herod's son Aristobulus IV. Vespasian was his title, not his name (Vas/Bas was the royal abbreviation for the Greek word Basilius which = King, and Pasius = Peace. 'Vespasian' = 'King Peace') [^12]. He was also 'Flavius Scaevinus' the conspirator who was involved in Nero's assassination. 
 
 ![Fig.
-1.12](/images/Vespasian.jpg){:width="400px"}
+1.13](/images/Vespasian.jpg){:width="400px"}
 
-Fig. 1.12. Compare Vespasian's depiction to Herod Agrippa I
+Fig. 1.13. Compare Vespasian's depiction to Herod Agrippa I
 
 'Antonia Caenis' was Vespassian's mistress who was his first cousin who was Cleopatra (Thea Philopator) of Mauretania aka Cleopatra IX aka Helene aka Drusilla of Mauretania aka Julia Ourania of Parthia aka Philo of Alexandria. (Caenis was the Greek goddess who was transformed into a man, and she role-played as two men: Marcus Antonius Pallas and Philo).
 
@@ -452,9 +456,9 @@ In the name Asander, "Asa" means "lord" in Thracian, and "andros" means "man" or
 Hesus/Esus/Iesus then eventually phonetically shifted to I-zas/Izas/Izates.
 
 ![Fig.
-1.13](/images/Esus.jpg){:width="400px"}
+1.14](/images/Esus.jpg){:width="400px"}
 
-Fig. 1.13. Statue from classical Anatolia that is dedicated to "Esumopas Cnusticus". Esumopas means "Slave to Esus", and Esus means lord in Proto-Celtic. If you combine the Etruscan word "cnus" with the suffix "-ticus" or "-tic-" you get a word that translates to "anointed one" or "consecrated one", ie. a "Christ". So, that inscription translates to: "Slave to Lord (Esus) Christ". The "VSLM" inscription is an abbreviation for the Latin phrase "Votum Solvit Libens Merito" which translates to "He pays his vow willingly and with merit" or "He fulfills his vow with pleasure and deserving", which is often found on Roman coins and other artifacts. Esus was crucified in mythology and his symbol was an axe, so he was associated with woodcutting, forestry, carpentry. 
+Fig. 1.14. Statue from classical Anatolia that is dedicated to "Esumopas Cnusticus". Esumopas means "Slave to Esus", and Esus means lord in Proto-Celtic. If you combine the Etruscan word "cnus" with the suffix "-ticus" or "-tic-" you get a word that translates to "anointed one" or "consecrated one", ie. a "Christ". So, that inscription translates to: "Slave to Lord (Esus) Christ". The "VSLM" inscription is an abbreviation for the Latin phrase "Votum Solvit Libens Merito" which translates to "He pays his vow willingly and with merit" or "He fulfills his vow with pleasure and deserving", which is often found on Roman coins and other artifacts. Esus was crucified in mythology and his symbol was an axe, so he was associated with woodcutting, forestry, carpentry. 
 
 Endnotes (chapter 7)
 
@@ -487,9 +491,9 @@ Quintus Tinnius Rufus (Turnus Rufus the Evil) was Pontius Pilate, the Roman gove
 Esus then became Esau (Edom) the progenitor of the Edomites in the bible, a metaphor for the forces of oppression and injustice. The Jewish version of Antichrist (Armilus) is based on Romulus (Armilus is a Hebrew corruption or adaptation of the Latin name Romulus). The Greco-Egyptian deity Serapis (the horned deity) became Satan (Pan (Greek) or Cernunnos (Celtic) were also horned Pagan deities). Lucifer, or "lucem ferre", which means "light-bearer" or "morning star", is Venus who was the Roman goddess whose functions encompassed love, beauty, desire, sex, fertility, prosperity, and victory. In Roman mythology, she was the ancestor of the Roman people through her son, Aeneas. In Norse mythology Iðunn/Idun (equivalent to Greek Hebe, and Celtic Brigid), is the goddess of youth, her name means "giver of eternal youth". The other gods get golden apples from her. She stores them in a basket and they keep the gods young until the end of the world. Idun became Eve in the bible the archetypal sinner whose actions brought death into the world (Romans 5:12). Inanna (equivalent to Freyja (Norse mythology), Aphrodite (Greek mythology), Venus (Roman mythology), and Morrigan (Celtic mythology)), the ancient goddess of war, love, and fertility, became the Whore of Babylon. Artemis, the goddess of the wilderness, wild animals, nature, vegetation, childbirth, care of children, and chastity, became recast as a witch (19:24). (The demonization of Venus (lucifer), Idun/Hebe/Brigid, Inanna/Freyja/Aphrodite/Venus, Artemis, and other female Pagan deities, was designed to instil a strong hatred of women among European men). Also, the jews' hated enemy in the bible are the Celts (Gog or Goy). Flavius Josephus in the 'Antiquities of the Jews'. Book I. Chapter 1: "For Gomer founded those whom the Greeks now call Galatians [Galls], but were then called Gomerites. Magog founded those that from him were named Magogites; but who are by the Greeks called Scythians". Josephus is suggesting that the Hebrew word "Goy" (meaning "nation" or "people") is related to the Greek word "Galatae" (meaning "Gauls" or "Galatians"), In biblical prophecy, Gog is described as a leader from the land of Magog in the north, who will gather a coalition of nations to attack Israel, but will be defeated by God in a great battle.
 
 ![Fig.
-1.14](/images/Romulus.jpg){:width="400px"}
+1.15](/images/Romulus.jpg){:width="400px"}
 
-Fig. 1.14. Quirinus who was the deified Romulus, who in Roman mythology was the founder and first king of Rome. Romulus (Armilus) is the jewish antichrist. A link can be established between Quirinus and Esus. In Proto-Celtic, the word "Kwerynos" means "lord" exactly like Kyrios in ancient Greek, and is related to the Etruscan "Kuris" and the Roman "Quirinus". Quirinus then can potentially translate to "Deified Lord" or "Lord Esus" in the context of Celtic and Etruscan mythology. In Plutarch’s biography of Romulus we are told he was the son of god, born of a virgin (Rhea Silvia, a Vestal Virgin); an attempt is made to kill him as a baby, and he is saved, and raised by a poor family, becoming a lowly shepherd; then as a man he becomes beloved by the people, hailed as king, and killed by the conniving elite; then he rises from the dead, appears to a friend to tell the good news to his people, and ascends to heaven to rule from on high. Just like Esus and Jesus.   
+Fig. 1.15. Quirinus who was the deified Romulus, who in Roman mythology was the founder and first king of Rome. Romulus (Armilus) is the jewish antichrist. A link can be established between Quirinus and Esus. In Proto-Celtic, the word "Kwerynos" means "lord" exactly like Kyrios in ancient Greek, and is related to the Etruscan "Kuris" and the Roman "Quirinus". Quirinus then can potentially translate to "Deified Lord" or "Lord Esus" in the context of Celtic and Etruscan mythology. In Plutarch’s biography of Romulus we are told he was the son of god, born of a virgin (Rhea Silvia, a Vestal Virgin); an attempt is made to kill him as a baby, and he is saved, and raised by a poor family, becoming a lowly shepherd; then as a man he becomes beloved by the people, hailed as king, and killed by the conniving elite; then he rises from the dead, appears to a friend to tell the good news to his people, and ascends to heaven to rule from on high. Just like Esus and Jesus.   
 
 So, Talmudic jews who were hiding out in the Himyarite Kingdom after Emperor
 Hadrian kicked them out of judea basically just cut-and-pasted from one of the Bosphoran/Roman imperial cults of the time and infused a slave morality into it. Getting people to abandon their religons for a new one is an almost impossible task, so instead, through religious syncretism and intertextuality, creating a new sect of an established religion makes it easier for a population to adapt. Julius Caesar aka Asander of Bosphorus or one of his successors in the Bosphoran imperial cult (King Izates Monobazus or Tiberius Julius Sauromates II) was replaced with Simon bar Kokhba. This became modern Christianity.
