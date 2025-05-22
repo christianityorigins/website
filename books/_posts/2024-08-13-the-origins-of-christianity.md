@@ -20,12 +20,13 @@ _Preface_
 
   Introduction\
 1 Name and Title Meanings \
-2 Julius Caesar aka Asander of Bosphorus \
-3 Rome on the Bosphorus?\
-4 Flavian Dynasty\
-5 Julius Caesar was a Title \
-6 Esus the Celtic Deity \
-7 Subversion of the Imperial Cult\
+2 Alexander the Great \
+3 Julius Caesar aka Asander of Bosphorus \
+4 Rome on the Bosphorus?\
+5 Flavian Dynasty\
+6 Julius Caesar was a Title \
+7 Esus the Celtic Deity \
+8 Subversion of the Imperial Cult\
   Conclusion
   
 _Appendix A: The Symbol of the Cross_\
@@ -55,7 +56,53 @@ izad), meaning "lord".
 -   Monobazus: Sabazios is the Phrygian and Thracian version of Zeus. Ma'nu is likely a diminutive of Menneus ("son of man"), and then Manu-Sabazios becomes Monobazus. Monobazus also becomes "Bazus" or "Bar Izates" shortened to "baYZTus" (or bar YZT) through frequent oral repetition which then becomes "bOETHus". The Boethusians were a jewish priestly sect.
 -   Piso cognomen: "Appius" is a cognomen (personal name) of the Claudian family. Appius and Piso are synonymous (In Greek, Appius is rendered as Appios, from there Piso). The name Piso itself would be a form of Peisistratos/Pisistratos, the leading name of ancient Athens in Greece. (Pisistratos is a Latinized spelling of the Greek Peisistratos) It could be said that all the ruling elite of the Julio-Claudian dynasty were Pisos, including Nero who was nearly deposed by a Piso. Appius is also cognate with Arrius (through rhotacization in ancient Latin the /p/ and /r/ could be swapped).
 
-#### 2 Julius Caesar aka Asander of Bosphorus \
+#### 2 Alexander the Great
+
+A non-mainstream version of history, but one that is recorded in
+   the Persian Book of Kings, the Alexander Romance, and Islamic sources, is that Alexander the Great was a
+    Persian prince who was the son of Artaxerxes II Memnon ("Kai Bahman") and half-brother of Darius III ("Darab"). No one today is taught that such a relationship was even remotely possible in ancient times, much less taken as gospel in certain parts of the world. Nevertheless, the case can readily be made that the little kingdom of Macedon had been part of the Persian Empire from the time of Darius the Great. In fact, the very first Persian-appointed overseer of Macedon had the Persian name Bubares son of Megabyzus, and subsequent kings of Macedon are said to have descended from him. It is certainly no mystery that Egypt had become a Persian province. Alexander’s rapid and even enthusiastic acceptance in Babylon, Egypt, and Persia demonstrates that his legitimacy was not questioned anywhere within the Empire and its so-called tributary states.
+    
+In the book the Alexander Romance, a book that has its earliest copy dating back a couple of centuries after his life, Alexander accepts mortality only after achieving complete satisfaction in his conquests. In the so-called apocryphal accounts Alexander sails up the Ganges River and reaches a kind of Paradise after the conquest of all India is complete. He is not literally granted eternal life there, but nevertheless fulfills his goal of reaching this remote and privileged locale. In the Romance, Alexander also lives to play a part in the lives of the next generation of princes, who have grown to maturity and are even married when he visits them in the south of Egypt.
+
+The conqueror of the Indian sub-continent is known by a different name, Chandra-Gupta, one of the most celebrated kings of all of Indian history. Curiously, almost nothing is known about his early life until after the death of Alexander the Great. No sooner did the attempted conquest of Alexander end than that of Chandragupta began. The name Chandra Gupta can be interpreted as “Alexander the Copt/ Upper Egyptian” as Gupta has been linguistically associated with Coptos (a Greek word for a critical locale in Upper Egypt), and Chandra is a transliteration of Sander (a hypocorism of Alexander/ Iksander). There is a claim by ancient rulers of Bukhara/ Bochara on the Silk Road (in Sogdiana) that they were descended from Alexander – a claim which becomes far more credible (and even inevitable) when one realizes that Alexander’s life did not end in Babylon and his dynastic line did not actually die out.
+
+The groundwork for Christianity traces back to the Cult of Alexander. "Jesus" (Ye-Zeus (YHWH + Zeus), I(J)upiter-Zeus, Zeus-Amun, Zeus-Ahura Mazda, Zeus-Yahweh, etc.) then became a avatar for his direct descendants in an imperial cult, including Ptolemy XII Auletes/Ptolemy X Alexander I, king of Egypt aka Mithridates VI Eupator aka Ariarathes VII of Cappadocia, et.al., and his son Asander (obvious reference to Alexander), King of Bosphorus aka Pharnaces II aka Brogitarix, king of Galatia aka Ariarathes IX aka Julius Caesar.
+
+
+Endnotes (Chapter 2)
+
+(a) The jews
+declared Alexander a messiah, or "The Anointed One" (Chréstos/Soter)
+(Josephus. Antiquities, XI. 8. Talmud, Yoma 67b) because he "liberated"
+them from the Persians in 330 BC. Paradoxically, the Jews did the same
+with Cyrus the Great when he in turn "liberated" them from the
+Babylonians. The Jews also told Alexander the Great that the book of
+Daniel was a prophecy about him (it wasn't, they wrote it after they met
+him). The Book of Daniel "prophesied" of Alexander the Great of Greece
+conquering the whole world even Israel. He was called the Ram of God by
+Prophet Daniel and in Daniel 8:5-7 a male goat with a large horn between
+his eyes suddenly arises from the west and smashes both horns of the
+ram. The angel Gabriel tells Daniel this goat represents the kingdom of
+Greece and its large horn is its first king. Also, according to the first-century A.D. historian
+Plutarch, Alexander's mother Olympias told her son that he had been
+conceived when a thunderbolt -- interpreted as Zeus -- entered her womb,
+so he was divinely birthed. He died at 33. 'The Son of the Man' is a
+Koine->Aramaic->Koine mistranslation of Alexander and he was the "King
+of Kings".
+   
+(b) Other evidence of this is
+    that the Sanskrit language might be a dialect of Avestan, or a
+    Hellenized variant of Avestan, and the similarities of customs and
+    religions. Also, there is strong evidence that Alexander's
+    successor to Bactria, Diodotus I Soter, ruled India with the
+    regional identity of Ashoka the Great. See: Alexander Romance. The life of Alexander of Macedon.\
+
+(c) Alexander is also identified as the Islamic prophet Dhu al-Qurnayn
+    (He of Two Horns). His name comes from coins depicting him as Zeus
+    Ammon, a two-horned pagan god.
+
+
+#### 3 Julius Caesar aka Asander of Bosphorus \
 
 There was a Byzantine [^1] imperial cult where Julius Caesar [^2] took on the role of Asander, King of Bosphorus [^3] ("Asa" means "lord" in Thracian, and "andros" means "man" or "son of man" in Greek. Jesus is refered to as "the son of man" 81 times in the four canonical gospels. Asandro can also be interpreted as "son of the lord" or "son of Asa, the lord". The Thracian version of Zeus was Asa/Asaeus and the Celtic version of Zeus was Esus), and his wife Cleopatra used the regional alias of Dynamis Ourania [^4] (translates to 'heavenly power'), queen of Bosporus. The city of Byzantium, later called Constantinople and now Istanbul was/is located in the area called Bosphorus.
 
@@ -289,7 +336,7 @@ even has a story about a 'spurious Alexander' that showed up in Rome
 claiming to be the son of Herod who faked his death [^11], so he was
 'resurrected' as Juba II, king of Numidia and Mauretania. 
 
-Endnotes (Chapter 2)
+Endnotes (Chapter 3)
 
 (a) Amyntas Nikator aka Amyntas of Galatia aka Jesus ben Fabus aka Isa Amen (Jesus Amen of Rev. iii. 14) is an interesting figure. Historian Ranajit Pal has made the claim that Alexander the Great = Chandragupta Maurya (Alakshandra is a Sanskritized
     translation of Alexander and Gupta means guardian or protector in
@@ -314,7 +361,7 @@ So, Alexander aka Juba II was also Apollonius of Tyre. Juba II carried the title
 
 (e) Gautama Buddha was Gaumata Bardya, the son of Cyrus the Great. Ptolemy I Soter and his successors were closely associated with Serapis. "Jesus" was an avatar for the Bosphioran royal family. Apollonius of Tyana was king Juba II, the grandson of Julius Caesar/Asander and Cleopatra/Dynamis. All these aristocrats/kings took on religious personas and preached syncretic versions of Greco-Buddhism to the public: monotheism, renounce worldy possessions, asceticism, shame and guilt, you will be rewarded in the afterlife for your earthly suffering, etc. These cults were by design slave moralities to strip the will to power from the population to prevent rebellions. 
     
-#### 3 Rome on the Bosphorus?
+#### 4 Rome on the Bosphorus?
 
 My research on the origins of Christianity takes me to the Bosphorus
 river in classical Anatolia (Julius Caesar = Asander, King of Bosphorus,
@@ -346,7 +393,7 @@ Etruscans who established Rome were invaders from Anatolia, and the
 Carians who hailed from southwest Anatolia have a strong connection with
 the settlement of Rome (Aquilla = Qos = god of Kos of Caria).
 
-Endnotes (Chapter 3)
+Endnotes (Chapter 4)
 
 (a) Asander and Dynamis had one known son, Tiberius Julius Aspurgus Philoromaios. He was born about the same time as "Caesarion" and "Emperor Tiberius Julius Caesar". His wife, known only through numismatic evidence, was Gepae-pyris. Tiberius and Gepaepyris had two sons; the eldest was "Tiberius Julius Mithridates Philo-Germanicus Philopatris" ("son of Mithra, lover of Germanicus, lover of father"). Their second son was "Tiberius Julius Cotys I Philocaesar Philoromaios Eusebes" ("lover of Caesar, lover of Rome who is the Pious One").
 
@@ -376,7 +423,7 @@ I asked ChatGPT to translate Roman emperor names and Bosphorian princes and king
 -Vespasian: The Celtic name "Vespag" could be transliterated to the Etruscan name "Vespe" or "Vespi", which means "wasp" or "stinging insect". The Etruscan name "Vespe" is similar to the Latin name "Vespasian". Rhescuporis, a king of the Bosphorus, has a name that means "he who is stung" in Greek, with the Celtic name "Rhescu" being similar to the Etruscan name "Vespe". The Phoenician name "Vespas" or "Vespasos" could also be related, meaning "wasp" or "stinging insect". Lord is found in the Celtic translation of "Vespag" as "lord of the wasps".\
 -Domitian: The Celtic name "Domnach" could be transliterated to the Etruscan name "Dumne" or "Dumni", which means "lord" or "master". The Etruscan name "Dumne" is similar to the Latin name "Domitian". Sauromates I, a king of the Bosphorus, has a name that means "ruler of the land" or "lord of the earth" in Greek, with the Celtic name "Domnach" being similar to the Etruscan name "Dumne". The Thracian name "Dom
 
-#### 4 Flavian Dynasty \
+#### 5 Flavian Dynasty \
 
 Vespassian was also a great-grandson of Cleopatra and Mark Antony (King Herod). He was Herod Pollio aka Herod Agrippa I, grandson of King Herod's son Aristobulus IV. Vespasian was his title, not his name (Vas/Bas was the royal abbreviation for the Greek word Basilius which = King, and Pasius = Peace. 'Vespasian' = 'King Peace') [^12]. He was also 'Flavius Scaevinus' the conspirator who was involved in Nero's assassination. 
 
@@ -402,11 +449,11 @@ Aristobulus IV was likely Vespasian and Vitellius's father, so like his
 cousin Alexander (grandson of King Herod), he was also married to his
 sister). 
 
-Endnotes (Chapter 4)
+Endnotes (Chapter 5)
 
 (a) Theory: Alexander (grandson of King Herod) aka Gaius Julius Alexander, Herodian Prince of Judaea aka Alexander Lysimachus aka Alexander the Alabarch aka Tiberius Julius Alexander Major aka (King/Tetrarch) Ptolemy (Alexander) bar Menneus aka Ptolemy of Mauretania was also the Roman general 'Gnaeus Domitius Corbulo'. Gnaeus Domitius Corbulo conquered Armenia alongside Tiberius Julius Alexander (his son Tiberius Julius Alexander aka Arrius Calpernius Piso aka Arrius Varus aka Tiberius Julius Cotys aka Emperor Nerva), after which, Tigranes VI (Tiberius Julius Alexander) was installed as king. Compare his bust [link] to the famous 'Josephus' (Tiberius Julius Alexander) bust [link]. Notice a resemblance? If this is correct, then he (Alexander) would have been the brother-in-law to Caligula and father-in-law to Domitian. Tiridates of Armenia (who would have been Mithridates Chrestus' great-great-grandson) was the one who spread the religion Mithraism which was a syncretic a slave-morality religion to subjugate the Parthians. Mithras is inspired by Zoroastrianism, the religion of the Persians/Parthians, but Mithras is the same as Sabazios. It’s a solar son deity, a Jupiter. 
 
-#### 5 Julius Caesar was a Title 
+#### 6 Julius Caesar was a Title 
 
 Identifying Julius Caesar as Asander of Bosphorus necessitates a re-examination of his name. 
 
@@ -446,7 +493,7 @@ Also, Caesar, Kaiser (German for Caesar), Kesar or Kaysar (Persian for Caesar), 
 
 So, it seems that the Romans (in Anatolia) tried to assimilate the tribe that became modern jews by forcing their imperial cult on them and they got their identity from here. This is why several prominent members of this royal family identified as "Jews" despite being Aryan Sarmatians and Celtic Galatians.
 
-#### 6 Esus the Celtic Deity
+#### 7 Esus the Celtic Deity
 
 The Celts in classical Galatia worshiped a deity called Hesus/Esus/Iesus. The Celtic name Esus is believed to be related to the Proto-Celtic word "aisu", which means "lord" or "master". The letter "J" was invented in the 17th century, so the name "Jesus" would have been "Esus" in the classical sense. 
 
@@ -465,7 +512,7 @@ Endnotes (chapter 7)
 
 (b) This is why all christian celebrations derive from Druidism. Druidic Calendar: Yule (Winter Solstice) - December 21/22 Celebrate the rebirth of the sun (Christian Equivalent: Christmas (December 25)). Imbolc - February 1/2 Mark the midpoint between Yule and the spring equinox (Christian Equivalent: Candlemas (February 2)). Ostara (Spring Equinox) - March 20/21 Welcome the return of spring with eggs, rabbits, and feasting (Cristian Equivalent: Easter (movable date, typically in March or April)). Beltane - May 1/2 Honor the spirits of the land and the cycles of nature (Christian Equivalent: May Day (May 1) or Ascension Day (movable date, typically in May)). Litha (Summer Solstice) - June 20/21 Celebrate the peak of the sun's power (Christian Equivalent: St. John's Day (June 24)). Lammas - July 31/August 1 Mark the beginning of harvest time (Christian Equivalent: Feast of the Transfiguration (August 6) or Lammas Sunday (movable date, typically in August)). Mabon (Autumn Equinox) - September 20/21 Celebrate the second harvest (Christian Equivalent: Michaelmas (September 29) or Harvest Festival (movable date, typically in September or October)). Samhain - October 31/November 1 Honor the ancestors (Christian Equivalent: All Saints' Eve (October 31) or All Souls' Day (November 2)).\
 
-#### 7 Subversion of the Imperial Cult
+#### 8 Subversion of the Imperial Cult
 
 Sometime after the Bar Kokhba Revolt (132--136 CE), a group of rabbis
 that were headed by a rabbi named Akiva who led the Talmudic Pharisees
@@ -503,7 +550,7 @@ in the loss of all recorded history up until that point so that they
 could cover up the tracks of their psy-op religion.
 
 
-Endnotes (Chapter 7)
+Endnotes (Chapter 8)
 
 (a) Marcion of Sinope aka Markianos of Alexandria grew up in the Attis-Sabazios cult on Anatolia before traveling to Judea to study under rabbi Akiva and finally to Alexandria at the Alexandrian School.
 
