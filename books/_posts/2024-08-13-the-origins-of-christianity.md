@@ -95,6 +95,8 @@ of Kings".
     successor to Bactria, Diodotus I Soter, ruled India with the
     regional identity of Ashoka the Great. See: Alexander Romance. The life of Alexander of Macedon.\
 
+(c) British scholars (like William Jones) wrongly linked "Sandrocottus" (from Greek texts) to Chandragupta Maurya. Who was the real "Sandrocottus"? Seleucus I Nicator (Alexander’s general, ruler of Babylon). Chandragupta’s (Alexander) married Sandrocottus aka Seleucus I Nicator's daughter. Proof: Seleucus’ daughter was named "Helen"—same as Chandragupta’s queen.The Puranas describe "Saluka" (Seleucus) as a foreign ruler who married into the Mauryas. A cuneiform tablet from 305 BCE records: "The Greek king marched to India and made a treaty with the Indian king". This matches Seleucus’ treaty with Chandragupta.
+
 
 #### 3 Julius Caesar aka Asander of Bosphorus \
 
@@ -163,7 +165,7 @@ Asander (Pharnaces II?) beat Mithridates Chrestus (his uncle) in battle to becom
 
 ![Fig.1.6](/images/PharnacesII.jpg){:width="400px"}
 
-Fig. 1.6. Coin depicting Pharnaces II.
+Fig. 1.6. Coin depicting Pharnaces II. Pharnaces II "dies" in 47 BCE right when Asander appears in 47 BCE as King of Bosphorus. Pharnaces II called himself "King of Kings" on coins (like Asander).
 
 ![Fig.1.7](/images/AriarathesIX.jpg){:width="400px"}
 
@@ -309,7 +311,7 @@ Parthia's regional alias then the picture becomes clearer.
 
 ![Fig.1.13](/images/PtolemyXII.jpeg){:width="400px"}
 
-Fig. 1.13. Ptolemy XII Auletes/Ptolemy X Alexander I, king of Egypt, who was also Mithridates VI Eupator, Ariarathes VII of Cappadocia, Simon Boethus/Magus/Ptolemy (Alexander) bar Menneus, et.al.
+Fig. 1.13. Ptolemy XII Auletes/Ptolemy X Alexander I, king of Egypt, who was also Mithridates VI Eupator, Ariarathes VII of Cappadocia, Simon Boethus/Magus/Ptolemy (Alexander) bar Menneus, et.al. Mithridates VI married his sister Laodice—just as Ptolemy XII married his sister Cleopatra V. Both had daughters named Cleopatra who ruled (Cleopatra VII and Dynamis).
 
 The connection between Simon Boethus/Magus/Ptolemy XII Auletes/Ptolemy X Alexander I/Ptolemy
 (Alexander) bar Menneus and Julius Caesar is obviously through his
