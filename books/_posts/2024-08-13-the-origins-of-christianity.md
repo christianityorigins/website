@@ -88,7 +88,7 @@ so he was divinely birthed. He died at 33. 'The Son of the Man' is a
 Koine->Aramaic->Koine mistranslation of Alexander and he was the "King
 of Kings".
    
-(b) Other evidence of this is
+(b) Other evidence of this is theory
     that the Sanskrit language might be a dialect of Avestan, or a
     Hellenized variant of Avestan, and the similarities of customs and
     religions. Also, there is strong evidence that Alexander's
@@ -96,6 +96,8 @@ of Kings".
     regional identity of Ashoka the Great. See: Alexander Romance. The life of Alexander of Macedon.\
 
 (c) British scholars (like William Jones) wrongly linked "Sandrocottus" (from Greek texts) to Chandragupta Maurya. Who was the real "Sandrocottus"? Seleucus I Nicator (Alexander’s general, ruler of Babylon). Chandragupta (Alexander) married Sandrocottus aka Seleucus I Nicator's daughter. Proof: Seleucus’ daughter was named "Helen"—same as Chandragupta’s queen.The Puranas describe "Saluka" (Seleucus) as a foreign ruler who married into the Mauryas. A cuneiform tablet from 305 BCE records: "The Greek king marched to India and made a treaty with the Indian king". This matches Seleucus’ treaty with Chandragupta. Sandrocottus = Sandros = "Alexander" (short form, like "Sander"), Kottos = "Cotys" (Thracian for "lord"). Thus, Sandrocottus was a title that translates to: "Lord Alexander"—a title for Seleucus I Nicator.
+
+(d) Note the family tree of one of Cleopatra's aliaes: https://www.geni.com/people/Mithridates/6000000025720991851 (Brothers: Darius, Cyrus, Xerxes. Members of this royal family also have repeating figures. For example, Alexander's general Seleucus I Nicator was married to Stratonice. Amyntas of Galatia was married to Stratonice, who was the sister of Asander, king of Bosphorus. Bubares (https://en.wikipedia.org/wiki/Bubares) was a Persian prince who married Alexander's sister. They had a son named Amyntas (son of Bubares) (https://en.wikipedia.org/wiki/Amyntas_(son_of_Bubares)). He was the king of the city Phrygia that was located in Galatia in classical Anatolia. Further down the line there was an Amyntas Nikator aka Amyntas of Galatia (https://en.wikipedia.org/wiki/Amyntas_of_Galatia) who ruled an empire that streched from modern day Turkey through India, exactly like Amyntas (son of Bubares). Seeing that there is widespread forgery in the historical record, is it possible that a phantom 300 years were added to the chronology?
 
 #### 3 Julius Caesar aka Asander of Bosphorus \
 
@@ -343,18 +345,16 @@ Endnotes (Chapter 3)
     https://www.academia.edu/695219/Diodotus_I_was_Ashoka_An_Altar_of_Alexander_Now_Standing_Near_Delhi
     [[link](https://www.academia.edu/695219/Diodotus_I_was_Ashoka_An_Altar_of_Alexander_Now_Standing_Near_Delhi)]). This would mean that Alexander completed his conquest of India and then adopted a local identity. So, India was under Greek rule since Alexander. Being the king of a region populated by Gauls, Amyntas of Galatia's religion would have been Druidism. The ancient Vedas are just the eastern branch of Druidism (https://www.academia.edu/13113385/Druidism_and_Vedism_Compared). The name Abaris or Abharas, from Abaris the Hyperborian, the Druid teacher of Pythagoras, derives from the Old Irish word abhar, which means chief or noble and was a generic term for Druid or Chief Druid. Abharas is also related to the Sanskrit word Bhārata, a legendary king in the Vedas. Bhārata is at the root of the word Bharatvarsha which is a term that is used to refer to the Indian subcontinent as a whole. 
 
-(b) Note the family tree of one of Cleopatra's aliaes: https://www.geni.com/people/Mithridates/6000000025720991851 (Brothers: Darius, Cyrus, Xerxes).
-
-(c) Suetonius (Divus Julius 88) notes Caesar's comet or 'Julian Star'
+(b) Suetonius (Divus Julius 88) notes Caesar's comet or 'Julian Star'
     (or Sidus Iulium) rose during his funeral games, interpreted as his
     soul's ascent---eerily similar to Christ's resurrection narrative.
 
-(d) Apollonius of Tyre was married to the daughter of a king of Libya ("Historia Apollonii Regis Tyri" or "The Story of Apollonius, King of Tyre"), who was Cleopatra Selene aka Drusilla (aka Cleopatra (Thea Philopator) of Mauretania aka Cleopatra IX aka Helene aka Julia Ourania of Parthia aka Philo of Alexandria. Drusilla was the wife of Azizus who was her brother Juba II (Alexander Helios aka Alexander (son of King Herod)) aka Gaius Julius Alexander, Herodian Prince of Judaea aka Alexander Lysimachus aka Alexander the Alabarch aka Tiberius Julius Alexander Major aka (King/Tetrarch) Ptolemy (Alexander) bar Menneus aka Ptolemy of Mauretania aka Phraates V (the “King of Kings”) aka Monobazus I King of Adiabene).\
+(c) Apollonius of Tyre was married to the daughter of a king of Libya ("Historia Apollonii Regis Tyri" or "The Story of Apollonius, King of Tyre"), who was Cleopatra Selene aka Drusilla (aka Cleopatra (Thea Philopator) of Mauretania aka Cleopatra IX aka Helene aka Julia Ourania of Parthia aka Philo of Alexandria. Drusilla was the wife of Azizus who was her brother Juba II (Alexander Helios aka Alexander (son of King Herod)) aka Gaius Julius Alexander, Herodian Prince of Judaea aka Alexander Lysimachus aka Alexander the Alabarch aka Tiberius Julius Alexander Major aka (King/Tetrarch) Ptolemy (Alexander) bar Menneus aka Ptolemy of Mauretania aka Phraates V (the “King of Kings”) aka Monobazus I King of Adiabene).\
 https://en.wikipedia.org/wiki/Apollonius_of_Tyre_(philosopher)\
 https://en.wikipedia.org/wiki/Apollonius_of_Tyre\
 So, Alexander aka Juba II was also Apollonius of Tyre. Juba II carried the title "Rex Literatissimus" which can be translated as "Most Learned King" or "The Most Scholarly King". He was known as a philosopher. Is Apollonius of Tyre the same person as Apollonius of Tyana? This would make Apollonius of Tyana the brother-husband of Philo of Alexandria and the father of Josephus. These three created the core of Christianity.
 
-(e) Gautama Buddha was Gaumata Bardya, the son of Cyrus the Great. Ptolemy I Soter and his successors were closely associated with Serapis. "Jesus" was an avatar for the Bosphioran royal family. Apollonius of Tyana was king Juba II, the grandson of Julius Caesar/Asander and Cleopatra/Dynamis. All these aristocrats/kings took on religious personas and preached syncretic versions of Greco-Buddhism to the public: monotheism, renounce worldy possessions, asceticism, shame and guilt, you will be rewarded in the afterlife for your earthly suffering, etc. These cults were by design slave moralities to strip the will to power from the population to prevent rebellions. 
+(d) Gautama Buddha was Gaumata Bardya, the son of Cyrus the Great. Ptolemy I Soter and his successors were closely associated with Serapis. "Jesus" was an avatar for the Bosphioran royal family. Apollonius of Tyana was king Juba II, the grandson of Julius Caesar/Asander and Cleopatra/Dynamis. All these aristocrats/kings took on religious personas and preached syncretic versions of Greco-Buddhism to the public: monotheism, renounce worldy possessions, asceticism, shame and guilt, you will be rewarded in the afterlife for your earthly suffering, etc. These cults were by design slave moralities to strip the will to power from the population to prevent rebellions. 
     
 #### 4 Rome on the Bosphorus?
 
