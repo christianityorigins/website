@@ -95,8 +95,7 @@ of Kings".
     successor to Bactria, Diodotus I Soter, ruled India with the
     regional identity of Ashoka the Great. See: Alexander Romance. The life of Alexander of Macedon.\
 
-(c) British scholars (like William Jones) wrongly linked "Sandrocottus" (from Greek texts) to Chandragupta Maurya. Who was the real "Sandrocottus"? Seleucus I Nicator (Alexander’s general, ruler of Babylon). Chandragupta’s (Alexander) married Sandrocottus aka Seleucus I Nicator's daughter. Proof: Seleucus’ daughter was named "Helen"—same as Chandragupta’s queen.The Puranas describe "Saluka" (Seleucus) as a foreign ruler who married into the Mauryas. A cuneiform tablet from 305 BCE records: "The Greek king marched to India and made a treaty with the Indian king". This matches Seleucus’ treaty with Chandragupta.
-
+(c) British scholars (like William Jones) wrongly linked "Sandrocottus" (from Greek texts) to Chandragupta Maurya. Who was the real "Sandrocottus"? Seleucus I Nicator (Alexander’s general, ruler of Babylon). Chandragupta (Alexander) married Sandrocottus aka Seleucus I Nicator's daughter. Proof: Seleucus’ daughter was named "Helen"—same as Chandragupta’s queen.The Puranas describe "Saluka" (Seleucus) as a foreign ruler who married into the Mauryas. A cuneiform tablet from 305 BCE records: "The Greek king marched to India and made a treaty with the Indian king". This matches Seleucus’ treaty with Chandragupta. Sandrocottus = Sandros = "Alexander" (short form, like "Sander"), Kottos = "Cotys" (Thracian for "lord"). Thus, Sandrocottus was a title that translates to: "Lord Alexander"—a title for Seleucus I Nicator.
 
 #### 3 Julius Caesar aka Asander of Bosphorus \
 
