@@ -40,7 +40,7 @@ To maintain control over their subjects, imperial powers in antiquity employed a
 
 Note on aliases: I believe that the royal elites in antiquity role-played as if they were characters in a play, and they used regional aliases and fictional deaths as story patterns or archetypes. They killed off one character and then assumed the role of another one in a different location. For example, the governor of Roman Egypt from 33 CE to 38, Aulus Avillius Flaccus, was also Polemon II of Pontus, who was the prince of the Bosporan, Pontus, Cilicia, and Cappadocia, which was the regional alias of Emperor Titus. The character of Aulus Avillius Flaccus dies at the same time Polemon II of Pontus takes power, and then Polemon II of Pontus dies around the same time Titus becomes emperor. The way of connecting them is through the fact that they were all married to the same woman, Berenice, granddaughter of King Herod. The numerous aliases they used could also hide the fact that these royal elites were heavily into incest which would have repulsed the population. 
 
-Julius Caesar was Asander of Bosphorus, Pharnaces II, and Ariarathes IX. Cleopatra was Dynamis, queen of Bosphorus. Mark Antony was Ptolemy of Cyprus, Polemon I of Pontus, King Herod, Tiberius Claudius Nero, and Phraates IV of Parthia. Vespasian was Herod Pollio and Herod Agrippa I, grandson of King Herod's son Aristobulus IV. All evidence to prove my claims will be found in the following chapters.
+Julius Caesar was Asander of Bosphorus, Pharnaces II, Brogitarix, king of Galatia, and Ariarathes IX. Cleopatra was Dynamis, queen of Bosphorus. Mark Antony was Ptolemy of Cyprus, Polemon I of Pontus, King Herod, Tiberius Claudius Nero, and Phraates IV of Parthia. Vespasian was Herod Pollio and Herod Agrippa I, grandson of King Herod's son Aristobulus IV. All evidence to prove my claims will be found in the following chapters.
 
 Note on locations: After a year of research, I believe that much of what we know about history from antiquity is fabricated. I have come to the conclusion that the Greco-Egyptian Ptolemaic Kingdom did not end at the point of Roman colonization, it just spread out and Ptolemaic kings adopted regional aliases. The Church Fathers, the Vatican, the Jesuits and people like Joseph Justus Scaliger, who was the Jesuit priest who "discovered" the majority of texts from antiquity that we use today, usually on demand, and Poggio Bracciolini, who was the individual responsible for collecting documents for him, further added to the distortion of historical records. This manipulation of historical facts has led to a distorted understanding of the past, and it is likely that many events, dates, and figures have been altered or fabricated to serve the interests of the Church and other powerful institutions.
 
@@ -132,11 +132,8 @@ Fig. 1.7. Coin depicting Ariarathes IX Eusebes Philopator, King of Cappadocia. N
 
 Fig. 1.8. Coin depicting Mithridates VI Eupator, father of Pharnaces II and Dynamis. Brother of Mithridates Chrestus. Notice the star and cresent that is visible in the Julius Caesar coin above and the winged Pegasus within a Dionysiac wreath of ivy and fruit that is seen in the Asander coin? 
 
-Amyntas Nikator aka Amyntas of Galatia aka Jesus ben Fabus aka Isa Amen
-(Jesus Amen of Rev. iii. 14) [^6] was married to Stratonice who was the
-sister of Asander. He was also a cousin of Dynamis and Asander. Amyntas
-Nikator aka Amyntas of Galatia ruled an empire that stretched from
-modern-day Turkey through India.
+Julius Caesar aka Asander of Bosphorus aka Pharnaces II aka Ariarathes IX was also Brogitarix, king of Galatia. Brogitarix's son Amyntas Nikator aka Amyntas of Galatia aka Jesus ben Fabus aka Isa Amen
+(Jesus Amen of Rev. iii. 14) [^6] ruled an empire that stretched from modern-day Turkey through India.
 
 Cleopatra aka Dynamis's son with Julius Caesar aka Asander = Tiberius
 Julius Aspurgus Philoromaios, who was born about the same time as
