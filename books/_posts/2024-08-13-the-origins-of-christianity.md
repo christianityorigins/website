@@ -64,7 +64,7 @@ In the book the Alexander Romance, a book that has its earliest copy dating back
 
 The conqueror of the Indian sub-continent is known by a different name, Chandra-Gupta, one of the most celebrated kings of all of Indian history. Curiously, almost nothing is known about his early life until after the death of Alexander the Great. No sooner did the attempted conquest of Alexander end than that of Chandragupta began. The name Chandra Gupta can be interpreted as “Alexander the Copt/ Upper Egyptian” as Gupta has been linguistically associated with Coptos (a Greek word for a critical locale in Upper Egypt), and Chandra is a transliteration of Sander (a hypocorism of Alexander/ Iksander). There is a claim by ancient rulers of Bukhara/ Bochara on the Silk Road (in Sogdiana) that they were descended from Alexander – a claim which becomes far more credible (and even inevitable) when one realizes that Alexander’s life did not end in Babylon and his dynastic line did not actually die out.
 
-The groundwork for Christianity traces back to the Cult of Alexander. "Jesus" (Ye-Zeus (YHWH + Zeus), I(J)upiter-Zeus, Zeus-Amun, Zeus-Ahura Mazda, Zeus-Yahweh, et.al., which were tiles Alexander carried) then became an avatar for his direct descendants in an imperial cult, including Ptolemy XII Auletes/Ptolemy X Alexander I, king of Egypt aka Mithridates VI Eupator aka Ariarathes VII of Cappadocia, et.al., and his son Asander (obvious reference to Alexander), King of Bosphorus aka Pharnaces II aka Brogitarix, king of Galatia aka Ariarathes IX aka Julius Caesar.
+The groundwork for Christianity traces back to the Cult of Alexander. "Jesus" (Ye-Zeus (YHWH + Zeus), I(J)upiter-Zeus, Zeus-Amun, Zeus-Ahura Mazda, Zeus-Yahweh, et.al., were titles Alexander carried) then became an avatar for his direct descendants in an imperial cult, including Ptolemy XII Auletes/Ptolemy X Alexander I, king of Egypt aka Mithridates VI Eupator aka Ariarathes VII of Cappadocia, et.al., and his son Asander (obvious reference to Alexander), King of Bosphorus aka Pharnaces II aka Brogitarix, king of Galatia aka Ariarathes IX aka Julius Caesar.
 
 
 Endnotes (Chapter 2)
@@ -94,10 +94,6 @@ of Kings".
     religions. Also, there is strong evidence that Alexander's
     successor to Bactria, Diodotus I Soter, ruled India with the
     regional identity of Ashoka the Great. See: Alexander Romance. The life of Alexander of Macedon.\
-
-(c) Alexander is also identified as the Islamic prophet Dhu al-Qurnayn
-    (He of Two Horns). His name comes from coins depicting him as Zeus
-    Ammon, a two-horned pagan god.
 
 
 #### 3 Julius Caesar aka Asander of Bosphorus \
@@ -183,7 +179,7 @@ Julius Caesar aka Asander of Bosphorus aka Pharnaces II aka Ariarathes IX was al
 Cleopatra aka Dynamis's son with Julius Caesar aka Asander = Tiberius
 Julius Aspurgus Philoromaios, who was born about the same time as
 Caesarion (Aspurgus translates to "horseman-lord" in Thracian languages.
-Sabazios was a Thracian deity worshipped as a horseman).
+Sabazios was a Thracian deity worshipped as a horseman. Cleopatra identified herself with the Greco-Egyptian godess Isis. So, he would have been Isa, son of Isis. The son of Isis in mythology was Horus, and that is why Caesarion's iconography has a Horus falcon on it).
 
 Cleopatra aka Dynamis's son with Mark Antony [^7] (aka Ptolemy of Cyprus, a brother of Ptolemy XII Auletes (Cleopatra’s father) making him Celopatra's uncle aka Polemon I of Pontus aka King Herod aka Tiberius Claudius Nero aka Phraates IV of Parthia) = Alexander Helios
 aka Alexander (son of King Herod) aka Juba II who was married to his
