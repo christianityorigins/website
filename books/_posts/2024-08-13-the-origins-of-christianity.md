@@ -519,10 +519,16 @@ The conqueror of the Indian sub-continent is known by a different name, Chandra-
 
 British scholars (like William Jones) wrongly linked "Sandrocottus" (from Greek texts) to Chandragupta Maurya. Who was the real "Sandrocottus"? Seleucus I Nicator (Alexander’s general, ruler of Babylon). Chandragupta (Alexander) married Sandrocottus aka Seleucus I Nicator's daughter. Proof: Seleucus’ daughter was named "Helen"—same as Chandragupta’s queen.The Puranas describe "Saluka" (Seleucus) as a foreign ruler who married into the Mauryas. A cuneiform tablet from 305 BCE records: "The Greek king marched to India and made a treaty with the Indian king". This matches Seleucus’ treaty with Chandragupta. Sandrocottus = Sandros = "Alexander" (short form, like "Sander"), Kottos = "Cotys" (Thracian for "lord"). Thus, Sandrocottus was a title that translates to: "Lord Alexander"—a title for Seleucus I Nicator.
 
-Chandragupta Maurya/Alexander's successor in India "Bindusara" (name derive from Vindusara (Sanskrit: "one whose essence is poison"), a nod to the Mithridatic lineage) was one of his sones. 
+Chandragupta Maurya/Alexander's successor in India "Bindusara" (whose name derives from Vindusara (Sanskrit: "one whose essence is poison"), a nod to the Mithridatic lineage) was either Heracles/Helios, Alexander’s son by Barsine, or Alexander IV, Alexander's son by Roxana. Bindusara = Ptolemy II Philadelphus (also Ariarathes III of Cappadocia?).
 
 Alexander's successor to Bactria, Diodotus I Soter, then became the successor to Bindusara and ruled India with the regional identity of Ashoka the Great. 
 
+Alexander = Ptolemy I Soter in Egypt. Ptolemy I Soter was married Alexanders mistress Thaïs, and his other wife Berenice had the same name as Barsine who was another mistress of Alexander. Barsine and Berenice are different forms of the Persian name Barsina. The Persian name Roshanak is translated as Barsina, so the names Barsine and Berenice are both related to the Roxana, which was the name of Alexander's Persian wife. 
+
+Mithridates I Ctistes (also known as Mithridates III of Cius) was a son or grandson of Alexander's son Heracles/Helios, who was born to Alexander and his mistress Barsine.
+
+Cleopatra of Macedon (Alexander's sister, b. 355 BCE) = Stateira II (his Persian wife, b. 346 BCE).
+    
 Alexander was the first "Jesus" (Ye-Zeus (YHWH + Zeus), I(J)upiter-Zeus, Zeus-Amun, Zeus-Ahura Mazda, Zeus-Yahweh, et.al., were titles Alexander carried) then became an avatar for his direct descendants in an imperial cult, including Ptolemy XII Auletes/Ptolemy X Alexander I, king of Egypt aka Mithridates VI Eupator aka Ariarathes VII of Cappadocia, et.al., and his son Asander (obvious reference to Alexander), King of Bosphorus aka Pharnaces II aka Brogitarix, king of Galatia aka Ariarathes IX aka Julius Caesar.
 
 _Appendix B: How did Christianity spread?_
