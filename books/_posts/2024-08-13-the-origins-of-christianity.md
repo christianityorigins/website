@@ -519,7 +519,7 @@ The conqueror of the Indian sub-continent is known by a different name, Chandra-
 
 British scholars (like William Jones) wrongly linked "Sandrocottus" (from Greek texts) to Chandragupta Maurya. Who was the real "Sandrocottus"? Seleucus I Nicator (Alexander’s general, ruler of Babylon). Chandragupta (Alexander) married Sandrocottus aka Seleucus I Nicator's daughter. Proof: Seleucus’ daughter was named "Helen"—same as Chandragupta’s queen.The Puranas describe "Saluka" (Seleucus) as a foreign ruler who married into the Mauryas. A cuneiform tablet from 305 BCE records: "The Greek king marched to India and made a treaty with the Indian king". This matches Seleucus’ treaty with Chandragupta. Sandrocottus = Sandros = "Alexander" (short form, like "Sander"), Kottos = "Cotys" (Thracian for "lord"). Thus, Sandrocottus was a title that translates to: "Lord Alexander"—a title for Seleucus I Nicator.
 
-Alexander's successor to Bactria, Diodotus I Soter, ruled India with the regional identity of Ashoka the Great. (See: Alexander Romance. The life of Alexander of Macedon).\
+Alexander's successor to Bactria, Diodotus I Soter, then became the successor to Chandragupta Maurya/Alexander and ruled India with the regional identity of Ashoka the Great. 
 
 Alexander was the first "Jesus" (Ye-Zeus (YHWH + Zeus), I(J)upiter-Zeus, Zeus-Amun, Zeus-Ahura Mazda, Zeus-Yahweh, et.al., were titles Alexander carried) then became an avatar for his direct descendants in an imperial cult, including Ptolemy XII Auletes/Ptolemy X Alexander I, king of Egypt aka Mithridates VI Eupator aka Ariarathes VII of Cappadocia, et.al., and his son Asander (obvious reference to Alexander), King of Bosphorus aka Pharnaces II aka Brogitarix, king of Galatia aka Ariarathes IX aka Julius Caesar.
 
