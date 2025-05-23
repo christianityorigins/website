@@ -527,7 +527,7 @@ Alexander = Ptolemy I Soter in Egypt. Ptolemy I Soter was married Alexanders mis
 
 Mithridates I Ctistes (also known as Mithridates III of Cius) was a son of Alexander's son Heracles/Helios, who was born to Alexander and his mistress Barsine.
 
-Antiochus I Soter = Darius II, Alexander/Artaxerxes II Memnon/Chandragupta's brother.
+Antiochus I Soter = Darius III, Alexander/Artaxerxes II Memnon/Chandragupta's brother.
 
 Cleopatra of Macedon (Alexander's sister, b. 355 BCE) = Stateira II (his Persian wife, b. 346 BCE).
 
