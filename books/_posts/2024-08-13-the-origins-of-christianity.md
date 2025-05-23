@@ -525,13 +525,17 @@ Alexander's successor to Bactria, Diodotus I Soter, then became the successor to
 
 Alexander = Ptolemy I Soter in Egypt. Ptolemy I Soter was married Alexanders mistress Thaïs, and his other wife Berenice had the same name as Barsine who was another mistress of Alexander. Barsine and Berenice are different forms of the Persian name Barsina. The Persian name Roshanak is translated as Barsina, so the names Barsine and Berenice are both related to the Roxana, which was the name of Alexander's Persian wife. 
 
-Mithridates I Ctistes (also known as Mithridates III of Cius) was a son or grandson of Alexander's son Heracles/Helios, who was born to Alexander and his mistress Barsine.
+Mithridates I Ctistes (also known as Mithridates III of Cius) was a son of Alexander's son Heracles/Helios, who was born to Alexander and his mistress Barsine.
+
+Antiochus I Soter = Darius II, Alexander/Artaxerxes II Memnon/Chandragupta's brother.
 
 Cleopatra of Macedon (Alexander's sister, b. 355 BCE) = Stateira II (his Persian wife, b. 346 BCE).
-    
-Alexander was the first "Jesus" (Ye-Zeus (YHWH + Zeus), I(J)upiter-Zeus, Zeus-Amun, Zeus-Ahura Mazda, Zeus-Yahweh, et.al., were titles Alexander carried) then became an avatar for his direct descendants in an imperial cult, including Ptolemy XII Auletes/Ptolemy X Alexander I, king of Egypt aka Mithridates VI Eupator aka Ariarathes VII of Cappadocia, et.al., and his son Asander (obvious reference to Alexander), King of Bosphorus aka Pharnaces II aka Brogitarix, king of Galatia aka Ariarathes IX aka Julius Caesar.
 
-_Appendix B: How did Christianity spread?_
+Bubares (https://en.wikipedia.org/wiki/Bubares) was a Persian prince who married Alexander's sister. They had a son named Amyntas (son of Bubares) (https://en.wikipedia.org/wiki/Amyntas_(son_of_Bubares)). He was the king of the city Phrygia that was located in Galatia in classical Anatolia. Bubares, the Persian prince, was Alexander's Persian identity. Amyntas (son of Bubares) (born around 350 BCE) = Heracles/Helios (born around 350 BCE) = Mithridates I Ctistes (born around 350 BCE)?
+
+Alexander was the first "Jesus" (Ye-Zeus (YHWH + Zeus), I(J)upiter-Zeus (I-Zeus), Zeus-Amun, Zeus-Ahura Mazda, Zeus-Yahweh, et.al., were titles Alexander carried) then became an avatar for his direct descendants in an imperial cult, including Ptolemy XII Auletes/Ptolemy X Alexander I, king of Egypt aka Mithridates VI Eupator aka Ariarathes VII of Cappadocia, et.al., and his son Asander (obvious reference to Alexander), King of Bosphorus aka Pharnaces II aka Brogitarix, king of Galatia aka Ariarathes IX aka Julius Caesar.
+
+_Appendix B: How did Christianity Spread?_
 
 Vespasian and his sons Titus and Domitian
 brought 100,000 jewish "slaves" to Rome (Josephus, Jewish War vi, 9)
