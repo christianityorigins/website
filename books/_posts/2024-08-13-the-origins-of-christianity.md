@@ -529,7 +529,7 @@ Mithridates I Ctistes (also known as Mithridates III of Cius) was a son of Alexa
 
 Antiochus I Soter = Darius III, Alexander/Artaxerxes II Memnon/Chandragupta's brother.
 
-Cleopatra of Macedon (Alexander's sister, b. 355 BCE) = Stateira II (his Persian wife, b. 346 BCE).
+Cleopatra of Macedon (Alexander's sister) = Stateira II (his Persian wife)?
 
 Bubares (https://en.wikipedia.org/wiki/Bubares) was a Persian prince who married Alexander's sister. They had a son named Amyntas (son of Bubares) (https://en.wikipedia.org/wiki/Amyntas_(son_of_Bubares)). He was the king of the city Phrygia that was located in Galatia in classical Anatolia. Bubares, the Persian prince, was Alexander's Persian identity. Amyntas (son of Bubares) (born around 350 BCE) = Heracles/Helios (born around 350 BCE) = Mithridates I Ctistes (born around 350 BCE)?
 
