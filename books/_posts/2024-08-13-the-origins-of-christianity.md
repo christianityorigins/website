@@ -130,7 +130,7 @@ Fig. 1.7. Coin depicting Ariarathes IX Eusebes Philopator, King of Cappadocia. N
 
 Fig. 1.8. Coin depicting Mithridates VI Eupator, father of Pharnaces II and Dynamis. Brother of Mithridates Chrestus. Notice the star and cresent that is visible in the Julius Caesar coin above and the winged Pegasus within a Dionysiac wreath of ivy and fruit that is seen in the Asander coin? 
 
-Julius Caesar aka Asander of Bosphorus aka Pharnaces II aka Ariarathes IX was also Brogitarix, king of Galatia. Brogitarix's son Amyntas (Amen(tas)) Nikator aka Amyntas of Galatia aka Jesus ben Fabus aka Isa Amen (Jesus was named "Amen" of Rev. iii. 14) [^6] ruled an empire that stretched from modern-day Turkey through India. His palace at Isauria reveals his name Isa.
+Julius Caesar aka Asander of Bosphorus aka Pharnaces II aka Ariarathes IX was also Brogitarix, king of Galatia (Full name: Brogitaris (Brigatos) van (de) Celtes Trocmii: "Bogo-" is related to the Proto-Celtic word "bog-", which means "god" or "divine". "-diatarus" could be connected to the Latin word "diatus", meaning "divine" or "godlike", the Old Irish word -tairx means " lord". "Van" or "de" is a preposition indicating "of" or "from", which suggests that Brogitaris/Brigatos is the divine leader or a member of the Celtes Trocmii which refers to the Trocmi, a Celtic tribe that lived in ancient Galatia). Brogitarix's son Amyntas (Amen(tas)) Nikator aka Amyntas of Galatia aka Jesus ben Fabus aka Isa Amen (Jesus was named "Amen" in Rev. iii. 14) [^6] ruled an empire that stretched from modern-day Turkey through India. His palace at Isauria reveals his name as Isa.
 
 Cleopatra aka Dynamis's son with Julius Caesar aka Asander = Tiberius
 Julius Aspurgus Philoromaios, who was born about the same time as
