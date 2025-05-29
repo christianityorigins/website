@@ -114,21 +114,25 @@ plans to build Rome, with Romulus becoming Rome's first king and
 namesake after killing his brother (this also mirrors the biblical
 account of Cain and Abel). 
 
-Mithridates VI, king of Pontus, was the father of both Pharnaces II and Dynamis (Cleopatra). Pharnaces II was born around the same time as Julius Caesar and Asander. So, if Asander was Pharnaces II then he was married to his sister.
+Mithridates VI, king of Pontus, was the father of both Pharnaces II and Dynamis (Cleopatra). Pharnaces II was born around the same time as Julius Caesar and Asander. So, if Asander was Pharnaces II then he was married to his sister (this would also make his Ptolemaic identity Ptolemy XIV).
 
 Asander (Pharnaces II?) beat Mithridates Chrestus (his uncle) in battle to become King of Bosphorus. After Mithridates Chrestus's loss to Asander he was imprisoned and executed by his elder brother, Mithridates VI Eupator, who had previously beat him in war. 
 
-![Fig.1.6](/images/PharnacesII.jpg){:width="400px"}
+![Fig.1.6](/images/PtolemyXIV.jpeg){:width="400px"}
 
-Fig. 1.6. Coin depicting Pharnaces II. Pharnaces II "dies" in 47 BCE right when Asander appears in 47 BCE as King of Bosphorus. Pharnaces II called himself "King of Kings" on coins (like Asander).
+Fig. 1.6. Coin depicting Ptolemy XIV Philopator.
 
-![Fig.1.7](/images/AriarathesIX.jpg){:width="400px"}
+![Fig.1.7](/images/PharnacesII.jpg){:width="400px"}
 
-Fig. 1.7. Coin depicting Ariarathes IX Eusebes Philopator, King of Cappadocia. Notice the resemblence to Asander and Pharnaces II? They were all born on the same day as well. 
+Fig. 1.7. Coin depicting Pharnaces II. Pharnaces II "dies" in 47 BCE right when Asander appears in 47 BCE as King of Bosphorus. Pharnaces II called himself "King of Kings" on coins (like Asander).
 
-![Fig.1.8](/images/MithridatesVIEupator.png){:width="400px"}
+![Fig.1.8](/images/AriarathesIX.jpg){:width="400px"}
 
-Fig. 1.8. Coin depicting Mithridates VI Eupator, father of Pharnaces II and Dynamis. Brother of Mithridates Chrestus. Notice the star and cresent that is visible in the Julius Caesar coin above and the winged Pegasus within a Dionysiac wreath of ivy and fruit that is seen in the Asander coin? 
+Fig. 1.8. Coin depicting Ariarathes IX Eusebes Philopator, King of Cappadocia. Notice the resemblence to Asander and Pharnaces II? They were all born on the same day as well. 
+
+![Fig.1.9](/images/MithridatesVIEupator.png){:width="400px"}
+
+Fig. 1.9. Coin depicting Mithridates VI Eupator, father of Pharnaces II and Dynamis. Brother of Mithridates Chrestus. Notice the star and cresent that is visible in the Julius Caesar coin above and the winged Pegasus within a Dionysiac wreath of ivy and fruit that is seen in the Asander coin? 
 
 Julius Caesar aka Asander of Bosphorus aka Pharnaces II aka Ariarathes IX was also Brogitarix, king of Galatia (Full name: Brogitaris (Brigatos) van (de) Celtes Trocmii: "Bogo-" is related to the Proto-Celtic word "bog-", which means "god" or "divine". "-diatarus" could be connected to the Latin word "diatus", meaning "divine" or "godlike", the Old Irish word -tairx means " lord". "Van" or "de" is a preposition indicating "of" or "from", which suggests that Brogitaris/Brigatos is the divine leader or a member of the Celtes Trocmii which refers to the Trocmi, a Celtic tribe that lived in ancient Galatia). Brogitarix's son Amyntas (Amen(tas)) Nikator aka Amyntas of Galatia aka Jesus ben Fabus aka Isa Amen (Jesus was named "Amen" in Rev. iii. 14) [^6] ruled an empire that stretched from modern-day Turkey through India. His palace at Isauria reveals his name as Isa. Amyntas of Galatia featured the syncretic deity Zeus-Ammon (Ammon = Egyptian version of Zeus) on his coins, like Alexander the Great. A-Zeus->Iseus.
 
@@ -175,9 +179,9 @@ Drusilla of Mauretania aka Julia Ourania of Parthia aka 'Philo of
 Alexandria' (aka Julius Philo, of the Julia gens, because she was the adopted granddaughter of Julius Caesar). She was also Claudius and Nero's secretary Pallas and Vespasian's first cousin and mistress Antonia Caenis. "The full name of Pallas was Marcus Antonius Pallas, the Antonius part is an obvious sign of descent from Mark Antony and that Pallas wasn't a random slave. (Philo's hebrew name was Yedidia which means "beloved of God", or "friend of God", which is the same as Theophilos in Greek. Around 26% of the New Testament was written to Theophilus in Luke and Acts of the Apostles).
 
 ![Fig.
-1.9](/images/AlexanderPhilo.jpg){:width="400px"}
+1.10](/images/AlexanderPhilo.jpg){:width="400px"}
 
-Fig. 1.9. (L) Alexander (grandson of King Herod) aka Gaius Julius
+Fig. 1.10. (L) Alexander (grandson of King Herod) aka Gaius Julius
 Alexander, Herodian Prince of Judaea aka Alexander the Alabarch aka
 (King/Tetrarch) Ptolemy (Alexander) bar Menneus aka Ptolemy of
 Mauretania aka "Jesus" in the bible. (R) Cleopatra (Thea Philopator) of
@@ -195,14 +199,14 @@ Adiabene/Edessa aka Ptolemy aka Yakov Zu Tolomoy aka Izates aka Jesus
 Emmanuel aka Monobazus of Adiabene [^8]
 
 ![Fig.
-1.10](/images/Josephus.jpg){:width="400px"}
+1.11](/images/Josephus.jpg){:width="400px"}
 
-Fig. 1.10. 'Josephus' bust which I identify as
+Fig. 1.11. 'Josephus' bust which I identify as
 Tiberius Julius Alexander. Compare it to Nerva's depictions. So, 'Josephus' was Philo of Alexandria's son. Tiberius Julius Alexander's son was named 'Philopappos' and one of his mother's aliases was 'Alexandria bat Matthias' which is where the pseudonym 'Joseph bar Matthias' comes from. Also, drop the initial b and final s in the name "Bar Mathias" and you get (Joseph of) Arimathea.
 
-![Fig. 1.11](/images/coin-abgar-phraates.png){:width="400px"}
+![Fig. 1.12](/images/coin-abgar-phraates.png){:width="400px"}
 
-Fig. 1.11. (L) and (R) show King Izates Monobazus of Edessa (known in
+Fig. 1.12. (L) and (R) show King Izates Monobazus of Edessa (known in
 Greek as the "Kingdom of Ourania" or in English as the "Kingdom of
 Heaven") wearing a crown of thorns. Izates or Izas is his title which is
 an ancient Greek translation of the Avestan word Yazatas (Persian:
@@ -211,9 +215,9 @@ and Sultan Ezid in the Yazadi ('Iza'di) religion. He was the uncle of
 Tiberius Julius Sauromates II, King of Bosphorus. The middle image
 source: The Alexander Mosaic, Huqoq, Israel.
 
-![Fig.1.12](/images/SauromatesII.jpg){:width="400px"}
+![Fig.1.13](/images/SauromatesII.jpg){:width="400px"}
 
-Fig. 1.12. Tiberius Julius Sauromates II, King of Bosphorus, who was the
+Fig. 1.13. Tiberius Julius Sauromates II, King of Bosphorus, who was the
 son of Tiberius Julius Cotys (aka Tiberius Julius Alexander aka Arrius
 Calpernius Piso aka Arrius Varus aka Emperor Nerva), great-grandson of
 Dynamis aka Cleopatra and Mark Antony. Does he look familiar? ΒΑCΙΛΕΩC
@@ -263,9 +267,9 @@ Boethus was another of Cleopatra's regional aliases?  If you identify
 King Herod as Mark Antony aka Tiberius Claudius Nero aka Phraates IV of
 Parthia's regional alias then the picture becomes clearer.
 
-![Fig.1.13](/images/PtolemyXII.jpeg){:width="400px"}
+![Fig.1.14](/images/PtolemyXII.jpeg){:width="400px"}
 
-Fig. 1.13. Ptolemy XII Auletes/Ptolemy X Alexander I, king of Egypt, who was also Mithridates VI Eupator, Ariarathes VII of Cappadocia, Simon Boethus/Magus/Ptolemy (Alexander) bar Menneus, et.al. Mithridates VI married his sister Laodice—just as Ptolemy XII married his sister Cleopatra V. Both had daughters named Cleopatra who ruled (Cleopatra VII and Dynamis).
+Fig. 1.14. Ptolemy XII Auletes/Ptolemy X Alexander I, king of Egypt, who was also Mithridates VI Eupator, Ariarathes VII of Cappadocia, Simon Boethus/Magus/Ptolemy (Alexander) bar Menneus, et.al. Mithridates VI married his sister Laodice—just as Ptolemy XII married his sister Cleopatra V. Both had daughters named Cleopatra who ruled (Cleopatra VII and Dynamis).
 
 The connection between Simon Boethus/Magus/Ptolemy XII Auletes/Ptolemy X Alexander I/Ptolemy
 (Alexander) bar Menneus and Julius Caesar is obviously through his
@@ -376,9 +380,9 @@ I asked ChatGPT to translate Roman emperor names and Bosphorian princes and king
 Vespassian was also a great-grandson of Cleopatra and Mark Antony (King Herod). He was Herod Pollio aka Herod Agrippa I, grandson of King Herod's son Aristobulus IV. Vespasian was his title, not his name (Vas/Bas was the royal abbreviation for the Greek word Basilius which = King, and Pasius = Peace. 'Vespasian' = 'King Peace') [^12]. He was also 'Flavius Scaevinus' the conspirator who was involved in Nero's assassination. 
 
 ![Fig.
-1.14](/images/Vespasian.jpg){:width="400px"}
+1.15](/images/Vespasian.jpg){:width="400px"}
 
-Fig. 1.14. Compare Vespasian's depiction to Herod Agrippa I
+Fig. 1.15. Compare Vespasian's depiction to Herod Agrippa I
 
 'Antonia Caenis' was Vespassian's mistress who was his first cousin who was Cleopatra (Thea Philopator) of Mauretania aka Cleopatra IX aka Helene aka Drusilla of Mauretania aka Julia Ourania of Parthia aka Philo of Alexandria. (Caenis was the Greek goddess who was transformed into a man, and she role-played as two men: Marcus Antonius Pallas and Philo).
 
@@ -450,9 +454,9 @@ In the name Asander, "Asa" means "lord" in Thracian, and "andros" means "man" or
 Hesus/Esus/Iesus then eventually phonetically shifted to I-zas/Izas/Izates.
 
 ![Fig.
-1.15](/images/Esus.jpg){:width="400px"}
+1.16](/images/Esus.jpg){:width="400px"}
 
-Fig. 1.15. Statue from classical Anatolia that is dedicated to "Esumopas Cnusticus". Esumopas means "Slave to Esus", and Esus means lord in Proto-Celtic. If you combine the Etruscan word "cnus" with the suffix "-ticus" or "-tic-" you get a word that translates to "anointed one" or "consecrated one", ie. a "Christ". So, that inscription translates to: "Slave to Lord (Esus) Christ". The "VSLM" inscription is an abbreviation for the Latin phrase "Votum Solvit Libens Merito" which translates to "He pays his vow willingly and with merit" or "He fulfills his vow with pleasure and deserving", which is often found on Roman coins and other artifacts. Esus was crucified in mythology and his symbol was an axe, so he was associated with woodcutting, forestry, carpentry. 
+Fig. 1.16. Statue from classical Anatolia that is dedicated to "Esumopas Cnusticus". Esumopas means "Slave to Esus", and Esus means lord in Proto-Celtic. If you combine the Etruscan word "cnus" with the suffix "-ticus" or "-tic-" you get a word that translates to "anointed one" or "consecrated one", ie. a "Christ". So, that inscription translates to: "Slave to Lord (Esus) Christ". The "VSLM" inscription is an abbreviation for the Latin phrase "Votum Solvit Libens Merito" which translates to "He pays his vow willingly and with merit" or "He fulfills his vow with pleasure and deserving", which is often found on Roman coins and other artifacts. Esus was crucified in mythology and his symbol was an axe, so he was associated with woodcutting, forestry, carpentry. 
 
 Endnotes (chapter 6)
 
@@ -485,9 +489,9 @@ Quintus Tinnius Rufus (Turnus Rufus the Evil) was Pontius Pilate, the Roman gove
 Esus then became Esau (Edom) the progenitor of the Edomites in the bible, a metaphor for the forces of oppression and injustice. The Jewish version of Antichrist (Armilus) is based on Romulus (Armilus is a Hebrew corruption or adaptation of the Latin name Romulus). Satanaya, the godess of fertility, became Satan. Lucifer, or "lucem ferre", which means "light-bearer" or "morning star", is Venus who was the Roman goddess whose functions encompassed love, beauty, desire, sex, fertility, prosperity, and victory. In Roman mythology, she was the ancestor of the Roman people through her son, Aeneas. In Norse mythology Iðunn/Idun (equivalent to Greek Hebe, and Celtic Brigid), is the goddess of youth, her name means "giver of eternal youth". The other gods get golden apples from her. She stores them in a basket and they keep the gods young until the end of the world. Idun became Eve in the bible the archetypal sinner whose actions brought death into the world (Romans 5:12). Inanna (equivalent to Freyja (Norse mythology), Aphrodite (Greek mythology), Venus (Roman mythology), and Morrigan (Celtic mythology)), the ancient goddess of war, love, and fertility, became the Whore of Babylon. Artemis, the goddess of the wilderness, wild animals, nature, vegetation, childbirth, care of children, and chastity, became recast as a witch (19:24). (The demonization of Venus (lucifer), Idun/Hebe/Brigid, Inanna/Freyja/Aphrodite/Venus, Artemis, and other female Pagan deities, was designed to instil a strong hatred of women among European men). The Mark of the Beast (666) refers to emperor Nero (take Nero's name and title in Greek (Nero Caesar), and transliterate it into Hebrew and then take the numerical value). Also, the jews' hated enemy in the bible are the Celts (Gog or Goy). Flavius Josephus in the 'Antiquities of the Jews'. Book I. Chapter 1: "For Gomer founded those whom the Greeks now call Galatians [Galls], but were then called Gomerites. Magog founded those that from him were named Magogites; but who are by the Greeks called Scythians". Josephus is suggesting that the Hebrew word "Goy" (meaning "nation" or "people") is related to the Greek word "Galatae" (meaning "Gauls" or "Galatians"), In biblical prophecy, Gog is described as a leader from the land of Magog in the north, who will gather a coalition of nations to attack Israel, but will be defeated by God in a great battle.
 
 ![Fig.
-1.16](/images/Romulus.jpg){:width="400px"}
+1.17](/images/Romulus.jpg){:width="400px"}
 
-Fig. 1.16. Quirinus who was the deified Romulus, who in Roman mythology was the founder and first king of Rome. Romulus (Armilus) is the jewish antichrist. A link can be established between Quirinus and Esus. In Proto-Celtic, the word "Kwerynos" means "lord" exactly like Kyrios in ancient Greek, and is related to the Etruscan "Kuris" and the Roman "Quirinus". Quirinus then can potentially translate to "Deified Lord" or "Lord Esus" in the context of Celtic and Etruscan mythology. In Plutarch’s biography of Romulus we are told he was the son of god, born of a virgin (Rhea Silvia, a Vestal Virgin); an attempt is made to kill him as a baby, and he is saved, and raised by a poor family, becoming a lowly shepherd; then as a man he becomes beloved by the people, hailed as king, and killed by the conniving elite; then he rises from the dead, appears to a friend to tell the good news to his people, and ascends to heaven to rule from on high. Just like Esus and Jesus.   
+Fig. 1.17. Quirinus who was the deified Romulus, who in Roman mythology was the founder and first king of Rome. Romulus (Armilus) is the jewish antichrist. A link can be established between Quirinus and Esus. In Proto-Celtic, the word "Kwerynos" means "lord" exactly like Kyrios in ancient Greek, and is related to the Etruscan "Kuris" and the Roman "Quirinus". Quirinus then can potentially translate to "Deified Lord" or "Lord Esus" in the context of Celtic and Etruscan mythology. In Plutarch’s biography of Romulus we are told he was the son of god, born of a virgin (Rhea Silvia, a Vestal Virgin); an attempt is made to kill him as a baby, and he is saved, and raised by a poor family, becoming a lowly shepherd; then as a man he becomes beloved by the people, hailed as king, and killed by the conniving elite; then he rises from the dead, appears to a friend to tell the good news to his people, and ascends to heaven to rule from on high. Just like Esus and Jesus.   
 
 So, Talmudic jews who were hiding out in the Himyarite Kingdom after Emperor
 Hadrian kicked them out of judea basically just cut-and-pasted from one of the Bosphoran/Roman imperial cults of the time and infused a slave morality into it. Getting people to abandon their religons for a new one is an almost impossible task, so instead, through religious syncretism and intertextuality, creating a new sect of an established religion makes it easier for a population to adapt. Julius Caesar aka Asander of Bosphorus or one of his successors in the Bosphoran imperial cult (King Izates Monobazus or Tiberius Julius Sauromates II) was replaced with Simon bar Kokhba. This became modern Christianity.
