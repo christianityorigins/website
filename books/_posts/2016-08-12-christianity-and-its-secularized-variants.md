@@ -56,7 +56,7 @@ Christianity is a sophisticated divide-and-conquer millenarianist (1) slave mora
 2 Monotheism and Centralized Authority
 
   
-The shift from decentralized pagan tribalism (diverse, hierarchical polytheistic gods reflecting aristocratic values) to centralized monotheism mirrors political consolidation. The collectivization of divine authority then reinforces a universal morality. Everything becomes collectivized with the centralization of power. This makes a group easier to control and is why monotheism mirrors autocratic governance. \
+The shift from decentralized pagan tribalism (diverse, hierarchical polytheistic gods reflecting aristocratic values) to centralized monotheism (singular truth-claim) mirrors political consolidation. The collectivization of divine authority then reinforces a universal morality. Everything becomes collectivized with the centralization of power. This makes a group easier to control and is why monotheism mirrors autocratic governance. \
 &nbsp;&nbsp; &nbsp;&nbsp;&nbsp;&nbsp;       Monotheism parallels the rise of autocratic states because it mirrors the consolidation of power into a single ruler, conditioning populations for top-down governance over decentralized tribal autonomy. Monotheism traces back to the slave morality of Zoroastrianism at the time when Cyrus the Great assumes total power of Persia, and in Rome as the Roman Republic turns into the Roman Empire headed by a singular dictator, Julius Caesar.  
 
   
@@ -206,8 +206,8 @@ You can prove that Christianity is a slave morality system that is designed to s
 Conclusion
 
 In conclusion, it took 2000 years of domestication to reach the point where Europeans would sacrifice their nations and the future of their children on the altar of equality, but the seeds for this was inculcated through this system. \
-   &nbsp;&nbsp; &nbsp;&nbsp;&nbsp;&nbsp;
-The institutionalization of Christianity’s slave morality system, over two millennia, profoundly reshaped the evolutionary and cultural strategies of billions, embedding mechanisms of control that facilitated widespread subjugation. This systematic manipulation, perpetuated through Marxism and its variants, underscores the enduring impact of elite-driven ideologies on global populations.
+   &nbsp;&nbsp; &nbsp;&nbsp;&nbsp;&nbsp;The West’s current demographic and cultural decline (low birth rates, immigration crises, pathological altruism) is a direct result of the Christian/Marxist slave morality. By prioritizing the weak and suppressing the strong, these ideologies have eroded the West’s vitality, leading to what Oswald Spengler called the "decline of the West". Moreover, the West’s embrace of "diversity" and "inclusion" is a terminal stage of Christian universalism, where the in-group sacrifices itself for a utopian ideal. \
+   &nbsp;&nbsp; &nbsp;&nbsp;&nbsp;&nbsp;The institutionalization of Christianity’s slave morality system, over two millennia, profoundly reshaped the evolutionary and cultural strategies of billions, embedding mechanisms of control that facilitated widespread subjugation. This systematic manipulation, perpetuated through Marxism and its variants, underscores the enduring impact of elite-driven ideologies on global populations.
 
 _Addendum_
 
