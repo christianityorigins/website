@@ -56,9 +56,8 @@ Christianity is a sophisticated divide-and-conquer millenarianist (1) slave mora
 2 Monotheism and Centralized Authority
 
   
-
-The collectivization of divine authority reinforces a universal morality. Everything becomes collectivized with the centralization of power. This makes a group easier to control and is why monotheism mirrors autocratic governance. \
-&nbsp;&nbsp; &nbsp;&nbsp;&nbsp;&nbsp;       The shift from polytheism (diverse, hierarchical gods reflecting aristocratic values) to monotheism mirrors the leveling of social distinctions, empowering the weak over the strong. Monotheism parallels the rise of autocratic states because it mirrors the consolidation of power into a single ruler, conditioning populations for top-down governance over decentralized tribal autonomy. Monotheism traces back to the slave morality of Zoroastrianism at the time when Cyrus the Great assumes total power of Persia, and in Rome as the Roman Republic turns into the Roman Empire headed by a singular dictator, Julius Caesar.  
+The shift from decentralized pagan tribalism (diverse, hierarchical polytheistic gods reflecting aristocratic values) to centralized monotheism mirrors political consolidation. The collectivization of divine authority then reinforces a universal morality. Everything becomes collectivized with the centralization of power. This makes a group easier to control and is why monotheism mirrors autocratic governance. \
+&nbsp;&nbsp; &nbsp;&nbsp;&nbsp;&nbsp;       Monotheism parallels the rise of autocratic states because it mirrors the consolidation of power into a single ruler, conditioning populations for top-down governance over decentralized tribal autonomy. Monotheism traces back to the slave morality of Zoroastrianism at the time when Cyrus the Great assumes total power of Persia, and in Rome as the Roman Republic turns into the Roman Empire headed by a singular dictator, Julius Caesar.  
 
   
 
