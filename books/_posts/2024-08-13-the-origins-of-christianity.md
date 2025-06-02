@@ -599,7 +599,7 @@ but it was my starting point to understanding the many aliases this
 family used*)
 
 *Jesus Among the Julio-Claudians* (2021) by Charles N. Pope
-[[link]([https://www.amazon.com/Jesus-Among-Julio-Claudians-Charles-Pope/dp/B08XL7Z118?ref_=ast_author_mpb)] (*Author that came to similar conclusions as me*)
+[[link]([https://www.amazon.com/Jesus-Among-Julio-Claudians-Charles-Pope/dp/B08XL7Z118?ref_=ast_author_mpb)] (*Author who came to similar conclusions as me*)
 
 _Footnotes_
 
