@@ -42,7 +42,7 @@ Note on aliases and locations: I believe that the royal elites in antiquity role
 
 After a year of research I also believe that much of what we know about history from antiquity is fabricated. I have come to the conclusion that the Greco-Egyptian Ptolemaic Kingdom did not end at the point of Roman colonization, it just spread out and Ptolemaic kings adopted regional aliases. The Church Fathers, the Vatican, the Jesuits and people like Joseph Justus Scaliger, who was the Jesuit priest who "discovered" the majority of texts from antiquity that we use today, usually on demand, and Poggio Bracciolini, who was the individual responsible for collecting documents for him, further added to the distortion of historical records. This manipulation of historical facts has led to a distorted understanding of the past, and it is likely that many events, dates, and figures have been altered or fabricated to serve the interests of the Church and other powerful institutions.
 
-Julius Caesar was Ptolemy X Alexander II, Cleopatra's uncle-husband, he also took the regional aliases of Asander, king of Bosphorus, and Pharnaces II, among numerous other aliases. Cleopatra was also Dynamis, queen of Bosphorus. Mark Antony was also Ptolemy of Cyprus, a brother of Ptolemy XII Auletes (Cleopatra’s father) making him Cleopatra's uncle and husband aka Polemon I of Pontus aka King Herod aka Tiberius Claudius Nero aka Phraates IV of Parthia, among others. 
+Julius Caesar was Ptolemy X Alexander I, Cleopatra's uncle-husband, he also took the regional aliases of Asander, king of Bosphorus, and Pharnaces II, among numerous other aliases. Cleopatra was also Dynamis, queen of Bosphorus. Mark Antony was also Ptolemy of Cyprus, a brother of Ptolemy XII Auletes (Cleopatra’s father) making him Cleopatra's uncle and husband aka Polemon I of Pontus aka King Herod aka Tiberius Claudius Nero aka Phraates IV of Parthia, among others. 
 
 This book challenges mainstream historiography. My methodologies are: archaeological and numismatic evidence, linguistic and etymological analysis, historical correlation and timeline analysis. The sources that inspired my work are listed in the 'Further reading' section at the end of the book. 
 
@@ -122,7 +122,7 @@ Asander (Pharnaces II?) beat Mithridates Chrestus (his uncle) in battle to becom
 
 ![Fig.1.6](/images/PtolemyXAlexander.jpg){:width="400px"}
 
-Fig. 1.6. Coin depicting Ptolemy X Alexander II.
+Fig. 1.6. Coin depicting Ptolemy X Alexander I.
 
 ![Fig.1.7](/images/PharnacesII.jpg){:width="400px"}
 
