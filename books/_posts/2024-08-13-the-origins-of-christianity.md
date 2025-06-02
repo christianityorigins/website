@@ -598,8 +598,8 @@ their aliases with those of Cleopatra and Mark Antony's grandchildren,
 but it was my starting point to understanding the many aliases this
 family used*)
 
-*The Royal Ancestry Of The Roman Emperor Vespasian* (2021) by Henry Davis
-[[link](https://henrydavis-cc.medium.com/the-royal-ancestry-of-the-roman-emperor-vespasian-72e144335299)] (*this article proves that Vespasian descended from King Herod. Once I realized that King Herod was Mark Antony's regional alias then all the pieces fell into place*)
+*Jesus Among the Julio-Claudians* (2021) by Charles N. Pope
+[[link]([https://www.amazon.com/Jesus-Among-Julio-Claudians-Charles-Pope/dp/B08XL7Z118?ref_=ast_author_mpb)] (*Author that came to similar conclusions as me*)
 
 _Footnotes_
 
