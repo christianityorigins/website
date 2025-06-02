@@ -120,7 +120,7 @@ Mithridates VI, king of Pontus, was the father of both Pharnaces II and Dynamis 
 
 Asander (Pharnaces II?) beat Mithridates Chrestus (his uncle) in battle to become King of Bosphorus. After Mithridates Chrestus's loss to Asander he was imprisoned and executed by his elder brother, Mithridates VI Eupator, who had previously beat him in war. 
 
-![Fig.1.6](/images/PtolemyXAlexander.jpeg){:width="400px"}
+![Fig.1.6](/images/PtolemyXAlexander.jpg){:width="400px"}
 
 Fig. 1.6. Coin depicting Ptolemy X Alexander II.
 
