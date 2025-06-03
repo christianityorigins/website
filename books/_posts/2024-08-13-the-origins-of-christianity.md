@@ -294,7 +294,7 @@ claiming to be the son of Herod who faked his death [^11], so he was
 
 Endnotes (Chapter 2)
 
-(a) Mark Antony (the Neos-Dionysos) was either Ptolemy of Cyprus, a brother of Ptolemy XII Auletes Neos Dionysos (Cleopatra’s father) aka Polemon I of Pontus aka King Herod aka Tiberius Claudius Nero aka Phraates IV of Parthia, or he was Ptolemy XII Auletes himself. Meaning that she married her father. She was previously married to two of her brothers and her uncle as listed above. This is how incestuous this family was (this also might explain why the Church Fathers later invented many aliases to hide this fact). 
+(a) Mark Antony (the Neos-Dionysos) was either Ptolemy of Cyprus, a brother of Ptolemy XII Auletes Neos Dionysos (Cleopatra’s father) aka Polemon I of Pontus aka King Herod aka Tiberius Claudius Nero aka Phraates IV of Parthia, or he was Ptolemy XII Auletes himself. Meaning that she married her father. She was previously married to two of her brothers and her uncle as listed above. This is how incestuous this family was. 
 
 (b) Suetonius (Divus Julius 88) notes Caesar's comet or 'Julian Star'
     (or Sidus Iulium) rose during his funeral games, interpreted as his
