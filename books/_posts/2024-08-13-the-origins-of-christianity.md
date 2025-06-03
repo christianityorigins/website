@@ -116,9 +116,9 @@ plans to build Rome, with Romulus becoming Rome's first king and
 namesake after killing his brother (this also mirrors the biblical
 account of Cain and Abel). 
 
-Mithridates VI, king of Pontus, was the father of both Pharnaces II and Dynamis (Cleopatra). Pharnaces II was born around the same time as Julius Caesar and Asander. So, if Asander was Pharnaces II then he was married to his sister (this would also make his Ptolemaic identity Ptolemy XIV).
+Mithridates VI, king of Pontus, was the father of both Pharnaces II and Dynamis (Cleopatra). Pharnaces II was Ptolemy XIV Cleopatra's brother-uncle, or wa she Ptolemy X Alexander II her uncle-husband? 
 
-Asander (Pharnaces II?) beat Mithridates Chrestus (his uncle) in battle to become King of Bosphorus. After Mithridates Chrestus's loss to Asander he was imprisoned and executed by his elder brother, Mithridates VI Eupator, who had previously beat him in war. 
+Asander beat Mithridates Chrestus (his uncle) in battle to become King of Bosphorus. After Mithridates Chrestus's loss to Asander he was imprisoned and executed by his elder brother, Mithridates VI Eupator, who had previously beat him in war. 
 
 ![Fig.1.6](/images/PtolemyXAlexanderII.jpg){:width="400px"}
 
@@ -294,15 +294,7 @@ claiming to be the son of Herod who faked his death [^11], so he was
 
 Endnotes (Chapter 2)
 
-(a) Amyntas Nikator aka Amyntas of Galatia aka Jesus ben Fabus aka Isa Amen (Jesus Amen of Rev. iii. 14) is an interesting figure. Historian Ranajit Pal has made the claim that Alexander the Great = Chandragupta Maurya (Alakshandra is a Sanskritized
-    translation of Alexander and Gupta means guardian or protector in
-    Sanskrit, the exact meaning of Alexander) who was an Indian emperor who founded the Mauryan Empire, one of the largest and most powerful empires in ancient India. (See: "Alexander and
-    Chandragupta in Sanskrit Drama" by Ranajit Pal
-    https://www.academia.edu/40074507/ALEXANDER_AND_CHANDRAGUPTA_IN_A_SANSKRIT_DRAMA
-    [[link](https://www.academia.edu/40074507/ALEXANDER_AND_CHANDRAGUPTA_IN_A_SANSKRIT_DRAMA)]). He also claims that Diodotus I Soter (Alexander's successor to eastern territories) = Ashoka the Great (Chandragupta's successor). (See: "Diodotus I was Ashoka"
-    by Ranajit Pal
-    https://www.academia.edu/695219/Diodotus_I_was_Ashoka_An_Altar_of_Alexander_Now_Standing_Near_Delhi
-    [[link](https://www.academia.edu/695219/Diodotus_I_was_Ashoka_An_Altar_of_Alexander_Now_Standing_Near_Delhi)]). This would mean that Alexander completed his conquest of India and then adopted a local identity. So, India was under Greek rule since Alexander. Being the king of a region populated by Gauls, Amyntas of Galatia's religion would have been Druidism. The ancient Vedas are just the eastern branch of Druidism (https://www.academia.edu/13113385/Druidism_and_Vedism_Compared). The name Abaris or Abharas, from Abaris the Hyperborian, the Druid teacher of Pythagoras, derives from the Old Irish word abhar, which means chief or noble and was a generic term for Druid or Chief Druid. Abharas is also related to the Sanskrit word Bhārata, a legendary king in the Vedas. Bhārata is at the root of the word Bharatvarsha which is a term that is used to refer to the Indian subcontinent as a whole. 
+(a) Mark Antony (the Neos-Dionysos) was either Ptolemy of Cyprus, a brother of Ptolemy XII Auletes Neos Dionysos (Cleopatra’s father) aka Polemon I of Pontus aka King Herod aka Tiberius Claudius Nero aka Phraates IV of Parthia, or he was Ptolemy XII Auletes himself. Meaning that she married her father. She was previously married to two of her brothers and her uncle as listed above. This is how incestuous this family was (this also might explain why the Church Fathers later invented many aliases to hide this fact). 
 
 (b) Suetonius (Divus Julius 88) notes Caesar's comet or 'Julian Star'
     (or Sidus Iulium) rose during his funeral games, interpreted as his
@@ -523,13 +515,19 @@ A non-mainstream version of history, but one that is recorded in the Persian Bo
     
 In the book the Alexander Romance, a book that has its earliest copy dating back a couple of centuries after his life, Alexander accepts mortality only after achieving complete satisfaction in his conquests. In the so-called apocryphal accounts Alexander sails up the Ganges River and reaches a kind of Paradise after the conquest of all India is complete. He is not literally granted eternal life there, but nevertheless fulfills his goal of reaching this remote and privileged locale. In the Romance, Alexander also lives to play a part in the lives of the next generation of princes, who have grown to maturity and are even married when he visits them in the south of Egypt.
 
-The conqueror of the Indian sub-continent is known by a different name, Chandra-Gupta, one of the most celebrated kings of all of Indian history. Curiously, almost nothing is known about his early life until after the death of Alexander the Great. No sooner did the attempted conquest of Alexander end than that of Chandragupta began. The name Chandra Gupta can be interpreted as “Alexander the Copt/ Upper Egyptian” as Gupta has been linguistically associated with Coptos (a Greek word for a critical locale in Upper Egypt), and Chandra is a transliteration of Sander (a hypocorism of Alexander/ Iksander). There is a claim by ancient rulers of Bukhara/ Bochara on the Silk Road (in Sogdiana) that they were descended from Alexander – a claim which becomes far more credible (and even inevitable) when one realizes that Alexander’s life did not end in Babylon and his dynastic line did not actually die out.
+The conqueror of the Indian sub-continent is known by a different name, Chandra-Gupta, one of the most celebrated kings of all of Indian history. Curiously, almost nothing is known about his early life until after the death of Alexander the Great. No sooner did the attempted conquest of Alexander end than that of Chandragupta began. The name Chandra Gupta can be interpreted as “Alexander the Copt/ Upper Egyptian” as Gupta has been linguistically associated with Coptos (a Greek word for a critical locale in Upper Egypt), and Chandra is a transliteration of Sander (a hypocorism of Alexander/ Iksander). There is a claim by ancient rulers of Bukhara/ Bochara on the Silk Road (in Sogdiana) that they were descended from Alexander – a claim which becomes far more credible (and even inevitable) when one realizes that Alexander’s life did not end in Babylon and his dynastic line did not actually die out (See also: "Alexander and
+    Chandragupta in Sanskrit Drama" by Ranajit Pal
+    https://www.academia.edu/40074507/ALEXANDER_AND_CHANDRAGUPTA_IN_A_SANSKRIT_DRAMA
+    [[link](https://www.academia.edu/40074507/ALEXANDER_AND_CHANDRAGUPTA_IN_A_SANSKRIT_DRAMA)]).
 
 British scholars (like William Jones) wrongly linked "Sandrocottus" (from Greek texts) to Chandragupta Maurya. Who was the real "Sandrocottus"? Seleucus I Nicator (Alexander’s general, ruler of Babylon). Chandragupta (Alexander) married Sandrocottus aka Seleucus I Nicator's daughter. Proof: Seleucus’ daughter was named "Helen"—same as Chandragupta’s queen.The Puranas describe "Saluka" (Seleucus) as a foreign ruler who married into the Mauryas. A cuneiform tablet from 305 BCE records: "The Greek king marched to India and made a treaty with the Indian king". This matches Seleucus’ treaty with Chandragupta. Sandrocottus = Sandros = "Alexander" (short form, like "Sander"), Kottos = "Cotys" (Thracian for "lord"). Thus, Sandrocottus was a title that translates to: "Lord Alexander"—a title for Seleucus I Nicator.
 
 Chandragupta Maurya/Alexander's successor in India "Bindusara" (whose name derives from Vindusara (Sanskrit: "one whose essence is poison"), a nod to the Mithridatic lineage) was either Heracles/Helios, Alexander’s son by Barsine, or Alexander IV, Alexander's son by Roxana. Bindusara = Ptolemy II Philadelphus (also Ariarathes III of Cappadocia?).
 
-Alexander's successor to Bactria, Diodotus I Soter, then became the successor to Bindusara and ruled India with the regional identity of Ashoka the Great. 
+Alexander's successor to Bactria, Diodotus I Soter, then became the successor to Bindusara and ruled India with the regional identity of Ashoka the Great (See: "Diodotus I was Ashoka"
+    by Ranajit Pal
+    https://www.academia.edu/695219/Diodotus_I_was_Ashoka_An_Altar_of_Alexander_Now_Standing_Near_Delhi
+    [[link](https://www.academia.edu/695219/Diodotus_I_was_Ashoka_An_Altar_of_Alexander_Now_Standing_Near_Delhi)]). 
 
 Alexander = Ptolemy I Soter in Egypt. Ptolemy I Soter was married Alexanders mistress Thaïs, and his other wife Berenice had the same name as Barsine who was another mistress of Alexander. Barsine and Berenice are different forms of the Persian name Barsina. The Persian name Roshanak is translated as Barsina, so the names Barsine and Berenice are both related to the Roxana, which was the name of Alexander's Persian wife. 
 
