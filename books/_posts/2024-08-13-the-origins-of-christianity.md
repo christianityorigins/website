@@ -599,6 +599,8 @@ family used*)
 *Jesus Among the Julio-Claudians* (2021) by Charles N. Pope
 [[link]([https://www.amazon.com/Jesus-Among-Julio-Claudians-Charles-Pope/dp/B08XL7Z118?ref_=ast_author_mpb)] (*Author who came to similar conclusions as me*)
 
+*Byzantine revisionism unlocks world history* (2023). https://www.unz.com/article/byzantine-revisionism-unlocks-world-history/; *How fake is Roman antiquity?* (2020) https://unz.com/article/how-fake-is-roman-antiquity/; and *How fake is church history? - The Gregorian coup and the birthright theft* (2020). https://unz.com/article/how-fake-is-church-history by Laurent Guyénot 
+
 _Footnotes_
 
 [^1]: See: "History: Fiction or Science? Russia. Britain. Byzantium.
