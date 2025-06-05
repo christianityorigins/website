@@ -122,7 +122,7 @@ Asander beat Mithridates Chrestus (his uncle) in battle to become King of Bospho
 
 ![Fig.1.6](/images/PtolemyXAlexanderII.jpg){:width="400px"}
 
-Fig. 1.6. Coin depicting Ptolemy X Alexander II (?).
+Fig. 1.6. Is this a coin depicting Ptolemy X Alexander II?
 
 ![Fig.1.7](/images/PharnacesII.jpg){:width="400px"}
 
