@@ -296,7 +296,7 @@ Endnotes (Chapter 2)
 
 (a) Mark Antony (the Neos-Dionysos) was either Ptolemy of Cyprus, a brother of Ptolemy XII Auletes (Auletes name adapts well to the Parthian Orodes (II?)) Neos Dionysos (Cleopatra’s father) aka Polemon I of Pontus aka King Herod aka Tiberius Claudius Nero aka Phraates IV of Parthia, or he was Ptolemy XII Auletes himself. Meaning that she married her father. She was previously married to two of her brothers and her uncle as listed above. This is how incestuous this family was. 
 
-(b) Other suspected aliases of Ptolemy X Alexander II/Asander/Julius Caesar: Idumean Antipater, Parthian Artavasdes (Greek Alex = Persian Arta)) who was the brother of Tigranes II, and the Hasmonean Alexander II (son of king Aristobulus II son of Jannaeus Alexander also the nephew and son-in-law of king/high-priest Hyrcanus II. Also, Julius = Janneus? Or Janneus (Yannai) is related to the Roman name Gaius?).
+(b) Other suspected aliases of Ptolemy X Alexander II/Asander/Julius Caesar: Idumean Antipater, Parthian Artavasdes (Greek Alex = Persian Arta) who was the brother of Tigranes II, and the Hasmonean Alexander II (son of king Aristobulus II son of Jannaeus Alexander also the nephew and son-in-law of king/high-priest Hyrcanus II. Also, Julius = Janneus? Or Janneus (Yannai) is related to the Roman name Gaius?)
 
 (c) The throne name of Ptolemy Philometer was Ir-maat-en-amun-re. This would strengthen the word play between the names Philo-meter, Mithra-dates, and Matthath-ius. (The Egyptian Maat-en transliterates to the Hebrew Mattan/Mattath and the name "metor" transliterates into Parthian Mithra). Philometer then corresponds to Mithradates of Parthia and Mattathius the Hasmonean. (Mattath is the Hebrew feminine form of Mattan). 
 
@@ -408,7 +408,7 @@ Identifying Julius Caesar as Asander of Bosphorus necessitates a re-examination 
 
 Galata in Classical Anatolia was settled by the Gauls. Galatia bordered
 the Bosphorus, and Julius Caesar/Asander was king of this region. The
-king of Galatia during this time was Asander's brother-in-law Amyntas of
+king of Galatia during this time was Ptolemy X Alexander II/Asander/Julius Caesars's son (Caesarion?) Amyntas of
 Galatia who ruled an area that stretched into India under the alias
 Amyntas Nikator.
 
