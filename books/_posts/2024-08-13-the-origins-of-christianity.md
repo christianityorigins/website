@@ -116,7 +116,7 @@ plans to build Rome, with Romulus becoming Rome's first king and
 namesake after killing his brother (this also mirrors the biblical
 account of Cain and Abel). 
 
-Mithridates VI, king of Pontus, was the father of both Pharnaces II and Dynamis (Cleopatra). Pharnaces II was Ptolemy XIV Cleopatra's brother-uncle, or wa she Ptolemy X Alexander II her uncle-husband? 
+Mithridates VI, king of Pontus, was the father of both Pharnaces II and Dynamis (Cleopatra). Pharnaces II was Ptolemy XIV who was Cleopatra's brother-husband (or was he Ptolemy X Alexander II her uncle-husband?). 
 
 Asander beat Mithridates Chrestus (his uncle) in battle to become King of Bosphorus. After Mithridates Chrestus's loss to Asander he was imprisoned and executed by his elder brother, Mithridates VI Eupator, who had previously beat him in war. 
 
