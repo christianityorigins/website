@@ -104,9 +104,7 @@ Caesar is the only historical figure who had a comparable level of
 prestige as Cyrus and Alexander.
 
 Dynamis's father was Mithridates VI Eupator who also carried the
-title "King of Kings". Her uncle was Mithridates 'Chrestus' [^5].
-Mithridates translates to 'the gift of Mithra' in ancient Persian and is
-an obvious reference to the Mithras cult. 
+title "King of Kings". Her uncle was Mithridates 'Chrestus' [^5]. The name Mithridates (more accurately, Mithradates) is the Hellenized form of the Indo-Aryan Mithra-Datt, which means "One given by Mithra". Mithra is the Indo-Aryan sun-god and Datt (given by) derives from the Proto-Indo-European root da ("to give"). That name was born by a large number of kings, soldiers and statesmen in the Iranian dynasty of the Parthians and mostly by the royalty and nobility in Asia Minor. 
 
 Mithridates VI Eupator beat his brother Mithridates
 Chrestus in war to become king of Pontus/Bosphorus. In the mythology of ancient Rome, the city is
