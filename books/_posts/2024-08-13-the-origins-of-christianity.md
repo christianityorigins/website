@@ -438,7 +438,7 @@ Abel and Cain are just a copy of Romulus and Remus. Judas Iscariot is a copy of 
 
 Also, Caesar, Kaiser (German for Caesar), Kesar or Kaysar (Persian for Caesar), Kaisar (Ancient Greek for Caesar), Tsar (Russian for Caesar) and Khazar are not just phonetic coincidences. It all ties back to the Divine Julius cult.
 
-So, it seems that the Romans (in Anatolia) tried to assimilate the tribe that became modern jews by forcing their imperial cult on them and they got their identity from here. This is why several prominent members of this royal family identified as "Jews" despite being Aryan Sarmatians and Celtic Galatians.
+Russian historian and mathematician Anatoly Fomenko wrote several books where he claimed that the city of Yoros = Jerusalem = Troy and it was situated on the eastern, Asiatic shore of Bosphorus, closer to the Black Sea, very near to the Beykoz mountain (Golgotha). The fact that Ptolemaic/Bosphoran/Roman kings role played as jews, an irrelevant tribe, and israel was an irrelevant slice of land in the desert, this makes this claim more credible. jews just adopted this imperial cult and they got their entire identity and history from here.
 
 #### 6 Esus the Celtic Deity
 
