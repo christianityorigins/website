@@ -16,7 +16,7 @@ CONTENTS
 
 1 Definitions
 
-"Pagan" (Latin: pāgānus, 'rural') was supposed to be a slur that was invented by the catholic church to apply to every non-xtian religion but has since been reappropriated as a general term. Specific ethnic "Pagan" polytheistic religions are: Heathenry is Germanic Paganism ("Asatru" is one of the religions that fall under the Heathenry category). Fyrnsidu is Brittonic Paganism. Druidry is Celtic Paganism. Hellenism is Greek Paganism. Religio Romana is Roman Paganism. Rodnovery is Slavic Paganism. Romuva is Baltic Paganism, etc. 
+"Pagan" (Latin: pāgānus, 'rural') was supposed to be a slur that was invented by the catholic church to apply to every non-xtian religion but has since been reappropriated as a general term. Specific ethnic "Pagan" polytheistic religions are: Heathenry is Germanic Paganism ("Asatru" is one of the religions that fall under the Heathenry category). Fyrnsidu is Brittonic Paganism. Druidry is Celtic Paganism. Hellenism is Greek Paganism. Religio Romana is Roman Paganism. Rodnovery is Slavic Paganism. Romuva is Baltic Paganism, etc. (despite the different regional names all European Pagan deities are similar. For example, Dyaus Pita (Vedic), Zeus (Greek), Jupiter (Roman), Odin (Nordic), Wotan (German), Esus (Celtic), Wotanaz (Slavic), Ukko and Väinämöinen (Finnish), and so on are all derived from the Aryan allfather Dyeus Pter which translates to Sky Father. The name Zeus comes from the pronunciation of Dyeus, and Jupiter comes from the pronunciation of 'Dyeus Pter'. Wotan is derived from Proto-Germanic Wodanaz, which itself comes from the Proto-Indo-European root Dyeus. Odin comes from Old Norse and is related to the earlier Proto-Germanic Wodanaz). 
 
 2 Cosmology 
 
