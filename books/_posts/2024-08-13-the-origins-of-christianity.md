@@ -114,21 +114,21 @@ plans to build Rome, with Romulus becoming Rome's first king and
 namesake after killing his brother (this also mirrors the biblical
 account of Cain and Abel). 
 
-Mithridates VI, king of Pontus, was the father of both Pharnaces II and Dynamis (Cleopatra). Pharnaces II was Ptolemy XIV who was Cleopatra's brother-husband (or was he Ptolemy X Alexander II her uncle-husband?). 
+Mithridates VI, king of Pontus, was the father of both Pharnaces II and Dynamis (Cleopatra). Pharnaces II was Ptolemy XIV who was Cleopatra's brother-husband.
 
 Asander beat Mithridates Chrestus (his uncle) in battle to become King of Bosphorus. After Mithridates Chrestus's loss to Asander he was imprisoned and executed by his elder brother, Mithridates VI Eupator, who had previously beat him in war. 
 
-![Fig.1.6](/images/PtolemyXAlexanderII.jpg){:width="400px"}
+![Fig.1.6](/images/PharnacesII.jpg){:width="400px"}
 
-Fig. 1.6. Is this a coin depicting Ptolemy X Alexander II? Or is it Ptolemy X Alexander I, his father?
+Fig. 1.6. Coin depicting Pharnaces II. Pharnaces II "dies" in 47 BCE right when Asander appears in 47 BCE as King of Bosphorus. Pharnaces II called himself "King of Kings" on coins (like Asander).
 
-![Fig.1.7](/images/PharnacesII.jpg){:width="400px"}
+![Fig.1.7](/images/AriarathesIX.jpg){:width="400px"}
 
-Fig. 1.7. Coin depicting Pharnaces II. Pharnaces II "dies" in 47 BCE right when Asander appears in 47 BCE as King of Bosphorus. Pharnaces II called himself "King of Kings" on coins (like Asander).
+Fig. 1.7. Coin depicting Ariarathes IX Eusebes Philopator, King of Cappadocia. Notice the resemblance to Asander and Pharnaces II? They were all born on the same day as well. 
 
-![Fig.1.8](/images/AriarathesIX.jpg){:width="400px"}
+![Fig.1.8](/images/ArtavasdesII.jpg){:width="400px"}
 
-Fig. 1.8. Coin depicting Ariarathes IX Eusebes Philopator, King of Cappadocia. Notice the resemblance to Asander and Pharnaces II? They were all born on the same day as well. 
+Fig. 1.8. Coin depicting Parthian Artavasdes II who was the king of Armenia (Greek Alex = Persian Arta) who I suspect is another alias of Ptolemy X Alexander II/Asander/Julius Caesar. The reverse side of the coin depicts a Nike.
 
 ![Fig.1.9](/images/MithridatesVIEupator.png){:width="400px"}
 
@@ -292,7 +292,7 @@ claiming to be the son of Herod who faked his death [^11], so he was
 
 Endnotes (Chapter 2)
 
-(a) Mark Antony (the Neos-Dionysos) was either Ptolemy of Cyprus, a brother of Ptolemy XII Auletes (Auletes name adapts well to the Parthian Orodes (II?)) Neos Dionysos (Cleopatra’s father) aka Polemon I of Pontus aka King Herod aka Tiberius Claudius Nero aka Phraates IV of Parthia, or he was Ptolemy XII Auletes himself. Meaning that she married her father. She was previously married to two of her brothers and her uncle as listed above. This is how incestuous this family was. 
+(a) Mark Antony (the Neos-Dionysos) was either Ptolemy of Cyprus, a brother of Ptolemy XII Auletes (Auletes name adapts well to the Parthian Orodes (II?)) Neos Dionysos (Cleopatra’s father) aka Polemon I of Pontus aka King Herod aka Tiberius Claudius Nero aka Phraates IV of Parthia, or he was Ptolemy XII Auletes himself. Meaning that she married her father. She was previously married to two of her brothers and her uncle as listed above. This is how incestuous this family was. Or was Ptolemy XIV (Cleopatra's father) also Ptolemy X Alexander I and Mark Antiny was her uncle? Ptolemy XII Auletes (Cleopatra's father) is a likely candidate for being Ptolemy X Alexander I, king of Egypt. 
 
 (b) Other suspected aliases of Ptolemy X Alexander II/Asander/Julius Caesar: Idumean Antipater, Parthian Artavasdes (Greek Alex = Persian Arta) who was the brother of Tigranes II, and the Hasmonean Alexander II (son of king Aristobulus II son of Jannaeus Alexander also the nephew and son-in-law of king/high-priest Hyrcanus II. Also, Julius = Janneus? Or Janneus (Yannai) is related to the Roman name Gaius?)
 
