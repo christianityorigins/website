@@ -21,7 +21,7 @@ Contents
 _Preface_
 
 Introduction\
-1 The Foundations of Christian Slave Morality\
+1 Foundations of Christian Slave Morality and Nietzschean Critique\
 2 Monotheism and Centralized Authority\
 3 Universalism and the Erosion of Hierarchy\
 4 Nietzschean 'Transvaluation of Values'\
@@ -49,7 +49,7 @@ Every single species on earth works towards the preservation and strengthening o
 &nbsp;&nbsp; &nbsp;&nbsp;&nbsp;&nbsp;         Part One of this book examines Christianity’s foundational mechanisms—monotheism, universalism, and sin, and how these three concepts empower the weak, debased, and the traitorous to become the nobility. Weaponizing the outcastes is how the system becomes self-regulating. Part Two applies Nietzsche’s concepts to reveal how these mechanisms act as domestication system that subverts the strong. Part Three details the tools of domestication, Part Four traces Marxism’s inheritance of Christian ethics, and the Conclusion reflects on the 2000-year impact of this slave morality system. 
 
 
-1 The Foundations of Christian Slave Morality\
+1 Foundations of Christian Slave Morality and Nietzschean Critique\
   
 Christianity is a sophisticated divide-and-conquer millenarianist (belief in a future utopia) (1) slave morality (2) system that is packaged as a religion. The system works by weaponizing the lowest "chandala" (3) (outcastes and untouchables in the Hindu caste system) of society (4) to attack and overthrow the aristocratic and warrior castes; and secondly, the christian system contains within it a pacifist slave morality system that is designed to transvaluate a groups aristocratic and warrior values while turning these aristocratic and warrior castes into obedient and submissive slaves.  
   
@@ -102,11 +102,11 @@ While Christianity empowers the 'chandala' caste through universalism and the 't
 
   
 
-*   Fear and punishment/trauma based mind-control programming: the concept of "hell" that they plagiarized from Plato's Republic (the 'Myth of Er' (14)); the lifelong fear of death (Pagans equated death with glory). Also, reward. The concept of "heaven" for asceticism/suffering/obedience.
 *   Centrality of the Crucifixion: The crucifixion of Jesus is the ultimate blood sacrifice, framed as a necessary atonement for humanity’s sins (e.g., Hebrews 9:22: "Without the shedding of blood, there is no forgiveness"). This reinforces a cult of suffering: salvation is achieved through self destruction, teaching followers to valorize pain and victimhood.
 *   Self-Destruction as Virtue: Matthew 16:25: "Whoever wants to save their life will lose it, but whoever loses their life for me will find it.". This inverts survival instincts. Self-annihilation (martyrdom, asceticism) is glorified as the path to purity
 *   Ritual circumcision: children enduring the excruciating pain of circumcision immediately after birth imprints permanent psychological harm and predisposes a child to fear and anxiety. Ritual circumcision creates a trauma bond between the individual and the system, imprinting submission at birth and linking physical pain to spiritual loyalty -- a hallmark of domestication.
 *   Emphasis on Suffering: Christian narratives focus on the suffering of Christ and the martyrs which glorifies weakness and passivity making it seem more virtuous to endure suffering than to overcome it. This is a way for the the oppressed to find validation in their hardships.
+*   Fear and punishment/trauma based mind-control programming: the concept of "hell" that they plagiarized from Plato's Republic (the 'Myth of Er' (14)); the lifelong fear of death (Pagans equated death with glory). Also, reward. The concept of "heaven" for asceticism/suffering/obedience.
 *   Erasure of Ancestral Pride: Christianity’s rejection of pagan traditions (e.g., burning of sacred groves, destruction of temples) severs ties to ancestral heritage, replacing it with a universal religious identity. This disconnects populations from their historical will to power, making them rootless and pliable
 *   Omniscient god: the concept of a self-existant or panopticon god who can read your thoughts and judge your behavior becomes a behavior regulating mechanism.
 *   Group polarization (15).
