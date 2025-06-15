@@ -42,7 +42,7 @@ Note on aliases and locations: I believe that the royal elites in antiquity role
 
 After a year of research, I also believe that much of what we know about history from antiquity is fabricated. I have come to the conclusion that the Greco-Egyptian Ptolemaic Kingdom did not end at the point of Roman colonization, it just spread out and Ptolemaic kings adopted regional aliases. The Church Fathers, the Vatican, the Jesuits, and people like Joseph Justus Scaliger, who was the Jesuit priest who "discovered" the majority of texts from antiquity that we use today, usually on demand, and Poggio Bracciolini, who was the individual responsible for collecting documents for him, further added to the distortion of historical records. This manipulation of historical facts has led to a distorted understanding of the past, and it is likely that many events, dates, and figures have been altered or fabricated to serve the interests of the Church and other powerful institutions.
 
-Julius Caesar was Ptolemy XIV, Pharaoh of Egypt, who was Cleopatra's brother-husband. He also took the regional aliases of  Ptolemy X Alexander II, Asander, king of Bosphorus, and Pharnaces II, among numerous other aliases. Cleopatra was also Dynamis, queen of Bosphorus. Mark Antony was also Ptolemy of Cyprus, a brother of Ptolemy XII Auletes (Cleopatra’s father) making him Cleopatra's uncle and husband aka Polemon I of Pontus aka King Herod aka Tiberius Claudius Nero aka Phraates IV of Parthia, among others. 
+Julius Caesar was Ptolemy XI Alexander II, Cleopatra's uncle, and he also took on the regional aliases of Asander, king of Bosphorus, and Pharnaces II, among numerous other aliases. Cleopatra was also Dynamis, queen of Bosphorus. Mark Antony the Neos-Dionysos was either Ptolemy of Cyprus, a brother of Cleopatra's father Ptolemy XII Auletes (Auletes name adapts well to the Parthian Orodes (II?)) the Neos Dionysos aka Polemon I of Pontus aka King Herod aka Tiberius Claudius Nero aka Phraates IV of Parthia, or he was Ptolemy XII Auletes himself. Meaning that she was married to her father. She was previously married to two of her brothers and her uncle as listed previously. This is how incestuous this family was. 
 
 This book challenges mainstream historiography. My methodologies are: archaeological and numismatic evidence, linguistic and etymological analysis, historical correlation and timeline analysis. The sources that inspired my work are listed in the 'Further reading' section at the end of the book. 
 
@@ -118,9 +118,9 @@ Mithridates VI, king of Pontus, was the father of both Pharnaces II and Dynamis 
 
 Asander beat Mithridates Chrestus (his uncle) in battle to become King of Bosphorus. After Mithridates Chrestus's loss to Asander he was imprisoned and executed by his elder brother, Mithridates VI Eupator, who had previously beat him in war. 
 
-![Fig.1.6](/images/PtolemyXIV.jpeg){:width="400px"}
+![Fig.1.6](/images/PtolemyXAlexanderII.jpg){:width="400px"}
 
-Fig. 1.6. Coin depicting Ptolemy XIV, Pharaoh of Egypt aka Ptolemy X Alexander II aka Asander, king of Bosphorus aka Pharnaces II, etc etc.
+Fig. 1.6. Coin depicting Ptolemy XI Alexander II aka Asander, king of Bosphorus aka Pharnaces II, etc etc.
 
 ![Fig.1.7](/images/PharnacesII.jpg){:width="400px"}
 
@@ -269,9 +269,9 @@ Parthia's regional alias then the picture becomes clearer.
 
 ![Fig.1.14](/images/PtolemyXII.jpeg){:width="400px"}
 
-Fig. 1.14. Ptolemy XII Auletes/Ptolemy X Alexander I, king of Egypt, who was also Mithridates VI Eupator, Ariarathes VII of Cappadocia, Simon Boethus/Magus/Ptolemy (Alexander) bar Menneus, et.al. Mithridates VI married his sister Laodice—just as Ptolemy XII married his sister Cleopatra V. Both had daughters named Cleopatra who ruled (Cleopatra VII and Dynamis).
+Fig. 1.14. Ptolemy XII Auletes, king of Egypt, who was also Mithridates VI Eupator, Ariarathes VII of Cappadocia, Simon Boethus/Magus/Ptolemy (Alexander) bar Menneus, et.al. Mithridates VI married his sister Laodice—just as Ptolemy XII married his sister Cleopatra V. Both had daughters named Cleopatra who ruled (Cleopatra VII and Dynamis).
 
-The connection between Simon Boethus/Magus/Ptolemy XII Auletes/Ptolemy X Alexander I/Ptolemy
+The connection between Simon Boethus/Magus/Ptolemy XII Auletes/Ptolemy
 (Alexander) bar Menneus and Julius Caesar is obviously through his
 daughter Cleopatra whom Julius Caesar/Asander married. Using Josephus as
 a source, Antipater the Idumean's son King Herod was married to Simon
@@ -292,21 +292,19 @@ claiming to be the son of Herod who faked his death [^11], so he was
 
 Endnotes (Chapter 2)
 
-(a) Mark Antony (the Neos-Dionysos) was either Ptolemy of Cyprus, a brother of Ptolemy XII Auletes (Auletes name adapts well to the Parthian Orodes (II?)) Neos Dionysos (Cleopatra’s father) aka Polemon I of Pontus aka King Herod aka Tiberius Claudius Nero aka Phraates IV of Parthia, or he was Ptolemy XII Auletes himself. Meaning that she married her father. She was previously married to two of her brothers and her uncle as listed above. This is how incestuous this family was. Or was Ptolemy XIV (Cleopatra's father) also Ptolemy X Alexander I and Mark Antony was her uncle? Ptolemy XII Auletes (Cleopatra's father) is a likely candidate for being Ptolemy X Alexander I, king of Egypt. 
+(a) Other suspected aliases of Ptolemy XI Alexander II/Asander/Julius Caesar: Idumean Antipater, Parthian Artavasdes (Greek Alex = Persian Arta) who was the brother of Tigranes II, and the Hasmonean Alexander II (son of king Aristobulus II son of Jannaeus Alexander also the nephew and son-in-law of king/high-priest Hyrcanus II. Also, Julius = Janneus? Or Janneus (Yannai) is related to the Roman name Gaius?)
 
-(b) Other suspected aliases of Ptolemy X Alexander II/Asander/Julius Caesar: Idumean Antipater, Parthian Artavasdes (Greek Alex = Persian Arta) who was the brother of Tigranes II, and the Hasmonean Alexander II (son of king Aristobulus II son of Jannaeus Alexander also the nephew and son-in-law of king/high-priest Hyrcanus II. Also, Julius = Janneus? Or Janneus (Yannai) is related to the Roman name Gaius?)
+(b) The throne name of Ptolemy Philometer was Ir-maat-en-amun-re. This would strengthen the word play between the names Philo-meter, Mithra-dates, and Matthath-ius. (The Egyptian Maat-en transliterates to the Hebrew Mattan/Mattath and the name "metor" transliterates into Parthian Mithra). Philometer then corresponds to Mithradates of Parthia and Mattathius the Hasmonean. (Mattath is the Hebrew feminine form of Mattan). 
 
-(c) The throne name of Ptolemy Philometer was Ir-maat-en-amun-re. This would strengthen the word play between the names Philo-meter, Mithra-dates, and Matthath-ius. (The Egyptian Maat-en transliterates to the Hebrew Mattan/Mattath and the name "metor" transliterates into Parthian Mithra). Philometer then corresponds to Mithradates of Parthia and Mattathius the Hasmonean. (Mattath is the Hebrew feminine form of Mattan). 
-
-(d) Speculative: Ptolemy XIII Theos Philopator = Gaius Octavius aka Emperor Gaius
+(c) Speculative: Ptolemy XIII Theos Philopator = Gaius Octavius aka Emperor Gaius
     Julius Caesar Augustus, Cleopatra VII's brother.
     
-(e) Apollonius of Tyre was married to the daughter of a king of Libya ("Historia Apollonii Regis Tyri" or "The Story of Apollonius, King of Tyre"), who was Cleopatra Selene aka Drusilla (aka Cleopatra (Thea Philopator) of Mauretania aka Cleopatra IX aka Helene aka Julia Ourania of Parthia aka Philo of Alexandria. Drusilla was the wife of Azizus who was her brother Juba II (Alexander Helios aka Alexander (son of King Herod)) aka Gaius Julius Alexander, Herodian Prince of Judaea aka Alexander Lysimachus aka Alexander the Alabarch aka Tiberius Julius Alexander Major aka (King/Tetrarch) Ptolemy (Alexander) bar Menneus aka Ptolemy of Mauretania aka Phraates V (the “King of Kings”) aka Monobazus I King of Adiabene).\
+(d) Apollonius of Tyre was married to the daughter of a king of Libya ("Historia Apollonii Regis Tyri" or "The Story of Apollonius, King of Tyre"), who was Cleopatra Selene aka Drusilla (aka Cleopatra (Thea Philopator) of Mauretania aka Cleopatra IX aka Helene aka Julia Ourania of Parthia aka Philo of Alexandria. Drusilla was the wife of Azizus who was her brother Juba II (Alexander Helios aka Alexander (son of King Herod)) aka Gaius Julius Alexander, Herodian Prince of Judaea aka Alexander Lysimachus aka Alexander the Alabarch aka Tiberius Julius Alexander Major aka (King/Tetrarch) Ptolemy (Alexander) bar Menneus aka Ptolemy of Mauretania aka Phraates V (the “King of Kings”) aka Monobazus I King of Adiabene).\
 https://en.wikipedia.org/wiki/Apollonius_of_Tyre_(philosopher)\
 https://en.wikipedia.org/wiki/Apollonius_of_Tyre\
 So, Alexander aka Juba II was also Apollonius of Tyre. Juba II carried the title "Rex Literatissimus" which can be translated as "Most Learned King" or "The Most Scholarly King". He was known as a philosopher. Is Apollonius of Tyre the same person as Apollonius of Tyana? This would make Apollonius of Tyana the brother-husband of Philo of Alexandria and the father of Josephus. These three created the core of Christianity.
 
-(f) Gautama Buddha was Gaumata Bardya, the son of Cyrus the Great. Ptolemy I Soter and his successors were closely associated with Serapis. "Jesus" was an avatar for the Bosphioran royal family. Apollonius of Tyana was king Juba II, the grandson of Julius Caesar/Asander and Cleopatra/Dynamis. All these aristocrats/kings took on religious personas and preached syncretic versions of Greco-Buddhism to the public: monotheism, renounce worldy possessions, asceticism, shame and guilt, you will be rewarded in the afterlife for your earthly suffering, etc. These cults were by design slave moralities to strip the will to power from the population to prevent rebellions. 
+(e) Gautama Buddha was Gaumata Bardya, the son of Cyrus the Great. Ptolemy I Soter and his successors were closely associated with Serapis. "Jesus" was an avatar for the Bosphioran royal family. Apollonius of Tyana was king Juba II, the grandson of Julius Caesar/Asander and Cleopatra/Dynamis. All these aristocrats/kings took on religious personas and preached syncretic versions of Greco-Buddhism to the public: monotheism, renounce worldy possessions, asceticism, shame and guilt, you will be rewarded in the afterlife for your earthly suffering, etc. These cults were by design slave moralities to strip the will to power from the population to prevent rebellions. 
     
 #### 3 Rome on the Bosphorus?
 
