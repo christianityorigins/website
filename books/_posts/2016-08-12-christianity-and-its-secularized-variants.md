@@ -1,14 +1,14 @@
 ---
 layout: default
 open_links_in_new_tab: true
-title:  "The Christian Roots of Marxist Thought: A Critical Examination of the Slave Morality Paradigm"
+title:  "The Christian Roots of Marxist Thought: The Slave Morality Paradigm"
 date:   2016-08-12 09:00:00 +0200
 updated: 2024-08-12 19:46:50 +0200
 category: books
 ---
 
 
-The Christian Roots of Marxist Thought: A Critical Examination of the Slave Morality Paradigm
+The Christian Roots of Marxist Thought: The Slave Morality Paradigm
 
 By Ralph Perrier
 
