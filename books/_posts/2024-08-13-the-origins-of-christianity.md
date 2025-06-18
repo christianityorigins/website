@@ -50,8 +50,7 @@ This book challenges mainstream historiography. My methodologies are: archaeolog
 
 -   Christ: In Greek "The Anointed One" is Chréstos/Christ. Christ is identical to the title Soter. Several historical figures were Christs/Soters. In Isaiah 45:1 the jews called Cyrus the Great "The Anointed One". Alexander the Great was also a Chréstos/Soter (Josephus. Antiquities, XI. 8. Talmud, Yoma 67b).
 -   Cotys: In Thracian, "Cotys" is related to the word "kotys" which is a title that means "lord". In the Celtic languages the word "cottos" or "cottius" means "chieftain". 
--   Izates or Izas: An ancient Greek translation of the Avestan word Yazatas (Persian:
-izad), meaning "lord".
+-   Izates or Izas: "Is" or "Isa" is related to the Proto-Indo-European root "ais-", which means "lord", "ruler", or "noble". This root is also seen in other ancient languages, such as Sanskrit "īśa" (ईश), meaning "lord" or "god". Asa, Esus, Izas, Aesar are all related.
 -   Monobazus: Sabazios is the Phrygian and Thracian version of Zeus. Ma'nu is likely a diminutive of Menneus ("son of man"), and then Manu-Sabazios becomes Monobazus. Monobazus also becomes "Bazus" or "Bar Izates" shortened to "baYZTus" (or bar YZT) through frequent oral repetition which then becomes "bOETHus". The Boethusians were a jewish priestly sect.
 -   Piso cognomen: "Appius" is a cognomen (personal name) of the Claudian family. Appius and Piso are synonymous (In Greek, Appius is rendered as Appios, from there Piso). The name Piso itself would be a form of Peisistratos/Pisistratos, the leading name of ancient Athens in Greece. (Pisistratos is a Latinized spelling of the Greek Peisistratos). It could be said that all the ruling elite of the Julio-Claudian dynasty were Pisos, including Nero who was nearly deposed by a Piso. Appius is also cognate with Arrius (through rhotacization in ancient Latin the /p/ and /r/ could be swapped).
 
