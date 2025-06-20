@@ -1,7 +1,7 @@
 ---
 layout: post
 open_links_in_new_tab: true
-title:  "Secular Paganism"
+title:  "Secular Paganism Handbook"
 date:   2016-05-01 09:00:00 +0200
 category: blog
 ---
@@ -9,7 +9,9 @@ category: blog
 CONTENTS
 
 1 Definitions\
-2 Cosmology \
+2 Polytheistic Cosmology \
+2.1 Secular Polytheism \
+2.2 Carl Jung \
 3 Core Beliefs \
 4 Practices and Rituals \
 5 Footnotes
@@ -18,11 +20,15 @@ CONTENTS
 
 "Pagan" (Latin: pāgānus, 'rural') was supposed to be a slur that was invented by the catholic church to apply to every non-xtian religion but has since been reappropriated as a general term. Specific ethnic "Pagan" polytheistic religions are: Heathenry is Germanic Paganism ("Asatru" is one of the religions that fall under the Heathenry category). Fyrnsidu is Brittonic Paganism. Druidry is Celtic Paganism. Hellenism is Greek Paganism. Religio Romana is Roman Paganism. Rodnovery is Slavic Paganism. Romuva is Baltic Paganism, etc. (despite the different regional names all European Pagan deities are similar. For example, Dyaus Pita (Vedic), Zeus (Greek), Jupiter (Roman), Odin (Nordic), Wotan (German), Esus (Celtic), Wotanaz (Slavic), Ukko and Väinämöinen (Finnish), and so on are all derived from the Aryan allfather Dyeus Pter which translates to Sky Father. The name Zeus comes from the pronunciation of Dyeus, and Jupiter comes from the pronunciation of 'Dyeus Pter'. Wotan is derived from Proto-Germanic Wodanaz, which itself comes from the Proto-Indo-European root Dyeus. Odin comes from Old Norse and is related to the earlier Proto-Germanic Wodanaz). 
 
-2 Cosmology 
+2 Polytheistic Cosmology 
 
 In general, most polytheistic religious followers fall into two categories: 1)they see the polytheistic deities as sentient personal gods, or 2)they see the polytheistic deities as allegorical personifications/emanations/symbolic representations of natural forces (numen/animism). 
 
+2.1 Secular Polytheism
+
 But secular paganism is a new movement that is growing rapidly. Atheists join Pagan groups for a sense of community, social network, shared culture, and connection to their ancestry. These Pagans don't worship a particular thing, they just appreciate the unity of existence, or seek to understand the ultimate nature of reality. Ancestor veneration is the only worship they do. 
+
+2.2 Carl Jung
 
 Many modern secular polytheistic Pagans (1) are inspired by Carl Jung who combined psychoanalysis with Heathenry. The polytheistic deities = 'archetypes (2) of the collective unconscious (3)' to these Pagans.
 
