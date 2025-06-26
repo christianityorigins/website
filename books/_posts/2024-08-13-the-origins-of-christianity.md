@@ -20,12 +20,13 @@ _Preface_
 
   Introduction\
 1 Name and Title Meanings \
-2 Julius Caesar aka Asander of Bosphorus \
-3 Rome on the Bosphorus?\
-4 Flavian Dynasty\
-5 Julius Caesar was a Title \
-6 Esus the Celtic Deity \
-7 Subversion of the Imperial Cult\
+2 Ancient Alias Names List \
+3 Julius Caesar aka Asander of Bosphorus \
+4 Rome on the Bosphorus?\
+5 Flavian Dynasty\
+6 Julius Caesar was a Title \
+7 Esus the Celtic Deity \
+8 Subversion of the Imperial Cult\
   Conclusion
   
 _Appendix A: Alexander the Great_\
@@ -50,11 +51,105 @@ This book challenges mainstream historiography. My methodologies are: archaeolog
 
 -   Christ: In Greek "The Anointed One" is Chréstos/Christ. Christ is identical to the title Soter. Several historical figures were Christs/Soters. In Isaiah 45:1 the jews called Cyrus the Great "The Anointed One". Alexander the Great was also a Chréstos/Soter (Josephus. Antiquities, XI. 8. Talmud, Yoma 67b).
 -   Cotys: In Thracian, "Cotys" is related to the word "kotys" which is a title that means "lord". In the Celtic languages the word "cottos" or "cottius" means "chieftain". 
--   Izates or Izas: "Is" or "Isa" is related to the Proto-Indo-European root "ais-", which means "lord", "ruler", or "noble". This root is also seen in other ancient languages, such as Sanskrit "īśa" (ईश), meaning "lord" or "god". Asa, Esus, Izas, Aesar are all related. The Egyptian "Asar" also "Iset", which was another name for Osiris, could also be the root of this title. 
+-   Izates or Izas: The Egyptian "Asar" also "Iset", which was another name for Osiris, is likely the root of this title. "Is" or "Isa" is also related to the Proto-Indo-European root "ais-", which means "lord", "ruler", or "noble". This root is also seen in other ancient languages, such as Sanskrit "īśa" (ईश), meaning "lord" or "god". Asa, Esus, Izas, Aesar are all related. 
+-   Jesus and Caesar: The Egyptian name "Asar" was another name for Osiris, which is where the Etruscan word "Aesar" (also spelled "Aeser" or "Aisar") likely derived from, which means god or divine. Aesar -> Greek Kaesar -> Latin Caesar. Coins of Ptolemy XI Alexander II depict the syncretic deity Zeus-Ammon: https://harvardartmuseums.org/collections/object/170118?position=0&context=person&id=22936 \
+Zeus-Ammon -> A-Zeus -> Aesus/Aesar (pronunced ah-soos).
 -   Monobazus: Sabazios is the Phrygian and Thracian version of Zeus. Ma'nu is likely a diminutive of Menneus ("son of man"), and then Manu-Sabazios becomes Monobazus. Monobazus also becomes "Bazus" or "Bar Izates" shortened to "baYZTus" (or bar YZT) through frequent oral repetition which then becomes "bOETHus". The Boethusians were a jewish priestly sect.
 -   Piso cognomen: "Appius" is a cognomen (personal name) of the Claudian family. Appius and Piso are synonymous (In Greek, Appius is rendered as Appios, from there Piso). The name Piso itself would be a form of Peisistratos/Pisistratos, the leading name of ancient Athens in Greece. (Pisistratos is a Latinized spelling of the Greek Peisistratos). It could be said that all the ruling elite of the Julio-Claudian dynasty were Pisos, including Nero who was nearly deposed by a Piso. Appius is also cognate with Arrius (through rhotacization in ancient Latin the /p/ and /r/ could be swapped).
 
-#### 2 Julius Caesar aka Asander of Bosphorus \
+####  2 Ancient Alias Names List  (Chronologically Organized by Era and Dynasty)
+
+**I. Ptolemaic & Bosphoran Dynasty (1st Century BCE – 1st Century CE)**  
+
+ **Julius Caesar**  
+- **Primary Aliases**:
+  - *Ptolemy XI Alexander II* (Cleopatra’s uncle)  
+  - *Asander (Asandros)*, King of Bosphorus (110–17 BCE)  
+  - *Pharnaces II* of Pontus (d. 47 BCE)  
+  - *Brogitarix*, King of Galatia  
+- **Titles**:  
+  - *Philocaesar Philoromaios* ("Lover of Caesar, Lover of Rome")  
+  - *Soter* ("Savior")  
+  - *Great King of Kings*  
+
+**Cleopatra VII Thea Philopator**  
+- **Primary Aliases**:  
+  - *Dynamis Ourania*, Queen of Bosphorus (69–8 BCE)  
+  - *Pythodorida Philometor* (Pontus)  
+- **Symbolism**:  
+  - Identified with *Aphrodite Urania* and *Isis* who was the husband of Osiris and mother of Horus.  
+
+**Mark Antony (Marcus Antonius)**  
+- **Primary Aliases**:  
+  - *King Herod the Great* (Judea)  
+  - *Tiberius Claudius Nero* (father of Emperor Tiberius)  
+  - *Phraates IV* of Parthia  
+  - *Polemon I* of Pontus (*Neos Dionysos*)  
+
+**II. Herodian & Flavian Dynasty (1st Century CE)**  
+
+**Alexander (Son of King Herod)**  
+- **Primary Aliases**:  
+  - *Juba II*, King of Numidia/Mauretania  
+  - *Alexander Helios* (twin of Cleopatra Selene II)  
+
+**Alexander (Grandson of King Herod)**  
+- **Primary Aliases**:  
+  - *Ptolemy (Alexander) bar Menneus*, King of Mauretania  
+  - *Tiberius Julius Alexander Major* (Prefect of Egypt)  
+  - *Monobazus I*, King of Adiabene ("Joseph Panthera" in Talmud)  
+
+**Cleopatra (Thea Philopator) of Mauretania**  
+- **Primary Aliases**:  
+  - *Philo of Alexandria*  
+  - *Antonia Caenis* (Vespasian’s mistress)  
+  - *Pallas* (secretary to Claudius/Nero)  
+
+**Simon Boethus (High Priest)**  
+- **Primary Aliases**:  
+  - *Simon Magus*  
+  - *Ptolemy X Alexander I* (speculative)  
+
+**Tiberius Julius Alexander**  
+- **Primary Aliases**:  
+  - *Emperor Nerva* (96–98 CE)  
+  - *Arrius Calpernius Piso*  
+  - *Josephus* (rewritten by Hegesippus?)  
+
+**Marcus Julius Alexander**  
+- **Primary Aliases**:  
+  - *Izates Monobazus*, King of Edessa ("Jesus Emmanuel")  
+  - *Yeshua Cleopatros ben Josephus* (Talmud)  
+
+**III. Flavian Emperors & Early Christianity**  
+
+**Vespasian**  
+- **Primary Aliases**:  
+  - *Herod Agrippa I*  
+  - *Flavius Scaevinus* (Nero conspirator)  
+
+**Titus**  
+- **Primary Aliases**:  
+  - *Polemon II of Pontus*  
+  - *Aulus Avillius Flaccus* (Prefect of Egypt)  
+
+**Marcion of Sinope**  
+- **Primary Aliases**:  
+  - *Markianos of Alexandria*  
+  - *St. Mark* (conflated)  
+
+**IV. Speculative & Cross-Cultural Identities**  
+
+**Alexander the Great**  
+- **Primary Aliases**:  
+  - *Chandragupta Maurya* (India)  
+  - *Ptolemy I Soter* (Egypt)  
+
+**Gautama Buddha**  
+- **Primary Aliases**:  
+  - *Gaumata Bardya* (son of Cyrus the Great)  
+
+#### 3 Julius Caesar aka Asander of Bosphorus \
 
 There was a Byzantine [^1] imperial cult where Julius Caesar [^2] took on the role of Asander (also Asandros), King of Bosphorus [^3] ("Asa" means "lord" in Thracian and Celtic, and "andros" means "man" or "son of man" in Greek. Jesus is referred to as "the son of man" 81 times in the four canonical gospels. Asandros can also be interpreted as "son of the lord" or "son of Asa, the lord". The Thracian version of Zeus was Asa, the Celtic was Esus/Hesus (Esus becomes Aesus pronunced ah-soos. There was no J in ancient Latin so Jesus was pronunced ah-soos was well). The Etruscan word "Aesar" (also spelled "Aeser" or "Aisar" which likely derived from the Egyptian "Asar" which was another name for Osiris), where Asa could also derive from, means "god" or "divine". Asandros can also translate to either "son of god", or "son of Lord Aesar". The Greek language often added the prefix "K" to words borrowed from other languages, so Aesar ("god") -> Greek Kaesar -> Latin Caesar. Cleopatra used the regional alias of Dynamis Ourania [^4] (translates to 'heavenly power'), queen of Bosporus. Cimmerian Bosporus approximates to modern day Crimea in southern Ukraine (see also: Jesus Christ was born in Crimea by Anatoly Fomenko).
 
@@ -289,26 +384,23 @@ even has a story about a 'spurious Alexander' that showed up in Rome
 claiming to be the son of Herod who faked his death [^11], so he was
 'resurrected' as Juba II, king of Numidia and Mauretania. 
 
-Endnotes (Chapter 2)
+Endnotes (Chapter 3)
 
-(a) Coins of Ptolemy XI Alexander II depict the syncretic deity Zeus-Ammon: https://harvardartmuseums.org/collections/object/170118?position=0&context=person&id=22936 \
-Zeus-Ammon -> A-Zeus -> Aesus (Aesar). Add a "C" to Aesar and you get Caesar.
+(a) Other suspected aliases of Ptolemy XI Alexander II/Asander/Julius Caesar: Idumean Antipater, Parthian Artavasdes (Greek Alex = Persian Arta) who was the brother of Tigranes II, and the Hasmonean Alexander II (son of king Aristobulus II son of Jannaeus Alexander also the nephew and son-in-law of king/high-priest Hyrcanus II. Also, Julius = Janneus? Or Janneus (Yannai) is related to the Roman name Gaius?)
 
-(b) Other suspected aliases of Ptolemy XI Alexander II/Asander/Julius Caesar: Idumean Antipater, Parthian Artavasdes (Greek Alex = Persian Arta) who was the brother of Tigranes II, and the Hasmonean Alexander II (son of king Aristobulus II son of Jannaeus Alexander also the nephew and son-in-law of king/high-priest Hyrcanus II. Also, Julius = Janneus? Or Janneus (Yannai) is related to the Roman name Gaius?)
+(b) The throne name of Ptolemy Philometer was Ir-maat-en-amun-re. This would strengthen the word play between the names Philo-meter, Mithra-dates, and Matthath-ius. (The Egyptian Maat-en transliterates to the Hebrew Mattan/Mattath and the name "metor" transliterates into Parthian Mithra). Philometer then corresponds to Mithradates of Parthia and Mattathius the Hasmonean. (Mattath is the Hebrew feminine form of Mattan). 
 
-(c) The throne name of Ptolemy Philometer was Ir-maat-en-amun-re. This would strengthen the word play between the names Philo-meter, Mithra-dates, and Matthath-ius. (The Egyptian Maat-en transliterates to the Hebrew Mattan/Mattath and the name "metor" transliterates into Parthian Mithra). Philometer then corresponds to Mithradates of Parthia and Mattathius the Hasmonean. (Mattath is the Hebrew feminine form of Mattan). 
-
-(d) Speculative: Ptolemy XIII Theos Philopator = Gaius Octavius aka Emperor Gaius
+(c) Speculative: Ptolemy XIII Theos Philopator = Gaius Octavius aka Emperor Gaius
     Julius Caesar Augustus, Cleopatra VII's brother.
     
-(e) Apollonius of Tyre was married to the daughter of a king of Libya ("Historia Apollonii Regis Tyri" or "The Story of Apollonius, King of Tyre"), who was Cleopatra Selene aka Drusilla (aka Cleopatra (Thea Philopator) of Mauretania aka Cleopatra IX aka Helene aka Julia Ourania of Parthia aka Philo of Alexandria. Drusilla was the wife of Azizus who was her brother Juba II (Alexander Helios aka Alexander (son of King Herod)) aka Gaius Julius Alexander, Herodian Prince of Judaea aka Alexander Lysimachus aka Alexander the Alabarch aka Tiberius Julius Alexander Major aka (King/Tetrarch) Ptolemy (Alexander) bar Menneus aka Ptolemy of Mauretania aka Phraates V (the “King of Kings”) aka Monobazus I King of Adiabene).\
+(d) Apollonius of Tyre was married to the daughter of a king of Libya ("Historia Apollonii Regis Tyri" or "The Story of Apollonius, King of Tyre"), who was Cleopatra Selene aka Drusilla (aka Cleopatra (Thea Philopator) of Mauretania aka Cleopatra IX aka Helene aka Julia Ourania of Parthia aka Philo of Alexandria. Drusilla was the wife of Azizus who was her brother Juba II (Alexander Helios aka Alexander (son of King Herod)) aka Gaius Julius Alexander, Herodian Prince of Judaea aka Alexander Lysimachus aka Alexander the Alabarch aka Tiberius Julius Alexander Major aka (King/Tetrarch) Ptolemy (Alexander) bar Menneus aka Ptolemy of Mauretania aka Phraates V (the “King of Kings”) aka Monobazus I King of Adiabene).\
 https://en.wikipedia.org/wiki/Apollonius_of_Tyre_(philosopher)\
 https://en.wikipedia.org/wiki/Apollonius_of_Tyre\
 So, Alexander aka Juba II was also Apollonius of Tyre. Juba II carried the title "Rex Literatissimus" which can be translated as "Most Learned King" or "The Most Scholarly King". He was known as a philosopher. Is Apollonius of Tyre the same person as Apollonius of Tyana? This would make Apollonius of Tyana the brother-husband of Philo of Alexandria and the father of Josephus. These three created the core of Christianity.
 
-(f) Gautama Buddha was Gaumata Bardya, the son of Cyrus the Great. Ptolemy I Soter and his successors were closely associated with Serapis. "Jesus" was an avatar for the Bosphioran royal family. Apollonius of Tyana was king Juba II, the grandson of Julius Caesar/Asander and Cleopatra/Dynamis. All these aristocrats/kings took on religious personas and preached syncretic versions of Greco-Buddhism to the public: monotheism, renounce worldy possessions, asceticism, shame and guilt, you will be rewarded in the afterlife for your earthly suffering, etc. These cults were by design slave moralities to strip the will to power from the population to prevent rebellions. 
+(e) Gautama Buddha was Gaumata Bardya, the son of Cyrus the Great. Ptolemy I Soter and his successors were closely associated with Serapis. "Jesus" was an avatar for the Bosphioran royal family. Apollonius of Tyana was king Juba II, the grandson of Julius Caesar/Asander and Cleopatra/Dynamis. All these aristocrats/kings took on religious personas and preached syncretic versions of Greco-Buddhism to the public: monotheism, renounce worldy possessions, asceticism, shame and guilt, you will be rewarded in the afterlife for your earthly suffering, etc. These cults were by design slave moralities to strip the will to power from the population to prevent rebellions. 
     
-#### 3 Rome on the Bosphorus?
+#### 4 Rome on the Bosphorus?
 
 My research on the origins of Christianity takes me to the Bosphorus
 river in classical Anatolia (Julius Caesar = Asander, King of Bosphorus,
@@ -340,7 +432,7 @@ Etruscans who established Rome were invaders from Anatolia, and the
 Carians who hailed from southwest Anatolia have a strong connection with
 the settlement of Rome (Aquilla = Qos = god of Kos of Caria).
 
-Endnotes (Chapter 3)
+Endnotes (Chapter 4)
 
 (a) Asander and Dynamis had one known son, Tiberius Julius Aspurgus Philoromaios. He was born about the same time as "Caesarion" and "Emperor Tiberius Julius Caesar". His wife, known only through numismatic evidence, was Gepae-pyris. Tiberius and Gepaepyris had two sons; the eldest was "Tiberius Julius Mithridates Philo-Germanicus Philopatris" ("son of Mithra, lover of Germanicus, lover of father"). Their second son was "Tiberius Julius Cotys I Philocaesar Philoromaios Eusebes" ("lover of Caesar, lover of Rome who is the Pious One").
 
@@ -370,7 +462,7 @@ I asked ChatGPT to translate Roman emperor names and Bosphorian princes and king
 -Vespasian: The Celtic name "Vespag" could be transliterated to the Etruscan name "Vespe" or "Vespi", which means "wasp" or "stinging insect". The Etruscan name "Vespe" is similar to the Latin name "Vespasian". Rhescuporis, a king of the Bosphorus, has a name that means "he who is stung" in Greek, with the Celtic name "Rhescu" being similar to the Etruscan name "Vespe". The Phoenician name "Vespas" or "Vespasos" could also be related, meaning "wasp" or "stinging insect". Lord is found in the Celtic translation of "Vespag" as "lord of the wasps".\
 -Domitian: The Celtic name "Domnach" could be transliterated to the Etruscan name "Dumne" or "Dumni", which means "lord" or "master". The Etruscan name "Dumne" is similar to the Latin name "Domitian". Sauromates I, a king of the Bosphorus, has a name that means "ruler of the land" or "lord of the earth" in Greek, with the Celtic name "Domnach" being similar to the Etruscan name "Dumne". The Thracian name "Dom
 
-#### 4 Flavian Dynasty \
+#### 5 Flavian Dynasty \
 
 Vespassian was also a great-grandson of Cleopatra and Mark Antony (King Herod). He was Herod Pollio aka Herod Agrippa I, grandson of King Herod's son Aristobulus IV. Vespasian was his title, not his name (Vas/Bas was the royal abbreviation for the Greek word Basilius which = King, and Pasius = Peace. 'Vespasian' = 'King Peace') [^12]. He was also 'Flavius Scaevinus' the conspirator who was involved in Nero's assassination. 
 
@@ -396,11 +488,11 @@ Aristobulus IV was likely Vespasian and Vitellius's father, so like his
 cousin Alexander (grandson of King Herod), he was also married to his
 sister). 
 
-Endnotes (Chapter 4)
+Endnotes (Chapter 5)
 
 (a) Theory: Alexander (grandson of King Herod) aka Gaius Julius Alexander, Herodian Prince of Judaea aka Alexander Lysimachus aka Alexander the Alabarch aka Tiberius Julius Alexander Major aka (King/Tetrarch) Ptolemy (Alexander) bar Menneus aka Ptolemy of Mauretania was also the Roman general 'Gnaeus Domitius Corbulo'. Gnaeus Domitius Corbulo conquered Armenia alongside Tiberius Julius Alexander (his son Tiberius Julius Alexander aka Arrius Calpernius Piso aka Arrius Varus aka Tiberius Julius Cotys aka Emperor Nerva), after which, Tigranes VI (Tiberius Julius Alexander) was installed as king. Compare his bust [link] to the famous 'Josephus' (Tiberius Julius Alexander) bust [link]. Notice a resemblance? If this is correct, then he (Alexander) would have been the brother-in-law to Caligula and father-in-law to Domitian. Tiridates of Armenia (who would have been Mithridates Chrestus' great-great-grandson) was the one who spread the religion Mithraism which was a syncretic a slave-morality religion to subjugate the Parthians. Mithras is inspired by Zoroastrianism, the religion of the Persians/Parthians, but Mithras is the same as Sabazios. It’s a solar son deity, a Jupiter. 
 
-#### 5 Julius Caesar was a Title 
+#### 6 Julius Caesar was a Title 
 
 Identifying Julius Caesar as Asander of Bosphorus necessitates a re-examination of his name. 
 
@@ -440,7 +532,7 @@ Also, Caesar, Kaiser (German for Caesar), Kesar or Kaysar (Persian for Caesar), 
 
 Russian historian and mathematician Anatoly Fomenko wrote several books where he claimed that the city of Yoros = Jerusalem = Troy and it was situated on the eastern, Asiatic shore of Bosphorus, closer to the Black Sea, very near to the Beykoz mountain (Golgotha). The fact that Ptolemaic/Bosphoran/Roman kings, many who were Celtic Galatians and Aryan Sarmatians, role played as jews, an irrelevant tribe, and israel was an irrelevant slice of land in the desert, this makes this claim more credible. jews just adopted this imperial cult and they got their entire identity and history from here.
 
-#### 6 Esus the Celtic Deity
+#### 7 Esus the Celtic Deity
 
 The Celts in classical Galatia worshiped a deity called Hesus/Esus/Iesus. The Celtic name Esus is believed to be related to the Proto-Celtic word "aisu", which means "lord" or "master". The letter "J" was invented in the 17th century, so the name "Jesus" would have been "Esus" in the classical sense. 
 
@@ -453,11 +545,11 @@ Hesus/Esus/Iesus then eventually phonetically shifted to I-zas/Izas/Izates.
 
 Fig. 1.16. Statue from classical Anatolia that is dedicated to "Esumopas Cnusticus". Esumopas means "Slave to Esus", and Esus means lord in Proto-Celtic. If you combine the Etruscan word "cnus" with the suffix "-ticus" or "-tic-" you get a word that translates to "anointed one" or "consecrated one", ie. a "Christ". So, that inscription translates to: "Slave to Lord (Esus) Christ". The "VSLM" inscription is an abbreviation for the Latin phrase "Votum Solvit Libens Merito" which translates to "He pays his vow willingly and with merit" or "He fulfills his vow with pleasure and deserving", which is often found on Roman coins and other artifacts. Esus was crucified in mythology and his symbol was an axe, so he was associated with woodcutting, forestry, carpentry. Esus was also part of a "trinity" of Gaulish gods that included Taranis, Teutates and Esus.
 
-Endnotes (chapter 6)
+Endnotes (chapter 7)
 
 (a) This is why all christian celebrations derive from Druidism. Druidic Calendar: Yule (Winter Solstice) - December 21/22 Celebrate the rebirth of the sun (Christian Equivalent: Christmas (December 25)). Imbolc - February 1/2 Mark the midpoint between Yule and the spring equinox (Christian Equivalent: Candlemas (February 2)). Ostara (Spring Equinox) - March 20/21 Welcome the return of spring with eggs, rabbits, and feasting (Cristian Equivalent: Easter (movable date, typically in March or April)). Beltane - May 1/2 Honor the spirits of the land and the cycles of nature (Christian Equivalent: May Day (May 1) or Ascension Day (movable date, typically in May)). Litha (Summer Solstice) - June 20/21 Celebrate the peak of the sun's power (Christian Equivalent: St. John's Day (June 24)). Lammas - July 31/August 1 Mark the beginning of harvest time (Christian Equivalent: Feast of the Transfiguration (August 6) or Lammas Sunday (movable date, typically in August)). Mabon (Autumn Equinox) - September 20/21 Celebrate the second harvest (Christian Equivalent: Michaelmas (September 29) or Harvest Festival (movable date, typically in September or October)). Samhain - October 31/November 1 Honor the ancestors (Christian Equivalent: All Saints' Eve (October 31) or All Souls' Day (November 2)).\
 
-#### 7 Subversion of the Imperial Cult
+#### 8 Subversion of the Imperial Cult
 
 Sometime after the Bar Kokhba Revolt (132--136 CE), a group of rabbis
 that were headed by a rabbi named Akiva who led the Talmudic Pharisees
@@ -495,7 +587,7 @@ in the loss of all recorded history up until that point so that they
 could cover up the tracks of their psy-op religion.
 
 
-Endnotes (Chapter 7)
+Endnotes (Chapter 8)
 
 (a) Marcion of Sinope aka Markianos of Alexandria grew up in the Attis-Sabazios cult on Anatolia before traveling to Judea to study under rabbi Akiva and finally to Alexandria at the Alexandrian School.
 
