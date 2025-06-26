@@ -1,14 +1,14 @@
 ---
 layout: default
 open_links_in_new_tab: true
-title:  "The Christian Roots of Marxist Thought: The Slave Morality Paradigm"
+title:  "The Slave Morality Mind Virus: Christianity as a Biosocial Weapon of Mass Domestication and Its Secular Legacy in Marxism"
 date:   2016-08-12 09:00:00 +0200
 updated: 2024-08-12 19:46:50 +0200
 category: books
 ---
 
 
-The Christian Roots of Marxist Thought: The Slave Morality Paradigm
+The Slave Morality Mind Virus: Christianity as a Biosocial Weapon of Mass Domestication and Its Secular Legacy in Marxism
 
 By Ralph Perrier
 
