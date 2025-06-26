@@ -60,97 +60,30 @@ Zeus-Ammon -> A-Zeus -> Aesus/Aesar.
 
 ####  2 Ancient Alias Names List  (Chronologically Organized by Era and Dynasty)
 
-**I. Ptolemaic & Bosphoran Dynasty (1st Century BCE – 1st Century CE)**  
+I. Ptolemaic & Bosphoran Dynasty
+- Julius Caesar: Ptolemy XI Alexander II, Asander (Bosphorus), Pharnaces II, Brogitarix
+- Titles: Philocaesar Philoromaios, Soter, Great King of Kings
+- Cleopatra VII: Dynamis Ourania, Pythodorida Philometor (Isis who was the husband of Osiris and mother of Horus/Aphrodite Urania)
+- Mark Antony: King Herod, Tiberius Claudius Nero, Phraates IV, Polemon I (Neos Dionysos)
 
- **Julius Caesar**  
-Primary Aliases:
-  - *Ptolemy XI Alexander II* (Cleopatra’s uncle)  
-  - *Asander (Asandros)*, King of Bosphorus (110–17 BCE)  
-  - *Pharnaces II* of Pontus (d. 47 BCE)  
-  - *Brogitarix*, King of Galatia
-    
-**Titles**:  
-  - *Philocaesar Philoromaios* ("Lover of Caesar, Lover of Rome")  
-  - *Soter* ("Savior")  
-  - *Great King of Kings*  
+II. Herodian & Flavian Dynasty
+- Alexander (son of Herod): Juba II, Alexander Helios
+- Alexander (grandson): Ptolemy bar Menneus, Tiberius Julius Alexander, Monobazus I ("Joseph Panthera")
+- Cleopatra of Mauretania: Philo of Alexandria, Antonia Caenis, Pallas
+- Simon Boethus: Simon Magus, Ptolemy X Alexander I
+- Tiberius Julius Alexander: Emperor Nerva, Arrius Piso, Josephus
+- Marcus Julius Alexander: Izates Monobazus ("Jesus Emmanuel"), Yeshua Cleopatros
 
-**Cleopatra VII Thea Philopator**  
-Primary Aliases:  
-  - *Dynamis Ourania*, Queen of Bosphorus (69–8 BCE)  
-  - *Pythodorida Philometor* (Pontus)  
+III. Flavian Emperors
+- Vespasian: Herod Agrippa I, Flavius Scaevinus
+- Titus: Polemon II, Aulus Avillius Flaccus
+- Marcion of Sinope: Markianos, St. Mark
 
-**Symbolism**:  
-  - Identified with *Aphrodite Urania* and *Isis* who was the husband of Osiris and mother of Horus.  
+IV. Speculative
+- Alexander the Great: Chandragupta, Ptolemy I Soter
+- Gautama Buddha: Gaumata Bardya (Cyrus' son)
 
-**Mark Antony (Marcus Antonius)**  
-Primary Aliases:  
-  - *King Herod the Great* (Judea)  
-  - *Tiberius Claudius Nero* (father of Emperor Tiberius)  
-  - *Phraates IV* of Parthia  
-  - *Polemon I* of Pontus (*Neos Dionysos*)  
-
-**II. Herodian & Flavian Dynasty (1st Century CE)**  
-
-**Alexander (Son of King Herod)**  
-Primary Aliases:  
-  - *Juba II*, King of Numidia/Mauretania  
-  - *Alexander Helios* (twin of Cleopatra Selene II)  
-
-**Alexander (Grandson of King Herod)**  
-Primary Aliases:  
-  - *Ptolemy (Alexander) bar Menneus*, King of Mauretania  
-  - *Tiberius Julius Alexander Major* (Prefect of Egypt)  
-  - *Monobazus I*, King of Adiabene ("Joseph Panthera" in Talmud)  
-
-**Cleopatra (Thea Philopator) of Mauretania**  
-Primary Aliases:  
-  - *Philo of Alexandria*  
-  - *Antonia Caenis* (Vespasian’s mistress)  
-  - *Pallas* (secretary to Claudius/Nero)  
-
-**Simon Boethus (High Priest)**  
-Primary Aliases:  
-  - *Simon Magus*  
-  - *Ptolemy X Alexander I* (speculative)  
-
-**Tiberius Julius Alexander**  
-Primary Aliases:  
-  - *Emperor Nerva* (96–98 CE)  
-  - *Arrius Calpernius Piso*  
-  - *Josephus* (rewritten by Hegesippus?)  
-
-**Marcus Julius Alexander**  
-Primary Aliases:  
-  - *Izates Monobazus*, King of Edessa ("Jesus Emmanuel")  
-  - *Yeshua Cleopatros ben Josephus* (Talmud)  
-
-**III. Flavian Emperors & Early Christianity**  
-
-**Vespasian**  
-Primary Aliases:  
-  - *Herod Agrippa I*  
-  - *Flavius Scaevinus* (Nero conspirator)  
-
-**Titus**  
-Primary Aliases:  
-  - *Polemon II of Pontus*  
-  - *Aulus Avillius Flaccus* (Prefect of Egypt)  
-
-**Marcion of Sinope**  
-Primary Aliases:  
-  - *Markianos of Alexandria*  
-  - *St. Mark* (conflated)  
-
-**IV. Speculative & Cross-Cultural Identities**  
-
-**Alexander the Great**  
-Primary Aliases:  
-  - *Chandragupta Maurya* (India)  
-  - *Ptolemy I Soter* (Egypt)  
-
-**Gautama Buddha**  
-Primary Aliases:  
-  - *Gaumata Bardya* (son of Cyrus the Great)  
+3 Julius Caesar as Asander of Bosphorus
 
 #### 3 Julius Caesar aka Asander of Bosphorus \
 
@@ -508,12 +441,12 @@ Amyntas Nikator.
 "Gaius" then can refer to Asander's connection to the Gallian (Gauls (Galli = Celt in Latin))  people or his ancestry in the region.
 
 Ceasar's gentilice (surname) was Iulius. Iulius can refer to the ancient Celtic tribe known as the Iudii or Iudaei. "Ioulios" (ιούλιος) in Greek also means "descended from Jupiter" or "son of Jupiter". So, it is possible that the word "jew" comes from the Iudii or Iudaei.
- 
-Caesarus referred to a Celtic chieftain. For example, Caesorix was the leader of the Cimbri tribe during the Cimbrian War.
 
-Gaius Julius Caesar was a title, and Gaius Julius Caesar could conceivably translate to: Chieftain of the Iudii or Iudaiei tribe from Galatia.
+The Egyptian name “Asar” was another name for Osiris, which is where the Etruscan word “Aesar” (also spelled "Aeser" or "Aisar") likely derived from, which means god or divine. The Greek language adds a “K” to foreign words, so Aesar -> Greek Kaesar -> Latin Caesar. In Celtic cultures, Caesarus also referred to a Celtic chieftain who likely took on a divine role. For example, Caesorix was the leader of the Cimbri tribe during the Cimbrian War.
 
-I(J)upiter was called Jove or Iove to the Romans. The Latin pronunciation of Iove would have been Yoh-Way, i.e., Yahweh/Yhwh, so Yahweh Saboath, the god of the hebrew bible, is I(J)ove (Roman Zeus) Sabazios (Thracian Zeus).
+Gaius Julius Caesar was a title, and Gaius Julius Caesar could conceivably translate to: Chieftain of the Iudii or Iudaiei tribe from Galatia, or Lord Asar/Aesus (pronunced ah-soos) of the Iudii or Iudaiei tribe from Galatia. 
+
+Another option to decoding his name is that the Romans used a system called 'interpretatio romana' to associate their gods with local ones as part of their colonial program, so the name Julius (Jupiter = Roman Zeus) Thracian (C)Aesar (Aesar = Etruscan Zeus) could also be a syncretic name. An example of this is how I(J)upiter was called Jove or Iove to the Romans. The Latin pronunciation of Iove would have been Yoh-Way, i.e., Yahweh/Yhwh, so Yahweh Saboath, the god of the hebrew bible, is I(J)ove (Roman Zeus) Sabazios (Thracian Zeus).
 
 'Ashkenazi', or 'Ashkuza', was the name given to the Scythians by the ancient Akkadians (Josephus. Vol. 5: Antiquities: 8:2:5, pp. 593-595). The Assyrians called the Scythians "Asguzaya" and the ancient Persians called the Scythians 'Saka'. In Biblical Hebrew, the Ashkuz (Ashkenaz) are considered to be a direct offshoot from the Gimirri, known as the Cimmerians to the ancient Greeks. Cimmerians were a Middle Eastern offshoot of the Celtic Cimbri tribe. The Bosphorus Kingdom that Asander ruled over was also known as the Kingdom of the Cimmerian Bosphorus.
 
@@ -530,8 +463,6 @@ the Roman name for Ireland. Iber is an ethnonym that shows up in areas
 where the Celtic people settled (Ebro river, Iberia, Hibernia, etc.).
 
 Abel and Cain are just a copy of Romulus and Remus. Judas Iscariot is a copy of Brutus. Genesis 4:5-31. Enoch, Irad, Mehujael, Methuselah, Lamech, Seth, Enosh, Kenan, Mahalalel, are copies of Titus Livy's Regal Rome of the seven kings.
-
-Also, Caesar, Kaiser (German for Caesar), Kesar or Kaysar (Persian for Caesar), Kaisar (Ancient Greek for Caesar), Tsar (Russian for Caesar) and Khazar are not just phonetic coincidences. It all ties back to the Divine Julius cult.
 
 Russian historian and mathematician Anatoly Fomenko wrote several books where he claimed that the city of Yoros = Jerusalem = Troy and it was situated on the eastern, Asiatic shore of Bosphorus, closer to the Black Sea, very near to the Beykoz mountain (Golgotha). The fact that Ptolemaic/Bosphoran/Roman kings, many who were Celtic Galatians and Aryan Sarmatians, role played as jews, an irrelevant tribe, and israel was an irrelevant slice of land in the desert, this makes this claim more credible. jews just adopted this imperial cult and they got their entire identity and history from here.
 
