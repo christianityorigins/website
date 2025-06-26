@@ -63,25 +63,27 @@ Zeus-Ammon -> A-Zeus -> Aesus/Aesar.
 **I. Ptolemaic & Bosphoran Dynasty (1st Century BCE – 1st Century CE)**  
 
  **Julius Caesar**  
-- **Primary Aliases**:
+Primary Aliases:
   - *Ptolemy XI Alexander II* (Cleopatra’s uncle)  
   - *Asander (Asandros)*, King of Bosphorus (110–17 BCE)  
   - *Pharnaces II* of Pontus (d. 47 BCE)  
-  - *Brogitarix*, King of Galatia  
-- **Titles**:  
+  - *Brogitarix*, King of Galatia
+    
+**Titles**:  
   - *Philocaesar Philoromaios* ("Lover of Caesar, Lover of Rome")  
   - *Soter* ("Savior")  
   - *Great King of Kings*  
 
 **Cleopatra VII Thea Philopator**  
-- **Primary Aliases**:  
+Primary Aliases:  
   - *Dynamis Ourania*, Queen of Bosphorus (69–8 BCE)  
   - *Pythodorida Philometor* (Pontus)  
-- **Symbolism**:  
+
+**Symbolism**:  
   - Identified with *Aphrodite Urania* and *Isis* who was the husband of Osiris and mother of Horus.  
 
 **Mark Antony (Marcus Antonius)**  
-- **Primary Aliases**:  
+Primary Aliases:  
   - *King Herod the Great* (Judea)  
   - *Tiberius Claudius Nero* (father of Emperor Tiberius)  
   - *Phraates IV* of Parthia  
@@ -90,64 +92,64 @@ Zeus-Ammon -> A-Zeus -> Aesus/Aesar.
 **II. Herodian & Flavian Dynasty (1st Century CE)**  
 
 **Alexander (Son of King Herod)**  
-- **Primary Aliases**:  
+Primary Aliases:  
   - *Juba II*, King of Numidia/Mauretania  
   - *Alexander Helios* (twin of Cleopatra Selene II)  
 
 **Alexander (Grandson of King Herod)**  
-- **Primary Aliases**:  
+Primary Aliases:  
   - *Ptolemy (Alexander) bar Menneus*, King of Mauretania  
   - *Tiberius Julius Alexander Major* (Prefect of Egypt)  
   - *Monobazus I*, King of Adiabene ("Joseph Panthera" in Talmud)  
 
 **Cleopatra (Thea Philopator) of Mauretania**  
-- **Primary Aliases**:  
+Primary Aliases:  
   - *Philo of Alexandria*  
   - *Antonia Caenis* (Vespasian’s mistress)  
   - *Pallas* (secretary to Claudius/Nero)  
 
 **Simon Boethus (High Priest)**  
-- **Primary Aliases**:  
+Primary Aliases:  
   - *Simon Magus*  
   - *Ptolemy X Alexander I* (speculative)  
 
 **Tiberius Julius Alexander**  
-- **Primary Aliases**:  
+Primary Aliases:  
   - *Emperor Nerva* (96–98 CE)  
   - *Arrius Calpernius Piso*  
   - *Josephus* (rewritten by Hegesippus?)  
 
 **Marcus Julius Alexander**  
-- **Primary Aliases**:  
+Primary Aliases:  
   - *Izates Monobazus*, King of Edessa ("Jesus Emmanuel")  
   - *Yeshua Cleopatros ben Josephus* (Talmud)  
 
 **III. Flavian Emperors & Early Christianity**  
 
 **Vespasian**  
-- **Primary Aliases**:  
+Primary Aliases:  
   - *Herod Agrippa I*  
   - *Flavius Scaevinus* (Nero conspirator)  
 
 **Titus**  
-- **Primary Aliases**:  
+Primary Aliases:  
   - *Polemon II of Pontus*  
   - *Aulus Avillius Flaccus* (Prefect of Egypt)  
 
 **Marcion of Sinope**  
-- **Primary Aliases**:  
+Primary Aliases:  
   - *Markianos of Alexandria*  
   - *St. Mark* (conflated)  
 
 **IV. Speculative & Cross-Cultural Identities**  
 
 **Alexander the Great**  
-- **Primary Aliases**:  
+Primary Aliases:  
   - *Chandragupta Maurya* (India)  
   - *Ptolemy I Soter* (Egypt)  
 
 **Gautama Buddha**  
-- **Primary Aliases**:  
+Primary Aliases:  
   - *Gaumata Bardya* (son of Cyrus the Great)  
 
 #### 3 Julius Caesar aka Asander of Bosphorus \
