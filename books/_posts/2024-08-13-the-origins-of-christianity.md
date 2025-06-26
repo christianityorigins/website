@@ -53,8 +53,7 @@ This book challenges mainstream historiography. My methodologies are: archaeolog
 -   Christ: In Greek "The Anointed One" is Chréstos/Christ. Christ is identical to the title Soter. Several historical figures were Christs/Soters. In Isaiah 45:1 the jews called Cyrus the Great "The Anointed One". Alexander the Great was also a Chréstos/Soter (Josephus. Antiquities, XI. 8. Talmud, Yoma 67b).
 -   Cotys: In Thracian, "Cotys" is related to the word "kotys" which is a title that means "lord". In the Celtic languages the word "cottos" or "cottius" means "chieftain". 
 -   Izates or Izas: The Egyptian "Asar" or "Iset", which was another name for Osiris, is likely the root of this title. "Is" or "Isa" is also related to the Proto-Indo-European root "ais-", which means "lord", "ruler", or "noble". This root is also seen in other ancient languages, such as Sanskrit "īśa" (ईश), meaning "lord" or "god". Asa, Esus, Izas, Aesar are all related. 
--   Jesus: Likely a phonetic shift from Asar/Aesus (pronunced ah-soos)/Iset/Izates/Izas/et. al. Another option: Coins of Ptolemy XI Alexander II depict the syncretic deity Zeus-Ammon: https://harvardartmuseums.org/collections/object/170118?position=0&context=person&id=22936 \
-Zeus-Ammon -> A-Zeus -> Aesus/Aesar.
+-   Jesus: Likely a phonetic shift from Asar/Aesus (pronunced ah-soos)/Iset/Izates/Izas/et. al. Another option: Coins of Ptolemy XI Alexander II depict the syncretic deity Zeus-Ammon: https://harvardartmuseums.org/collections/object/170118?position=0&context=person&id=22936 Zeus-Ammon -> A-Zeus -> Aesus/Aesar.
 -   Monobazus: Sabazios is the Phrygian and Thracian version of Zeus. Ma'nu is likely a diminutive of Menneus ("son of man"), and then Manu-Sabazios becomes Monobazus. Monobazus also becomes "Bazus" or "Bar Izates" shortened to "baYZTus" (or bar YZT) through frequent oral repetition which then becomes "bOETHus". The Boethusians were a jewish priestly sect.
 -   Piso cognomen: "Appius" is a cognomen (personal name) of the Claudian family. Appius and Piso are synonymous (In Greek, Appius is rendered as Appios, from there Piso). The name Piso itself would be a form of Peisistratos/Pisistratos, the leading name of ancient Athens in Greece. (Pisistratos is a Latinized spelling of the Greek Peisistratos). It could be said that all the ruling elite of the Julio-Claudian dynasty were Pisos, including Nero who was nearly deposed by a Piso. Appius is also cognate with Arrius (through rhotacization in ancient Latin the /p/ and /r/ could be swapped).
 
@@ -63,29 +62,40 @@ Zeus-Ammon -> A-Zeus -> Aesus/Aesar.
 I. Ptolemaic & Bosphoran Dynasty
 - Julius Caesar: Ptolemy XI Alexander II, Asander (Bosphorus), Pharnaces II, Brogitarix
 - Titles: Philocaesar Philoromaios, Soter, Great King of Kings
-- Cleopatra VII: Dynamis Ourania, Pythodorida Philometor (Isis who was the husband of Osiris and mother of Horus/Aphrodite Urania)
+- Cleopatra VII: Dynamis Ourania, Pythodorida Philometor (Isis who was the husband of Osiris and mother of Horus, also Aphrodite Urania)
 - Mark Antony: King Herod, Tiberius Claudius Nero, Phraates IV, Polemon I (Neos Dionysos)
 
 II. Herodian & Flavian Dynasty
 - Alexander (son of Herod): Juba II, Alexander Helios
-- Alexander (grandson): Ptolemy bar Menneus, Tiberius Julius Alexander, Monobazus I ("Joseph Panthera")
-- Cleopatra of Mauretania: Philo of Alexandria, Antonia Caenis, Pallas
+- Alexander (grandson of King Herod): (King/Tetrarch) Ptolemy (Alexander) bar Menneus,
+    Ptolemy of Mauretania (aka Joseph Panthera, the name for jesus's
+    father in the Talmud; Panthera is a corruption of Cantheras, or
+    Cleopatros), Tiberius Julius Alexander Major, Alexander the
+    Alabarch.
+- Cleopatra (Thea Philopator) of Mauretania: Cleopatra IX,
+    Helene, Drusilla of Mauretania, Julia Ourania of Parthia, Philo of Alexandria. She was also Claudius and Nero's secretary "Pallas", and
+    "Antonia Caenis" who was Vespasian's first cousin and mistress.
 - Simon Boethus: Simon Magus, Ptolemy X Alexander I
 - Tiberius Julius Alexander: Emperor Nerva, Arrius Piso, Josephus
 - Marcus Julius Alexander: Izates Monobazus ("Jesus Emmanuel"), Yeshua Cleopatros
 
 III. Flavian Emperors
-- Vespasian: Herod Agrippa I, Flavius Scaevinus
+- Vespasian: Herod Agrippa I (See: The Royal Ancestry of Emperor Vespasian. Henry Davis,
+    https://www.henryhdavis.com/theroyalancestryofemperorvespasian
+    [[link](https://henrydavis-cc.medium.com/the-royal-ancestry-of-the-roman-emperor-vespasian-72e144335299)]), Flavius Scaevinus
 - Titus: Polemon II, Aulus Avillius Flaccus
-- Marcion of Sinope: Markianos, St. Mark
+- Marcion of Sinope: Markianos of Alexandria, St. Mark
 
 IV. Speculative
-- Alexander the Great: Chandragupta, Ptolemy I Soter
-- Gautama Buddha: Gaumata Bardya (Cyrus' son)
+- Alexander the Great: (Alakshandra is a Sanskritized
+    translation of Alexander and Gupta means guardian or protector in
+    Sanskrit, the exact meaning of Alexander). (See: "Alexander and
+    Chandragupta in Sanskrit Drama" by Ranajit Pal
+    https://www.academia.edu/40074507/ALEXANDER_AND_CHANDRAGUPTA_IN_A_SANSKRIT_DRAMA
+    [[link](https://www.academia.edu/40074507/ALEXANDER_AND_CHANDRAGUPTA_IN_A_SANSKRIT_DRAMA)]), Ptolemy I Soter
+- Gautama Buddha: Gaumata Bardya (Cyrus the Great's son)
 
-3 Julius Caesar as Asander of Bosphorus
-
-#### 3 Julius Caesar aka Asander of Bosphorus \
+#### 3 Julius Caesar aka Asander of Bosphorus 
 
 There was a Byzantine [^1] imperial cult where Julius Caesar [^2] took on the role of Asander (also Asandros), King of Bosphorus [^3] ("Asa" means "lord" in Thracian and Celtic, and "andros" means "man" or "son of man" in Greek. Jesus is referred to as "the son of man" 81 times in the four canonical gospels. Asandros can also be interpreted as "son of the lord" or "son of Asa, the lord". The Thracian version of Zeus was Asa, the Celtic was Esus/Hesus (Esus becomes Aesus pronunced ah-soos. There was no J in ancient Latin so Jesus was pronunced ah-soos was well). The Etruscan word "Aesar" (also spelled "Aeser" or "Aisar" which likely derived from the Egyptian "Asar" which was another name for Osiris), where Asa could also derive from, means "god" or "divine". Asandros can also translate to either "son of god", or "son of Lord Aesar". The Greek language often added the prefix "K" to words borrowed from other languages, so Aesar ("god") -> Greek Kaesar -> Latin Caesar. Cleopatra used the regional alias of Dynamis Ourania [^4] (translates to 'heavenly power'), queen of Bosporus. Cimmerian Bosporus approximates to modern day Crimea in southern Ukraine (see also: Jesus Christ was born in Crimea by Anatoly Fomenko).
 
