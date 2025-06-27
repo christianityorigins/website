@@ -49,7 +49,7 @@ This book challenges mainstream historiography. My methodologies are: archaeolog
 
 #### 1 Name and Title Meanings
 
--   Caesar: The Egyptian name "Asar" was another name for Osiris, from which the Etruscan word "Aesar" (also spelled "Aeser" or "Aisar"), meaning god or divine, likely derives. The Greek language adds a "K" to foreign words, so Aesar -> Greek Kaesar -> Latin Caesar. 
+-   Caesar: The Egyptian name "Asar" was another name for Osiris, from which the Etruscan word "Aesar" (also spelled "Aeser" or "Aisar"), meaning god or divine, likely derives. The Greek language adds a "K" to foreign words, so Aesar -> Greek Kaesar -> Latin Caesar. There might be a connection in this name to "Asar-Hapi" (Osiris-Apis), another name for Serapis (Osiris + Apis = Osorapis).
 -   Christ: In Greek "The Anointed One" is Chréstos/Christ. Christ is identical to the title Soter. Several historical figures were Christs/Soters. In Isaiah 45:1 the jews called Cyrus the Great "The Anointed One". Alexander the Great was also a Chréstos/Soter (Josephus. Antiquities, XI. 8. Talmud, Yoma 67b).
 -   Cotys: In Thracian, "Cotys" is related to the word "kotys", a title meaning "lord". In the Celtic languages the word "cottos" or "cottius" means "chieftain". 
 -   Izates or Izas: The Egyptian "Asar" or "Iset", another name for Osiris, is likely the root of this title. "Is" or "Isa" is also related to the Proto-Indo-European root "ais-", which means "lord", "ruler", or "noble". This root is also seen in other ancient languages, such as Sanskrit "īśa" (ईश), meaning "lord" or "god". Asa, Esus, Izas, Aesar are all related. 
@@ -60,8 +60,8 @@ This book challenges mainstream historiography. My methodologies are: archaeolog
 ####  2 Ancient Alias Names List  (Chronologically Organized by Era and Dynasty)
 
 I. Ptolemaic & Bosphoran Dynasty
-- Julius Caesar: Ptolemy XI Alexander II, Asander, King of Bosphorus (Philocaesar Philoromaios, Soter, Great King of Kings), Pharnaces II, Brogitarix
-- Cleopatra VII (Isis who was the husband of Osiris and mother of Horus): Dynamis Ourania (Aphrodite Urania), Pythodorida Philometor
+- Julius Caesar: Ptolemy XI Alexander II, Asander, King of Bosphorus (Philocaesar Philoromaios, Soter, Great King of Kings, "As" in his name refers to Asar(Osiris)/Aesar/Aeser/Aisar/Ais/Is), Pharnaces II, Brogitarix
+- Cleopatra VII (Isis who in mythology was the wife of Osiris and the mother of Horus): Dynamis Ourania (Aphrodite Urania), Pythodorida Philometor
 - Mark Antony (Neos Dionysos): King Herod, Tiberius Claudius Nero, Phraates IV, Polemon I.
 
 II. Herodian & Flavian Dynasty
