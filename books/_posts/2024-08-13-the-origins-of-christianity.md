@@ -37,36 +37,35 @@ _Footnotes_
 
 #### Introduction
 
-To maintain control over their subjects, imperial powers in antiquity employed a variety of strategies as part of their colonial program, including the creation of slave-morality cults, fictional stories, faked deaths and adoptions, and an endless series of regional aliases, to subjugate a population to their aristocratic rule and to prevent rebellions. In Sumer, the rulers were all priests, whereas in Egypt, the Pharaohs claimed to be sons of gods. It was in Egypt with Atenism, which was a religion to deify Pharaoh Akhenaten, where monotheism first emerged. The collectivization of divine authority with monotheism reinforces a universal morality and everything becomes collectivized with the centralization of power. This makes a group easier to control and is why monotheism mirrors autocratic governance. The Persians also deified their leaders, promoted monotheism (Zoroastrianism), and even took it a step further by incorporating a very powerful slave-morality religion into their imperial cult as part of their colonial program. They created Buddhism, with Gautama Buddha being Gaumata Bardya, also known as Smerdis, the son of Cyrus the Great, who governed the Persian province of Bactra. The Greeks followed this formula with the Ptolemaic cult of Alexander and the Serapis cult. Serapis was a universal composite deity created by blending the Egyptian gods Osiris and Apis with the Greek god Zeus (and others) to resonate with the multicultural society that Ptolemy I envisioned for Egypt. The Romans adopted this formula and established their own imperial cults. These imperial powers maintained their empires through religious syncretism and slave-morality religions, which stripped the population of their will to power. Christianity is a relic of one of these imperial slave moralities, which itself was subverted by a confederation of rabbis after the Bar Kokhba Revolt (132-136 CE).
+To maintain control over their subjects, imperial powers in antiquity employed a variety of strategies as part of their colonial program, including the creation of slave-morality cults, fictional stories, faked deaths and adoptions, and an endless series of regional aliases, to subjugate a population to their aristocratic rule and to prevent rebellions. In Sumer, the rulers were all priests, whereas in Egypt, the Pharaohs claimed to be sons of gods. It was in Egypt with Atenism, which was a religion to deify Pharaoh Akhenaten, that monotheism first emerged. The collectivization of divine authority with monotheism reinforces a universal morality and everything becomes collectivized with the centralization of power. This makes a group easier to control and is why monotheism mirrors autocratic governance. The Persians also deified their leaders, promoted monotheism (Zoroastrianism), and even took it a step further by incorporating a very powerful slave-morality religion into their imperial cult as part of their colonial program. They created Buddhism, with Gautama Buddha being Gaumata Bardya, also known as Smerdis, the son of Cyrus the Great, who governed the Persian province of Bactra. The Greeks followed this formula with the Ptolemaic cult of Alexander and the Serapis cult. Serapis was a universal composite deity created by blending the Egyptian gods Osiris and Apis with the Greek god Zeus (and others) to resonate with the multicultural society that Ptolemy I envisioned for Egypt. The Romans adopted this formula and established their own imperial cults. These imperial powers maintained their empires through religious syncretism and slave-morality religions, which stripped the population of their will to power. Christianity is a relic of one of these imperial slave moralities, which was itself subverted by a confederation of rabbis after the Bar Kokhba Revolt (132-136 CE).
 
-Note on aliases and locations: I believe that the royal elites in antiquity role-played as if they were characters in a play, and they used regional aliases and fictional deaths as story patterns or archetypes. They killed off one character and then assumed the role of another one in a different location. For example, the governor of Roman Egypt from 33 CE to 38, Aulus Avillius Flaccus, was also Polemon II of Pontus, who was the prince of the Bosporan, Pontus, Cilicia, and Cappadocia, which was the regional alias of Emperor Titus. The character of Aulus Avillius Flaccus dies at the same time Polemon II of Pontus takes power, and then Polemon II of Pontus dies around the same time Titus becomes emperor. The way of connecting them is through the fact that they were all married to the same woman, Berenice, granddaughter of King Herod. The numerous aliases they used could also hide the fact that these royal elites were heavily into incest which would have repulsed the population. 
+Note on aliases and locations: I believe that the royal elites in antiquity role-played as if they were characters in a play, and they used regional aliases and fictional deaths as story patterns or archetypes. They killed off one character and then assumed the role of another one in a different location. For example, the governor of Roman Egypt from 33 CE to 38, Aulus Avillius Flaccus, was also Polemon II of Pontus, who was the prince of the Bosporan, Pontus, Cilicia, and Cappadocia, which was the regional alias of Emperor Titus. The character of Aulus Avillius Flaccus dies at the same time Polemon II of Pontus takes power, and then Polemon II of Pontus dies around the same time Titus becomes emperor. The way of connecting them is through the fact that they were all married to the same woman, Berenice, granddaughter of King Herod. The numerous aliases they used could also hide the fact that these royal elites were heavily into incest which would have have been repugnant to the population. 
 
-After a year of research, I also believe that much of what we know about history from antiquity is fabricated. I have come to the conclusion that the Greco-Egyptian Ptolemaic Kingdom did not end at the point of Roman colonization, it just spread out and Ptolemaic kings adopted regional aliases. The Church Fathers, the Vatican, the Jesuits, and people like Joseph Justus Scaliger, who was the Jesuit priest who "discovered" the majority of texts from antiquity that we use today, usually on demand, and Poggio Bracciolini, who was the individual responsible for collecting documents for him, further added to the distortion of historical records. This manipulation of historical facts has led to a distorted understanding of the past, and it is likely that many events, dates, and figures have been altered or fabricated to serve the interests of the Church and other powerful institutions.
+After a year of research, I also believe that much of what we know about history from antiquity is fabricated. I have come to the conclusion that the Greco-Egyptian Ptolemaic Kingdom did not end at the point of Roman colonization, it simply expanded with Ptolemaic kings adopting regional aliases. The Church Fathers, the Vatican, the Jesuits, and people like Joseph Justus Scaliger, who was the Jesuit priest who discovered many texts from antiquity that we use today, often on commission, and Poggio Bracciolini, who was the individual responsible for collecting documents for him, further added to the distortion of historical records. This manipulation of historical facts has led to a distorted understanding of the past, and it is likely that many events, dates, and figures have been altered or fabricated to serve the interests of the Church and other powerful institutions.
 
-Julius Caesar was Ptolemy XI Alexander II, Cleopatra's uncle, and he also took on the regional aliases of Asander, king of Bosphorus, and Pharnaces II, among numerous other aliases. Cleopatra was also Dynamis, queen of Bosphorus. Mark Antony the Neos-Dionysos was either Ptolemy of Cyprus, a brother of Cleopatra's father Ptolemy XII Auletes (Auletes name adapts well to the Parthian Orodes (II?)) the Neos Dionysos aka Polemon I of Pontus aka King Herod aka Tiberius Claudius Nero aka Phraates IV of Parthia, or he was Ptolemy XII Auletes himself (Cleopatra's full name was Cleopatra VII Philopator - from the Ancient Greek 'Φιλοπάτωρ', which translates to "The one who loves their Father", or simply "father-loving"). She was previously married to two of her brothers and her uncle as listed previously. This is how incestuous this family was. 
+Julius Caesar was Ptolemy XI Alexander II, Cleopatra's uncle, and he also took on the regional aliases of Asander, king of Bosphorus, and Pharnaces II, among numerous other aliases. Cleopatra was also Dynamis, queen of Bosphorus. Mark Antony the Neos-Dionysos was either Ptolemy of Cyprus, a brother of Cleopatra's father Ptolemy XII Auletes (Auletes name adapts well to the Parthian Orodes (II?)) the Neos Dionysos aka Polemon I of Pontus aka King Herod aka Tiberius Claudius Nero aka Phraates IV of Parthia, or he was Ptolemy XII Auletes himself (Cleopatra’s full name, Cleopatra VII Philopator, derives from the Ancient Greek 'Φιλοπάτωρ' meaning "the one who loves her father", or simply "father-loving"). She was previously married to two of her brothers and her uncle as listed previously. This is how incestuous this family was. 
 
-This book challenges mainstream historiography. My methodologies are: archaeological and numismatic evidence, linguistic and etymological analysis, historical correlation and timeline analysis. The sources that inspired my work are listed in the 'Further reading' section at the end of the book. 
+This book challenges mainstream historiography. My methodologies are: archaeological and numismatic evidence, linguistic and etymological analysis, and historical correlation and timeline analysis. The sources that inspired my work are listed in the 'Further reading' section at the end of the book. 
 
 #### 1 Name and Title Meanings
 
--   Caesar: The Egyptian name "Asar" was another name for Osiris, which is where the Etruscan word "Aesar" (also spelled "Aeser" or "Aisar") likely derived from, which means god or divine. The Greek language adds a "K" to foreign words, so Aesar -> Greek Kaesar -> Latin Caesar. 
+-   Caesar: The Egyptian name "Asar" was another name for Osiris, from which the Etruscan word "Aesar" (also spelled "Aeser" or "Aisar"), meaning god or divine, likely derives. The Greek language adds a "K" to foreign words, so Aesar -> Greek Kaesar -> Latin Caesar. 
 -   Christ: In Greek "The Anointed One" is Chréstos/Christ. Christ is identical to the title Soter. Several historical figures were Christs/Soters. In Isaiah 45:1 the jews called Cyrus the Great "The Anointed One". Alexander the Great was also a Chréstos/Soter (Josephus. Antiquities, XI. 8. Talmud, Yoma 67b).
--   Cotys: In Thracian, "Cotys" is related to the word "kotys" which is a title that means "lord". In the Celtic languages the word "cottos" or "cottius" means "chieftain". 
--   Izates or Izas: The Egyptian "Asar" or "Iset", which was another name for Osiris, is likely the root of this title. "Is" or "Isa" is also related to the Proto-Indo-European root "ais-", which means "lord", "ruler", or "noble". This root is also seen in other ancient languages, such as Sanskrit "īśa" (ईश), meaning "lord" or "god". Asa, Esus, Izas, Aesar are all related. 
--   Jesus: Likely a phonetic shift from Asar/Aesus (pronunced ah-soos)/Iset/Izates/Izas/et. al. Another option: Coins of Ptolemy XI Alexander II depict the syncretic deity Zeus-Ammon: https://harvardartmuseums.org/collections/object/170118?position=0&context=person&id=22936 Zeus-Ammon -> A-Zeus -> Aesus/Aesar.
+-   Cotys: In Thracian, "Cotys" is related to the word "kotys", a title meaning "lord". In the Celtic languages the word "cottos" or "cottius" means "chieftain". 
+-   Izates or Izas: The Egyptian "Asar" or "Iset", another name for Osiris, is likely the root of this title. "Is" or "Isa" is also related to the Proto-Indo-European root "ais-", which means "lord", "ruler", or "noble". This root is also seen in other ancient languages, such as Sanskrit "īśa" (ईश), meaning "lord" or "god". Asa, Esus, Izas, Aesar are all related. 
+-   Jesus: Likely a phonetic shift from Asar/Aesus (pronounced ah-soos)/Iset/Izates/Izas/et. al. Another option: Coins of Ptolemy XI Alexander II depict the syncretic deity Zeus-Ammon: https://harvardartmuseums.org/collections/object/170118?position=0&context=person&id=22936 Zeus-Ammon -> A-Zeus -> Aesus/Aesar.
 -   Monobazus: Sabazios is the Phrygian and Thracian version of Zeus. Ma'nu is likely a diminutive of Menneus ("son of man"), and then Manu-Sabazios becomes Monobazus. Monobazus also becomes "Bazus" or "Bar Izates" shortened to "baYZTus" (or bar YZT) through frequent oral repetition which then becomes "bOETHus". The Boethusians were a jewish priestly sect.
 -   Piso cognomen: "Appius" is a cognomen (personal name) of the Claudian family. Appius and Piso are synonymous (In Greek, Appius is rendered as Appios, from there Piso). The name Piso itself would be a form of Peisistratos/Pisistratos, the leading name of ancient Athens in Greece. (Pisistratos is a Latinized spelling of the Greek Peisistratos). It could be said that all the ruling elite of the Julio-Claudian dynasty were Pisos, including Nero who was nearly deposed by a Piso. Appius is also cognate with Arrius (through rhotacization in ancient Latin the /p/ and /r/ could be swapped).
 
 ####  2 Ancient Alias Names List  (Chronologically Organized by Era and Dynasty)
 
 I. Ptolemaic & Bosphoran Dynasty
-- Julius Caesar: Ptolemy XI Alexander II, Asander (Bosphorus), Pharnaces II, Brogitarix
-- Titles: Philocaesar Philoromaios, Soter, Great King of Kings
-- Cleopatra VII: Dynamis Ourania, Pythodorida Philometor (Isis who was the husband of Osiris and mother of Horus, also Aphrodite Urania)
-- Mark Antony: King Herod, Tiberius Claudius Nero, Phraates IV, Polemon I (Neos Dionysos)
+- Julius Caesar: Ptolemy XI Alexander II, Asander, King of Bosphorus (Philocaesar Philoromaios, Soter, Great King of Kings), Pharnaces II, Brogitarix
+- Cleopatra VII (Isis who was the husband of Osiris and mother of Horus): Dynamis Ourania (Aphrodite Urania), Pythodorida Philometor
+- Mark Antony (Neos Dionysos): King Herod, Tiberius Claudius Nero, Phraates IV, Polemon I.
 
 II. Herodian & Flavian Dynasty
-- Alexander (son of Herod): Juba II, Alexander Helios
+- Alexander (son of Herod): Juba II.
 - Alexander (grandson of King Herod): (King/Tetrarch) Ptolemy (Alexander) bar Menneus,
     Ptolemy of Mauretania (aka Joseph Panthera, the name for jesus's
     father in the Talmud; Panthera is a corruption of Cantheras, or
@@ -97,7 +96,7 @@ IV. Speculative
 
 #### 3 Julius Caesar aka Asander of Bosphorus 
 
-There was a Byzantine [^1] imperial cult where Julius Caesar [^2] took on the role of Asander (also Asandros), King of Bosphorus [^3] ("Asa" means "lord" in Thracian and Celtic, and "andros" means "man" or "son of man" in Greek. Jesus is referred to as "the son of man" 81 times in the four canonical gospels. Asandros can also be interpreted as "son of the lord" or "son of Asa, the lord". The Thracian version of Zeus was Asa, the Celtic was Esus/Hesus (Esus becomes Aesus pronunced ah-soos. There was no J in ancient Latin so Jesus was pronunced ah-soos was well). The Etruscan word "Aesar" (also spelled "Aeser" or "Aisar" which likely derived from the Egyptian "Asar" which was another name for Osiris), where Asa could also derive from, means "god" or "divine". Asandros can also translate to either "son of god", or "son of Lord Aesar". The Greek language often added the prefix "K" to words borrowed from other languages, so Aesar ("god") -> Greek Kaesar -> Latin Caesar. Cleopatra used the regional alias of Dynamis Ourania [^4] (translates to 'heavenly power'), queen of Bosporus. Cimmerian Bosporus approximates to modern day Crimea in southern Ukraine (see also: Jesus Christ was born in Crimea by Anatoly Fomenko).
+There was a Byzantine [^1] imperial cult where Julius Caesar [^2] took on the role of Asander (also Asandros), King of Bosphorus [^3] ("Asa" means "lord" in Thracian and Celtic, and "andros" means "man" or "son of man" in Greek. Jesus is referred to as "the son of man" 81 times in the four canonical gospels. Asandros can also be interpreted as "son of the lord" or "son of Asa, the lord". The Thracian version of Zeus was Asa, the Celtic was Esus/Hesus (Esus becomes Aesus, pronounced ah-soos. There was no J in ancient Latin, so Jesus was pronounced ah-soos as well). The Etruscan word "Aesar" (also spelled "Aeser" or "Aisar" which likely derives from the Egyptian "Asar" which was another name for Osiris), from which Asa may also derive, means "god" or "divine". Asandros can also translate to either "son of god", or "son of Lord Aesar". The Greek language often added the prefix "K" to words borrowed from other languages, so Aesar ("god") -> Greek Kaesar -> Latin Caesar. Cleopatra used the regional alias of Dynamis Ourania [^4] (translating to 'heavenly power'), queen of the Bosporus. Cimmerian Bosporus approximates to modern-day Crimea in southern Ukraine (see also: Jesus Christ Was Born in Crimea by Anatoly Fomenko).
 
 ![Fig.1.1](/images/caesarstar.jpg){:width="400px"}
 
@@ -113,13 +112,12 @@ Fig. 1.3. Another depiction of Asander which shows the star and cresent that is 
 
 ![Fig.1.4](/images/Cleopatra%20VIIDynamis.png){:width="400px"}
 
-Fig. 1.4. (L) Dynamis, Queen of Bosphorus, (R) Cleopatra VII. There were obviously many years between the ages that she was depicted, however, even in the elder Dynamis bust you can see her lazy eye and abnormally large eyes which she was reported to have had, possibly as a consequence of inbreeding. 
+Fig. 1.4. (L) Dynamis, Queen of Bosphorus, (R) Cleopatra VII. There were obviously many years between the ages at which she was depicted, however, even in the elder Dynamis bust you can see her lazy eye and abnormally large eyes which she was reported to have had, possibly as a consequence of inbreeding. 
 
 ![Fig.1.5](/images/cleopatra.png){:width="400px"}
 
 Fig. 1.5. (L) Julia Mamaea, Queen of Pontus (wife of Polemon II), (R)
-Cleopatra VII. Polemon Pythodoros, King of Pontus was Julius Caesar/Asander's
-regional alias (Asander and Polemon were both married to Dynamis), and if he also played the religious role of Gaius Julius
+Cleopatra VII. Polemon Pythodoros, King of Pontus was a regional aliases of Julius Caesar/Asander (as Asander and Polemon were both married to Dynamis), and if he also played the religious role of Gaius Julius
 Sohaemus of Emesa, Priest-King of Emesa, and Cleopatra played the
 regional role of Pythodorida Philometor, then Julia Avita Mamaea of
 Emessa would have been their daughter. Do you see a resemblance? She
@@ -133,8 +131,8 @@ years older than Cleopatra, and Asander was also 30 years older than
 Dynamis.
 
 A statue from the Bosporan Kingdom, dated to Asander's reign (ca. 47--17
-BCE), refers to Asander as the 'Great King of Kings Asandros
-Philoromaios Soter' (Corpus Inscriptionum Regni Bosporani 30). So, he
+BCE), refers to Asander as the "Great King of Kings Asandros
+Philoromaios Soter" (Corpus Inscriptionum Regni Bosporani 30). So, he
 was a 'King of Kings', Soter (savior), and 'The Great'. Individually,
 each of those titles carries significance, but the 'Great King of Kings'
 title in that inscription stands out because it is a rare title that was
@@ -144,14 +142,14 @@ Caesar is the only historical figure who had a comparable level of
 prestige as Cyrus and Alexander.
 
 Dynamis's father was Mithridates VI Eupator who also carried the
-title "King of Kings". Her uncle was Mithridates 'Chrestus' [^5]. The name Mithridates (more accurately, Mithradates) is the Hellenized form of the Indo-Aryan Mithra-Datt, which means "One given by Mithra". Mithra is the Indo-Aryan sun-god and Datt (given by) derives from the Proto-Indo-European root da ("to give"). That name was born by a large number of kings, soldiers and statesmen in the Iranian dynasty of the Parthians and mostly by the royalty and nobility in Asia Minor. 
+title "King of Kings". Her uncle was Mithridates "Chrestus" [^5]. The name Mithridates (more accurately, Mithradates) is the Hellenized form of the Indo-Aryan Mithra-Datt, meaning "One given by Mithra". Mithra is the Indo-Aryan sun-god and Datt ("given by") derives from the Proto-Indo-European root da ("to give"). That name was born by a large number of kings, soldiers and statesmen in the Iranian dynasty of the Parthians and mostly by the royalty and nobility in Asia Minor. 
 
 Mithridates VI Eupator beat his brother Mithridates
 Chrestus in war to become king of Pontus/Bosphorus. In the mythology of ancient Rome, the city is
 founded as the result of a fratricide, with the twins Romulus and Remus
 quarreling over who has the favor of the gods and over each other's
 plans to build Rome, with Romulus becoming Rome's first king and
-namesake after killing his brother (this also mirrors the biblical
+namesake after killing his brother (mirroring the biblical
 account of Cain and Abel). 
 
 Mithridates VI, king of Pontus, was the father of both Pharnaces II and Dynamis (Cleopatra). Pharnaces II was Ptolemy XIV who was Cleopatra's brother-husband.
@@ -160,11 +158,11 @@ Asander beat Mithridates Chrestus (his uncle) in battle to become King of Bospho
 
 ![Fig.1.6](/images/PtolemyXAlexanderII.jpg){:width="400px"}
 
-Fig. 1.6. Coin depicting Ptolemy XI Alexander II aka Asander, king of Bosphorus aka Pharnaces II, etc etc.
+Fig. 1.6. Coin depicting Ptolemy XI Alexander II aka Asander, king of Bosphorus aka Pharnaces II, etc.
 
 ![Fig.1.7](/images/PharnacesII.jpg){:width="400px"}
 
-Fig. 1.7. Coin depicting Pharnaces II. Pharnaces II "dies" in 47 BCE right when Asander appears in 47 BCE as King of Bosphorus. Pharnaces II called himself "King of Kings" on coins (like Asander).
+Fig. 1.7. Coin depicting Pharnaces II. Pharnaces II "dies" in 47 BCE just as Asander appears in 47 BCE as King of Bosphorus. Pharnaces II called himself "King of Kings" on coinsas Asander did.
 
 ![Fig.1.8](/images/AriarathesIX.jpg){:width="400px"}
 
@@ -185,7 +183,7 @@ Cleopatra aka Dynamis's son with Mark Antony [^7] (aka Ptolemy of Cyprus, a brot
 aka Alexander (son of King Herod) aka Juba II who was married to his
 twin sister Cleopatra Selene II aka Queen Thea Muse Ourania. Juba II of
 Mauritania's full name was Gaius Iulius Iuba, prenomen and nomen after
-his adopted father Gaius Iulius Caesar, and 'Iuba' is most likely a
+his adopted father Gaius Iulius Caesar, and 'Iuba' is likely a
 diminutive of 'Iehuva'. He was the claimed royal heir of the Massylii
 tribe, which is the 'Messiah' lineage from David's firstborn son with
 Saul's daughter Michal (one way to prove that Mark Antony was also King
@@ -216,7 +214,7 @@ Cleopatros) aka Phraates V (the "King of Kings") aka Monobazus I King of
 Adiabene, who was married to his sister Cleopatra (Thea Philopator) of
 Mauretania aka Cleopatra IX aka Pythodorida Philometor aka Helene aka
 Drusilla of Mauretania aka Julia Ourania of Parthia aka 'Philo of
-Alexandria' (aka Julius Philo, of the Julia gens, because she was the adopted granddaughter of Julius Caesar). She was also Claudius and Nero's secretary Pallas and Vespasian's first cousin and mistress Antonia Caenis. "The full name of Pallas was Marcus Antonius Pallas, the Antonius part is an obvious sign of descent from Mark Antony and that Pallas wasn't a random slave. (Philo's hebrew name was Yedidia which means "beloved of God", or "friend of God", which is the same as Theophilos in Greek. Around 26% of the New Testament was written to Theophilus in Luke and Acts of the Apostles).
+Alexandria' (aka Julius Philo, of the Julia gens, because she was the adopted granddaughter of Julius Caesar). She was also Claudius and Nero's secretary Pallas and Vespasian's first cousin and mistress Antonia Caenis. "The full name of Pallas was Marcus Antonius Pallas, with the Antonius part being an obvious sign of descent from Mark Antony and that Pallas wasn't a random slave. (Philo's hebrew name was Yedidia which means "beloved of God", or "friend of God", which is the same as Theophilos in Greek. Around 26% of the New Testament was written to Theophilus in Luke and Acts of the Apostles).
 
 ![Fig.
 1.10](/images/AlexanderPhilo.jpg){:width="400px"}
@@ -410,7 +408,7 @@ I asked ChatGPT to translate Roman emperor names and Bosphorian princes and king
 
 #### 5 Flavian Dynasty \
 
-Vespassian was also a great-grandson of Cleopatra and Mark Antony (King Herod). He was Herod Pollio aka Herod Agrippa I, grandson of King Herod's son Aristobulus IV. Vespasian was his title, not his name (Vas/Bas was the royal abbreviation for the Greek word Basilius which = King, and Pasius = Peace. 'Vespasian' = 'King Peace') [^12]. He was also 'Flavius Scaevinus' the conspirator who was involved in Nero's assassination. 
+Vespasian was also a great-grandson of Cleopatra and Mark Antony (King Herod). He was Herod Pollio aka Herod Agrippa I, grandson of King Herod's son Aristobulus IV. Vespasian was his title, not his name (Vas/Bas was the royal abbreviation for the Greek word Basilius which = King, and Pasius = Peace. 'Vespasian' = 'King Peace') [^12]. He was also 'Flavius Scaevinus' the conspirator involved in Nero's assassination. 
 
 ![Fig.
 1.15](/images/Vespasian.jpg){:width="400px"}
@@ -452,7 +450,7 @@ Amyntas Nikator.
 
 Ceasar's gentilice (surname) was Iulius. Iulius can refer to the ancient Celtic tribe known as the Iudii or Iudaei. "Ioulios" (ιούλιος) in Greek also means "descended from Jupiter" or "son of Jupiter". So, it is possible that the word "jew" comes from the Iudii or Iudaei.
 
-The Egyptian name “Asar” was another name for Osiris, which is where the Etruscan word “Aesar” (also spelled "Aeser" or "Aisar") likely derived from, which means god or divine. The Greek language adds a “K” to foreign words, so Aesar -> Greek Kaesar -> Latin Caesar. In Celtic cultures, Caesarus also referred to a Celtic chieftain who likely took on a divine role. For example, Caesorix was the leader of the Cimbri tribe during the Cimbrian War.
+The Egyptian name "Asar" was another name for Osiris, from which the Etruscan word "Aesar" (also spelled "Aeser" or "Aisar") likely derived from, meaning god or divine. The Greek language adds a “K” to foreign words, so Aesar -> Greek Kaesar -> Latin Caesar. In Celtic cultures, Caesarus also referred to a Celtic chieftain who likely took on a divine role. For example, Caesorix was the leader of the Cimbri tribe during the Cimbrian War.
 
 Gaius Julius Caesar was a title, and Gaius Julius Caesar could conceivably translate to: Chieftain of the Iudii or Iudaiei tribe from Galatia, or Lord Asar/Aesus (pronunced ah-soos) of the Iudii or Iudaiei tribe from Galatia. 
 
