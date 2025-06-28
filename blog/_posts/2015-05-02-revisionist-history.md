@@ -11,10 +11,26 @@ category: blog
 
 I am interested in revisionist history. These are some of my notes that I will expand on eventually.
 
-Alexander the Great
+##### Who Was Behind the Forgery to Rewrite History?
+
+Most ancient history as it is taught today was filterd through the Church Fathers, Vatican, and Jesuits. Joseph Justus Scalinger, and Poggio Bracciolini who was the guy who collected documents for him and even forged them (there are preserved letters from Bracciolini arranging a forgery with a remote monastery), are credited with "discovering" around 80% of the European history texts that we are taught from today, usually on demand. 
+
+There was another Jesuit named Jean Hardouin who said that a 14th Century conspiracy forged practically all literature traditionally believed to have been written before that era. He was the official librarian to the King of France. He published a book called the Prolegomena and it caused such controversy that the Pope and the King had him come before them and explain himself. He defended his work, and refused to retract it, so they threw him in prison.
+
+
+The Vatican burned the Library of Alexandria... twice!
+
+The mainstream claim is that the library was destroyed by Julius Caesar (48 BC) or Muslim conquest (642 AD). The truth is that the final and most devastating burn was ordered by Pope Theophilus in 391 AD to erase Serapis cult texts that exposed Christianity’s origins. Proof: The Nag Hammadi Library (1945) contained Gnostic texts that matched Serapis theology—proving a cover-up, and the "Letter of Hadrian to Servianus" (found in Vindobonensis manuscript) admits: "Those who worship Serapis are Christians… devotees of Serapis call themselves bishops of Christ."
+ 
+Theodosius I also destroyed the Serapeum in Alexandria (referred to as the daughter of the Library of Alexandria) in 391 AD. Serapis statues were recarved into "St. Peter".
+
+The Vatican also made up the "Council of Nicaea". It never Happened. There is no contemporary records exist of the Council of Nicaea (325 AD). The earliest mention comes from Athanasius 60 years later. The Nicene Creed was backdated. The first full version appears in 381 AD (Council of Constantinople). Constantine’s "conversion" was fabricated. He remained a Sol Invictus sun-worshipper until death—his coins never feature Christian symbols. The "Arian Controversy" was a fake debate to disguise the fact that early Christianity was a Roman imperial cult. Proof: The "Life of Constantine" by Eusebius was forged in the 5th century to retroactively justify Nicaea, and the Edict of Milan (313 AD) never mentions Jesus—only a vague "Divine Providence". Also, the Vatican's greatest forgery was the Donation of Constantine. The Vatican forged it in the 8th century to claim Rome. It was based on earlier forgeries by Eusebius (a Flavian propagandist).
+
+There were other figures, like Joseph Needham whose writings on Chinese history are the reference point that were use today, and William Jones who rewrote indian history. 
+
+#### Alexander the Great
 
 Alexander finished his conquest of India and continued on throughout China. Only the identity of "Alexander" died at 33, he then assumed local identities. 
-
 
 A non-mainstream version of history, but one that is recorded in
     Persian ('Iskandarnameh', or Book of Alexander and 'Shahnameh') and Islamic sources [1], is that Alexander the Great was a
@@ -55,7 +71,7 @@ title "King of Kings". Her uncle was Mithridates 'Chrestus'
 
 Mithridates VI Eupator was a direct descendant of Ptolemy II Philadelphus: Ptolemy II Philadelphus (285-246 BCE) married Arsinoe I, and they had a daughter, Berenice Syra. Berenice Syra married Antiochus II Theos, a Seleucid king, and they had a son, Seleucus II Callinicus. Seleucus II Callinicus (246-225 BCE) married Laodice II, and they had a daughter, Laodice III. Laodice III married Mithridates III of Pontus, and they had a son, Pharnaces I of Pontus. Pharnaces I of Pontus (190-155 BCE) married Nysa, and they had a son, Mithridates V of Pontus. Mithridates V of Pontus (150-120 BCE) married Laodice VI, and they had a son, Mithridates VI Eupator (120-63 BCE)). This would make Asander (whose name is an obvious reference to Alexander) and Dynamis Alexander's heirs.
 
-China
+#### China
 
 The Tarim basin mummies are Tocharians, and the Kizilgaha cave portraits deprict redheaded "Chinese" people. Genetic studies show that indegenous people of Linzi in south east China were genetically more similar to Europeans than modern Chinese (https://eurogenes.blogspot.com/2017/07/north-european-admixture-in-han-chinese.html). Tang dynasty mural in tomb unearthed in China portrays a 'Westerner' man with blond hair (https://www.livescience.com/archaeology/stunning-tang-dynasty-mural-in-tomb-unearthed-in-china-may-portray-a-westerner-man-with-blond-hair).
 
@@ -75,7 +91,7 @@ Similarly, Ran Min slaughtered and committed genocide on the entire Caucasian Ji
 
 The Manchus had the Central Asian Indo-European children castrated. Manchu officials ordered British and American sailors who violated rules in ports executed before the Opium wars and had British and Indian sailors on the Nerbudda mass executed. The Manchus castrated and sliced up Indo-european Caucasians. The Manchus also raped caucasian women.
 
-Europe
+#### Europe
 
 Most of what we know of Roman history comes from Herodotus (aka The Father of Lies), and the other half from Cassius Dio.
 
@@ -109,7 +125,7 @@ Charlemagne was not a real person, but one of the phantom individuals the Cathol
     a copy to fill in the phantom 1000 years of supposed "Dark Ages") is
     exactly the same event as the Justinian Plague. The Trojan War and the Crusades were the same conflict. 
 
-India
+#### India
 
 The Harappan civilization (Indus Valley civilization) was founded by Neolithic (Med) people from Iran. The "Aryan invasion into India" theory probably never happened. The R1a haplotye, Sanskrit language (Avestan language that was Hellinized), and Vedism (Druidism) came from the Persians and Greeks (who military would have been mostly Dorians).
 
@@ -131,15 +147,6 @@ The Dravidians of India are Ethiopians who the jews imported to India via South 
     India. "Habshi" is what Northern Indians called  Southern Indians
     and Habesha comes from "Abyssinia" which refers to Ethiopia. These
     Ethiopian slaves were likely jewish male - Ethiopian female slaves (i.e. the males were castrated), hence why modern Indians have a similar physiognomy to jews, who then mixed with indigenous Neolithic/Aryans (consentually or by force?). [10]\
-
-Most ancient history as it is taught today was filterd through the Jesuits. Most Jesuits, including their founder Ignatius Loyola, were marrano/converso jews [11]. Joseph Justus Scalinger alone was credited with "discovering" around 80% of the European history texts that we are taught from today, usually on demand. Most history books from antiquity display Europeans in a negative light, jews as victims, and European triumphs are downplayed. This is probably why. 
-
-As well as the Church Fathers, Vatican, Jesuits like Joseph Justus Scaliger and Poggio Bracciolini, who all controlled what versions of history were preserved, the printing presses in Europe were entirely owned by jews. They controlled the selection process of what books were to be printed.
-
-https://en.wikipedia.org/wiki/Global_spread_of_the_printing_press
-https://www.chabad.org/library/article_cdo/aid/6731075/jewish/Hebrew-Printing-in-the-Shadow-of-the-Inquisition.htm
-
-There was another Jesuit named Jean Hardouin who said that a 14th Century conspiracy forged practically all literature traditionally believed to have been written before that era. He was the official librarian to the King of France. He published a book called the Prolegomena and it caused such controversy that the Pope and the King had him come before them and explain himself. He defended his work, and refused to retract it, so they threw him in prison. 
 
 1 In the Shahnameh, Dara (Darius) is said to have married the daughter of Philip of Macedon, and was the father of Alexander. Dara's father is said to be Bahman, and his uncle Sasan (the progenitor of the Sassanians). This same basic story is told several centuries earlier in the Kar-namag e Ardashir. \
 --<a href="https://en.wikipedia.org/wiki/Kay_Bahman">https://en.wikipedia.org/wiki/Kay_Bahman</a>\
@@ -173,8 +180,6 @@ There was another Jesuit named Jean Hardouin who said that a 14th Century conspi
 "At any rate, when Gallus was prefect of Egypt, I accompanied him and ascended the Nile as far as Syene and the frontiers of Ethiopia, and I learned that as many as one hundred and twenty vessels were sailing from Myos Hormos to India, whereas formerly, under the Ptolemies, only a very few ventured to undertake the voyage and to carry on traffic in Indian merchandise." — Strabo II.5.12.  
 <a href="https://penelope.uchicago.edu/Thayer/E/Roman/Texts/Strabo/2E1*.html">https://penelope.uchicago.edu/Thayer/E/Roman/Texts/Strabo/2E1*.html</a>  
 (for reference: during the transatlantic slave trade 100 ships sailed each year transporting 15 million Africans to the Americas)
-
-11 <a href="https://www.unz.com/article/review-the-jesuit-order-as-a-synagogue-of-jews/">https://www.unz.com/article/review-the-jesuit-order-as-a-synagogue-of-jews/</a>
 
 Read more
 
