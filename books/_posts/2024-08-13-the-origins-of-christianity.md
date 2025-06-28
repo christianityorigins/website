@@ -30,7 +30,7 @@ _Preface_
   Conclusion
   
 _Appendix A: Alexander the Great_\
-_Appendix B: How did Christianity Spread?_
+_Appendix B: Origins of Judaism_
 
 _Further reading_ \
 _Footnotes_
@@ -531,14 +531,13 @@ Jews' then became a pseudo-epigraphical work (of propaganda) that was backdated 
 in the loss of all recorded history up until that point so that they
 could cover up the tracks of their psy-op religion.
 
-
 Endnotes (Chapter 8)
 
 (a) Marcion of Sinope aka Markianos of Alexandria grew up in the Attis-Sabazios cult on Anatolia before traveling to Judea to study under rabbi Akiva and finally to Alexandria at the Alexandrian School.
 
 (b) There was a Marcus who founded the Marcosian Gnostic sect. He was a teacher of Bishop Irenaeus and a friend of Clement of Alexandria. Was he also Marcion of Sinope aka Markianos of Alexandria? (https://en.wikipedia.org/wiki/Marcus_%28Marcosian%29). St. Jerome in "Against Jovinian" describes Mark as a disciple of the Gnostic teacher Basilides. Here is a list of "Marks" who were active around the same time: Mark, the Evangelist, John Mark, Mark of Apollonias, Markianos of Alexandria, Mahalia, Marcus of Jerusalem, Marcus Pompeius, Marcus Annaeus Lucanus, Marcus the Magician, Marcion of Sinope, Marcus the Marcosian. Mark of Apollonias, John Mark, Mark the cousin of Barnabas, and Mark the Apostle are considered to be the same person by historians, so it is conceivable that all these "Marks" were the same person.
 
-(c) In 41 A.D Emperor Claudius sent a letter of warning to the Jews in Egypt (preserved in a papyrus now in the British Museum, R Lond. 1912), where he described them as "the fomenters of a universal plague throughout the civilized world.". He eventually expelled them from Rome: https://en.wikipedia.org/wiki/Claudius'_expulsion_of_Jews_from_Rome In the Acts of the Apostles (Acts 18:1-18) it explains how the Apostle Paul met Priscilla and Aquila and mentions in passing an expulsion of Jews from Rome. "Paul" was Rabbi Akiva and Aquila of Sinope aka Onkelos was his student. So, it is possible that the conspiracy even pre-dated the Bar kohiba revolt. Previous to this, Valerius Maximus, in his work 'Facta ac dicta memorabilia', mentions the expulsion of Jews from Rome in 139 BCE by the praetor peregrinus Cn. Cornelius Hispalus for attempting to currupt the cult of Jupiter.
+(c) In 41 A.D Emperor Claudius sent a letter of warning to the Jews in Egypt (preserved in a papyrus now in the British Museum, R Lond. 1912), where he described them as "the fomenters of a universal plague throughout the civilized world.". He eventually expelled them from Rome: https://en.wikipedia.org/wiki/Claudius'_expulsion_of_Jews_from_Rome In the Acts of the Apostles (Acts 18:1-18) it explains how the Apostle Paul met Priscilla and Aquila and mentions in passing an expulsion of Jews from Rome. "Paul" was Rabbi Akiva and Aquila of Sinope aka Onkelos was his student. So, it is possible that the conspiracy even pre-dated the Bar kohiba revolt. Previous to this, Valerius Maximus, in his work 'Facta ac dicta memorabilia', mentions the expulsion of Jews from Rome in 139 BCE by the praetor peregrinus Cn. Cornelius Hispalus for attempting to currupt the cult of Jupiter.[^13]
 
 (d) Quintus Tineius Sacerdos, the brother of Quintus Tinnius Rufus, was the governor of Pontus in Anatolia, so the family likely derived from there. Pilate means the temperament of a warrior I.e., famously temperamental. That's where the name Pontius Pilate comes from. *Pilate might also = "Pileatus" (Latin for "wearing a felt cap," a Pontic priestly garb).
 
@@ -574,14 +573,22 @@ Bubares (https://en.wikipedia.org/wiki/Bubares) was a Persian prince who married
 
 Alexander was the first "Jesus" (Ye-Zeus (YHWH + Zeus), I(J)upiter-Zeus (I-Zeus), Zeus-Amun, Zeus-Ahura Mazda, Zeus-Yahweh, et.al., were titles Alexander carried) then became an avatar for his direct descendants in an imperial cult, including Ptolemy XII Auletes/Ptolemy X Alexander I, king of Egypt aka Mithridates VI Eupator aka Ariarathes ("Arya-Ratha". Sanskrit: "Noble Charioteer") VII of Cappadocia, et.al., and his son Asander (obvious reference to Alexander), King of Bosphorus aka Pharnaces II ("Pharao-Nikes", or "Victorious Pharaoh") aka Brogitarix, king of Galatia aka Ariarathes IX aka Julius Caesar.
 
-_Appendix B: How did Christianity Spread?_
+_Appendix B: Origins of Judaism_
 
-Vespasian and his sons Titus and Domitian
-brought 100,000 jewish "slaves" to Rome (Josephus, Jewish War vi, 9)
-[^13]. It seems likely that the 100,000 jewish "slaves" joined the jews
-that were already in Rome and they became the early church missionaries
-and profited from selling this religion to the slaves and exploited
-classes.
+Hebrews/Jews were invented in the 3rd century BC by the Greek diadochi ruler Ptolemy Soter to achieve two goals:
+
+1)Foment the Maccabean revolt in order to exile Greeks back to Hellas since the homeland population was low after Alexander's conquests
+2)Subvert Canaanite identity once and for all, destroying the only contestant to Greco-Egyptian power in the world up to that point
+
+It was in Alexandria at the Library of Alexandria where the Pentateuch and Septuagint were written. The myth of the jewish people and the Laws of Moses were based on Plato’s hypothetical colony of Magnesia from his thesis called The Laws (347 BC) in which the proposed charter for the Cretan colony of Magnesia was modeled in large part on Athenian legal and constitutional traditions. Ancestor received law from a deity, hereditary priesthood rather than king, as well as the division into 12 tribes were all part of the formula. Plato's Timaeus (360 BC) is where the story of Abraham comes from. Plato's Timaeus is also the source for Genesis 1-11 [^14]. Homer's Odysseey was the source of Genesis 24, 42-46. The biblical concept of hell was stolen from Plato's Replublic ('Myth of Er'), and the spiritual plane of Heaven is ripped off from Plato's 'World of Forms'. Exodus is just a semitized retcon of Jason and the Argonauts, and the Oracles Against the Nations plagiarize the Sibylline Oracles. 
+
+Moses = Osarseph (Osar (Osiris) and seph (son) = Son of Osirus). The Greek rendering of Moses and Osarseph are identical. Osarseph appears in accounts by the Egyptian priest Manetho, who described him as a renegade priest leading a group of lepers in rebellion, eventually adopting the name "Moses" (Josephus. 'Against Apion' discussing Manetho's account of Osarseph). Osarseph also = Serapis. The "Ser" symbol in Ser-apis is the same as seph meaning "son of". Serapis can be interpreted as "Son of Osiris-Apis", which evolved into "Son of Osiris". So, Serapis is just another word for Osarseph. The Serapis cult was invented by Ptolemy I Soter to subjugate the Egyptians to their Greek rulers.
+
+The rest of their religion and identity came from later incarnations of this imperial cult: I(J)upiter was also called Jove or Iove to the Romans. The Latin pronunciation of Iove would have been Yoh-Way, i.e Yahweh/Yhwh, so Yahweh Saboath, the god of the hebrew bible, is I(J)ove (Roman Zeus) Sabazios (Thracian Zeus). 
+
+Abel and Cain are just a copy of Romulus and Remus. Judas Iscariot is a copy of Brutus. Genesis 4:5-31. Enoch, Irad, Mehujael, Methuselah, Lamech, Seth, Enosh, Kenan, Mahalalel, are copies of Titus Livy’s Regal Rome of the seven kings. 
+
+After Rabbi Akiva Judaism turned into a group strategy, but before then it was one of the numerous syncretic slave moralities that came out of the Alexandrian School.
 
 _Further reading_
 
@@ -827,15 +834,14 @@ _Footnotes_
     https://henrydavis-cc.medium.com/the-royal-ancestry-of-the-roman-emperor-vespasian-72e144335299.
     [[link](https://henrydavis-cc.medium.com/the-royal-ancestry-of-the-roman-emperor-vespasian-72e144335299)]
 
-[^13]: Josephus, Jewish War vi, 9 --How Yahweh Conquered Rome. Laurent
-    Guyénot. https://www.unz.com/article/how-yahweh-conquered-rome/
+[^13]: https://en.wikipedia.org/wiki/Claudius%27_expulsion_of_Jews_from_Rome
+    ---https://en.wikipedia.org/wiki/Sabazios#Jewish_connection
+    ---Emperor Caligula Brought an End to the Illustrious Ptolemies, but
+    Why?. Ancient Origins Reconstructing the Story of Humanity's Past.
+    www.ancient-origins.net/history-famous-people/emperor-caligula-brought-end-illustrious-ptolemies-why-007591
+    ---https://en.wikipedia.org/wiki/Sabazios#Jewish_connection
+    ---Emperor Caligula Brought an End to the Illustrious Ptolemies, but
+    Why?. Ancient Origins Reconstructing the Story of Humanity's Past.
+    www.ancient-origins.net/history-famous-people/emperor-caligula-brought-end-illustrious-ptolemies-why-007591
 
-[^14]: https://en.wikipedia.org/wiki/Claudius%27_expulsion_of_Jews_from_Rome
-    ---https://en.wikipedia.org/wiki/Sabazios#Jewish_connection
-    ---Emperor Caligula Brought an End to the Illustrious Ptolemies, but
-    Why?. Ancient Origins Reconstructing the Story of Humanity's Past.
-    www.ancient-origins.net/history-famous-people/emperor-caligula-brought-end-illustrious-ptolemies-why-007591
-    ---https://en.wikipedia.org/wiki/Sabazios#Jewish_connection
-    ---Emperor Caligula Brought an End to the Illustrious Ptolemies, but
-    Why?. Ancient Origins Reconstructing the Story of Humanity's Past.
-    www.ancient-origins.net/history-famous-people/emperor-caligula-brought-end-illustrious-ptolemies-why-007591
+    [^14]: Gmirkin, Russell (2016). Plato and the Creation of the Hebrew Bible.
