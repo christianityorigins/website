@@ -49,7 +49,7 @@ This book challenges mainstream historiography. My methodologies are: archaeolog
 
 #### 1 Name and Title Meanings
 
--   Caesar: The Egyptian name "Asar" was another name for Osiris, from which the Etruscan word "Aesar" (also spelled "Aeser" or "Aisar"), meaning god or divine, likely derives. "Sar" in Egyptian means "prince". Ra was the Egyptian deity of the Sun. The Greek language adds a "K" to foreign words, so Aesar -> Greek Kaesar -> Latin Caesar. Caesar also likely connects to "Asar-Hapi" (Osiris-Apis), another name for the Graeco-Egyptian god Serapis (Osiris + Apis = Osorapis) This title also resembles the Akkadian šarru ("king"), Sumerian sar ("ruler" or "prince"), Hittite ḫaššuš ("king"), Vedic Sanskrit kṣatra (ruler, warrior), and Phoenician "Kosar" (sun god) emphasizing that this was a universal title intended to transcend across cultures.
+-   Caesar: The Egyptian name "Asar" was another name for Osiris, from which the Etruscan word "Aesar" (also spelled "Aeser" or "Aisar"), meaning god or divine, likely derives. "Sar" in Egyptian means "prince". Ra was the Egyptian deity of the Sun. The Greek language adds a "K" to foreign words, so Aesar -> Greek Kaesar -> Latin Caesar. Caesar also likely connects to "Asar-Hapi" (Osiris-Apis), another name for the Graeco-Egyptian god Serapis (Osiris + Apis = Osorapis). This title also resembles the Akkadian šarru ("king"), Sumerian sar ("ruler" or "prince"), Hittite ḫaššuš ("king"), Vedic Sanskrit kṣatra (ruler, warrior), and Phoenician "Kosar" (sun god) emphasizing that this was a universal title intended to transcend across cultures.
 -   Christ: In Greek "The Anointed One" is Chréstos/Christ. Christ is identical to the title Soter. Several historical figures were Christs/Soters. In Isaiah 45:1 the jews called Cyrus the Great "The Anointed One". Alexander the Great was also a Chréstos/Soter (Josephus. Antiquities, XI. 8. Talmud, Yoma 67b). Up until the First Council of Nicaea the title "Christ", or "Christian", refered to the Serapis Cult ("those who worship Serapis are, in fact, Christians, and those who call themselves bishops of Christ are, in fact, devotees of Serapis.". Source: The Letter of Hadrian to Servianus).
 -   Cotys: In Thracian, "Cotys" is related to the word "kotys", a title meaning "lord". In the Celtic languages the word "cottos" or "cottius" means "chieftain". 
 -   Izates or Izas: The Egyptian "Asar" or "Iset", another name for Osiris, is likely the root of this title. "Is" or "Isa" is also related to the Proto-Indo-European root "ais-", which means "lord", "ruler", or "noble". This root is also seen in other ancient languages, such as Sanskrit "īśa" (ईश), meaning "lord" or "god". Asa, Esus, Izas, Aesar are all related. 
@@ -86,7 +86,7 @@ III. Flavian Emperors
 - Marcion of Sinope: Markianos of Alexandria, St. Mark
 
 IV. Speculative
-- Alexander the Great: (Alakshandra is a Sanskritized
+- Alexander the Great: Chandragupta Maurya (Alakshandra is a Sanskritized
     translation of Alexander and Gupta means guardian or protector in
     Sanskrit, the exact meaning of Alexander). (See: "Alexander and
     Chandragupta in Sanskrit Drama" by Ranajit Pal
