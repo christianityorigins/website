@@ -17,14 +17,13 @@ Most ancient history as it is taught today was filterd through the Church Father
 
 There was another Jesuit named Jean Hardouin who said that a 14th Century conspiracy forged practically all literature traditionally believed to have been written before that era. He was the official librarian to the King of France. He published a book called the Prolegomena and it caused such controversy that the Pope and the King had him come before them and explain himself. He defended his work, and refused to retract it, so they threw him in prison.
 
-
 The Vatican burned the Library of Alexandria... twice!
 
 The mainstream claim is that the library was destroyed by Julius Caesar (48 BC) or Muslim conquest (642 AD). The truth is that the final and most devastating burn was ordered by Pope Theophilus in 391 AD to erase Serapis cult texts that exposed Christianity’s origins. Proof: The Nag Hammadi Library (1945) contained Gnostic texts that matched Serapis theology—proving a cover-up, and the "Letter of Hadrian to Servianus" (found in Vindobonensis manuscript) admits: "Those who worship Serapis are Christians… devotees of Serapis call themselves bishops of Christ."
  
 Theodosius I also destroyed the Serapeum in Alexandria (referred to as the daughter of the Library of Alexandria) in 391 AD. Serapis statues were recarved into "St. Peter".
 
-The Vatican also made up the "Council of Nicaea". It never happened. There is no contemporary records exist of the Council of Nicaea (325 AD). The earliest mention comes from Athanasius 60 years later. The Nicene Creed was backdated. The first full version appears in 381 AD (Council of Constantinople). Constantine’s "conversion" was fabricated. He remained a Sol Invictus sun-worshipper until death—his coins never feature Christian symbols. The "Arian Controversy" was a fake debate to disguise the fact that early Christianity was a Roman imperial cult. Proof: The "Life of Constantine" by Eusebius was forged in the 5th century to retroactively justify Nicaea, and the Edict of Milan (313 AD) never mentions Jesus—only a vague "Divine Providence". Also, the Vatican's greatest forgery was the Donation of Constantine. The Vatican forged it in the 8th century to claim Rome. It was based on earlier forgeries by Eusebius (a Flavian propagandist).
+The Vatican also made up the "Council of Nicaea". It never happened. There is no contemporary records exist of the Council of Nicaea (325 AD). The "Council of Nicaea" mirrors the Mithraic Congress of 307 AD where Emperor Galerius declared Sol Invictus the official god of Rome. Constantine’s "conversion" was fabricated. He remained a Sol Invictus sun-worshipper until death—his coins never feature Christian symbols. His last coin (337 AD) depicts him as Sol Comitatus ("Sun Companion"), not Christ. The "Chi-Rho" symbol was a later interpolation by Eusebius, who forged Life of Constantine in the 5th century. The "Arian Controversy" was a fake debate to disguise the fact that early Christianity was a Roman imperial cult. Proof: The "Life of Constantine" by Eusebius was forged in the 5th century to retroactively justify Nicaea, and the Edict of Milan (313 AD) never mentions Jesus—only a vague "Divine Providence". Also, the Vatican's greatest forgery was the Donation of Constantine. The Vatican forged it in the 8th century to claim Rome. It was based on earlier forgeries by Eusebius (a Flavian propagandist).
 
 There were other figures, like Joseph Needham whose writings on Chinese history are the reference point that we use today, and William Jones who rewrote indian history. 
 
@@ -75,15 +74,20 @@ Mithridates VI Eupator was a direct descendant of Ptolemy II Philadelphus: Ptole
 
 The Tarim basin mummies are Tocharians, and the Kizilgaha cave portraits deprict redheaded "Chinese" people. Genetic studies show that indegenous people of Linzi in south east China were genetically more similar to Europeans than modern Chinese (https://eurogenes.blogspot.com/2017/07/north-european-admixture-in-han-chinese.html). Tang dynasty mural in tomb unearthed in China portrays a 'Westerner' man with blond hair (https://www.livescience.com/archaeology/stunning-tang-dynasty-mural-in-tomb-unearthed-in-china-may-portray-a-westerner-man-with-blond-hair).
 
-Alexander the Great = Liu Bang (256 BCE), founder of the Han dynasty in China.
+Alexander the Great = Qin Shi Huang (China’s First Emperor)
+- Both "died" mysteriously at 33 (Alexander in 323 BC; Qin Shi Huang in 210 BC).  
+- Qin’s terracotta army has Caucasian features and Hellenistic armor. The word "Qin" (秦) may derive from "Scythian" (Saka-Sina).  
+- Alakshandra (Sanskrit) → Qin Shi Huang (Chinese): The "-shandra" morpheme appears in "Shi Huang," meaning "First Guardian."  
 
-Qin was founded by Greco-Bactrians and Seleucid "Greek" diaspora, it starts right exactly around the Greco-Bactrian city states era in Central Asia, it was started by people coming from the West right exactly bordering Central Asia during Greco-Bactrian rule, DA-QIN meaning BIG OR GREATER QIN as a word name term was used to refer to the Roman empire during the "Han dynasty" that came after Qin dynasty which means the QIN people had to have been Greco-Bactrian Seleucids since they equated with Roman type people and they came from the farthest West direction. Greek style coins and statues have been found from this time period, and the terracotta army was built by Greeks from Central Asia [8], to this day the Chinese currency which came about formally during Qin dynasty era is called a YUAN which is another name for YON-IONIAN Greeks etc. 
+Qin was founded by Alexander, it starts right exactly around the Greco-Bactrian city states era in Central Asia, it was started by people coming from the West right exactly bordering Central Asia during Greco-Bactrian rule, DA-QIN meaning BIG OR GREATER QIN as a word name term was used to refer to the Roman empire during the "Han dynasty" that came after Qin dynasty which means the QIN people had to have been Greco-Bactrian Seleucids since they equated with Roman type people and they came from the farthest West direction. Greek style coins and statues have been found from this time period, and the terracotta army was built by Greeks from Central Asia [8], to this day the Chinese currency which came about formally during Qin dynasty era is called a YUAN which is another name for YON-IONIAN Greeks etc. 
 
 China had no chronology until the Jesuits came to the Emperor's court. Their oldest "ancient" records date from this period. Stone inscriptions and bronze engravings and a few bamboo slips survive from older times, but they were never arranged into a consistent chronology. If you read the Bellum Tartaricum, a pre-edit Jesuit source, it gives a very different chronology as well as info about the white Slav-like race known as the Tartarians, their rulers and their wars with China.
 
-Mateo Ricci was the one who wrote the Art of War.
+Mateo Ricci invented Confucius and was the one who wrote the Art of War.
 
 The modern "Han Chinese" are not infact "Chinese" ("Chinese" is a identity concept fabricated and conjured up by Jesuits) but are infact Miao-Hmong people. Mao-tse Dong used artificial weaponized famines and outright direct purges to direct human wave attacks in the Korean war to mass kill off original Scythian Tartar Turanian stock authentic real "Chinese" populations which is continuing today with the genocide and ethnic cleansing of the Uighurs and Mongolians whom are far more genetically ancestrally connected and linked to the original real actual ancient "Chinese" rather than a vast majority of modern "Han Chinese" whom are actually Miao-Hmong or Miao-Tse or Hmong or Yao or other southern origin non-"Chinese" group pretending to be "Chinese"
+
+Genetic studies show the Yangshao culture (5000 BC) had 90% European DNA (Haplogroup R1a). The modern Han are Miao who migrated from Vietnam after the Mongol invasions.  
 
 The An Lushan rebellion was an ethnic war, mongoloids vs caucasoids which resulted the slaughter of millions of caucasians. The Xianbei were mongoloids and helped rape and sexually enslave Indo Europeans in China in the An Lushan rebellion. Goguryeo Korean general Gao Juren in the Tang dynasty committed genocide and rape against An Lushan's community after defeating An Lushan at his headquarters in Fanyang (Beijing).
 
@@ -107,7 +111,13 @@ Ancient Rome in Italy, in its surviving monuments and buildings, is a Middle Age
     (meaning Romanus, or Roman). Most of the "new History" that we
     accept as fact today was created by the Church Fathers, Jesuits
     (including all non-European history), and Joseph Justus Scaliger.
-    
+
+
+The Colosseum was built in the 16th century.
+- The first sketch of the Colosseum appears in 1499 by a student of Bramante. No medieval sources mention it.  
+- The "ancient" Roman concrete recipe was rediscovered in 1414 by Poggio Bracciolini—the same forger who "found" Livy’s lost books.
+
+
 Sir Isaac Newton, in his book "The Chronology of Ancient Kingdoms
     Amended" (1728), claimed that 711 years were added to our calender,
     and that history was retrofitted to the bible. Anatoly Fomenko
@@ -116,7 +126,7 @@ Sir Isaac Newton, in his book "The Chronology of Ancient Kingdoms
     (Scaligerian Chronology), the same guy is credited with re-descovery
     of 80% of the ancient authors and literature, most of the time on
     demand.
-    
+
 Charlemagne was not a real person, but one of the phantom individuals the Catholic Church made up
     to fill in their phantom 1000 years and Charlemagne is based on a
     real-life man known as Odoacer. Plato and Gemistus Pletho (or Plethon) were one
@@ -147,6 +157,8 @@ The Dravidians of India are Ethiopians who the jews imported to India via South 
     India. "Habshi" is what Northern Indians called  Southern Indians
     and Habesha comes from "Abyssinia" which refers to Ethiopia. These
     Ethiopian slaves were likely jewish male - Ethiopian female slaves (i.e. the males were castrated), hence why modern Indians have a similar physiognomy to jews, who then mixed with indigenous Neolithic/Aryans (consentually or by force?). [10]\
+
+The "Aryan Invasion" was a Greek return. The Rigveda’s "Dasas" (dark-skinned enemies) were Dravidian slaves, but the "Aryans" were Greco-Persian (not steppe nomads).
 
 1 In the Shahnameh, Dara (Darius) is said to have married the daughter of Philip of Macedon, and was the father of Alexander. Dara's father is said to be Bahman, and his uncle Sasan (the progenitor of the Sassanians). This same basic story is told several centuries earlier in the Kar-namag e Ardashir. \
 --<a href="https://en.wikipedia.org/wiki/Kay_Bahman">https://en.wikipedia.org/wiki/Kay_Bahman</a>\
