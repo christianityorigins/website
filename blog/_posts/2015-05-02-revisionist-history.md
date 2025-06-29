@@ -11,7 +11,7 @@ category: blog
 
 I am interested in revisionist history. These are some of my notes that I will expand on eventually.
 
-##### Who Was Behind the Conspiracy to Rewrite History?
+#### Who Was Behind the Conspiracy to Rewrite History?
 
 Most ancient history as it is taught today was filterd through the Church Fathers, Vatican, and Jesuits. Joseph Justus Scalinger, and Poggio Bracciolini who was the guy who collected documents for him and even forged them (there are preserved letters from Bracciolini arranging a forgery with a remote monastery), are credited with "discovering" around 80% of the European history texts that we are taught from today, usually on demand. 
 
