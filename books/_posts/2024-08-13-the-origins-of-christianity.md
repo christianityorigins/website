@@ -37,9 +37,18 @@ _Footnotes_
 
 #### Introduction
 
-Much of what we know about history from antiquity is fabricated. The Ptolemaic Greco-Egyptian-Persian-Roman elite were Sarmatian warlords. Egypt, Persia, Greece, Rome, India, etc., were under the suzerainty of Iranian-Scythian elites since at least the 17th century BC with the Hyksos (Heka-Khasut means "Rulers of Foreign Lands" and Khasut is a cognate of Scythian/Saka, Scyth, Scoloti).
+Much of what we know about history from antiquity is fabricated. The Ptolemaic Greco-Egyptian-Persian-Roman elite were Sarmatian/Saka warlords who ruled through proxy dynasties. Egypt, Persia, Greece, Rome, India, etc., were all under the suzerainty of Iranian-Scythian elites since at least the 17th century BC with the Hyksos (Heka-Khasut means "Rulers of Foreign Lands" and Khasut is a cognate of Scythian/Saka, Scyth, Scoloti).
 
-The Scythian tribe called the Sarmatians (also called Sauromatians - compare this to Sumerian "sar" (king)) were a nomadic Indo-Iranian warrior elite from the Pontic steppe (modern Ukraine/Russia). The domestication of the horse and invention of the chariot allowed them to travel vast distances. They were not just another tribe—they were a priesthood of dragon-worshipping kings.
+The Scythian tribe called the Sarmatians (also called Sauromatians - compare this to Sumerian "sar" (king)) were a nomadic Indo-Iranian warrior elite from the Pontic steppe (modern Ukraine/Russia). The domestication of the horse and invention of the chariot allowed them to travel vast distances. They were a priesthood of dragon/serpent-worshipping kings.
+
+Timeline:
+
+-Gutian Dynasty (2150 BC) – First Scythian rulers of Mesopotamia.\
+-The Hyksos (1650–1550 BC) – Scythian Pharaohs of Egypt\
+The Hittites (1600–1200 BC) – Scythians in Anatolia\
+-Mitanni (1500 BC) – Scythian horse lords in Syria.\
+-Vedic India (1500 BC) – Scythian chariot kings.\
+-"Sea Peoples" collapse Mediterranean empires (Scythian mercenaries) (1200 BC) 
 
 ![Fig.1.1](/images/SauromatesII.jpg){:width="400px"}
 
@@ -65,7 +74,7 @@ Sargon of Akkad = "Sharru-Kin" (Scythian for "True King of the Bow"). "Sharru" =
     
 The "Dorian Greeks" who destroyed Mycenae (c. 1200 BC) were steppe nomads and Scythian-Sarmatians.
 
-The Ptolemaic Egyptians (Ptolemaios  - the root "ptol" resembling the Indo-Iranian term for warrior-kings (e.g., Parthian pat, "lord") were the continuation of this bloodline. 
+The Ptolemaic Egyptians (Ptolemaios  - the root "ptol" resembling the Indo-Iranian term for warrior-kings (e.g., Parthian pat, "lord"), or Scythian Patala (horse lords), were the continuation of this bloodline. 
 
 All ancient Mediterranean religions from antiquity derive from the Sythian serpent-dragon worshiping religions (see: the Zoroastrian Indo-Iranian dragon deity Aži Dahāka later syncretized with Mithra, and the Dacian and Roman Draco standards).
 
@@ -287,14 +296,7 @@ source: The Alexander Mosaic, Huqoq, Israel.
 Fig. 1.14. Tiberius Julius Sauromates II, King of Bosphorus, who was the
 son of Tiberius Julius Cotys (aka Tiberius Julius Alexander aka Arrius
 Calpernius Piso aka Arrius Varus aka Emperor Nerva), great-grandson of
-Dynamis aka Cleopatra and Mark Antony. Does he look familiar? ΒΑCΙΛΕΩC
-CΑVΡΟΜΑΤΟΥ in the above coin translates to "King of the Sauromatians".
-Sauromates is a Greek rendering of 'Sarmatian', referring to the Scythian
-tribe who came from the Pontic steppe. 'Saur' means 'lizard' or
-'reptile', and 'mates' means 'man' or 'warrior'. Therefore, translated
-literallly ΒΑCΙΛΕΩC CΑVΡΟΜΑΤΟΥ means "King of the lizard people", or
-"king of the reptile people". The Sarmatians were known for their use of
-scale armor, and this is where the reference comes from.
+Dynamis aka Cleopatra and Mark Antony.
 
 One name that shows up in the family trees of all the people listed
 above is Simon Boethus who I identify as (king/Tetrarch) Ptolemy
@@ -424,16 +426,6 @@ Tiberius Julius Aspurgus Philoromaios and Emperor Tiberius Julius Caesar were bo
 Also, Polemon Pythodoros (Julius Caesar/Asander) and Pythodorida of Pontus (Cleopatra/Dynamis) had a daughter Antonia Tryphaena. Her son was Rhoemetalces II whose reign coincided with emperor Claudius.
 
 Emperor Titus = Polemon II of Pontus who was the prince of the Bosporan, Pontus, Cilicia, and Cappadocia.
-
-I asked ChatGPT to translate Roman emperor names and Bosphorian princes and kings names into Celtic (the Galatians were Gauls), Latin, and Etruscan and try to find the Roman emperor identities among the Bosphoran elite. This is the result:
-
--Augustus: The Celtic name "Ogur" or "Augus" could be transliterated to the Etruscan name "Avile" or "Aule", which means "great" or "magnificent". The Etruscan name "Avile" is similar to the Latin name "Augustus". Aspourgos, a king of the Bosphorus, has a similar name meaning, with the Greek name "Aspourgos" being similar to the Etruscan name "Avile". The Phoenician name "Asgar" or "Asgaros" could also be related, meaning "great leader" or "king". The Celtic name "Augus" could also mean "lord" or "master", similar to the Etruscan name "Avile".\
--Tiberius: Tiberius means "of the Tiber" in Latin. The Bosphorus has a river called the Thibaris, which might be connected to the name Tiberius. A possible match is Tiberius Julius Aspurgus, a king of the Bosphorus, who ruled from 8 BC to 38 AD. His birth date is unknown, but his reign overlaps with Tiberius' (14 - 37 AD). The Celtic word "tibor" means "lord" or "master", which could be related to the name Tiberius. The Bosphorian king Tiberius Julius Aspurgus has a name that combines Latin and Celtic elements. The Celtic name "Tigernach" means "lord" or "master", which could be transliterated to "Tiberius". The Thracian name "Tiberios" or "Tiberos" could also be related, meaning "lord" or "master".\
--Caligula: The Celtic name "Caulgach" could be transliterated to the Etruscan name "Kalikle" or "Kalike", which means "warrior" or "soldier". The Etruscan name "Kalikle" is similar to the Latin name "Caligula". Cotys I, a king of the Bosphorus, has a name that means "warrior" or "soldier" in Greek, with the Celtic name "Cotys" being similar to the Etruscan name "Kalikle". The Illyrian name "Kalikos" or "Kalikus" could also be related, meaning "strong" or "powerful".\
--Claudius: The Celtic name "Cladach" could be transliterated to the Etruscan name "Klute" or "Kluti", which means "shore" or "beach". The Etruscan name "Klute" is similar to the Latin name "Claudius". Mithridates III, a king of the Bosphorus, has a name that means "great warrior" in Greek, with the Celtic name "Mithrid" being similar to the Etruscan name "Klute". The Scythian name "Klutos" or "Klutus" could also be related, meaning "glorious" or "famous". Lord is found in the Celtic translation of "Cladach" as "lord of the shore". \
--Nero: The Celtic name "Nerach" could be transliterated to the Etruscan name "Nerke" or "Nerki", which means "strong" or "powerful". The Etruscan name "Nerke" is similar to the Latin name "Nero". Tiberius Julius Cotys II, a king of the Bosphorus, has a name that combines Latin and Celtic elements, with the Greek name "Cotys" being similar to the Etruscan name "Nerke". The Germanic name "Nerikos" or "Nerikus" could also be related, meaning "strong" or "powerful".\
--Vespasian: The Celtic name "Vespag" could be transliterated to the Etruscan name "Vespe" or "Vespi", which means "wasp" or "stinging insect". The Etruscan name "Vespe" is similar to the Latin name "Vespasian". Rhescuporis, a king of the Bosphorus, has a name that means "he who is stung" in Greek, with the Celtic name "Rhescu" being similar to the Etruscan name "Vespe". The Phoenician name "Vespas" or "Vespasos" could also be related, meaning "wasp" or "stinging insect". Lord is found in the Celtic translation of "Vespag" as "lord of the wasps". Another option: Vesp-asian → Vespa (wasp) + Asiaticus (conqueror of Asia).\
--Domitian: The Celtic name "Domnach" could be transliterated to the Etruscan name "Dumne" or "Dumni", which means "lord" or "master". The Etruscan name "Dumne" is similar to the Latin name "Domitian". Sauromates I, a king of the Bosphorus, has a name that means "ruler of the land" or "lord of the earth" in Greek, with the Celtic name "Domnach" being similar to the Etruscan name "Dumne". The Thracian name "Dom
 
 #### 5 Flavian Dynasty \
 
