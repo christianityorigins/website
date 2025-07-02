@@ -48,7 +48,8 @@ Timeline:
 -The Hittites (1600–1200 BC) – Scythians in Anatolia.\
 -The Mitanni (1500 BC) – Scythian horse lords in Syria.\
 -Vedic India (1500 BC) – Scythian chariot kings.\
--"Sea Peoples" collapse Mediterranean empires (Scythian mercenaries) (1200 BC) 
+-"Sea Peoples" collapse Mediterranean empires (Scythian mercenaries) (1200 BC) \
+-The "Dorian Greeks" who destroyed Mycenae (c. 1200 BC) were steppe nomads and Scythian-Sarmatians.
 
 ![Fig.1.1](/images/SauromatesII.jpg){:width="400px"}
 
@@ -72,8 +73,6 @@ Xerxes = "Xšaya-ṛšā" (Scythian for "Hero-King"). "Xšaya" = "Kshatriya" (wa
 
 Sargon of Akkad = "Sharru-Kin" (Scythian for "True King of the Bow"). "Sharru" = "Xšaya" (king in Scythian, same as Xerxes). "Kin" = "Kaman" (bow in Scythian, referring to horse archers). Full meaning: "King of the Bowmen."
     
-The "Dorian Greeks" who destroyed Mycenae (c. 1200 BC) were steppe nomads and Scythian-Sarmatians.
-
 The Ptolemaic Egyptians (Ptolemaios  - the root "ptol" resembling the Indo-Iranian term for warrior-kings (e.g., Parthian pat, "lord"), or Scythian Patala (horse lords), were the continuation of this bloodline. 
 
 All ancient Mediterranean religions from antiquity derive from the Sythian serpent-dragon worshiping religions (see: the Zoroastrian Indo-Iranian dragon deity Aži Dahāka later syncretized with Mithra, and the Dacian and Roman Draco standards).
