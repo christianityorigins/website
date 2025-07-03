@@ -37,19 +37,27 @@ _Footnotes_
 
 #### Introduction
 
-Much of what we know about history from antiquity is fabricated. The Ptolemaic Greco-Egyptian-Persian-Roman elite were Sarmatian/Saka warlords who ruled through proxy dynasties. Egypt, Persia, Greece, Rome, India, etc., were all under the suzerainty of Iranian-Scythian elites since at least the 17th century BC with the Hyksos (Heka-Khasut means "Rulers of Foreign Lands" and Khasut is a cognate of Scythian/Saka, Scyth, Scoloti).
+Much of what we know about history from antiquity is fabricated. The Ptolemaic Greco-Egyptian-Persian-Roman elite were Sarmatian/Saka warlords who ruled through proxy dynasties. Egypt, Persia, Greece, Rome, India, etc., were all under the suzerainty of Aryan Iranian-Scythian elites since at least the 17th century BC.
 
 The Scythian tribe called the Sarmatians (also called Sauromatians ("Saur" = "Lizard/Dragon" + "Matae" = "Men/Warriors" - where the Sumerian "sar" (king) comes from) were a nomadic Indo-Iranian warrior elite from the Pontic steppe (modern Ukraine/Russia). The domestication of the horse and invention of the chariot allowed them to travel vast distances. They were a priesthood of dragon/serpent-worshipping kings.
 
 Timeline:
 
 -Gutian Dynasty (2150 BC) – First Scythian rulers of Mesopotamia.\
--The Hyksos (1650–1550 BC) – Scythian Pharaohs of Egypt.\
+-The Hyksos (1650–1550 BC) – Scythian Pharaohs of Egypt (Heka-Khasut means "Rulers of Foreign Lands" and Khasut is a cognate of Scythian/Saka, Scyth, Scoloti).\
 -The Hittites (1600–1200 BC) – Scythians in Anatolia.\
 -The Mitanni (1500 BC) – Scythian horse lords in Syria.\
 -Vedic India (1500 BC) – Scythian chariot kings.\
 -"Sea Peoples" collapse Mediterranean empires (Scythian mercenaries) (1200 BC) \
 -The "Dorian Greeks" who destroyed Mycenae (c. 1200 BC) were steppe nomads and Scythian-Sarmatians.
+
+The Mitanni exercised hegemony over the ancient world. The Hittites aka Neshians were one enforcement arm for the Mitanni. 
+
+The eruption of Thera (Santorini) around 1600 BCE destroyed the ancient economy and led the the eventual collapse of the Bronze Age and the fragmentation of Scythian hegemony. It led to the Hyksos expulsion, civil strife, and Assyria rising up under the Chaldean priests (the Kalani, the Jews). Jews called all of them Ashkenaz meaning Scythian. Khazaria is the former territory of the Scythians is why they got that name (Ashkenazi).
+
+The Sea Peoples were the revenge against Babylon, Hittites and Egypt after the Mitanni were exiled.
+
+The Hyksos descendants then re-emerged in Persia and Anatolia, later reclaiming Egypt under the Achaemenid Period (525–404 BCE).
 
 ![Fig.1.1](/images/SauromatesII.jpg){:width="400px"}
 
@@ -89,7 +97,7 @@ This book challenges mainstream historiography. My methodologies are: archaeolog
 
 #### 1 Name and Title Meanings
 
--   Caesar: The Egyptian name "Asar" was another name for Osiris. "Ra" was the Egyptian deity of the Sun (Asar-Ra). The Etruscan word "Aesar" (also spelled "Aeser" or "Aisar"), meaning god or divine, likely derives from the Egyptian Asar. The Greek language adds a "K" to foreign words, so Aesar -> Greek Kaesar -> Latin Caesar. Caesar also likely connects to "Asar-Hapi" (Osiris-Apis), another name for the Graeco-Egyptian god Serapis (Osiris + Apis = Osorapis). This title also resembles the Phoenician "Kosar" (sun god) and Celtic Aesus/Esus (pronounced Eh-Zeus) which was the Celtic version of Zeus.
+-   Caesar: The Egyptian name "Asar" was another name for Osiris. "Ra" was the Egyptian deity of the Sun (Asar-Ra). This title very likely connects to "Asar-Hapi" (Osiris-Apis), another name for the Graeco-Egyptian god Serapis (Osiris + Apis = Osorapis). The Etruscan word "Aesar" (also spelled "Aeser" or "Aisar"), meaning god or divine, likely derives from the Egyptian Asar. The Greek language adds a "K" to foreign words, so Aesar -> Greek Kaesar -> Latin Caesar. This title also resembles the Phoenician "Kosar" (sun god) and the Celtic Aesus/Esus (pronounced Eh-Zeus) which was the Celtic version of Zeus.
 -   Christ: In ancient Egypt Karast is a person who is anointed as a Heru (Hero) during their lifetime. When they are deceased they receive a great honor as a KRST or Ausar (Osiris). Heru = Hero-Horus-Heracles (Hercules) Heracles, Hercules, Hero, Christ, are all titles directly derived from the word HERU. Egyptian Karast ("Anointed One") = Greek Christos ("Anointed One"). Christ is identical to the title Soter. Several historical figures were Christs/Soters. In Isaiah 45:1 the jews called Cyrus the Great "The Anointed One". Alexander the Great was also a Chréstos/Soter (Josephus. Antiquities, XI. 8. Talmud, Yoma 67b). Up until the First Council of Nicaea the title "Christ", or "Christian", refered to the Serapis Cult ("those who worship Serapis are, in fact, Christians, and those who call themselves bishops of Christ are, in fact, devotees of Serapis.". Source: The Letter of Hadrian to Servianus).
 -   Cotys: In Thracian, "Cotys" is related to the word "kotys", a title meaning "lord". In the Celtic languages the word "cottos" or "cottius" means "chieftain". 
 -   Izates or Izas: The Egyptian "Asar" or "Iset", another name for Osiris, is likely the root of this title. "Is" or "Isa" is also related to the Proto-Indo-European root "ais-", which means "lord", "ruler", or "noble", and where Asus/Esus (Celtic Zeus - pronounced Eh-Zeus) derives from. This root is also seen in other ancient languages, such as Sanskrit "īśa" (ईश), meaning "lord" or "god". Asa, Esus, Izas, Aesar are all related. 
