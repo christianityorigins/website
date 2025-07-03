@@ -37,7 +37,7 @@ _Footnotes_
 
 #### Introduction
 
-Much of what we know about history from antiquity is fabricated. The Ptolemaic Greco-Egyptian-Persian-Roman elite were Sarmatian/Saka warlords who ruled through proxy dynasties. Egypt, Persia, Greece, Rome, India, etc., were all under the suzerainty of Aryan Iranian-Scythian elites since at least the 17th century BC.
+Much of what we know about history from antiquity is fabricated. The Egyptian-Persian-Indian-Greek-Roman elite were Sarmatian/Saka warlords who ruled through proxy dynasties. Egypt, Persia, India, Greece, Greece, Rome, etc., were all under the suzerainty of Aryan Iranian-Scythian elites since at least the 17th century BC.
 
 The Scythian tribe called the Sarmatians (also called Sauromatians ("Saur" = "Lizard/Dragon" + "Matae" = "Men/Warriors" - where the Sumerian "sar" (king) comes from) were a nomadic Indo-Iranian warrior elite from the Pontic steppe (modern Ukraine/Russia). The domestication of the horse and invention of the chariot allowed them to travel vast distances. They were a priesthood of dragon/serpent-worshipping kings.
 
@@ -46,18 +46,21 @@ Timeline:
 -Gutian Dynasty (2150 BC) – First Scythian rulers of Mesopotamia.\
 -The Hyksos (1650–1550 BC) – Scythian Pharaohs of Egypt (Heka-Khasut means "Rulers of Foreign Lands" and Khasut is a cognate of Scythian/Saka, Scyth, Scoloti).\
 -The Hittites (1600–1200 BC) – Scythians in Anatolia.\
+-Kassite Dynasty (1595–1155 BCE) - Scythian rulers of Babylon after Hittites sacked it.\
 -The Mitanni (1500 BC) – Scythian horse lords in Syria.\
 -Vedic India (1500 BC) – Scythian chariot kings.\
 -"Sea Peoples" collapse Mediterranean empires (Scythian mercenaries) (1200 BC) \
--The "Dorian Greeks" who destroyed Mycenae (c. 1200 BC) were steppe nomads and Scythian-Sarmatians.
+-The "Dorian Greeks" who destroyed Mycenae (c. 1200 BC) were steppe nomads and Scythian-Sarmatians.\
+-Persia’s Achaemenids (705–330 BC) - Saka (Scythian) clan.\
+-The Etruscan Tarquin dynasy (616 BC) - Scythian rulers of Rome. Tarquin = Tarkhu (Scythian: "Ruler"). Servius Tullius = Tulli (Scythian: "Wolf Clan").
 
-The Mitanni exercised hegemony over the ancient world. The Hittites aka Neshians were one enforcement arm for the Mitanni. 
+The Mitanni exercised hegemony over a pan-Eurasian empire. The Hittites aka Neshians were one enforcement arm for the Mitanni. 
 
-The eruption of Thera (Santorini) around 1600 BCE destroyed the ancient economy and led the the eventual collapse of the Bronze Age and the fragmentation of Scythian hegemony. It led to the Hyksos expulsion, civil strife, and Assyria rising up under the Chaldean priests (the Kalani, the Jews). Jews called all of them Ashkenaz meaning Scythian. Khazaria is the former territory of the Scythians is why they got that name (Ashkenazi).
+The eruption of Thera (Santorini) around 1600 BCE destroyed the ancient economy and led the the eventual collapse of the Bronze Age and the fragmentation of Scythian hegemony. It led to the Hyksos expulsion from Egypt, civil strife, and Assyria rising up under the Chaldean priests (the Kalani, the Jews). Jews called all of them Ashkenaz meaning Scythian. Khazaria is the former territory of the Scythians is why they got that name (Ashkenazi).
 
 The Sea Peoples were the revenge against Babylon, Hittites and Egypt after the Mitanni were exiled.
 
-The Hyksos descendants then re-emerged in Persia and Anatolia, later reclaiming Egypt under the Achaemenid Period (525–404 BCE).
+The Hyksos descendants then re-emerged in Persia and Anatolia, later reclaiming Egypt under the Achaemenid Period (525 BCE).
 
 ![Fig.1.1](/images/SauromatesII.jpg){:width="400px"}
 
@@ -70,8 +73,6 @@ literallly ΒΑCΙΛΕΩC CΑVΡΟΜΑΤΟΥ means "King of the lizard people", 
 "king of the dragon people". 
 
 Ramesses II = "Ra-Mesu" (Scythian for "Born of the Sun Stallion"). "Ra" = Egyptian sun god (syncretized with Scythian Mithra). "Mesu" = "Mares" (horse in Scythian, symbol of kingship). Full meaning: "Sun Stallion’s Son".
-
-Persia’s Achaemenids = Saka (Scythian) clan.
 
 Cyrus the Great = "Kurush" (Scythian for "Sun King"). The name "Cyrus" (Old Persian: Kuruš) derives from Scythian "Khur" (Sun) + "Us" (Lord) = "Sun Lord" (identical to Mitra/Mithra, the Indo-Iranian sun god). In Avestan (Scythian religious texts), "Kavi" means "King-Priest". Cyrus' clan was the "Kayanian" dynasty (Scythian royal bloodline).
 
@@ -89,7 +90,7 @@ The "Chi-Rho" (☧) symbol of Constantine was not Christian—it was the Sarmati
 
 In Sarmatian, "Ruma" (Rome) = "Place of the Dragon" (Rhu-Ma, from Aži Dahāka, the Iranian dragon).
 
-In Egypt, Ptolemy I Soter, who was a Scythian-Greek continuation of this Sarmatian line, began using religion to subjugate the vast and disparate peoples he ruled. The Alexandrian School in Egypt was his religion making factory. He was in the process of creating a universal religion and this was being achieved by gradual syncretism using local identities and blending local deities into syncretic universal savior archetypes (Interpretatio Graecae) as a transitional phase toward a universal monotheism. The Ptolemaic elites were conditioning the disparate populations they ruled into accepting the Serapis cult (sarp- is a Proto-Indo-European root meaning "serpent" as seen in Sanskrit sarpa, "snake". "Sar-Ap" translates to "Serpent-Lord" in Scythian. Sarapis might not have just been a syncretic god but a deliberate rebranding of the Sarmatian dragon cult for Egyptian and Greek audiences). This eventually evolved into Christianity (the Christogram symbolizing Jesus Christ (IHS) = "Isis-Horus-Serapis"). (*One other option is that these religions were targeted towards different castes: Mithraism was for military elites (required blood oaths. Mithraic initiates/caste system/hierarchical). Serapism was for civilians (promised afterlife salvation). Christianity was for slaves ("turn the other cheek")).
+In Egypt, Ptolemy I Soter, who was a Scythian-Iranian continuation of this Sarmatian line, began using religion to subjugate the vast and disparate peoples he ruled. The Alexandrian School in Egypt was his religion making factory. He was in the process of creating a universal religion and this was being achieved by gradual syncretism using local identities and blending local deities into syncretic universal savior archetypes (Interpretatio Graecae) as a transitional phase toward a universal monotheism. The Ptolemaic elites were conditioning the disparate populations they ruled into accepting the Serapis cult (sarp- is a Proto-Indo-European root meaning "serpent" as seen in Sanskrit sarpa, "snake". "Sar-Ap" translates to "Serpent-Lord" in Scythian. Sarapis might not have just been a syncretic god but a deliberate rebranding of the Sarmatian dragon cult for Egyptian and Greek audiences). This eventually evolved into Christianity (the Christogram symbolizing Jesus Christ (IHS) = "Isis-Horus-Serapis"). (*One other option is that these religions were targeted towards different castes: Mithraism was for military elites (required blood oaths. Mithraic initiates/caste system/hierarchical). Serapism was for civilians (promised afterlife salvation). Christianity was for slaves ("turn the other cheek")).
 
 Julius Caesar was Ptolemy XI Alexander II, Cleopatra's uncle, and he also took on the regional aliases of Asander, king of Bosphorus, and Pharnaces II ("Pharao-Nikes", or "Victorious Pharaoh"), among numerous other aliases. Cleopatra was also Dynamis, queen of Bosphorus. Mark Antony the Neos-Dionysos was either Ptolemy of Cyprus, a brother of Cleopatra's father Ptolemy XII Auletes (Auletes name adapts well to the Parthian Orodes (II?)) the Neos Dionysos aka Polemon (Polemos -> Ptolemy) I of Pontus aka King Herod (Egyptian: Heru (Horus) + Ud (divine) -> Herud -> "Herod") aka Tiberius Claudius Nero aka Phraates IV of Parthia (Per-aa or Per-Nesu is a corruption of Pharaoh), or he was Ptolemy XII Auletes himself (Cleopatra’s full name, Cleopatra VII Philopator, derives from the Ancient Greek 'Φιλοπάτωρ' meaning "the one who loves her father", or simply "father-loving"). She was previously married to two of her brothers and her uncle as listed previously. This is how incestuous this family was. 
 
@@ -136,12 +137,12 @@ III. Flavian Emperors
 - Marcion of Sinope: Markianos of Alexandria, St. Mark
 
 IV. Speculative
-- Alexander the Great: Chandragupta Maurya (Alakshandra is a Sanskritized
+- Alexander the Great: Persian prince who was the son of Artaxerxes II Memnon ("Kai Bahman") and half-brother of Darius III ("Darab"). In India he took the regional aliases of Chandragupta Maurya (Alakshandra is a Sanskritized
     translation of Alexander and Gupta means guardian or protector in
     Sanskrit, the exact meaning of Alexander). (See: "Alexander and
     Chandragupta in Sanskrit Drama" by Ranajit Pal
     https://www.academia.edu/40074507/ALEXANDER_AND_CHANDRAGUPTA_IN_A_SANSKRIT_DRAMA
-    [[link](https://www.academia.edu/40074507/ALEXANDER_AND_CHANDRAGUPTA_IN_A_SANSKRIT_DRAMA)]), Ptolemy I Soter
+    [[link](https://www.academia.edu/40074507/ALEXANDER_AND_CHANDRAGUPTA_IN_A_SANSKRIT_DRAMA)]).
 - Gautama Buddha (Egyptian: "Ba-Djehuti", or "Soul of Thoth"): Gaumata Bardya (Cyrus the Great's son)
 
 #### 3 Julius Caesar aka Asander of Bosphorus 
