@@ -10,9 +10,7 @@ The Sarmatian Dragon Cult: Aži Dahāka as the Proto-Christ
  
 By Ralph Perrier
 
-*I will not presume to speak of anything except what Christ has
-accomplished through me in leading the Gentiles to obedience by word and
-deed* - Romans 15:18
+*So Moses made a bronze snake and put it up on a pole. Then when anyone was bitten by a snake and looked at the bronze snake, they lived.* - Numbers 21:9
 
 Contents
 
@@ -56,7 +54,7 @@ Timeline:
 
 The Mitanni exercised hegemony over a pan-Eurasian empire. The Hittites aka Neshians were one enforcement arm for the Mitanni. They ruled by military dominance (chariots, cavalry, mercenaries), installing puppet kings (often their own bloodline), controlling trade routes (Silk Road, Black Sea, Pontic Steppe), and through enforcing religious syncretism.
 
-The eruption of Thera (Santorini) around 1600 BCE destroyed the ancient economy and led the the eventual collapse of the Bronze Age and the fragmentation of Scythian hegemony. It led to the Hyksos expulsion from Egypt, civil strife, and Assyria rising up under the Chaldean priests (the Kalani, the Jews). Jews called all of them Ashkenaz meaning Scythian. Khazaria is the former territory of the Scythians is why they got that name (Ashkenazi).
+The eruption of Thera (Santorini) around 1600 BCE triggered a volcanic winter that was recorded all the way in China. This destroyed the ancient economy and led the the eventual collapse of the Bronze Age and the fragmentation of Scythian hegemony. It led to the Hyksos expulsion from Egypt, civil strife, and Assyria rising up under the Chaldean priests (the Kalani, the Jews). Jews called all of them Ashkenaz meaning Scythian. Khazaria is the former territory of the Scythians is why they got that name (Ashkenazi).
 
 The Sea Peoples were the revenge against Babylon, Hittites, and Egypt after the Mitanni were exiled.
 
@@ -90,7 +88,7 @@ The "Chi-Rho" (☧) symbol of Constantine was not Christian—it was the Sarmati
 
 In Sarmatian, "Ruma" (Rome) = "Place of the Dragon" (Rhu-Ma, from Aži Dahāka, the Iranian dragon).
 
-In Egypt, Ptolemy I Soter, who was a Scythian-Iranian continuation of this Sarmatian line, used religion to subjugate the vast and disparate peoples he ruled. The Alexandrian School in Egypt was his religion making factory. He was in the process of creating a universal religion and this was being achieved by gradual syncretism using local identities and blending local deities into syncretic universal savior archetypes (Interpretatio Graecae) as a transitional phase toward a universal monotheism. The Ptolemaic elites were conditioning the disparate populations they ruled into accepting the Serapis cult (sarp- is a Proto-Indo-European root meaning "serpent" as seen in Sanskrit sarpa, "snake". "Sar-Ap" translates to "Serpent-Lord" in Scythian. Sarapis might not have just been a syncretic god but a deliberate rebranding of the Sarmatian dragon cult for Egyptian and Greek audiences). This eventually evolved into Christianity (the Christogram symbolizing Jesus Christ (IHS) = "Isis-Horus-Serapis"). (*One other option is that these religions were targeted towards different castes: Mithraism was for military elites (required blood oaths. Mithraic initiates/caste system/hierarchical). Serapism was for civilians (promised afterlife salvation). Christianity was for slaves ("turn the other cheek")).
+In Egypt, Ptolemy I Soter, who was a Scythian continuation of this Sarmatian line, used religion to subjugate the vast and disparate peoples he ruled. The Alexandrian School in Egypt was his religion making factory. He was in the process of creating a universal religion and this was being achieved by gradual syncretism using local identities and blending local deities into syncretic universal savior archetypes (Interpretatio Graecae) as a transitional phase toward a universal monotheism. The Ptolemaic elites were conditioning the disparate populations they ruled into accepting the Serapis cult (sarp- is a Proto-Indo-European root meaning "serpent" as seen in Sanskrit sarpa, "snake". "Sar-Ap" translates to "Serpent-Lord" in Scythian. Sarapis might not have just been a syncretic god but a deliberate rebranding of the Sarmatian dragon cult for Egyptian and Greek audiences). This eventually evolved into Christianity (the Christogram symbolizing Jesus Christ (IHS) = "Isis-Horus-Serapis"). (*One other option is that these religions were targeted towards different castes: Mithraism was for military elites (required blood oaths. Mithraic initiates/caste system/hierarchical). Serapism was for civilians (promised afterlife salvation). Christianity was for slaves ("turn the other cheek")).
 
 Julius Caesar was Ptolemy XI Alexander II, Cleopatra's uncle, and he also took on the regional aliases of Asander, king of Bosphorus, and Pharnaces II ("Pharao-Nikes", or "Victorious Pharaoh"), among numerous other aliases. Cleopatra was also Dynamis, queen of Bosphorus. Mark Antony the Neos-Dionysos was either Ptolemy of Cyprus, a brother of Cleopatra's father Ptolemy XII Auletes (Auletes name adapts well to the Parthian Orodes (II?)) the Neos Dionysos aka Polemon (Polemos -> Ptolemy) I of Pontus aka King Herod (Egyptian: Heru (Horus) + Ud (divine) -> Herud -> "Herod") aka Tiberius Claudius Nero aka Phraates IV of Parthia (Per-aa or Per-Nesu is a corruption of Pharaoh), or he was Ptolemy XII Auletes himself (Cleopatra’s full name, Cleopatra VII Philopator, derives from the Ancient Greek 'Φιλοπάτωρ' meaning "the one who loves her father", or simply "father-loving"). She was also married to two of her brothers and her uncle as listed previously. This is how incestuous this family was. 
 
@@ -105,7 +103,7 @@ This book challenges mainstream historiography. My methodologies are: archaeolog
 -   Jesus: Likely a phonetic shift from Asar/Aesus (pronounced ah-soos)/Iset/Izates/Izas/et. al. Another option: Coins of Ptolemy XI Alexander II depict the syncretic deity Zeus-Ammon: https://harvardartmuseums.org/collections/object/170118?position=0&context=person&id=22936 Zeus-Ammon -> A-Zeus -> Aesus/Aesar. Alexander the Great was the first Zeus-Ammon (Amun-Ra).
 -   Monobazus: Sabazios is the Phrygian and Thracian version of Zeus. Ma'nu is likely a diminutive of Menneus ("son of man"), and then Manu-Sabazios becomes Monobazus. Monobazus also becomes "Bazus" or "Bar Izates" shortened to "baYZTus" (or bar YZT) through frequent oral repetition which then becomes "bOETHus". The Boethusians were a jewish priestly sect.
 -   Piso cognomen: "Appius" is a cognomen (personal name) of the Claudian family. Appius and Piso are synonymous (In Greek, Appius is rendered as Appios, from there Piso). The name Piso itself would be a form of Peisistratos/Pisistratos, the leading name of ancient Athens in Greece. (Pisistratos is a Latinized spelling of the Greek Peisistratos). It could be said that all the ruling elite of the Julio-Claudian dynasty were Pisos, including Nero who was nearly deposed by a Piso. Appius is also cognate with Arrius (through rhotacization in ancient Latin the /p/ and
--   "Sar" root (King of the Serpent): Sargon. Cesar. Asar, etc. Sar means king across empires.
+-   "Sar" root (King of the Serpent): Sargon, Akkadian šarrum, Cesar. Asar, etc. Sar means king across empires.
     
 ####  2 Ancient Alias Names List  (Chronologically Organized by Era and Dynasty)
 
@@ -138,12 +136,7 @@ III. Flavian Emperors
 - Marcion of Sinope: Markianos of Alexandria, St. Mark
 
 IV. Speculative
-- Alexander the Great: Persian prince who was the son of Artaxerxes II Memnon ("Kai Bahman") and half-brother of Darius III ("Darab"). In India he took the regional aliases of Chandragupta Maurya (Alakshandra is a Sanskritized
-    translation of Alexander and Gupta means guardian or protector in
-    Sanskrit, the exact meaning of Alexander). (See: "Alexander and
-    Chandragupta in Sanskrit Drama" by Ranajit Pal
-    https://www.academia.edu/40074507/ALEXANDER_AND_CHANDRAGUPTA_IN_A_SANSKRIT_DRAMA
-    [[link](https://www.academia.edu/40074507/ALEXANDER_AND_CHANDRAGUPTA_IN_A_SANSKRIT_DRAMA)]).
+- Alexander the Great: Scythian prince who was the son of Artaxerxes II Memnon ("Kai Bahman") and half-brother of Darius III ("Darab"). In India he took the regional aliases of Chandragupta Maurya (Alakshandra is a Sanskritized translation of Alexander and Gupta (Gup-ta) translates to "Hidden Lord" in Scythian). "Aži-ander": Aži (Avestan "dragon") + Andros (Greek "man") = "Dragon-Man". Was he also Alaksandu of Wilusa, king of Wilusa (Troy)? (Alaksandu = Alak-San-Du (Hurrian: "Ruler-Dragon-Son")).
 - Gautama Buddha (Egyptian: "Ba-Djehuti", or "Soul of Thoth"): Gaumata Bardya (Cyrus the Great's son)
 
 #### 3 Julius Caesar aka Asander of Bosphorus 
@@ -522,6 +515,8 @@ Aesus/Esus/Iesus then eventually phonetically shifted to I-zas/Izas/Izates.
 
 Fig. 1.17. Statue from classical Anatolia that is dedicated to "Esumopas Cnusticus". Esumopas means "Slave to Esus", and Esus means lord in Proto-Celtic. If you combine the Etruscan word "cnus" with the suffix "-ticus" or "-tic-" you get a word that translates to "anointed one" or "consecrated one", ie. a "Christ". So, that inscription translates to: "Slave to Lord (Esus) Christ". The "VSLM" inscription is an abbreviation for the Latin phrase "Votum Solvit Libens Merito" which translates to "He pays his vow willingly and with merit" or "He fulfills his vow with pleasure and deserving", which is often found on Roman coins and other artifacts. Esus was crucified in mythology and his symbol was an axe, so he was associated with woodcutting, forestry, carpentry. Esus was also part of a "trinity" of Gaulish gods that included Taranis, Teutates and Esus.
 
+The Esus cult was probably created to subvert the Druid Celts in Galatia. It has all the fingerprints of the Alexandrian School: year-zero (calendar starts at the deities birth), crucified diety (self-sacrifice/self-annihilation as the highest virtue), afterlife submission, etc. The fact it resembles Christianity is because it follows the same framework that all the other Alexandrian School religions do.
+
 Endnotes (chapter 7)
 
 (a) This is why all christian celebrations derive from Druidism. Druidic Calendar: Yule (Winter Solstice) - December 21/22 Celebrate the rebirth of the sun (Christian Equivalent: Christmas (December 25)). Imbolc - February 1/2 Mark the midpoint between Yule and the spring equinox (Christian Equivalent: Candlemas (February 2)). Ostara (Spring Equinox) - March 20/21 Welcome the return of spring with eggs, rabbits, and feasting (Cristian Equivalent: Easter (movable date, typically in March or April)). Beltane - May 1/2 Honor the spirits of the land and the cycles of nature (Christian Equivalent: May Day (May 1) or Ascension Day (movable date, typically in May)). Litha (Summer Solstice) - June 20/21 Celebrate the peak of the sun's power (Christian Equivalent: St. John's Day (June 24)). Lammas - July 31/August 1 Mark the beginning of harvest time (Christian Equivalent: Feast of the Transfiguration (August 6) or Lammas Sunday (movable date, typically in August)). Mabon (Autumn Equinox) - September 20/21 Celebrate the second harvest (Christian Equivalent: Michaelmas (September 29) or Harvest Festival (movable date, typically in September or October)). Samhain - October 31/November 1 Honor the ancestors (Christian Equivalent: All Saints' Eve (October 31) or All Souls' Day (November 2)).\
@@ -572,7 +567,9 @@ Endnotes (Chapter 8)
 
 _Appendix A: Alexander the Great_
 
-A non-mainstream version of history, but one that is recorded in the Persian Book of Kings, the Alexander Romance, and Islamic sources, is that Alexander the Great was a Persian prince who was the son of Artaxerxes II Memnon ("Kai Bahman") and half-brother of Darius III ("Darab"). No one today is taught that such a relationship was even remotely possible in ancient times, much less taken as gospel in certain parts of the world. Nevertheless, the case can readily be made that the little kingdom of Macedon had been part of the Persian Empire from the time of Darius the Great. In fact, the very first Persian-appointed overseer of Macedon had the Persian name Bubares son of Megabyzus (likely Cyrus the Great), and subsequent kings of Macedon are said to have descended from him. After Megabyzus (Cyrus the Great) conquered Thrace and Macedonia (ostensibly on behalf of his brother Darius the Great) he established Alexander son of Amyntas as their king. Likely, Amyntas was an assumed Macedonian name of Darius the Great. A marriage was later arranged between a son of Megabyzus/Cyrus and a daughter of Amyntas/Darius. The son of Megabyzus was prince Bupales/Harpalus. Likely, Alexander corresponds to Prince Darius/Achaemenes or one of the other sons of Darius the Great (such as Ariobarzanes/Pausanias of Sparta.
+Alexander was a Sarmatian dragon-king, Ptolemy I Soter was his biological son with Barsine (Scythian priestess) and was his dragon-born heir, and Caesar was their bloodline successor. The Persian narrative is a Flavian forgery to hide their stolen legacy. Alexander conquered Persia as vengeance for Persian enslavement of Scythia.
+ 
+In the Persian Book of Kings, the Alexander Romance, and Islamic sources, Alexander the Great is a Persian prince who was the son of Artaxerxes II Memnon ("Kai Bahman") and half-brother of Darius III ("Darab"). No one today is taught that such a relationship was even remotely possible in ancient times, much less taken as gospel in certain parts of the world. Nevertheless, the case can readily be made that the little kingdom of Macedon had been part of the Persian Empire from the time of Darius the Great. In fact, the very first Persian-appointed overseer of Macedon had the Persian name Bubares son of Megabyzus (likely Cyrus the Great), and subsequent kings of Macedon are said to have descended from him. After Megabyzus (Cyrus the Great) conquered Thrace and Macedonia (ostensibly on behalf of his brother Darius the Great) he established Alexander son of Amyntas as their king. Likely, Amyntas was an assumed Macedonian name of Darius the Great. A marriage was later arranged between a son of Megabyzus/Cyrus and a daughter of Amyntas/Darius. The son of Megabyzus was prince Bupales/Harpalus. Likely, Alexander corresponds to Prince Darius/Achaemenes or one of the other sons of Darius the Great (such as Ariobarzanes/Pausanias of Sparta.
     
 In the book the Alexander Romance, a book that has its earliest copy dating back a couple of centuries after his life, Alexander accepts mortality only after achieving complete satisfaction in his conquests. In the so-called apocryphal accounts Alexander sails up the Ganges River and reaches a kind of Paradise after the conquest of all India is complete. He is not literally granted eternal life there, but nevertheless fulfills his goal of reaching this remote and privileged locale. In the Romance, Alexander also lives to play a part in the lives of the next generation of princes, who have grown to maturity and are even married when he visits them in the south of Egypt.
 
@@ -581,8 +578,6 @@ The conqueror of the Indian sub-continent is known by a different name, Chandra-
     https://www.academia.edu/40074507/ALEXANDER_AND_CHANDRAGUPTA_IN_A_SANSKRIT_DRAMA
     [[link](https://www.academia.edu/40074507/ALEXANDER_AND_CHANDRAGUPTA_IN_A_SANSKRIT_DRAMA)]).
 
-British scholars (like William Jones) wrongly linked "Sandrocottus" (from Greek texts) to Chandragupta Maurya. Who was the real "Sandrocottus"? Seleucus I Nicator (Alexander’s general, ruler of Babylon). Chandragupta (Alexander) married Sandrocottus aka Seleucus I Nicator's daughter. Proof: Seleucus’ daughter was named "Helen"—same as Chandragupta’s queen.The Puranas describe "Saluka" (Seleucus) as a foreign ruler who married into the Mauryas. A cuneiform tablet from 305 BCE records: "The Greek king marched to India and made a treaty with the Indian king". This matches Seleucus’ treaty with Chandragupta. Sandrocottus = Sandros = "Alexander" (short form, like "Sander"), Kottos = "Cotys" (Thracian for "lord"). Thus, Sandrocottus was a title that translates to: "Lord Alexander"—a title for Seleucus I Nicator.
-
 Chandragupta Maurya/Alexander's successor in India "Bindusara" (whose name derives from Vindusara (Sanskrit: "one whose essence is poison"), a nod to the Mithridatic lineage) was either Heracles/Helios, Alexander’s son by Barsine, or Alexander IV, Alexander's son by Roxana. Bindusara = Ptolemy II Philadelphus (also Ariarathes III of Cappadocia? - "Arya-Ratha". Sanskrit: "Noble Charioteer").
 
 Alexander's successor to Bactria, Diodotus I Soter, then became the successor to Bindusara and ruled India with the regional identity of Ashoka the Great (See: "Diodotus I was Ashoka"
@@ -590,13 +585,9 @@ Alexander's successor to Bactria, Diodotus I Soter, then became the successor to
     https://www.academia.edu/695219/Diodotus_I_was_Ashoka_An_Altar_of_Alexander_Now_Standing_Near_Delhi
     [[link](https://www.academia.edu/695219/Diodotus_I_was_Ashoka_An_Altar_of_Alexander_Now_Standing_Near_Delhi)]). 
 
-Alexander = Ptolemy I Soter in Egypt. Ptolemy I Soter was married Alexanders mistress Thaïs, and his other wife Berenice had the same name as Barsine who was another mistress of Alexander. Barsine and Berenice are different forms of the Persian name Barsina. The Persian name Roshanak is translated as Barsina, so the names Barsine and Berenice are both related to the Roxana, which was the name of Alexander's Persian wife. 
-
 Mithridates I Ctistes (also known as Mithridates III of Cius) was a son of Alexander's son Heracles/Helios, who was born to Alexander and his mistress Barsine.
 
 Antiochus I Soter = Darius III, Alexander/Artaxerxes II Memnon/Chandragupta's brother.
-
-Cleopatra of Macedon (Alexander's sister) = Stateira II (his Persian wife)?
 
 Bubares (https://en.wikipedia.org/wiki/Bubares) was a Persian prince who married Alexander's sister. They had a son named Amyntas (son of Bubares) (https://en.wikipedia.org/wiki/Amyntas_(son_of_Bubares)). He was the king of the city Phrygia that was located in Galatia in classical Anatolia. Bubares, the Persian prince, was Alexander's Persian identity. Amyntas (son of Bubares) (born around 350 BCE) = Heracles/Helios (born around 350 BCE) = Mithridates I Ctistes (born around 350 BCE)?
 
