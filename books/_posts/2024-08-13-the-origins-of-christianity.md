@@ -6,7 +6,7 @@ date: 2024-08-13
 category: books
 ---
 
-The Origins of Christianity
+From Aži Dahāka to Jesus: How the Sarmatian Dragon Cult Forged Christianity
 
 By Ralph Perrier
 
@@ -37,7 +37,7 @@ _Footnotes_
 
 #### Introduction
 
-Much of what we know about history from antiquity is fabricated. The Egyptian-Persian-Indian-Greek-Roman elite were Sarmatian/Saka warlords who ruled through proxy dynasties. Egypt, Persia, India, Greece, Greece, Rome, etc., were all under the suzerainty of Aryan Iranian-Scythian elites since at least the 17th century BC.
+Much of what we know about history from antiquity is fabricated. The Egyptian-Persian-Indian-Greek-Roman elite were Sarmatian/Saka warlords who ruled through proxy dynasties. Egypt, Persia, India, Greece, Rome, etc., were all under the suzerainty of Aryan Iranian-Scythian elites since at least the 17th century BC.
 
 The Scythian tribe called the Sarmatians (also called Sauromatians ("Saur" = "Lizard/Dragon" + "Matae" = "Men/Warriors" - where the Sumerian "sar" (king) comes from) were a nomadic Indo-Iranian warrior elite from the Pontic steppe (modern Ukraine/Russia). The domestication of the horse and invention of the chariot allowed them to travel vast distances. They were a priesthood of dragon/serpent-worshipping kings.
 
@@ -58,7 +58,7 @@ The Mitanni exercised hegemony over a pan-Eurasian empire. The Hittites aka Nesh
 
 The eruption of Thera (Santorini) around 1600 BCE destroyed the ancient economy and led the the eventual collapse of the Bronze Age and the fragmentation of Scythian hegemony. It led to the Hyksos expulsion from Egypt, civil strife, and Assyria rising up under the Chaldean priests (the Kalani, the Jews). Jews called all of them Ashkenaz meaning Scythian. Khazaria is the former territory of the Scythians is why they got that name (Ashkenazi).
 
-The Sea Peoples were the revenge against Babylon, Hittites and Egypt after the Mitanni were exiled.
+The Sea Peoples were the revenge against Babylon, Hittites, and Egypt after the Mitanni were exiled.
 
 The Hyksos descendants then re-emerged in Persia and Anatolia, later reclaiming Egypt under the Achaemenid Period (525 BCE).
 
@@ -90,7 +90,7 @@ The "Chi-Rho" (☧) symbol of Constantine was not Christian—it was the Sarmati
 
 In Sarmatian, "Ruma" (Rome) = "Place of the Dragon" (Rhu-Ma, from Aži Dahāka, the Iranian dragon).
 
-In Egypt, Ptolemy I Soter, who was a Scythian-Iranian continuation of this Sarmatian line, began using religion to subjugate the vast and disparate peoples he ruled. The Alexandrian School in Egypt was his religion making factory. He was in the process of creating a universal religion and this was being achieved by gradual syncretism using local identities and blending local deities into syncretic universal savior archetypes (Interpretatio Graecae) as a transitional phase toward a universal monotheism. The Ptolemaic elites were conditioning the disparate populations they ruled into accepting the Serapis cult (sarp- is a Proto-Indo-European root meaning "serpent" as seen in Sanskrit sarpa, "snake". "Sar-Ap" translates to "Serpent-Lord" in Scythian. Sarapis might not have just been a syncretic god but a deliberate rebranding of the Sarmatian dragon cult for Egyptian and Greek audiences). This eventually evolved into Christianity (the Christogram symbolizing Jesus Christ (IHS) = "Isis-Horus-Serapis"). (*One other option is that these religions were targeted towards different castes: Mithraism was for military elites (required blood oaths. Mithraic initiates/caste system/hierarchical). Serapism was for civilians (promised afterlife salvation). Christianity was for slaves ("turn the other cheek")).
+In Egypt, Ptolemy I Soter, who was a Scythian-Iranian continuation of this Sarmatian line, used religion to subjugate the vast and disparate peoples he ruled. The Alexandrian School in Egypt was his religion making factory. He was in the process of creating a universal religion and this was being achieved by gradual syncretism using local identities and blending local deities into syncretic universal savior archetypes (Interpretatio Graecae) as a transitional phase toward a universal monotheism. The Ptolemaic elites were conditioning the disparate populations they ruled into accepting the Serapis cult (sarp- is a Proto-Indo-European root meaning "serpent" as seen in Sanskrit sarpa, "snake". "Sar-Ap" translates to "Serpent-Lord" in Scythian. Sarapis might not have just been a syncretic god but a deliberate rebranding of the Sarmatian dragon cult for Egyptian and Greek audiences). This eventually evolved into Christianity (the Christogram symbolizing Jesus Christ (IHS) = "Isis-Horus-Serapis"). (*One other option is that these religions were targeted towards different castes: Mithraism was for military elites (required blood oaths. Mithraic initiates/caste system/hierarchical). Serapism was for civilians (promised afterlife salvation). Christianity was for slaves ("turn the other cheek")).
 
 Julius Caesar was Ptolemy XI Alexander II, Cleopatra's uncle, and he also took on the regional aliases of Asander, king of Bosphorus, and Pharnaces II ("Pharao-Nikes", or "Victorious Pharaoh"), among numerous other aliases. Cleopatra was also Dynamis, queen of Bosphorus. Mark Antony the Neos-Dionysos was either Ptolemy of Cyprus, a brother of Cleopatra's father Ptolemy XII Auletes (Auletes name adapts well to the Parthian Orodes (II?)) the Neos Dionysos aka Polemon (Polemos -> Ptolemy) I of Pontus aka King Herod (Egyptian: Heru (Horus) + Ud (divine) -> Herud -> "Herod") aka Tiberius Claudius Nero aka Phraates IV of Parthia (Per-aa or Per-Nesu is a corruption of Pharaoh), or he was Ptolemy XII Auletes himself (Cleopatra’s full name, Cleopatra VII Philopator, derives from the Ancient Greek 'Φιλοπάτωρ' meaning "the one who loves her father", or simply "father-loving"). She was previously married to two of her brothers and her uncle as listed previously. This is how incestuous this family was. 
 
@@ -113,7 +113,7 @@ Note on aliases: I believe that the Ptolemaic elites in antiquity role-played as
 I. Ptolemaic & Bosphoran Dynasty
 - Julius Caesar: Ptolemy XI Alexander II, Asander, King of Bosphorus (Philocaesar Philoromaios, Soter, Great King of Kings, "As" in his name refers to Asar(Osiris)/Aesar/Aeser/Aisar/Ais/Is), Pharnaces II, Brogitarix
 - Cleopatra VII (Isis who in mythology was the wife of Osiris and the mother of Horus): Dynamis Ourania (Aphrodite Urania), Pythodorida Philometor
-- Mark Antony (Neos Dionysos): King Herod, Tiberius Claudius Nero, Phraates IV, Polemon I.
+- Mark Antony (Marcus Antonius = Mar (Phoenician "lord") + Anton (from Antaeus, giant son of Gaia)): King Herod, Tiberius Claudius Nero, Phraates IV, Polemon I.
 
 II. Herodian & Flavian Dynasty
 - Alexander (son of Herod): Juba II.
@@ -147,7 +147,7 @@ IV. Speculative
 
 #### 3 Julius Caesar aka Asander of Bosphorus 
 
-There was a Byzantine [^1] imperial cult where Julius Caesar [^2] took on the role of Asander (also Asandros), King of Bosphorus [^3] ("Asa" means "lord" in Thracian and Celtic, and "andros" means "man" or "son of man" in Greek. Jesus is referred to as "the son of man" 81 times in the four canonical gospels. Asandros can also be interpreted as "son of the lord" or "son of Asa, the lord". The Thracian version of Zeus was Asa, the Celtic was Esus/Hesus (Esus becomes Aesus, pronounced ah-soos. There was no J in ancient Latin, so Jesus was pronounced ah-soos as well). The Etruscan word "Aesar" (also spelled "Aeser" or "Aisar" which likely derives from the Egyptian "Asar" which was another name for Osiris), from which Asa may also derive, means "god" or "divine". Asandros can also translate to either "son of god", or "son of Lord Aesar/Asar(Osiris)". The Greek language often added the prefix "K" to words borrowed from other languages, so Aesar ("god") -> Greek Kaesar -> Latin Caesar. Cleopatra used the regional alias of Dynamis Ourania [^4] (translating to 'heavenly power'), queen of the Bosporus. Cimmerian Bosporus approximates to modern-day Crimea in southern Ukraine (see also: Jesus Christ Was Born in Crimea by Anatoly Fomenko).
+There was a Byzantine [^1] imperial cult where Julius Caesar [^2] took on the role of Asander (also Asandros), King of Bosphorus [^3] ("Asa" means "lord" in Thracian and Celtic, and "andros" means "man" or "son of man" in Greek. Jesus is referred to as "the son of man" 81 times in the four canonical gospels. Asandros can also be interpreted as "son of the lord" or "son of Asa, the lord". The Thracian version of Zeus was Asa, the Celtic was Esus/Hesus (Esus becomes Aesus, pronounced ah-soos. There was no J in ancient Latin, so Jesus was pronounced ah-soos as well). The Etruscan word "Aesar" (also spelled "Aeser" or "Aisar" which likely derives from the Egyptian "Asar" which was another name for Osiris), from which Asa may also derive, means "god" or "divine". Asandros can also translate to either "son of god", or "son of Lord Aesar/Asar (Osiris)". The Greek language often added the prefix "K" to words borrowed from other languages, so Aesar ("god") -> Greek Kaesar -> Latin Caesar. Cleopatra used the regional alias of Dynamis Ourania [^4] (translating to 'heavenly power'), queen of the Bosporus. Cimmerian Bosporus approximates to modern-day Crimea in southern Ukraine (see also: Jesus Christ Was Born in Crimea by Anatoly Fomenko).
 
 ![Fig.1.2](/images/caesarstar.jpg){:width="400px"}
 
