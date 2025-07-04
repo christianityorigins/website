@@ -1,7 +1,7 @@
 ---
 layout: default
 open_links_in_new_tab: true
-title: "The Origins of Christianity"
+title: "From Aži Dahāka to Jesus: How the Sarmatian Dragon Cult Forged Christianity"
 date: 2024-08-13
 category: books
 ---
