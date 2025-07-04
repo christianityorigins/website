@@ -1,13 +1,13 @@
 ---
 layout: default
 open_links_in_new_tab: true
-title: "From Aži Dahāka to Jesus: How the Sarmatian Dragon Cult Forged Christianity"
+title: "The Sarmatian Dragon Cult: Aži Dahāka as the Proto-Christ"
 date: 2024-08-13
 category: books
 ---
 
-From Aži Dahāka to Jesus: How the Sarmatian Dragon Cult Forged Christianity
-
+The Sarmatian Dragon Cult: Aži Dahāka as the Proto-Christ
+ 
 By Ralph Perrier
 
 *I will not presume to speak of anything except what Christ has
@@ -84,7 +84,7 @@ Sargon of Akkad = "Sharru-Kin" (Scythian for "True King of the Bow"). "Sharru" =
     
 The Ptolemaic Egyptians (Ptolemaios  - the root "ptol" resembling the Indo-Iranian term for warrior-kings (e.g., Parthian pat, "lord"), or Scythian Patala (horse lords), were the continuation of this bloodline. 
 
-All ancient Mediterranean religions from antiquity derive from the Sythian serpent-dragon worshiping religions (see: the Zoroastrian Indo-Iranian dragon deity Aži Dahāka later syncretized with Mithra, and the Dacian and Roman Draco standards).
+All ancient Mediterranean religions from antiquity derive from the Sythian serpent-dragon worshiping religions (see: the Zoroastrian Indo-Iranian dragon deity Aži Dahāka later syncretized with Mithra, and the Dacian and Roman Draco standards, Greek ophis as in Ophites, the serpent-worshipping Gnostics).
 
 The "Chi-Rho" (☧) symbol of Constantine was not Christian—it was the Sarmatian Draco coiled around a solar cross.
 
