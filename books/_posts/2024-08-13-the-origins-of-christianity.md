@@ -37,7 +37,7 @@ _Footnotes_
 
 Much of what we know about history from antiquity is fabricated. The Egyptian-Persian-Indian-Greek-Roman elite were Sarmatian/Saka warlords who ruled through proxy dynasties. Egypt, Persia, India, Greece, Rome, etc., were all under the suzerainty of Aryan Iranian-Scythian elites since at least the 17th century BC.
 
-The Scythian tribe called the Sarmatians (also called Sauromatians ("Saur" = "Lizard/Dragon" + "Matae" = "Men/Warriors" - where the Sumerian "sar" (king) comes from) were a nomadic Indo-Iranian warrior elite from the Pontic steppe (modern Ukraine/Russia). The domestication of the horse and invention of the chariot allowed them to travel vast distances. They were a priesthood of dragon/serpent-worshipping kings (Aži Dahāka (Zoroastrianism) = Typhon (Greek) = Vritra (Vedic) = Tiamat (Babylonian)).
+The Scythian tribe called the Sarmatians (also called Sauromatians ("Saur" = "Lizard/Dragon" + "Matae" = "Men/Warriors" - where the Sumerian "sar" (king) comes from) were a nomadic Indo-Iranian warrior elite from the Pontic steppe (modern Ukraine/Russia). The domestication of the horse and invention of the chariot allowed them to travel vast distances. They were a priesthood of dragon/serpent-worshipping kings (Papaios (Scythian) = Apep/Apophis (Egypt) = Aži Dahāka (Zoroastrianism) = Typhon (Greek) = Vritra (Vedic) = Tiamat (Babylonian)).
 
 Timeline:
 
@@ -82,7 +82,7 @@ Sargon of Akkad = "Sharru-Kin" (Scythian for "True King of the Bow"). "Sharru" =
     
 The Ptolemaic Egyptians (Ptolemaios  - the root "ptol" resembling the Indo-Iranian term for warrior-kings (e.g., Parthian pat, "lord"), or Scythian Patala (horse lords), were the continuation of this bloodline. 
 
-All ancient Mediterranean religions from antiquity derive from the Sythian serpent-dragon worshiping religions (see: the Zoroastrian Indo-Iranian dragon deity Aži Dahāka later syncretized with Mithra, and the Dacian and Roman Draco standards, Greek ophis as in Ophites, the serpent-worshipping Gnostics).
+All ancient Mediterranean religions from antiquity derive from the Sythian serpent-dragon worshiping religions (see: the Egyptian deity Apep/Apophis, Zoroastrian Indo-Iranian dragon deity Aži Dahāka later syncretized with Mithra, and the Dacian and Roman Draco standards, Greek ophis as in Ophites, the serpent-worshipping Gnostics).
 
 The "Chi-Rho" (☧) symbol of Constantine was not Christian—it was the Sarmatian Draco coiled around a solar cross.
 
@@ -103,7 +103,7 @@ This book challenges mainstream historiography. My methodologies are: archaeolog
 -   Jesus: Likely a phonetic shift from Asar/Aesus (pronounced ah-soos)/Iset/Izates/Izas/et. al. Another option: Coins of Ptolemy XI Alexander II depict the syncretic deity Zeus-Ammon: https://harvardartmuseums.org/collections/object/170118?position=0&context=person&id=22936 Zeus-Ammon -> A-Zeus -> Aesus/Aesar. Alexander the Great was the first Zeus-Ammon (Amun-Ra).
 -   Monobazus: Sabazios is the Phrygian and Thracian version of Zeus. Ma'nu is likely a diminutive of Menneus ("son of man"), and then Manu-Sabazios becomes Monobazus. Monobazus also becomes "Bazus" or "Bar Izates" shortened to "baYZTus" (or bar YZT) through frequent oral repetition which then becomes "bOETHus". The Boethusians were a jewish priestly sect.
 -   Piso cognomen: "Appius" is a cognomen (personal name) of the Claudian family. Appius and Piso are synonymous (In Greek, Appius is rendered as Appios, from there Piso). The name Piso itself would be a form of Peisistratos/Pisistratos, the leading name of ancient Athens in Greece. (Pisistratos is a Latinized spelling of the Greek Peisistratos). It could be said that all the ruling elite of the Julio-Claudian dynasty were Pisos, including Nero who was nearly deposed by a Piso. Appius is also cognate with Arrius (through rhotacization in ancient Latin the /p/ and
--   "Sar" root (King of the Serpent): Sargon, Akkadian šarrum, Cesar. Asar, etc. Sar means king across empires.
+-   "Sar" root (King of the Serpent): Sargon, Sarlagab, Akkadian šarrum, Cesar. Asar, etc. Sar means king across empires.
     
 ####  2 Ancient Alias Names List  (Chronologically Organized by Era and Dynasty)
 
@@ -136,7 +136,7 @@ III. Flavian Emperors
 - Marcion of Sinope: Markianos of Alexandria, St. Mark
 
 IV. Speculative
-- Alexander the Great: Scythian prince who was the son of Artaxerxes II Memnon ("Kai Bahman") and half-brother of Darius III ("Darab"). In India he took the regional aliases of Chandragupta Maurya (Alakshandra is a Sanskritized translation of Alexander and Gupta (Gup-ta) translates to "Hidden Lord" in Scythian). "Aži-ander": Aži (Avestan "dragon") + Andros (Greek "man") = "Dragon-Man". Was he also Alaksandu of Wilusa, king of Wilusa (Troy)? (Alaksandu = Alak-San-Du (Hurrian: "Ruler-Dragon-Son")). Aži-Sandar also = "Dragon King" in Mittani and Old Persian.
+- Alexander the Great: Scythian prince who was the son of Artaxerxes II Memnon ("Kai Bahman") and half-brother of Darius III ("Darab"). In India he took the regional aliases of Chandragupta Maurya (Alakshandra is a Sanskritized translation of Alexander and Gupta (Gup-ta) translates to "Hidden Lord" in Scythian). "Aži-ander": Aži (Avestan "dragon") + Andros (Greek "man") = "Dragon-Man". Was he also Alaksandu of Wilusa, king of Wilusa (Troy)? (Alaksandu = Alak-San-Du (Hurrian: "Ruler-Dragon-Son")). Aži-Sandar also = "Dragon King" in Mittani and Old Persian. Alexander's mother Olympias claimed to have been impregnanted by the god Zeus Ammon disguised as a dragon.
 - Gautama Buddha (Egyptian: "Ba-Djehuti", or "Soul of Thoth"): Gaumata Bardya (Cyrus the Great's son)
 
 #### 3 Julius Caesar aka Asander of Bosphorus 
