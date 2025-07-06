@@ -54,7 +54,7 @@ Timeline:
 
 The Mitanni exercised hegemony over a pan-Eurasian empire. The Hittites aka Neshians were one enforcement arm for the Mitanni. They ruled by military dominance (chariots, cavalry, mercenaries), installing puppet kings (often their own bloodline), controlling trade routes (Silk Road, Black Sea, Pontic Steppe), and through enforcing religious syncretism.
 
-The eruption of Thera (Santorini) around 1600 BCE triggered a volcanic winter that was recorded all the way in China. This destroyed the ancient economy and led the the eventual collapse of the Bronze Age and the fragmentation of Scythian hegemony. It led to the Hyksos expulsion from Egypt, civil strife, and Assyria rising up under the Chaldean priests (the Kalani, the Jews). Jews called all of them Ashkenaz meaning Scythian (Josephus. Vol. 5: Antiquities: 8:2:5, pp. 593-595). Khazaria is the former territory of the Scythians is why they got that name (Ashkenazi).
+The eruption of Thera (Santorini) around 1600 BCE triggered a volcanic winter that was recorded all the way in China. This destroyed the ancient economy and causes continual stripe that and was one cause of the eventual collapse of the Bronze Age and the fragmentation of Scythian hegemony. It led to the Hyksos expulsion from Egypt, civil strife, and Assyria rising up under the Chaldean priests (the Kalani, the Jews). Jews called all of them Ashkenaz meaning Scythian (Josephus. Vol. 5: Antiquities: 8:2:5, pp. 593-595). Khazaria is the former territory of the Scythians is why they got that name (Ashkenazi).
 
 The Sea Peoples were the revenge against Babylon, Hittites, and Egypt after the Mitanni were exiled.
 
@@ -93,6 +93,10 @@ In Egypt, Ptolemy I Soter, who was a Scythian continuation of this Sarmatian lin
 Julius Caesar was Ptolemy XI Alexander II, Cleopatra's uncle, and he also took on the regional aliases of Asander, king of Bosphorus, and Pharnaces II ("Pharao-Nikes", or "Victorious Pharaoh"), among numerous other aliases. Cleopatra was also Dynamis, queen of Bosphorus. Mark Antony the Neos-Dionysos was either Ptolemy of Cyprus, a brother of Cleopatra's father Ptolemy XII Auletes (Auletes name adapts well to the Parthian Orodes (II?)) the Neos Dionysos aka Polemon (Polemos -> Ptolemy) I of Pontus aka King Herod (Egyptian: Heru (Horus) + Ud (divine) -> Herud -> "Herod") aka Tiberius Claudius Nero aka Phraates IV of Parthia (Per-aa or Per-Nesu is a corruption of Pharaoh), or he was Ptolemy XII Auletes himself (Cleopatra’s full name, Cleopatra VII Philopator, derives from the Ancient Greek 'Φιλοπάτωρ' meaning "the one who loves her father", or simply "father-loving"). She was also married to two of her brothers and her uncle as listed previously. This is how incestuous this family was. 
 
 This book challenges mainstream historiography. My methodologies are: archaeological and numismatic evidence, linguistic and etymological analysis, and historical correlation and timeline analysis. The sources that inspired my work are listed in the 'Further reading' section at the end of the book. 
+
+Footnotes (Introduction)
+
+(a) The eruption of Thera (Santorini) was one factor in destroying the Scythian steppe warriors hegemony, but the biggest cause was a cannibus cult that stripped them of their warrior ethos (https://en.wikipedia.org/wiki/Enaree). Marijuanna turned them from fearless warriors into potheads who were led by transgender priests. 
 
 #### 1 Name and Title Meanings
 
