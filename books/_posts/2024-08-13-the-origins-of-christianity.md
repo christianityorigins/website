@@ -136,7 +136,7 @@ III. Flavian Emperors
 - Marcion of Sinope: Markianos of Alexandria, St. Mark
 
 IV. Speculative
-- Alexander the Great: Scythian prince who was the son of Artaxerxes II Memnon ("Kai Bahman") and half-brother of Darius III ("Darab"). In India he took the regional aliases of Chandragupta Maurya (Alakshandra is a Sanskritized translation of Alexander and Gupta (Gup-ta) translates to "Hidden Lord" in Scythian). "Aži-ander": Aži (Avestan "dragon") + Andros (Greek "man") = "Dragon-Man". Was he also Alaksandu of Wilusa, king of Wilusa (Troy)? (Alaksandu = Alak-San-Du (Hurrian: "Ruler-Dragon-Son")). Aži-Sandar also = "Dragon King" in Mittani and Old Persian. Alexander's mother Olympias claimed to have been impregnanted by the god Zeus Ammon disguised as a dragon.
+- Alexander the Great: Scythian prince who was the son of Artaxerxes II Memnon ("Kai Bahman") and half-brother of Darius III ("Darab"). In India he took the regional aliases of Chandragupta Maurya (Alakshandra is a Sanskritized translation of Alexander and Gupta (Gup-ta) translates to "Hidden Lord" in Scythian). "Aži-ander": Aži (Avestan "dragon") + Andros (Greek "man") = "Dragon-Man". Was he also Alaksandu of Wilusa, king of Wilusa (Troy)? (Alaksandu = Alak-San-Du (Hurrian: "Ruler-Dragon-Son")). Aži-Sandar also = "Dragon King" in Mittani and Old Persian. Alexander's mother Olympias, who was a Scythian princess of the Molossian tribe, claimed to have been impregnanted by the god Zeus Ammon disguised as a dragon.
 - Gautama Buddha (Egyptian: "Ba-Djehuti", or "Soul of Thoth"): Gaumata Bardya (Cyrus the Great's son)
 
 #### 3 Julius Caesar aka Asander of Bosphorus 
