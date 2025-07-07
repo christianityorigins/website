@@ -1,55 +1,44 @@
 ---
 layout: post
 open_links_in_new_tab: true
-title:  "Secular Paganism Handbook"
+title:  "Monist Handbook"
 date:   2016-05-01 09:00:00 +0200
 category: blog
 ---
 
 CONTENTS
 
-1 Definitions\
-2 Polytheistic Cosmology \
-2.1 Secular Polytheism \
-2.2 Carl Jung \
-3 Core Beliefs \
-4 Practices and Rituals \
-5 Footnotes
+1 Monism\
+2 Types of Monism \
+3 Scientific Basis \
+4 Beliefs \
+5 Rituals
 
-1 Definitions
+1 Monism
 
-"Pagan" (Latin: pāgānus, 'rural') was supposed to be a slur that was invented by the catholic church to apply to every non-xtian religion but has since been reappropriated as a general term. Specific ethnic "Pagan" polytheistic religions are: Heathenry is Germanic Paganism ("Asatru" is one of the religions that fall under the Heathenry category). Fyrnsidu is Brittonic Paganism. Druidry is Celtic Paganism. Hellenism is Greek Paganism. Religio Romana is Roman Paganism. Rodnovery is Slavic Paganism. Romuva is Baltic Paganism, etc. (despite the different regional names all European Pagan deities are similar. For example, Dyaus Pita (Vedic), Zeus (Greek), Jupiter (Roman), Odin (Nordic), Wotan (German), Esus (Celtic), Wotanaz (Slavic), Ukko and Väinämöinen (Finnish), and so on are all derived from the Aryan allfather Dyeus Pter which translates to Sky Father. The name Zeus comes from the pronunciation of Dyeus, and Jupiter comes from the pronunciation of 'Dyeus Pter'. Wotan is derived from Proto-Germanic Wodanaz, which itself comes from the Proto-Indo-European root Dyeus. Odin comes from Old Norse and is related to the earlier Proto-Germanic Wodanaz). 
+Monism is the philosophical view that all of reality is ultimately one, or that reality is fundamentally unified and that all things are interconnected through a single underlying essence or principle (i.e. materialist/agnostic monists believe this to be energy or matter). Everything in the universe is then seen as emanations or manifestations of this ultimate reality.
 
-2 Polytheistic Cosmology 
+Monist religions are: Pythagorianism, Stocism, Platonism, Druidism, Vedism, Sufi Islam (Wahdat al-Wujud" which translates to "the unity of existence" or "the oneness of being").
 
-In general, most polytheistic religious followers fall into two categories: 1)they see the polytheistic deities as sentient personal gods, or 2)they see the polytheistic deities as allegorical personifications/emanations/symbolic representations of natural forces (numen/animism). 
+2 Types of Monism 
 
-2.1 Secular Polytheism
+There are different types of monism: materialistic monists (all is matter) believe that everything is made of matter, and even things like thoughts or consciousness are just products of physical processes. This view aligns with atheism. Idealistic monism (all is mind) is the opposite, where everything is fundamentally mental or spiritual, and the physical world is a manifestation of mind or consciousness. Neutral monism (a mix of both) posits that there's a single substance or principle from which both mind and matter arise, but it's neither purely mental nor purely physical. 
 
-But secular paganism is a new movement that is growing rapidly. Atheists join Pagan groups for a sense of community, social network, shared culture, and connection to their ancestry. These Pagans don't worship a particular thing, they just appreciate the unity of existence, or seek to understand the ultimate nature of reality. Ancestor veneration is the only worship they do. 
+3 Scientific Basis
 
-2.2 Carl Jung
+The scientific basis for monism lies in the concept of unity and interconnectedness, where everything is composed of the same fundamental building blocks, such as atoms and subatomic particles. This idea is supported by various scientific theories, including Quantum Field Theory, String Theory, Loop Quantum Gravity, and Causal Dynamical Triangulation, which suggest that the universe is ultimately made up of a single, underlying substance or reality. As a result, monism can be seen as a logical and coherent system that transcends religious or spiritual beliefs, making it accessible to even atheists who can appreciate the unity and simplicity of the natural world, without necessarily invoking supernatural or divine entities. \
 
-Many modern secular polytheistic Pagans (1) are inspired by Carl Jung who combined psychoanalysis with Heathenry. The polytheistic deities = 'archetypes (2) of the collective unconscious (3)' to these Pagans.
+4 Beliefs
 
-3 Core Beliefs
+in monist religions, monist cosmology posits that all phenomena reduces to one principle and the universe is composed of a single fundamental substance. This means that the divine is not a separate and transcendent entity but rather an inherent aspect of the universe, and humans are not separate from the divine but rather an unfolding or manifestation of it. Therefore, in monist cosmologies, self-realization or self-actualization is often seen as the process of recognizing and embodying one's true nature as an expression of the divine. This can be seen as a form of self-deification.
 
-In Pagan religions, beliefs revolve around ancestor veneration, animism, and the belief in spirits inhabiting natural elements are common themes.
+Core Idea: You’re a piece of the cosmic puzzle, not a stranger to it. The divine is in everything; self-awareness is key.  
 
-4 Practices and Rituals
+5 Rituals
 
-In polytheistic religions, rituals are centered around the worship of multiple deities, each often associated with specific aspects of nature, human experience, and societal functions.  To secular Pagans who are inspired by Carl Jung, rituals are ways of inducing 'active imagination' (4) or a part of the process of 'individuation' (5).
-
-5 Footnotes
-
-1\. https://en.wikipedia.org/wiki/Secular_paganism [link] \
-2\. https://en.wikipedia.org/wiki/Jungian_archetypes [link] \
-3\. https://en.wikipedia.org/wiki/Collective_unconscious [link] \
-4\. https://en.wikipedia.org/wiki/Active_imagination#Carl_Gustav_Jung [link] \
-5\. https://en.wikipedia.org/wiki/Individuation#Carl_Jung [link] \
+In monist religions, rituals are about bringing someone to self-realization. For example, rituals like yoga, meditation, self-inquiry, and mantra recitation are used to help the individual realize their true nature as a manifestation of the divine. The goal is to awaken the individual's inner divinity and is aimed at helping the individual realize their true nature as the ultimate reality.
 
 Read more 
 
-https://ecer-org.eu <a href="http://ecer-org.eu" target="_blank">[link]</a> \
-https://en.wikipedia.org/wiki/Category:Modern_pagan_organizations_by_country <a href="https://en.wikipedia.org/wiki/Category:Modern_pagan_organizations_by_country" target="_blank">[link]</a>\
-https://archive.org/details/carl-jung-on-wotan_20230629 <a href="https://archive.org/details/carl-jung-on-wotan_20230629" target="_blank">[link]</a> 
+https://en.metapedia.org/wiki/Cosmotheism <a href="https://en.metapedia.org/wiki/Cosmotheism" target="_blank">[link]</a> \
+https://en.metapedia.org/wiki/Category:Cosmotheist_lectures <a href="https://en.metapedia.org/wiki/Category:Cosmotheist_lectures" target="_blank">[link]</a>
