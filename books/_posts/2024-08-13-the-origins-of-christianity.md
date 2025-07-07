@@ -54,7 +54,7 @@ Timeline:
 
 The Mitanni exercised hegemony over a pan-Eurasian empire. The Hittites aka Neshians were one enforcement arm for the Mitanni. They ruled by military dominance (chariots, cavalry, mercenaries), installing puppet kings (often their own bloodline), controlling trade routes (Silk Road, Black Sea, Pontic Steppe), and through enforcing religious syncretism.
 
-The eruption of Thera (Santorini) around 1600 BCE triggered a volcanic winter that was recorded all the way in China. This destroyed the ancient economy and causes continual stripe that and was one cause of the eventual collapse of the Bronze Age and the fragmentation of Scythian hegemony. It led to the Hyksos expulsion from Egypt, civil strife, and Assyria rising up under the Chaldean priests (the Kalani, the Jews). Jews called all of them Ashkenaz meaning Scythian (Josephus. Vol. 5: Antiquities: 8:2:5, pp. 593-595). Khazaria is the former territory of the Scythians is why they got that name (Ashkenazi).
+The eruption of Thera (Santorini) around 1600 BCE triggered a volcanic winter that was recorded all the way in China. This destroyed the ancient economy and caused continual strife and this was one of the causes of the eventual collapse of the Bronze Age and the fragmentation of Scythian hegemony. It also led to the Hyksos expulsion from Egypt and Assyria rising up under the Chaldean priests (the Kalani, the Jews). Jews called all of them Ashkenaz meaning Scythian (Josephus. Vol. 5: Antiquities: 8:2:5, pp. 593-595). Khazaria is the former territory of the Scythians is why they got that name (Ashkenazi).
 
 The Sea Peoples were the revenge against Babylon, Hittites, and Egypt after the Mitanni were exiled.
 
