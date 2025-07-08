@@ -107,7 +107,7 @@ Footnotes (Introduction)
 -   Jesus: Likely a phonetic shift from Asar/Aesus (pronounced ah-soos)/Iset/Izates/Izas/et. al. Another option: Coins of Ptolemy XI Alexander II depict the syncretic deity Zeus-Ammon: https://harvardartmuseums.org/collections/object/170118?position=0&context=person&id=22936 Zeus-Ammon -> A-Zeus -> Aesus/Aesar. Alexander the Great was the first Zeus-Ammon (Amun-Ra).
 -   Monobazus: Sabazios is the Phrygian and Thracian version of Zeus. Ma'nu is likely a diminutive of Menneus ("son of man"), and then Manu-Sabazios becomes Monobazus. Monobazus also becomes "Bazus" or "Bar Izates" shortened to "baYZTus" (or bar YZT) through frequent oral repetition which then becomes "bOETHus". The Boethusians were a jewish priestly sect.
 -   Piso cognomen: "Appius" is a cognomen (personal name) of the Claudian family. Appius and Piso are synonymous (In Greek, Appius is rendered as Appios, from there Piso). The name Piso itself would be a form of Peisistratos/Pisistratos, the leading name of ancient Athens in Greece. (Pisistratos is a Latinized spelling of the Greek Peisistratos). It could be said that all the ruling elite of the Julio-Claudian dynasty were Pisos, including Nero who was nearly deposed by a Piso. Appius is also cognate with Arrius (through rhotacization in ancient Latin the /p/ and
--   "Sar" root (King of the Serpent): Sargon, Sarlagab, Akkadian šarrum, Cesar. Asar, etc. Sar means king across empires.
+-   "Sar" root (King of the Serpent): Sargon, Sarlagab, Akkadian šarrum, Cesar. Asar, Tsar, etc. Sar means king across empires.
     
 ####  2 Ancient Alias Names List  (Chronologically Organized by Era and Dynasty)
 
@@ -140,7 +140,7 @@ III. Flavian Emperors
 - Marcion of Sinope: Markianos of Alexandria, St. Mark
 
 IV. Speculative
-- Alexander the Great: Scythian prince who was the son of Artaxerxes II Memnon ("Kai Bahman") and half-brother of Darius III ("Darab"). In India he took the regional aliases of Chandragupta Maurya (Alakshandra is a Sanskritized translation of Alexander and Gupta (Gup-ta) translates to "Hidden Lord" in Scythian). "Aži-ander": Aži (Avestan "dragon") + Andros (Greek "man") = "Dragon-Man". Alaksandu of Wilusa, a Hittie king of Wilusa (Troy) (Alaksandu = Alak-San-Du (Hurrian: "Ruler-Dragon-Son")) who predates Alexander by 800 years, proves that the name Alexander was a Scythian title for kings. Aži-Sandar also = "Dragon King" in Mittani and Old Persian. Alexander's mother Olympias, who was a Scythian princess of the Molossian tribe, claimed to have been impregnanted by the god Zeus Ammon disguised as a dragon.
+- Alexander the Great: Scythian prince who was the son of Artaxerxes II Memnon ("Kai Bahman") and half-brother of Darius III ("Darab"). In India he took the regional aliases of Chandragupta Maurya (Alakshandra is a Sanskritized translation of Alexander and Gupta (Gup-ta) translates to "Hidden Lord" in Scythian). "Aži-ander": Aži (Avestan "dragon") + Andros (Greek "man") = "Dragon-Man". Alaksandu of Wilusa, a Hittie king of Wilusa (Troy) (Alaksandu = Alak-San-Du (Hurrian: "Ruler-Dragon-Son")), who predates Alexander by 800 years, proves that the name Alexander was a Scythian title for kings. Aži-Sandar also = "Dragon King" in Mittani and Old Persian. Alexander's mother Olympias, who was a Scythian princess of the Molossian tribe, claimed to have been impregnanted by the god Zeus Ammon disguised as a dragon.
 - Gautama Buddha (Egyptian: "Ba-Djehuti", or "Soul of Thoth"): Gaumata Bardya (Cyrus the Great's son)
 
 #### 3 Julius Caesar aka Asander of Bosphorus 
