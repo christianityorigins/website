@@ -21,23 +21,23 @@ Cosmotheism is the philosophical and spiritual view that the universe itself is 
 
 There are different interpretations of cosmotheism:
 
--Naturalistic Cosmotheism: This view sees the universe as a natural phenomenon, emphasizing the interconnectedness of all things without invoking supernatural elements. It aligns closely with scientific naturalism and can resonate with atheistic perspectives.
+-Naturalistic cosmotheism: This view sees the universe as a natural phenomenon, emphasizing the interconnectedness of all things without invoking supernatural elements. It aligns closely with scientific naturalism and can resonate with atheistic perspectives.
   
--Spiritual Cosmotheism: This interpretation embraces a more mystical view, suggesting that the universe is imbued with a divine consciousness. It emphasizes the spiritual dimensions of existence and the idea that the cosmos is a manifestation of a greater divine reality.
+-Spiritual cosmotheism: This interpretation embraces a more mystical view, suggesting that the universe is imbued with a spiritual dimension, or a divine consciousness. It emphasizes the spiritual dimensions of existence and the idea that the cosmos is a manifestation of a greater divine reality.
 
 3 Scientific Basis
 
-The scientific basis for Cosmotheism lies in the concept of unity and interconnectedness, where everything is composed of the same fundamental building blocks, such as atoms and subatomic particles. This idea is supported by various scientific theories, including Quantum Field Theory, String Theory, Loop Quantum Gravity, and Causal Dynamical Triangulation, which suggest that the universe is ultimately made up of a single, underlying substance or reality. As a result, monism can be seen as a logical and coherent system that transcends religious or spiritual beliefs, making it accessible to even atheists who can appreciate the unity and simplicity of the natural world, without necessarily invoking supernatural or divine entities. \
+The scientific basis for cosmotheism lies in the concept of unity and interconnectedness, where everything is composed of the same fundamental building blocks, such as atoms and subatomic particles. This idea is supported by various scientific theories, including Quantum Field Theory, String Theory, Loop Quantum Gravity, and Causal Dynamical Triangulation, which suggest that the universe is ultimately made up of a single, underlying substance or reality. As a result, monism can be seen as a logical and coherent system that transcends religious or spiritual beliefs, making it accessible to even atheists who can appreciate the unity and simplicity of the natural world, without necessarily invoking supernatural or divine entities. \
 
 4 Beliefs
 
-In Cosmotheism religions, monist cosmology posits that all phenomena reduces to one principle and the universe is composed of a single fundamental substance. This means that the divine is not a separate and transcendent entity but rather an inherent aspect of the universe, and humans are not separate from the divine but rather an unfolding or manifestation of it. Therefore, in Cosmotheist cosmologies, self-realization or self-actualization is often seen as the process of recognizing and embodying one's true nature as an expression of the divine. This can be seen as a form of self-deification.
+In cosmotheist religions, cosmotheist cosmology posits that all phenomena reduces to one principle and the universe is composed of a single fundamental substance. This means that the divine is not a separate and transcendent entity but rather an inherent aspect of the universe, and humans are not separate from the divine but rather an unfolding or manifestation of it. Therefore, in Cosmotheist cosmologies, self-realization or self-actualization is often seen as the process of recognizing and embodying one's true nature as an expression of the divine. This can be seen as a form of self-deification.
 
 Core Idea: You’re a piece of the cosmic puzzle, not a stranger to it. The divine is in everything; self-awareness is key.  
 
 5 Rituals
 
-In Cosmotheist religions, rituals are about bringing someone to self-realization. For example, rituals like yoga, meditation, self-inquiry, and mantra recitation are used to help the individual realize their true nature as a manifestation of the divine. The goal is to awaken the individual's inner divinity and is aimed at helping the individual realize their true nature as the ultimate reality.
+In cosmotheist religions, rituals are about bringing someone to self-realization. For example, rituals like yoga, meditation, self-inquiry, and mantra recitation are used to help the individual realize their true nature as a manifestation of the divine. The goal is to awaken the individual's inner divinity and is aimed at helping the individual realize their true nature as the ultimate reality.
 
 Read more 
 
