@@ -37,7 +37,7 @@ _Footnotes_
 
 Much of what we know about history from antiquity is fabricated. The Egyptian-Persian-Indian-Greek-Roman elite were Sarmatian/Saka warlords who ruled through proxy dynasties. Egypt, Persia, India, Greece, Rome, etc., were all under the suzerainty of Aryan Iranian-Scythian elites since at least the 17th century BC.
 
-The Scythian tribe called the Sarmatians (also called Sauromatians ("Saur" = "Lizard/Dragon" + "Matae" = "Men/Warriors" - where the Sumerian "sar" (king) comes from) were a nomadic Indo-Iranian warrior elite from the Pontic steppe (modern Ukraine/Russia). The domestication of the horse and invention of the chariot allowed them to travel vast distances. They were a priesthood of dragon/serpent-worshipping kings (Papaios (Scythian) = Apep/Apophis (Egypt) = Aži Dahāka (Zoroastrianism) = Typhon (Greek) = Vritra (Vedic) = Tiamat (Babylonian)).
+The Scythian tribe called the Sarmatians (also called Sauromatians ("Saur" = "Lizard/Dragon" + "Matae" = "Men/Warriors" - where the Sumerian "sar" (king) comes from) were a nomadic Indo-Iranian warrior elite from the Pontic steppe (modern Ukraine/Russia). The domestication of the horse and invention of the chariot allowed them to travel vast distances. They were a priesthood of dragon/serpent-worshipping kings (Papaios (Scythian) = Apep/Apophis (Egypt) = Ningishzida (Sumerian) = Aži Dahāka (Zoroastrianism) = Typhon (Greek) = Nāga (Vedic) = Tiamat (Babylonian)).
 
 Timeline:
 
@@ -109,7 +109,7 @@ Footnotes (Introduction)
 -   Jesus: Likely a phonetic shift from Asar/Aesus (pronounced ah-soos)/Iset/Izates/Izas/et al. Another option: Coins of Ptolemy XI Alexander II depict the syncretic deity Zeus-Ammon: https://harvardartmuseums.org/collections/object/170118?position=0&context=person&id=22936 Zeus-Ammon -> A-Zeus -> Aesus/Aesar. Alexander the Great was the first Zeus-Ammon (Amun-Ra).
 -   Monobazus: Sabazios is the Phrygian and Thracian version of Zeus. Ma'nu is likely a diminutive of Menneus ("son of man"), and then Manu-Sabazios becomes Monobazus. Monobazus also becomes "Bazus" or "Bar Izates" shortened to "baYZTus" (or bar YZT) through frequent oral repetition which then becomes "bOETHus". The Boethusians were a jewish priestly sect.
 -   Piso cognomen: "Appius" is a cognomen (personal name) of the Claudian family. Appius and Piso are synonymous (In Greek, Appius is rendered as Appios, from there Piso). The name Piso itself would be a form of Peisistratos/Pisistratos, the leading name of ancient Athens in Greece. (Pisistratos is a Latinized spelling of the Greek Peisistratos). It could be said that all the ruling elite of the Julio-Claudian dynasty were Pisos, including Nero who was nearly deposed by a Piso. Appius is also cognate with Arrius (through rhotacization in ancient Latin the /p/ and /r/ could be swapped. 
--   "Sar" root (Scythian word for King, or King of the Serpent): Sarmatian, Saracen, Sargon, Sarlagab, Akkadian šarrum, Vedic Sarpa, Serapis (Sar-Apis), Zarathustra, Cesar, Asar, Tsar, etc. Sar means king across empires.
+-   "Sar" root (Sar is the Scythian word for King. Sarpa (Sanskrit) = Serpent, so "King of the Serpent"): Sarmatian, Saracen, Sargon, Sarlagab, Akkadian šarrum, Vedic Sarpa, Serapis (Sar-Apis), Zarathustra, Cesar, Asar, Tsar, etc. Sar means king across empires.
     
 ####  2 Ancient Alias Names List  (Chronologically Organized by Era and Dynasty)
 
