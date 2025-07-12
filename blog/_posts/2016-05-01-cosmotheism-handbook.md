@@ -27,7 +27,7 @@ There are different interpretations of cosmotheism:
 
 3 Scientific Basis
 
-The scientific basis for cosmotheism lies in the concept of unity and interconnectedness, where everything is composed of the same fundamental building blocks, such as atoms and subatomic particles. This idea is supported by various scientific theories, including Quantum Field Theory, String Theory, Loop Quantum Gravity, and Causal Dynamical Triangulation, which suggest that the universe is ultimately made up of a single, underlying substance or reality. As a result, monism can be seen as a logical and coherent system that transcends religious or spiritual beliefs, making it accessible to even atheists who can appreciate the unity and simplicity of the natural world, without necessarily invoking supernatural or divine entities. \
+The scientific basis for cosmotheism lies in the concept of unity and interconnectedness, where everything is composed of the same fundamental building blocks, such as atoms and subatomic particles. This idea is supported by various scientific theories, including Quantum Field Theory, String Theory, Loop Quantum Gravity, and Causal Dynamical Triangulation, which suggest that the universe is ultimately made up of an underlying substance or reality. \
 
 4 Beliefs
 
