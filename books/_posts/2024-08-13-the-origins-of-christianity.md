@@ -6,23 +6,37 @@ date: 2024-08-13
 category: books
 ---
 
-# The Sarmatian Dragon Cult: Aži Dahāka as the Proto-Christ  
-### By Ralph Perrier  
-#### 2025  
+## The Sarmatian Dragon Cult: Aži Dahāka as the Proto-Christ  
 
----
+**By Ralph Perrier**  
 
-Copyright © 2025 Ralph Perrier. All rights reserved.  
+2025  
 
-No part of this book may be reproduced or transmitted in any form without written permission from the author, except for brief quotations in reviews or scholarly discussions. 
+##
 
----
+**Copyright © 2025 Ralph Perrier**  
+
+All rights reserved. No part of this publication may be reproduced, distributed, or transmitted in any form or by any means, including photocopying, recording, or other electronic or mechanical methods, without the prior written permission of the publisher, except in the case of brief quotations embodied in critical reviews and certain other noncommercial uses permitted by copyright law.  
+
+For permission requests, contact the author at hereticalbooks.com
+
+##
+
+**Keywords** 
+
+Sarmatian Dragon Cult, Aži Dahāka History, Scythian Elite Conspiracies, Ancient Religion Origins, Julius Caesar Aliases, Cleopatra Revisionist History, Bosphorus Kingdom Secrets, Scythian religious practices, Mithraism origins
+
+##
+
+**Epigraph**  
 
 *So Moses made a bronze snake and put it up on a pole. Then when anyone
 was bitten by a snake and looked at the bronze snake, they lived.* -
 Numbers 21:9
 
-Contents
+##
+
+**Contents**
 
 _Preface_
 
@@ -44,7 +58,7 @@ _Glossary_\
 _Bibliography_ \
 _Footnotes_
 
-Preface
+**Preface**
 
 This book challenges mainstream historiography. My methodologies are:
 archaeological and numismatic evidence, linguistic and etymological
@@ -52,7 +66,7 @@ analysis, and historical correlation and timeline analysis. The sources
 that inspired my work are listed in the 'Bibliography' section at the
 end of the book.
 
-*Reader be advised: This work reconstructs history through unconventional methodologies.*  
+*Disclaimer: While this work challenges mainstream narratives, every claim is grounded in archaeological, textual, or etymological evidence. Reader discretion is advised—this is not traditional historiography.
 
 #### Introduction
 
