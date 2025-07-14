@@ -10,9 +10,6 @@ category: books
 
 **By Ralph Perrier**  
 
-Published by Heretical Books
-2025
-
 ---
 
 **Copyright © 2025 Ralph Perrier**  
@@ -32,38 +29,38 @@ Published by Heretical Books
 
 **Keywords** 
 
-*Sarmatian Dragon Cult, Aži Dahāka History, Scythian Elite Conspiracies, Ancient Religion Origins, Julius Caesar Aliases, Cleopatra Revisionist History, Bosphorus Kingdom Secrets, Scythian religious practices, Mithraism origins*
+*Sarmatian Dragon Cult, Aži Dahāka, Bible Origins, Scythian Elites, Ancient Religion Origins, Religious Syncretism, Julius Caesar Aliases, Cleopatra Revisionist History, Bosphorus Kingdom Secrets, Scythian religious practices, Mithraism origins*
 
 ---
 
 **Epigraph**  
 
 *And the Lord sent fiery serpents among the people, and they bit the people; and much people of Israel died ... And the Lord said unto Moses, make thee a fiery serpent, and set it upon a pole: and it shall come to pass, that every one that is bitten, when he looketh upon it, shall live. And Moses made a serpent of brass, and put it upon a pole, and it came to pass, that if a serpent had bitten any man, when he beheld the serpent of brass, he lived.* -
-Numbers 21:9 (the "serpents" in that passage were the Scythians)
+Numbers 21:9 (The "serpents" in this passage are identified as Scythians in later analysis.)
 
 ---
 
-**Contents**
+**Table of Contents**
 
-_Preface_
+<div style="font-family: monospace; line-height: 1.5;">
+Preface .......................................................... 1<br>
+Introduction ..................................................... 3<br>
+1. Name and Title Meanings ...................................... 15<br>
+2. Ancient Alias Names List ..................................... 28<br>
+3. Julius Caesar aka Asander of Bosphorus ....................... 41<br>
+4. Rome on the Bosphorus? ....................................... 54<br>
+5. Flavian Dynasty .............................................. 67<br>
+6. Julius Caesar was a Title .................................... 80<br>
+7. Esus the Celtic Deity ........................................ 93<br>
+8. Subversion of the Imperial Cult ............................. 106<br>
+Conclusion ..................................................... 119<br>
+Appendix A: Alexander the Great ................................ 132<br>
+Appendix B: Origins of Judaism ................................. 145<br>
+Glossary ....................................................... 158<br>
+Bibliography ................................................... 170<br>
+</div>\
 
-  Introduction\
-1 Name and Title Meanings \
-2 Ancient Alias Names List \
-3 Julius Caesar aka Asander of Bosphorus \
-4 Rome on the Bosphorus?\
-5 Flavian Dynasty\
-6 Julius Caesar was a Title \
-7 Esus the Celtic Deity \
-8 Subversion of the Imperial Cult\
-  Conclusion
-  
-_Appendix A: Alexander the Great_\
-_Appendix B: Origins of Judaism_
 
-_Glossary_\
-_Bibliography_ \
-_Footnotes_
 
 **Preface**
 
@@ -75,7 +72,7 @@ end of the book.
 
 #### Introduction
 
-Much of what we know about history from antiquity is fabricated. The
+Much of recorded ancient history is fabricated. The
 Egyptian-Persian-Indian-Greek-Roman elite were Sarmatian/Saka warlords
 who ruled through proxy dynasties. Egypt, Persia, India, Greece, Rome,
 etc., were all under the suzerainty of Aryan Iranian-Scythian elites
@@ -215,7 +212,7 @@ Footnotes (Introduction)
 
 (a) The eruption of Thera (Santorini) was one factor in destroying the
     Scythian steppe warriors hegemony, but the biggest cause was a
-    cannibus cult that stripped them of their warrior ethos
+    cannabis cult that stripped them of their warrior ethos
     (https://en.wikipedia.org/wiki/Enaree). Marijuanna turned them from
     fearless warriors into potheads who were led by transgender priests.
 
@@ -287,11 +284,8 @@ Footnotes (Introduction)
 #### 2 Ancient Alias Names List (Chronologically Organized by Era and Dynasty)
 
 Note on aliases: I believe that the Ptolemaic elites in antiquity
-role-played as if they were characters in a play, and they used regional
-aliases and fictional deaths as story patterns or archetypes. They
-killed off one character and then assumed the role of another one in a
-different location. For example, the governor of Roman Egypt from 33 CE
-to 38, Aulus Avillius Flaccus, was also Polemon II of Pontus, who was
+role-played as if they were characters in a play and they employed an incredible number of regional aliases, locations, fictional stories, faked adoptions, and fabricated deaths for their family members to control the
+population. They role-played as deities, religious figures, and various characters as if they were actors in a play. For example, the governor of Roman Egypt from 33 CE to 38, Aulus Avillius Flaccus, was also Polemon II of Pontus, who was
 the prince of the Bosporan, Pontus, Cilicia, and Cappadocia, which was
 the regional alias of Emperor Titus. The character of Aulus Avillius
 Flaccus dies at the same time Polemon II of Pontus takes power, and then
