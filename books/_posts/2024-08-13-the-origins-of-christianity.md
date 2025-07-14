@@ -32,9 +32,8 @@ First Edition: 2025
 
 **Epigraph**  
 
-*So Moses made a bronze snake and put it up on a pole. Then when anyone
-was bitten by a snake and looked at the bronze snake, they lived.* -
-Numbers 21:9
+*And the Lord sent fiery serpents among the people, and they bit the people; and much people of Israel died ... And the Lord said unto Moses, make thee a fiery serpent, and set it upon a pole: and it shall come to pass, that every one that is bitten, when he looketh upon it, shall live. And Moses made a serpent of brass, and put it upon a pole, and it came to pass, that if a serpent had bitten any man, when he beheld the serpent of brass, he lived.* -
+Numbers 21:9 (the "serpents" in that passage were the Scythians)
 
 ---
 
@@ -84,9 +83,7 @@ Sumerian "sar" (king) comes from) were a nomadic Indo-Iranian warrior
 elite from the Pontic steppe (modern Ukraine/Russia). The domestication
 of the horse and invention of the chariot allowed them to travel vast
 distances. They were a priesthood of dragon/serpent-worshipping kings
-[^1](Papaios (Scythian) = Apep/Apophis (Egypt) = Ningishzida (Sumerian)
-= Aži Dahāka (Zoroastrianism) = Typhon (Greek) = Nāga (Vedic) = Tiamat
-(Babylonian)).
+[^1](Papaios (Scythian) = Uraeus and Apep/Apophis (Egypt) = Ningishzida (Sumerian) = Tiamat and Mušḫuššu who was associated with Marduk (Babylonian) = Aži Dahāka (Zoroastrianism) = Typhon (Greek) = Nāga (Vedic)).
 
 Timeline:
 
@@ -165,8 +162,8 @@ Scythian Patala (horse lords), were the continuation of this bloodline.
 All ancient Mediterranean religions from antiquity derive from the
 Sythian serpent-dragon worshiping religions (see: the Egyptian deity
 Apep/Apophis, Zoroastrian Indo-Iranian dragon deity Aži Dahāka later
-syncretized with Mithra, and the Dacian and Roman Draco standards, Greek
-ophis as in Ophites, the serpent-worshipping Gnostics).
+syncretized with Mithra, Nehushtan/serpent staff of Moses, and the Dacian and Roman Draco standards, Greek
+ophis as in Ophites, and the serpent-worshipping Gnostics).
 
 The "Chi-Rho" (☧) symbol of Constantine was not Christian---it was the
 Sarmatian Draco coiled around a solar cross.
@@ -1362,6 +1359,7 @@ Footnotes
 
 [^1]: https://en.wikipedia.org/wiki/Targitaos\
     --https://en.wikipedia.org/wiki/Snake-Legged_Goddess (the ancestor-goddess of the Scythians according to the Scythian religion)\
+    --https://en.wikipedia.org/wiki/Serpents_in_the_Bible\
     --Royal families of Europe descend from this Scythian line: Vlad
     Dracula (Son of the Dragon) is an example of this bloodline in
     Wallachia.
