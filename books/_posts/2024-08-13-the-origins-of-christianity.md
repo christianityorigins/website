@@ -10,17 +10,23 @@ category: books
 
 **By Ralph Perrier**  
 
-2025  
+Published by Heretical Books
+2025
 
 ---
 
 **Copyright © 2025 Ralph Perrier**  
 
-All rights reserved. No part of this publication may be reproduced, distributed, or transmitted in any form or by any means, including photocopying, recording, or other electronic or mechanical methods, without the prior written permission of the publisher, except in the case of brief quotations embodied in critical reviews and certain other noncommercial uses permitted by copyright law.  
+All rights reserved. No part of this publication may be reproduced, distributed, or transmitted in any form or by any means, including photocopying, recording, or other electronic or mechanical methods, without the prior written permission of the publisher, except in the case of brief quotations embodied in critical reviews and certain other noncommercial uses permitted by copyright law.
 
 For permission requests, contact the author at hereticalbooks.com
 
-First Edition: 2025
+This book presents a revisionist historical perspective based on archaeological, textual, and etymological evidence. Reader discretion is advised—this is not traditional historiography.
+
+First Edition: 2025\
+ISBN: \
+Library of Congress Control Number: \
+Published by Heretical Books
 
 ---
 
@@ -66,8 +72,6 @@ archaeological and numismatic evidence, linguistic and etymological
 analysis, and historical correlation and timeline analysis. The sources
 that inspired my work are listed in the 'Bibliography' section at the
 end of the book.
-
-*Disclaimer: While this work challenges mainstream narratives, every claim is grounded in archaeological, textual, or etymological evidence. Reader discretion is advised—this is not traditional historiography.
 
 #### Introduction
 
@@ -249,7 +253,7 @@ Footnotes (Introduction)
     "cottius" means "chieftain".
 -   Izates or Izas: Yazata in Avestan means "divine being". The Egyptian
     "Asar" or "Iset", another name for Osiris, could be at the root of
-    this title. "Is" or "Isa" is also related to the Proto-Indo-European
+    this title. So could Aži ("dragon"). "Is" or "Isa" is also related to the Proto-Indo-European
     root "ais-", which means "lord", "ruler", or "noble". This root is
     also seen in other ancient languages, such as Sanskrit "īśa" (ईश),
     meaning "lord" or "god". Asa, Esus, Izas, Aesar are all related.
@@ -259,6 +263,7 @@ Footnotes (Introduction)
     https://harvardartmuseums.org/collections/object/170118?position=0&context=person&id=22936
     Zeus-Ammon -> A-Zeus -> Aesus/Aesar. Alexander the Great was the
     first Zeus-Ammon (Amun-Ra).
+- Lord: The term Kavi in Avestan texts (e.g., Yasna 10.6) denotes a divine ruler associated with Aži (dragon/serpent). Translating Kavi to Greek yields Kyrios ("lord"), a title used for Jesus in the New Testament (e.g., Kyrios Iesous). The Scythian title Xšaya (king) appears in Old Persian as Xšayathiya, phonetically linked to Kshatriya (Sanskrit: warrior-king) and Caesar via the Greek Kaesar. A kurgan inscription from Issyk (Kazakhstan, 4th century BCE) mentions a ruler named Ašakavi ("dragon-priest"), combining Aša (truth/order) and Kavi. This title parallels Asander (Thracian: Asa = "lord") and suggests a pan-steppe naming convention for dragon-kings. 
 -   Monobazus: Sabazios is the Phrygian and Thracian version of Zeus.
     Ma'nu is likely a diminutive of Menneus ("son of man"), and then
     Manu-Sabazios becomes Monobazus. Monobazus also becomes "Bazus" or
@@ -353,7 +358,7 @@ IV. Speculative
 
 There was a Byzantine [^2] imperial cult where Julius Caesar [^3] took
 on the role of Asander (also Asandros), King of Bosphorus [^4] ("Asa"
-means "lord" in Thracian and Celtic, and "andros" means "man" or "son of
+means "lord" in Thracian and Celtic and likely derives from the Scythian Assaioi (As-saioi = As is Scythian for "Serpent Lord", and Sai refers to clan/tribe), and "andros" means "man" or "son of
 man" in Greek. Jesus is referred to as "the son of man" 81 times in the
 four canonical gospels. Asandros can also be interpreted as "son of the
 lord" or "son of Asa, the lord". The Thracian version of Zeus was Asa,
@@ -671,7 +676,7 @@ claiming to be the son of Herod who faked his death [^12], so he was
 Endnotes (Chapter 3)
 
 (a) Other suspected aliases of Ptolemy XI Alexander II/Asander/Julius
-    Caesar: Idumean Antipater, Parthian Artavasdes (Greek Alex = Persian
+    Caesar: Akrosandros II, King of Scythia, Idumean Antipater, Parthian Artavasdes (Greek Alex = Persian
     Arta) who was the brother of Tigranes II, and the Hasmonean
     Alexander II (son of king Aristobulus II son of Jannaeus Alexander
     also the nephew and son-in-law of king/high-priest Hyrcanus II.
@@ -1130,7 +1135,7 @@ Endnotes (Chapter 8)
     *Pilate might also = "Pileatus" (Latin for "wearing a felt cap," a
     Pontic priestly garb).
 
-Appendix A: Alexander the Great
+# Appendix A: Alexander the Great
 
 Alexander was a Sarmatian dragon-king, Ptolemy I Soter was his
 biological son with Barsine (Scythian priestess) and was his dragon-born
@@ -1225,7 +1230,7 @@ Asander (obvious reference to Alexander), King of Bosphorus aka
 Pharnaces II ("Pharao-Nikes", or "Victorious Pharaoh") aka Brogitarix,
 king of Galatia aka Ariarathes IX aka Julius Caesar.
 
-Appendix B: Origins of Judaism
+# Appendix B: Origins of Judaism
 
 Hebrews/Jews were invented in the 3rd century BC by the Greek diadochi
 ruler Ptolemy Soter to achieve two goals:
@@ -1279,25 +1284,39 @@ After Rabbi Akiva Judaism turned into a group strategy, but before then
 it was one of the numerous syncretic slave moralities that came out of
 the Alexandrian School.
 
-Glossary
+# Glossary
 
--   Pentateuch (from the Greek words penta meaning five, and teuchos meaning book): The first five books of the Hebrew Bible, traditionally attributed to Moses: Genesis, Exodus, Leviticus, Numbers, Deuteronomy. The Pentateuch is also called the Torah ("law" in Hebrew). Pentateuch is more commonly used in Christian scholarship and discussions, and Torah is the term used in Jewish contexts. 
--   Tanakh (an acronym (TNK) that represents the entire Hebrew Bible, divided into three main sections). This results in a total of 24 books in the Jewish Bible.
-    -  Torah (Teaching or Law): Corresponds to the Pentateuch (Genesis, Exodus, Leviticus, Numbers, Deuteronomy).
-    -  Nevi'im (Prophets): Eight books: Joshua, Judges, Samuel (1 and 2 as one), Kings (1 and 2 as one), Isaiah, Jeremiah, Ezekiel, The Twelve (minor prophets as one).
-    -   Ketuvim (Writings): Eleven books: Psalms, Proverbs, Job, Song of Songs, Ruth, Lamentations, Ecclesiastes, Esther, Daniel, Ezra-Nehemiah (as one), Chronicles (1 and 2 as one).
--   Old Testament: The Hebrew Bible in Christian traditions, including the same texts as the Tanakh but arranged differently and sometimes with additional books.
--   Septuagint: An ancient Greek translation of the Hebrew Scriptures, produced in the 3rd and 2nd centuries BCE for Greek-speaking Jews in Egypt. It includes the books of the Tanakh and additional texts (Deuterocanonical books) that are not found in the Hebrew Bible. The Septuagint is significant in early Christianity and is often quoted in the New Testament.
--   New Testament:
-    -   Gospels: The first four books (Matthew, Mark, Luke, John) recount the life and teachings of Jesus.
-    -   Epistles: Letters by apostles (primarily Paul) to early Christian communities addressing theological issues.
-    -   Acts of the Apostles: Describes the early church and the spread of Christianity after Jesus' resurrection.
-    -   Revelation: Contains apocalyptic visions and prophecies attributed to John.
--   Midrash: Rabbinic literature providing commentary and interpretation of the Hebrew Scriptures.
--   Talmud: A central text of Rabbinic Judaism, consisting of the Mishnah (oral laws) and the Gemara (commentary on the Mishnah).
--   Mitzvot: Commandments or laws in the Torah, often referring to the 613 commandments that guide Jewish life.
+**Aži Dahāka**: A dragon-serpent deity in Zoroastrian mythology, symbolizing chaos and power. In this book, Aži Dahāka is proposed as a proto-Christ figure, central to the Sarmatian dragon cult and syncretized with figures like Serapis and Jesus.
 
-Bibliography
+**Assaioi**: A Scythian tribe from the Pontic steppe, linked to the term *As* (“lord” or “divine” in Thracian and Celtic). Associated with Julius Caesar’s title as Asander, King of Bosphorus, and the root of *Caesar*.
+
+**Bosphorus Kingdom**: Also known as the Kingdom of the Cimmerian Bosphorus, a Hellenistic state in modern-day Crimea (ca. 5th century BCE–4th century CE). Central to the book’s thesis as the origin of the Sarmatian dragon cult and proto-Christianity.
+
+**Caesar**: A title, not just a name, derived from the Etruscan *Aesar* (“god”) via Greek *Kaesar*. Linked to the Scythian *As* (“lord”) and used by Julius Caesar, whom the book identifies as Asander, a Sarmatian dragon-king.
+
+**Chi-Rho**: A Christian symbol (☧) traditionally associated with Constantine. In this book, it is reinterpreted as a Sarmatian *Draco* (dragon banner) coiled around a solar cross, rooted in Scythian serpent worship.
+
+**Draco**: A Sarmatian military standard shaped like a dragon, used by Bosphoran kings like Asander. Symbolizes the dragon cult’s influence on Roman and proto-Christian iconography.
+
+**Dynamis**: Queen of the Bosphorus (ca. 47–17 BCE), identified in the book as an alias of Cleopatra VII. Her name, meaning “heavenly power,” reflects her role as a Sarmatian priestess-queen.
+
+**Interpretatio Graecae**: The Greek practice of equating foreign deities with their own (e.g., Egyptian Serapis with Zeus). Used by Ptolemaic elites to create syncretic religions like the Serapis cult, a precursor to Christianity.
+
+**Mithraism**: A Roman mystery religion centered on the god Mithras, derived from the Indo-Iranian sun god Mithra. The book argues it was a Sarmatian elite cult for military initiates, syncretized with Aži Dahāka.
+
+**Sarmatians**: A nomadic Indo-Iranian people from the Pontic steppe, known as *Sauromatians* (“lizard/dragon men”). The book posits them as a ruling elite across Egypt, Persia, and Rome, shaping ancient religions.
+
+**Serapis**: A Greco-Egyptian god created by Ptolemy I Soter, combining Osiris and Apis. The book suggests Serapis (*Sar-Apis*, “Serpent-Lord”) was a rebranding of the Sarmatian dragon cult for mass control.
+
+**Soter**: A Greek title meaning “savior,” used by Hellenistic rulers like Asander and Ptolemy I. Linked to the book’s claim that Sarmatian kings were proto-Christs, blending divine and political authority.
+
+**Syncretism**: The blending of religious beliefs and practices from different cultures. The book argues that Sarmatian elites used syncretism to create universal religions like Serapism and Christianity.
+
+**Tamga**: A Sarmatian tribal symbol, often a stylized trident or serpent, found on coins and artifacts. Used by Julius Caesar/Asander to signal Scythian royal authority, linking him to the *Assaioi*.
+
+**Xšaya**: A Scythian term for “king,” related to Sanskrit *Kshatriya* (warrior-king) and Latin *Caesar*. Used in the book to connect Sarmatian rulers like Darius I and Julius Caesar to a shared elite lineage.
+
+# Bibliography
 
 *A Forgery of Our Own* (1991) by Revilo P. Oliver
 [[link](http://www.revilo-oliver.com/rpo/Forgery_of_Our_Own.html)]
@@ -1355,11 +1374,11 @@ https://unz.com/article/how-fake-is-roman-antiquity/; and *How fake is
 church history? - The Gregorian coup and the birthright theft* (2020).
 https://unz.com/article/how-fake-is-church-history by Laurent Guyénot
 
-Footnotes
+# Footnotes
 
-[^1]: https://en.wikipedia.org/wiki/Targitaos\
-    --https://en.wikipedia.org/wiki/Snake-Legged_Goddess (the ancestor-goddess of the Scythians according to the Scythian religion)\
-    --https://en.wikipedia.org/wiki/Serpents_in_the_Bible\
+[^1]: https://en.wikipedia.org/wiki/Targitaos who was associated with Hercules. In Scythian mythology Hercules (Targiatos) bred with a snake woman and this created the Scythians \
+    --https://en.wikipedia.org/wiki/Snake-Legged_Goddess (the ancestor-goddess of the Scythians according to the Scythian religion) \
+    --https://en.wikipedia.org/wiki/Serpents_in_the_Bible \
     --Royal families of Europe descend from this Scythian line: Vlad
     Dracula (Son of the Dragon) is an example of this bloodline in
     Wallachia.
