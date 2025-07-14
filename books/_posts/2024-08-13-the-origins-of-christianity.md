@@ -6,7 +6,7 @@ date: 2024-08-13
 category: books
 ---
 
-### The Sarmatian Dragon Cult: Aži Dahāka as the Proto-Christ  
+# The Sarmatian Dragon Cult: Aži Dahāka as the Proto-Christ  
 
 **By Ralph Perrier**  
 
