@@ -20,11 +20,13 @@ All rights reserved. No part of this publication may be reproduced, distributed,
 
 For permission requests, contact the author at hereticalbooks.com
 
+First Edition: 2025
+
 ---
 
 **Keywords** 
 
-Sarmatian Dragon Cult, Aži Dahāka History, Scythian Elite Conspiracies, Ancient Religion Origins, Julius Caesar Aliases, Cleopatra Revisionist History, Bosphorus Kingdom Secrets, Scythian religious practices, Mithraism origins
+*Sarmatian Dragon Cult, Aži Dahāka History, Scythian Elite Conspiracies, Ancient Religion Origins, Julius Caesar Aliases, Cleopatra Revisionist History, Bosphorus Kingdom Secrets, Scythian religious practices, Mithraism origins*
 
 ---
 
