@@ -43,21 +43,21 @@ Numbers 21:9 (The "serpents" in this passage are identified as Scythians in late
 **Table of Contents**
 
 <div>
-Preface .......................................................... 1<br>
-Introduction ..................................................... 3<br>
+Preface .......................................................................... 1<br>
+Introduction ................................................................. 3<br>
 1. Name and Title Meanings ...................................... 15<br>
-2. Ancient Alias Names List ..................................... 28<br>
-3. Julius Caesar aka Asander of Bosphorus ....................... 41<br>
+2. Ancient Alias Names List ........................................ 28<br>
+3. Julius Caesar aka Asander of Bosphorus .............. 41<br>
 4. Rome on the Bosphorus? ....................................... 54<br>
-5. Flavian Dynasty .............................................. 67<br>
-6. Julius Caesar was a Title .................................... 80<br>
-7. Esus the Celtic Deity ........................................ 93<br>
-8. Subversion of the Imperial Cult ............................. 106<br>
-Conclusion ..................................................... 119<br>
-Appendix A: Alexander the Great ................................ 132<br>
-Appendix B: Origins of Judaism ................................. 145<br>
-Glossary ....................................................... 158<br>
-Bibliography ................................................... 170<br>
+5. Flavian Dynasty ........................................................ 67<br>
+6. Julius Caesar was a Title .......................................... 80<br>
+7. Esus the Celtic Deity ................................................ 93<br>
+8. Subversion of the Imperial Cult ............................ 106<br>
+Conclusion ................................................................... 119<br>
+Appendix A: Alexander the Great ............................. 132<br>
+Appendix B: Origins of Judaism ................................ 145<br>
+Glossary ....................................................................... 158<br>
+Bibliography ................................................................ 170<br>
 </div>\
 
 
@@ -1371,7 +1371,7 @@ https://unz.com/article/how-fake-is-roman-antiquity/; and *How fake is
 church history? - The Gregorian coup and the birthright theft* (2020).
 https://unz.com/article/how-fake-is-church-history by Laurent Guyénot
 
-# Footnotes
+**Footnotes**
 
 [^1]: https://en.wikipedia.org/wiki/Targitaos who was associated with Hercules. In Scythian mythology Hercules (Targiatos) bred with a snake woman and this created the Scythians \
     --https://en.wikipedia.org/wiki/Snake-Legged_Goddess (the ancestor-goddess of the Scythians according to the Scythian religion) \
