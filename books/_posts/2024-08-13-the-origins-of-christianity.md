@@ -255,6 +255,7 @@ Footnotes (Introduction)
     root "ais-", which means "lord", "ruler", or "noble". This root is
     also seen in other ancient languages, such as Sanskrit "īśa" (ईश),
     meaning "lord" or "god". Asa, Esus, Izas, Aesar are all related.
+    Jew: Summerian "Ju" means opposite and the Summerian Ud or Udu means snake or serpent. This word is also connected to the Akkadian word Usum which also means serpent or dragon. "Against the serpent" = against the Scythians. 
 -   Jesus: Likely a phonetic shift from Asar/Aesus (pronounced
     ah-soos)/Iset/Izates/Izas/et al. Another option: Coins of Ptolemy XI
     Alexander II depict the syncretic deity Zeus-Ammon:
