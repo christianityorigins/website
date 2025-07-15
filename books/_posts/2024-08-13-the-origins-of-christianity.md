@@ -84,7 +84,11 @@ Sumerian "sar" (king) comes from) were a nomadic Indo-Iranian warrior
 elite from the Pontic steppe (modern Ukraine/Russia). The domestication
 of the horse and invention of the chariot allowed them to travel vast
 distances. They were a priesthood of dragon/serpent-worshipping kings
-[^1](Papaios (Scythian) = Scorpion I, Pharaoh of Egypt, Uraeus, and Apep/Apophis (Egypt) = Ningishzida (Sumerian) = Tiamat and Mušḫuššu who was associated with Marduk (Babylonian) = Aži Dahāka (Zoroastrianism) = Agathodaemon, Typhon, and Delphi's Pythoness priestess (Greek) = Nāgendra and Nāga (Vedic)).
+[^1]
+
+All ancient Mediterranean religions from antiquity derive from the
+Sythian serpent-dragon worshiping religions. See: Papaios (Scythian) = Scorpion I, Pharaoh of Egypt, Uraeus, and Apep/Apophis (Egypt) = Ningishzida (Sumerian) = Tiamat and Mušḫuššu who was associated with Marduk (Babylonian) = Aži Dahāka (Zoroastrianism) later
+syncretized with Mithra = Ophion, Agathodaemon, Typhon, and Delphi's Pythoness priestess (Greek) = Nāgendra and Nāga (Vedic), Nehushtan/serpent staff of Moses, the Dacian and Roman Draco standards, and the serpent-worshipping Gnostics, etc.
 
 Timeline:
 
@@ -159,12 +163,6 @@ the Bowmen."
 The Ptolemaic Egyptians (Ptolemaios - the root "ptol" resembling the
 Indo-Iranian term for warrior-kings (e.g., Parthian pat, "lord"), or
 Scythian Patala (horse lords), were the continuation of this bloodline.
-
-All ancient Mediterranean religions from antiquity derive from the
-Sythian serpent-dragon worshiping religions (see: the Egyptian deity
-Apep/Apophis, Zoroastrian Indo-Iranian dragon deity Aži Dahāka later
-syncretized with Mithra, Nehushtan/serpent staff of Moses, and the Dacian and Roman Draco standards, Greek
-ophis as in Ophites, and the serpent-worshipping Gnostics).
 
 The "Chi-Rho" (☧) symbol of Constantine was not Christian---it was the
 Sarmatian Draco coiled around a solar cross.
