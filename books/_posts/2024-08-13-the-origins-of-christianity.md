@@ -286,8 +286,7 @@ Footnotes (Introduction)
 
 **2 Ancient Alias Names List (Chronologically Organized by Era and Dynasty)**
 
-Note on aliases: I believe that the Ptolemaic elites in antiquity
-role-played as if they were characters in a play and they employed an incredible number of regional aliases, locations, fictional stories, faked adoptions, and fabricated deaths for their family members to control the
+Note on aliases: I believe that the Ptolemaic elites in antiquity employed an incredible number of regional aliases, locations, fictional stories, faked adoptions, and fabricated deaths for themselves and their family members as a way to control the
 population. They role-played as deities, religious figures, and various characters as if they were actors in a play. For example, the governor of Roman Egypt from 33 CE to 38, Aulus Avillius Flaccus, was also Polemon II of Pontus, who was
 the prince of the Bosporan, Pontus, Cilicia, and Cappadocia, which was
 the regional alias of Emperor Titus. The character of Aulus Avillius
