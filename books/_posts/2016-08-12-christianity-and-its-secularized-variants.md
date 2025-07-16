@@ -18,23 +18,21 @@ _Do you think I came to bring peace on earth? No, I tell you, but division. From
 
 Contents
 
-_Preface_
-
+Preface\
 Introduction\
 1 Foundations of Christian Slave Morality and Nietzschean Critique\
 2 Monotheism and Universalism as Tools of Control\
-3 Nietzsche’s Critique: Slave Morality, Transvaluation of Values, and Ressentiment\
+3 Nietzsche’s Triad: Slave Morality, Transvaluation of Values, and Ressentiment\
 4 Survival of the Weakest: Inverting Natural Selection \
 5 Tools of Herd Domestication\
 6 Secularization of Christianity\
 7 Marxism is Secularized Christianity\
 8 Marxist Denominations and the Frankfurt School\
-9 Secular Christian Tenets and Ethics\
+9 Modern Manifestations: Wokeness as Christian Heirloom\
 10 Judaism Vs. Christianity: What do the Jews Believe?\
-Conclusion
-
-_Addendum_\
-_Footnotes_
+Conclusion\
+Addendum\
+Footnotes
 
 Preface
 
@@ -42,9 +40,17 @@ In my book "The Origins of Christianity", I show how imperial powers of antiquit
 
 Introduction
 
-Every single species on earth works towards the preservation and strengthening of its bloodline, from bonobos to pin oaks to jellyfish. Every single one. It is only through the domesticating forces of universal religions (Buddhism, Christianity, and Islam) that man has been able to 'overcome' these natural and deep biological drives and act in ways that are neutral or actually harm the reproductive success of his genes and offspring. Because of these universalizing religions, western man is an animal in the process of domestication. \
-&nbsp;&nbsp; &nbsp;&nbsp;&nbsp;&nbsp;         Part One of this book examines Christianity’s foundational mechanisms—monotheism, universalism, and sin, and how these three concepts empower the weak, debased, and the traitorous to become the nobility. Weaponizing the outcastes is how the system becomes self-regulating. Part Two applies Nietzsche’s concepts to reveal how these mechanisms act as domestication system that subverts the strong. Part Three details the tools of domestication, Part Four traces Marxism’s inheritance of Christian ethics, and the Conclusion reflects on the 2000-year impact of this slave morality system. 
+Every single species on earth works towards the preservation and strengthening of its bloodline, from bonobos to pin oaks to jellyfish. Every single one. It is only through the domesticating forces of universal religions (Buddhism, Christianity, and Islam) that man has been able to 'overcome' these natural and deep biological drives and act in ways that are neutral or actually harm the reproductive success of his genes and offspring. Because of these universalizing religions, western man is an animal in the process of domestication. 
 
+This book is divided into three parts:
+
+1.   The System Exposed (how Christianity weaponizes the weak, debased, and the traitorous to become the nobility. Weaponizing the outcastes is how the system becomes self-regulating. ).
+
+2.    The Tools of Domestication (applies Nietzsche’s concepts to reveal how these mechanisms act as domestication system that subverts the strong).
+
+3.    The Secular Legacy (traces Marxism’s inheritance of Christian ethics).
+
+By the end, you will see the 2,000-year arc of this psychological warfare.
 
 1 Foundations of Christian Slave Morality and Nietzschean Critique\
   
@@ -57,7 +63,7 @@ The shift from decentralized pagan tribalism (diverse, hierarchical polytheistic
  &nbsp;&nbsp; &nbsp;&nbsp;&nbsp;&nbsp;       Christian universalism derives from monotheism. The universalization of a group into a singular monolith not only allows a group to become top-down controlled, but it also becomes a tool of empowerment for the oppressed through the leveling of social distinctions. Friedrich Nietzsche believed that the universalistic claims of Christianity allowed the lower classes, or "chandala" as he called them, to feel equal to the higher classes. The "all is one" doctrine incentivizes the inclusion of outcastes and when combined with an emphasis on a shared humanity and a common destiny in the afterlife this system undermines traditional social hierarchies that were traditionally based on biological kinship, intelligence, wealth, or power.  \
 &nbsp;&nbsp; &nbsp;&nbsp;&nbsp;&nbsp;        Christian universalism also led to ethnic erasure. The catholic church deliberately destroyed ethnic customs and beliefs to emphasize the universality of Christianity. Pre-Christian Europe was a patchwork of ethnicities, each with its own gods and traditions and christianity deliberately destroyed these ethnic bonds so that a religious identity replaced an ethnic identity. "Christendom" then became the first universalized identity that was built around a shared morality that transcended ethnic and cultural boundaries. "Christendom" was then replaced by the word "European" after the enlightenment, but that label still retained Christendom's universal nature. "European" like "Christendom" is a state and political identity, opposed to an ethnic or national identity, and the adoption of this universalist identity destroyed what little of specific ethnic European customs and traditions that were left. 
 
-3 Nietzsche’s Critique: Slave Morality, Transvaluation of Values, and Ressentiment
+3 Nietzsche’s Triad: Slave Morality, Transvaluation of Values, and Ressentiment\
 
 Friedrich Nietzsche’s concepts of slave morality, transvaluation of values, and "ressentiment" are central to understanding Christianity’s subversive power. 
 
@@ -137,7 +143,7 @@ Marxism is a secularized sect of Christianity that sees class as the main cause 
 
   
 
-9 Secular Christian Tenets and Ethics
+9 Modern Manifestations: Wokeness as Christian Heirloom
 
   
 
