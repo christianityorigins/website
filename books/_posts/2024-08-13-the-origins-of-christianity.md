@@ -297,13 +297,16 @@ Polemon II of Pontus dies around the same time Titus becomes emperor.
 The way to connect them is through the fact that they were all married
 to the same woman, Berenice, granddaughter of King Herod.
 
-I. Ptolemaic & Bosphoran Dynasty - Julius Caesar: Ptolemy XI Alexander
+I. Ptolemaic & Bosphoran Dynasty 
+
+-   Julius Caesar: Ptolemy XI Alexander
 II, Asander, King of Bosphorus (Philocaesar Philoromaios, Soter, Great
 King of Kings, "As" in his name refers to
-Asar(Osiris)/Aesar/Aeser/Aisar/Ais/Is), Pharnaces II, Brogitarix -
-Cleopatra VII (Isis who in mythology was the wife of Osiris and the
+Asar(Osiris)/Aesar/Aeser/Aisar/Ais/Is), Pharnaces II, Brogitarix
+-   Cleopatra VII (Isis who in mythology was the wife of Osiris and the
 mother of Horus): Dynamis Ourania (Aphrodite Urania), Pythodorida
-Philometor - Mark Antony (Marcus Antonius = Mar (Phoenician "lord") +
+Philometor
+-   Mark Antony (Marcus Antonius = Mar (Phoenician "lord") +
 Anton (from Antaeus, giant son of Gaia)): King Herod, Tiberius Claudius
 Nero, Phraates IV, Polemon I.
 
@@ -679,16 +682,16 @@ Endnotes (Chapter 3)
     Alexander II (son of king Aristobulus II son of Jannaeus Alexander
     also the nephew and son-in-law of king/high-priest Hyrcanus II.
     Also, Julius = Janneus? Or Janneus (Yannai) is related to the Roman
-    name Gaius?)
+    name Gaius?)\
 (b) The throne name of Ptolemy Philometer was Ir-maat-en-amun-re. This
     would strengthen the word play between the names Philo-meter,
     Mithra-dates, and Matthath-ius. (The Egyptian Maat-en transliterates
     to the Hebrew Mattan/Mattath and the name "metor" transliterates
     into Parthian Mithra). Philometer then corresponds to Mithradates of
     Parthia and Mattathius the Hasmonean. (Mattath is the Hebrew
-    feminine form of Mattan).
+    feminine form of Mattan).\
 (c) Speculative: Ptolemy XIII Theos Philopator = Gaius Octavius aka
-    Emperor Gaius Julius Caesar Augustus, Cleopatra VII's brother.
+    Emperor Gaius Julius Caesar Augustus, Cleopatra VII's brother.\
 (d) Apollonius of Tyre was married to the daughter of a king of Libya
     ("Historia Apollonii Regis Tyri" or "The Story of Apollonius, King
     of Tyre"), who was Cleopatra Selene aka Drusilla (aka Cleopatra
@@ -708,7 +711,7 @@ Endnotes (Chapter 3)
     philosopher. Is Apollonius of Tyre the same person as Apollonius of
     Tyana? This would make Apollonius of Tyana the brother-husband of
     Philo of Alexandria and the father of Josephus. These three created
-    the core of Christianity.
+    the core of Christianity.\
 (e) Gautama Buddha was Gaumata Bardya, the son of Cyrus the Great.
     Ptolemy I Soter and his successors were closely associated with
     Serapis. "Jesus" was an avatar for the Bosphioran royal family.
