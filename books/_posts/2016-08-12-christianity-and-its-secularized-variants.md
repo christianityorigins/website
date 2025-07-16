@@ -44,7 +44,7 @@ Every single species on earth works towards the preservation and strengthening o
 
 This book is divided into three parts:
 
-1.   The System Exposed (how Christianity weaponizes the weak, debased, and the traitorous to become the nobility. Weaponizing the outcastes is how the system becomes self-regulating. ).
+1.   The System Exposed (how Christianity weaponizes the weak, debased, and the traitorous to become the nobility. Weaponizing the outcastes is how the system becomes self-replicating.).
 
 2.    The Tools of Domestication (applies Nietzsche’s concepts to reveal how these mechanisms act as domestication system that subverts the strong).
 
@@ -201,7 +201,7 @@ Conclusion
 
 In conclusion, it took 2000 years of domestication to reach the point where Europeans would sacrifice their nations and the future of their children on the altar of equality, but the seeds for this was inculcated through this system. \
    &nbsp;&nbsp; &nbsp;&nbsp;&nbsp;&nbsp;The West’s current demographic and cultural decline (low birth rates, immigration crises, pathological altruism) is a direct result of the Christian/Marxist slave morality. By prioritizing the weak and suppressing the strong, these ideologies have eroded the West’s vitality, leading to what Oswald Spengler called the "decline of the West". Moreover, the West’s embrace of "diversity" and "inclusion" is a terminal stage of Christian universalism, where the in-group sacrifices itself for a utopian ideal. \
-   &nbsp;&nbsp; &nbsp;&nbsp;&nbsp;&nbsp;The institutionalization of Christianity’s slave morality system, over two millennia, profoundly reshaped the evolutionary and cultural strategies of billions, embedding mechanisms of control that facilitated widespread subjugation. This systematic manipulation, perpetuated through Marxism and its variants, underscores the enduring impact of elite-driven ideologies on global populations.
+   &nbsp;&nbsp; &nbsp;&nbsp;&nbsp;&nbsp;Christianity is a "vampiric ideology" that siphons the life force of civilizations, turning warriors into penitents and aristocrats into apologists. The institutionalization of the Christian slave morality system, over two millennia, profoundly reshaped the evolutionary and cultural strategies of billions. This systematic manipulation, perpetuated through Marxism and its variants, underscores the enduring impact of elite-driven ideologies on global populations.
 
 _Addendum_
 
