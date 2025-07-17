@@ -88,7 +88,7 @@ distances. They were a priesthood of dragon/serpent-worshipping kings
 
 All ancient Mediterranean religions from antiquity derive from the
 Sythian serpent-dragon worshiping religions. See: Papaios (Scythian) = Scorpion I, Pharaoh of Egypt, Uraeus, and Apep/Apophis (Egypt) = Ningishzida (Sumerian) = Tiamat and Mušḫuššu who was associated with Marduk (Babylonian) = Aži Dahāka (Zoroastrianism) later
-syncretized with Mithra = Ophion, Agathodaemon, Typhon, and Delphi's Pythoness priestess (Greek) = Nāgendra and Nāga (Vedic), Nehushtan/serpent staff of Moses, the Dacian and Roman Draco standards, and the serpent-worshipping Gnostics, etc.
+syncretized with Mithra = Ophion, Agathodaemon, Typhon, and Delphi's Pythoness priestess (Greek) = Nāgendra and Nāga (Vedic), Nehushtan/serpent staff of Moses, the Dacian and Roman Draco standards, and the serpent-worshipping Gnostics, Jörmungandr (Norse), etc.
 
 Timeline:
 
@@ -283,7 +283,7 @@ Footnotes (Introduction)
 -   "Sar" root (Sar is the Scythian word for King. Sarpa (Sanskrit) =
     Serpent, so "King of the Serpent"): Sarmatian, Saracen, Sargon,
     Sarlagab, Akkadian šarrum, Vedic Sarpa, Serapis (Sar-Apis),
-    Zarathustra, Cesar, Asar, Tsar, etc. Sar means king across empires. In the bible the Scythian Sar (king) became Esau (Edom) the progenitor of the Edomites in the bible, a metaphor for the forces of oppression and
+    Zarathustra, Saracen (Roman word for Middle Easterners), Cesar, Asar, Tsar, etc. Sar means king across empires. In the bible the Scythian Sar (king) became Esau (Edom) the progenitor of the Edomites in the bible, a metaphor for the forces of oppression and
 injustice.
 
 **2 Ancient Alias Names List (Chronologically Organized by Era and Dynasty)**
@@ -388,7 +388,7 @@ Fig. 1.5. Coin of Asander, King of Bosphorus depicting a Nike
 
 ![Fig.1.6](/images/Polemon.jpg){:width="400px"}
 
-Fig. 1.6. Asander aka Polemon I of Pontus (both were married to Dynamis. You can find their aliases through marraiges) depicting a Uraeus (the Egyptian cobra) and also Zeus-Ammon. Other depictions of Asander shows the star and cresent
+Fig. 1.6. Coin of Polemon I of Pontus who was an alias of Asander (both were married to Dynamis, queen of Bosphorus. You can usually find their aliases through marraiges) depicting a Uraeus (the Egyptian cobra) and also Zeus-Ammon. Other depictions of Asander show the star and cresent
 that is visible in the Julius Caesar coin above. The crescent moon and
 star symbol has Mithraic symbolism, and another coin of Asander depicts a
 Phrygian cap which is closely associated with the Roman god Mithras:
