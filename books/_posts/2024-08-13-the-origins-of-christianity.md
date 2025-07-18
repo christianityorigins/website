@@ -87,7 +87,7 @@ distances. They were a priesthood of dragon/serpent-worshipping kings
 [^1]
 
 All ancient Mediterranean religions derive from the
-Sythian serpent-dragon worshiping religion. See: Papaios (Scythian) = Scorpion I, Pharaoh of Egypt, Uraeus, and Apep/Apophis (Egypt) = Ningishzida (Sumerian) = Tiamat and Mušḫuššu who was associated with Marduk (Babylonian) = Aži Dahāka (Zoroastrianism) later syncretized with Mithra = Ophion, Agathodaemon, Typhon, and Delphi's Pythoness priestess (Greek) = Nāgendra and Nāga (Vedic), Nehushtan/serpent staff of Moses, the Dacian and Roman Draco standards, the serpent-worshipping Gnostics, Jörmungandr (Norse), Ouroboros serpent in Freemasony, etc.
+repackaging of Sythian serpent-dragon worshiping religions. See: Papaios (Scythian) = Scorpion I, Pharaoh of Egypt, Uraeus, and Apep/Apophis (Egypt) = Ningishzida (Sumerian) = Tiamat and Mušḫuššu who was associated with Marduk (Babylonian) = Aži Dahāka (Zoroastrianism) later syncretized with Mithra = Ophion, Agathodaemon, Typhon, and Delphi's Pythoness priestess (Greek) = Nāgendra and Nāga (Vedic), Nehushtan/serpent staff of Moses, the Dacian and Roman Draco standards, the serpent-worshipping Gnostics, Jörmungandr (Norse), Ouroboros serpent in Freemasony, etc.
 
 Timeline:
 
@@ -193,8 +193,8 @@ salvation). Christianity was for slaves ("turn the other cheek")).
 
 Fig. 1.3 Copper statuette of the god Sarapis Amun Agathodaemon depicted as half-deity. half-snake (Egypt late Hellenistic/early Roman period 1st century BC - 1st century AD).
 
-The Sarapis cult eventually evolved into Christianity (the Christogram symbolizing Jesus
-Christ (IHS) = "Isis-Horus-Serapis"). 
+The Sarapis cult eventually evolved into Christianity through the Alexandrian School repackaging this cult and targeting it at local populations (the Christogram symbolizing Jesus
+Christ (IHS) = "Isis-Horus-Serapis"). Religion was the technology that the empire used to subjugate the poeple they ruled.
 
 Julius Caesar was Ptolemy XI Alexander II, Cleopatra's uncle, and he
 also took on the regional aliases of Asander, king of Bosphorus, among numerous
