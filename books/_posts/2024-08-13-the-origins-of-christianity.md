@@ -42,25 +42,21 @@ Numbers 21:9 (The "serpents" in this passage are identified as Scythians in late
 
 **Table of Contents**
 
-<div>
-Preface .......................................................................... 1<br>
-Introduction ................................................................. 3<br>
-1. Name and Title Meanings ...................................... 15<br>
-2. Ancient Alias Names List ........................................ 28<br>
-3. Julius Caesar aka Asander of Bosphorus .............. 41<br>
-4. Rome on the Bosphorus? ....................................... 54<br>
-5. Flavian Dynasty ........................................................ 67<br>
-6. Julius Caesar was a Title .......................................... 80<br>
-7. Esus the Celtic Deity ................................................ 93<br>
-8. Subversion of the Imperial Cult ............................ 106<br>
-Conclusion ................................................................... 119<br>
-Appendix A: Alexander the Great ............................. 132<br>
-Appendix B: Origins of Judaism ................................ 145<br>
-Glossary ....................................................................... 158<br>
-Bibliography ................................................................ 170<br>
-</div>\
-
-
+Preface\
+Introduction\
+1 Name and Title Meanings\
+2 Ancient Alias Names List\
+3 The Alexandrian School\
+4 Julius Caesar aka Asander of Bosphorus\
+5 Julius Caesar was a Title   \
+6 Rome on the Bosphorus?\
+7 Flavian Dynasty\
+8 Esus the Celtic Deity\
+9 Subversion of the Imperial Cult\
+Conclusion\
+Appendix A: Alexander the Great\
+Glossary\
+Bibliography
 
 **Preface**
 
@@ -173,29 +169,6 @@ Sarmatian Draco coiled around a solar cross.
 In Sarmatian, "Ruma" (Rome) = "Place of the Dragon" (Rhu-Ma, from Aži
 Dahāka, the Iranian dragon).
 
-In Egypt, Ptolemy I Soter, who was a Scythian continuation of this
-Sarmatian line, used religion to subjugate the vast and disparate
-peoples he ruled. The Alexandrian School in Egypt was his religion
-making factory. He was in the process of creating a universal religion
-and this was being achieved by gradual syncretism using local identities
-and blending local deities into syncretic universal savior archetypes
-(Interpretatio Graecae) as a transitional phase toward a universal
-monotheism. The Ptolemaic elites were conditioning the disparate
-populations they ruled into accepting the Serapis cult (sarp- is a
-Proto-Indo-European root meaning "serpent" as seen in Sanskrit sarpa,
-"snake". "Sar-Ap" translates to "Serpent-Lord" in Scythian. (*One other option is that these
-religions were targeted towards different castes: Mithraism was for
-military elites (required blood oaths. Mithraic initiates/caste
-system/hierarchical). Serapism was for civilians (promised afterlife
-salvation). Christianity was for slaves ("turn the other cheek")).
-
-![Fig.1.3](/images/SarapisAmunAgathodaemon.jpg){:width="400px"}
-
-Fig. 1.3 Copper statuette of the god Sarapis Amun Agathodaemon depicted as half-deity. half-snake (Egypt late Hellenistic/early Roman period 1st century BC - 1st century AD).
-
-The Sarapis cult eventually evolved into Christianity through the Alexandrian School, which repackaged this cult and targeted it at local populations (the Christogram symbolizing Jesus
-Christ (IHS) = "Isis-Horus-Serapis"). Religion was the technology that the empire used to subjugate the people they ruled.
-
 Julius Caesar was Ptolemy XI Alexander II, Cleopatra's uncle, and he
 also took on the regional aliases of Asander, king of Bosphorus, among numerous
 other aliases. Cleopatra was also Dynamis, queen of Bosphorus. Mark
@@ -279,7 +252,7 @@ Footnotes (Introduction)
     deposed by a Piso. Appius is also cognate with Arrius (through
     rhotacization in ancient Latin the /p/ and /r/ could be swapped.
 -   "Sar" root (Sar is the Scythian word for King. Sarpa (Sanskrit) =
-    Serpent, so "King of the Serpent"): Sarmatian, Saracen, Sargon,
+    Serpent, so "King of the Serpent"): Sarmatian, Sargon,
     Sarlagab, Akkadian šarrum, Vedic Sarpa, Serapis (Sar-Apis),
     Zarathustra, Saracen (Roman word for Middle Easterners), Cesar, Asar, Tsar, etc. Sar means king across empires. In the bible the Scythian Sar (king) became Esau (Edom) the progenitor of the Edomites in the bible, a metaphor for the forces of oppression and
 injustice.
@@ -353,7 +326,27 @@ IV. Speculative
 -   Gautama Buddha (Egyptian: "Ba-Djehuti", or "Soul of Thoth"): Gaumata
     Bardya (Cyrus the Great's son)
 
-**3 Julius Caesar aka Asander of Bosphorus**
+**3 The Alexandrian School**
+
+In Egypt, Ptolemy I Soter, who was a Scythian continuation of the Sarmatian snake/serpent kings line, used religion to subjugate the vast and disparate peoples he ruled. The Alexandrian School was his religion making factory. He was in the process of creating a universal religion and this was being achieved by gradual syncretism using local identities and blending local deities into syncretic universal savior archetypes (Interpretatio Graecae) as a transitional phase toward a universal monotheism. The Ptolemaic elites were conditioning the disparate populations they ruled into accepting the Serapis cult (sarp- is a Proto-Indo-European root meaning "serpent" as seen in Sanskrit sarpa, "snake". "Sar-Ap" translates to "Serpent-Lord" in Scythian. (*One other option is that these religions were targeted towards different castes: Mithraism was for military elites (required blood oaths. Mithraic initiates/caste system/hierarchical). Serapism was for civilians (promised afterlife salvation). Christianity was for slaves ("turn the other cheek")).
+
+![Fig.1.3](/images/SarapisAmunAgathodaemon.jpg){:width="400px"}
+
+Fig. 1.3 Copper statuette of the god Sarapis Amun Agathodaemon depicted as half-deity. half-snake (Egypt late Hellenistic/early Roman period 1st century BC - 1st century AD).
+
+The Sarapis cult eventually evolved into Christianity, which was repackaged Serapis cult and targeted at local populations (the Christogram symbolizing Jesus Christ (IHS) = "Isis-Horus-Serapis"). Religion was the technology that the empire used to subjugate the people they ruled.
+
+Ptolemy I Soter was also responsible for inventing Judaism. His aim was to subvert Canaanite identity once and for all, destroying the only contestant to Greco-Egyptian power in the world up to that point, and gradually forcing jews to accept the Serapis cult. 
+
+It was in Alexandria at the Library of Alexandria where the Pentateuch and Septuagint were written. The myth of the jewish people and the Laws of Moses were based on Plato's hypothetical colony of Magnesia from his thesis called The Laws (347 BC) in which the proposed charter for the Cretan colony of Magnesia was modeled in large part on Athenian legal and constitutional traditions. Ancestor received law from a deity, hereditary priesthood rather than king, as well as the division into 12 tribes were all part of the formula. Plato's Timaeus (360 BC) is where the story of Abraham comes from. Plato's Timaeus is also the source for Genesis 1-11 15. Homer's Odysseey was the source of Genesis 24, 42-46. The biblical concept of hell was stolen from Plato's Replublic ('Myth of Er'), and the spiritual plane of Heaven is ripped off from Plato's 'World of Forms'. Exodus is just a semitized retcon of Jason and the Argonauts, and the Oracles Against the Nations plagiarize the Sibylline Oracles.
+
+Moses = Osarseph (Osar (Osiris) and seph (son) = Son of Osirus). The Greek rendering of Moses and Osarseph are identical. Osarseph appears in accounts by the Egyptian priest Manetho, who described him as a renegade priest leading a group of lepers in rebellion, eventually adopting the name "Moses" (Josephus. 'Against Apion' discussing Manetho's account of Osarseph). Osarseph also = Serapis. The "Ser" symbol in Ser-apis is the same as seph meaning "son of". Serapis can be interpreted as "Son of Osiris-Apis", which evolved into "Son of Osiris". So, Serapis is just another word for Osarseph. Solomon = Sol-Amūn ("Sun of Amun"). Abraham = Ab-Ram, or Son of Ram. Alexander was the Ram god. The Serapis cult was invented by Ptolemy I Soter to subjugate the Egyptians to their Greek rulers.
+
+The rest of their religion and identity came from later incarnations of this imperial cult: I(J)upiter was also called Jove or Iove to the Romans. The Latin pronunciation of Iove would have been Yoh-Way, i.e Yahweh/Yhwh, so Yahweh Saboath, the god of the hebrew bible, is I(J)ove (Roman Zeus) Sabazios (Thracian Zeus).
+
+Abel and Cain are just a copy of Romulus and Remus. Judas Iscariot is a copy of Brutus. Genesis 4:5-31. Enoch, Irad, Mehujael, Methuselah, Lamech, Seth, Enosh, Kenan, Mahalalel, are copies of Titus Livy's Regal Rome of the seven kings.
+
+**4 Julius Caesar aka Asander of Bosphorus**
 
 There was a Byzantine [^2] imperial cult where Julius Caesar [^3] took
 on the role of Asander (also Asandros), King of Bosphorus [^4] ("Asa"
@@ -720,144 +713,7 @@ Endnotes (Chapter 3)
     design slave moralities to strip the will to power from the
     population to prevent rebellions.
 
-**4 Rome on the Bosphorus?**
-
-My research on the origins of Christianity takes me to the Bosphorus
-river in classical Anatolia (Julius Caesar = Asander, King of Bosphorus,
-and Cleopatra = Dynamis). This is incongruent with mainstream history.
-However, there are a few revisionist authors such as Anatoly Fomenko and
-Gunnar Heinsohn who make the claim that the Western Roman Empire is a
-duplicate of the Eastern Roman Empire not the other way around and that
-much of the history of the Western Roman Empire was conjured up by the
-Church Fathers, Jesuits, Joseph Justus Scaliger, and medieval forgers,
-either to retrofit history to align with the Bible, due to conflicts
-between the Vatican and the Eastern Byzantine Church, or for profit.
-
-The area of modern-day Istanbul was once called 'Basileía tôn Rhômaíôn'
-('Kingdom of the Romans') and the people of that region called
-themselves Rhōmaîoi (Romans). Historians assume that region got it's
-name after Roman colonization, but why? Every romance language based on
-Latin underwent a linguistic evolution except Romanian, which is the
-closest language to classical Latin. Could it be that the original
-Romans hailed from Romania and then moved south to Anatolia? A
-substantial part of Byzantine coinage from two millennia ago boasts
-inscriptions in Latin and not in Greek, including the Asander of
-Bosphorus coin above.
-
-There is genetic and historical evidence proving the Rome on the
-Bosphorus theory. Rome was founded by Italic tribes of "Indo-Europeans".
-However, this is where academic definitions fail because those founders
-of Rome were actually 85%+ Anatolian Early European Farmer (EAF). The
-Etruscans who established Rome were invaders from Anatolia, and the
-Carians who hailed from southwest Anatolia have a strong connection with
-the settlement of Rome (Aquilla = Qos = god of Kos of Caria).
-
-Endnotes (Chapter 4)
-
-(a) Asander and Dynamis had one known son, Tiberius Julius Aspurgus
-    Philoromaios. He was born about the same time as "Caesarion" and
-    "Emperor Tiberius Julius Caesar". His wife, known only through
-    numismatic evidence, was Gepae-pyris. Tiberius and Gepaepyris had
-    two sons; the eldest was "Tiberius Julius Mithridates
-    Philo-Germanicus Philopatris" ("son of Mithra, lover of Germanicus,
-    lover of father"). Their second son was "Tiberius Julius Cotys I
-    Philocaesar Philoromaios Eusebes" ("lover of Caesar, lover of Rome
-    who is the Pious One").
-
-Tiberius Julius Aspurgus Philoromaios (son). Married to: Gepae-pyris.
-Children:
-Tiberius Julius Mithridates Philo-Germanicus Philopatris (eldest son)
-Tiberius Julius Cotys I Philocaesar Philoromaios Eusebes (second son)
-
-Now, let's connect this family to the Roman Emperor's family:
-
-Emperor Tiberius Julius Caesar
-Adopted son and heir: Germanicus
-Biological son: Drusus
-
-Tiberius Julius Aspurgus Philoromaios and Emperor Tiberius Julius Caesar
-were born around the same time, and their sons were also born around the
-same time.
-
-Also, Polemon Pythodoros (Julius Caesar/Asander) and Pythodorida of
-Pontus (Cleopatra/Dynamis) had a daughter Antonia Tryphaena. Her son was
-Rhoemetalces II whose reign coincided with emperor Claudius.
-
-Emperor Titus = Polemon II of Pontus who was the prince of the Bosporan,
-Pontus, Cilicia, and Cappadocia.
-
-**5 Flavian Dynasty**
-
-Vespasian was also a great-grandson of Cleopatra and Mark Antony (King
-Herod). He was Herod Pollio aka Herod Agrippa I, grandson of King
-Herod's son Aristobulus IV. Vespasian was his title, not his name
-(Vas/Bas was the royal abbreviation for the Greek word Basilius which =
-King, and Pasius = Peace. 'Vespasian' = 'King Peace') [^13]. He was also
-'Flavius Scaevinus' the conspirator involved in Nero's assassination.
-
-![Fig.
-1.18](/images/Vespasian.jpg){:width="400px"}
-
-Fig. 1.18. Compare Vespasian's depiction to Herod Agrippa I
-
-'Antonia Caenis' was Vespassian's mistress who was his first cousin who
-was Cleopatra (Thea Philopator) of Mauretania aka Cleopatra IX aka
-Helene aka Drusilla of Mauretania aka Julia Ourania of Parthia aka Philo
-of Alexandria. (Caenis was the Greek goddess who was transformed into a
-man, and she role-played as two men: Marcus Antonius Pallas and Philo).
-
-Cleopatra (Thea Philopator) of Mauretania aka Cleopatra IX aka Helene
-aka Drusilla of Mauretania aka Julia Ourania of Parthia aka Philo of
-Alexandria aka Antonia Caenis's son was Tiberius Julius Alexander aka
-Josephus who was the Prefect (leader) of the Praetorian Guard which made
-him arguably the most powerful man in the empire during Vespasian's
-reign.
-
-Vespasian's son Titus was in a relationship with his aunt Berenice,
-granddaughter of King Herod, who was St. Veronica in the bible (Veronica
-is a transliteration of the Greek name Berenike meaning 'victory').
-
-Berenice's brother Marcus Julius Agrippa II, whom she was in an
-incestuous relationship with before moving on to her nephew (previous to
-this she was married to her uncle Herod of Chalcis), was the governor of
-all foreign Roman territories except Egypt (which was governed by
-Tiberius Julius Alexander) during the Flavian period.
-
-Emperor Vitellius was probably an alias for Vespasian's older brother
-Titus Flavius Sabinus who was married to Mariamne III aka "Arria the
-Elder" ("Arria" from her father's name judean king Aristobulus IV who
-was the son of King Herod and he was also Julius Caesar's adopted son.
-Aristobulus IV was likely Vespasian and Vitellius's father, so like his
-cousin Alexander (grandson of King Herod), he was also married to his
-sister).
-
-Endnotes (Chapter 5)
-
-(a) Theory: Alexander (grandson of King Herod) aka Gaius Julius
-    Alexander, Herodian Prince of Judaea aka Alexander Lysimachus aka
-    Alexander the Alabarch aka Tiberius Julius Alexander Major aka
-    (King/Tetrarch) Ptolemy (Alexander) bar Menneus aka Ptolemy of
-    Mauretania was also the Roman general 'Gnaeus Domitius Corbulo'.
-    Gnaeus Domitius Corbulo conquered Armenia alongside Tiberius Julius
-    Alexander (his son Tiberius Julius Alexander aka Arrius Calpernius
-    Piso aka Arrius Varus aka Tiberius Julius Cotys aka Emperor Nerva),
-    after which, Tigranes VI (Tiberius Julius Alexander) was installed
-    as king. Compare his bust [link] to the famous 'Josephus'
-    (Tiberius Julius Alexander) bust [link]. Notice a resemblance? If
-    this is correct, then he (Alexander) would have been the
-    brother-in-law to Caligula and father-in-law to Domitian. Tiridates
-    of Armenia (who would have been Mithridates Chrestus'
-    great-great-grandson) was the one who spread the religion Mithraism
-    which was a syncretic a slave-morality religion to subjugate the
-    Parthians. Mithras is inspired by Zoroastrianism, the religion of
-    the Persians/Parthians, but Mithras is the same as Sabazios. It's a
-    solar son deity, a Jupiter.
-(b) Coin of Vespasian depicitng "Zeus-Sarapis":
-    https://www.coinarchives.com/a/lotviewer.php?LotID=2528933&AucID=6356&Lot=485&Val=e5e4db7aa704d656893926a33a970991
-(c) Hebrew Wordplay: Vespasian -> V'Esav Pan (ועשו פן) -> "And Esau's
-    Face" (Talmudic insult linking him to Edom).
-
-**6 Julius Caesar was a Title**
+**4 Julius Caesar was a Title**
 
 Identifying Julius Caesar as Asander of Bosphorus necessitates a
 re-examination of his name.
@@ -931,6 +787,143 @@ Aryan Sarmatians, role played as jews, an irrelevant tribe, and israel
 was an irrelevant slice of land in the desert, this makes this claim
 more credible. jews just adopted this imperial cult and they got their
 entire identity and history from here.
+
+**5 Rome on the Bosphorus?**
+
+My research on the origins of Christianity takes me to the Bosphorus
+river in classical Anatolia (Julius Caesar = Asander, King of Bosphorus,
+and Cleopatra = Dynamis). This is incongruent with mainstream history.
+However, there are a few revisionist authors such as Anatoly Fomenko and
+Gunnar Heinsohn who make the claim that the Western Roman Empire is a
+duplicate of the Eastern Roman Empire not the other way around and that
+much of the history of the Western Roman Empire was conjured up by the
+Church Fathers, Jesuits, Joseph Justus Scaliger, and medieval forgers,
+either to retrofit history to align with the Bible, due to conflicts
+between the Vatican and the Eastern Byzantine Church, or for profit.
+
+The area of modern-day Istanbul was once called 'Basileía tôn Rhômaíôn'
+('Kingdom of the Romans') and the people of that region called
+themselves Rhōmaîoi (Romans). Historians assume that region got it's
+name after Roman colonization, but why? Every romance language based on
+Latin underwent a linguistic evolution except Romanian, which is the
+closest language to classical Latin. Could it be that the original
+Romans hailed from Romania and then moved south to Anatolia? A
+substantial part of Byzantine coinage from two millennia ago boasts
+inscriptions in Latin and not in Greek, including the Asander of
+Bosphorus coin above.
+
+There is genetic and historical evidence proving the Rome on the
+Bosphorus theory. Rome was founded by Italic tribes of "Indo-Europeans".
+However, this is where academic definitions fail because those founders
+of Rome were actually 85%+ Anatolian Early European Farmer (EAF). The
+Etruscans who established Rome were invaders from Anatolia, and the
+Carians who hailed from southwest Anatolia have a strong connection with
+the settlement of Rome (Aquilla = Qos = god of Kos of Caria).
+
+Endnotes (Chapter 5)
+
+(a) Asander and Dynamis had one known son, Tiberius Julius Aspurgus
+    Philoromaios. He was born about the same time as "Caesarion" and
+    "Emperor Tiberius Julius Caesar". His wife, known only through
+    numismatic evidence, was Gepae-pyris. Tiberius and Gepaepyris had
+    two sons; the eldest was "Tiberius Julius Mithridates
+    Philo-Germanicus Philopatris" ("son of Mithra, lover of Germanicus,
+    lover of father"). Their second son was "Tiberius Julius Cotys I
+    Philocaesar Philoromaios Eusebes" ("lover of Caesar, lover of Rome
+    who is the Pious One").
+
+Tiberius Julius Aspurgus Philoromaios (son). Married to: Gepae-pyris.
+Children:
+Tiberius Julius Mithridates Philo-Germanicus Philopatris (eldest son)
+Tiberius Julius Cotys I Philocaesar Philoromaios Eusebes (second son)
+
+Now, let's connect this family to the Roman Emperor's family:
+
+Emperor Tiberius Julius Caesar
+Adopted son and heir: Germanicus
+Biological son: Drusus
+
+Tiberius Julius Aspurgus Philoromaios and Emperor Tiberius Julius Caesar
+were born around the same time, and their sons were also born around the
+same time.
+
+Also, Polemon Pythodoros (Julius Caesar/Asander) and Pythodorida of
+Pontus (Cleopatra/Dynamis) had a daughter Antonia Tryphaena. Her son was
+Rhoemetalces II whose reign coincided with emperor Claudius.
+
+Emperor Titus = Polemon II of Pontus who was the prince of the Bosporan,
+Pontus, Cilicia, and Cappadocia.
+
+**6 Flavian Dynasty**
+
+Vespasian was also a great-grandson of Cleopatra and Mark Antony (King
+Herod). He was Herod Pollio aka Herod Agrippa I, grandson of King
+Herod's son Aristobulus IV. Vespasian was his title, not his name
+(Vas/Bas was the royal abbreviation for the Greek word Basilius which =
+King, and Pasius = Peace. 'Vespasian' = 'King Peace') [^13]. He was also
+'Flavius Scaevinus' the conspirator involved in Nero's assassination.
+
+![Fig.
+1.18](/images/Vespasian.jpg){:width="400px"}
+
+Fig. 1.18. Compare Vespasian's depiction to Herod Agrippa I
+
+'Antonia Caenis' was Vespassian's mistress who was his first cousin who
+was Cleopatra (Thea Philopator) of Mauretania aka Cleopatra IX aka
+Helene aka Drusilla of Mauretania aka Julia Ourania of Parthia aka Philo
+of Alexandria. (Caenis was the Greek goddess who was transformed into a
+man, and she role-played as two men: Marcus Antonius Pallas and Philo).
+
+Cleopatra (Thea Philopator) of Mauretania aka Cleopatra IX aka Helene
+aka Drusilla of Mauretania aka Julia Ourania of Parthia aka Philo of
+Alexandria aka Antonia Caenis's son was Tiberius Julius Alexander aka
+Josephus who was the Prefect (leader) of the Praetorian Guard which made
+him arguably the most powerful man in the empire during Vespasian's
+reign.
+
+Vespasian's son Titus was in a relationship with his aunt Berenice,
+granddaughter of King Herod, who was St. Veronica in the bible (Veronica
+is a transliteration of the Greek name Berenike meaning 'victory').
+
+Berenice's brother Marcus Julius Agrippa II, whom she was in an
+incestuous relationship with before moving on to her nephew (previous to
+this she was married to her uncle Herod of Chalcis), was the governor of
+all foreign Roman territories except Egypt (which was governed by
+Tiberius Julius Alexander) during the Flavian period.
+
+Emperor Vitellius was probably an alias for Vespasian's older brother
+Titus Flavius Sabinus who was married to Mariamne III aka "Arria the
+Elder" ("Arria" from her father's name judean king Aristobulus IV who
+was the son of King Herod and he was also Julius Caesar's adopted son.
+Aristobulus IV was likely Vespasian and Vitellius's father, so like his
+cousin Alexander (grandson of King Herod), he was also married to his
+sister).
+
+Endnotes (Chapter 6)
+
+(a) Theory: Alexander (grandson of King Herod) aka Gaius Julius
+    Alexander, Herodian Prince of Judaea aka Alexander Lysimachus aka
+    Alexander the Alabarch aka Tiberius Julius Alexander Major aka
+    (King/Tetrarch) Ptolemy (Alexander) bar Menneus aka Ptolemy of
+    Mauretania was also the Roman general 'Gnaeus Domitius Corbulo'.
+    Gnaeus Domitius Corbulo conquered Armenia alongside Tiberius Julius
+    Alexander (his son Tiberius Julius Alexander aka Arrius Calpernius
+    Piso aka Arrius Varus aka Tiberius Julius Cotys aka Emperor Nerva),
+    after which, Tigranes VI (Tiberius Julius Alexander) was installed
+    as king. Compare his bust [link] to the famous 'Josephus'
+    (Tiberius Julius Alexander) bust [link]. Notice a resemblance? If
+    this is correct, then he (Alexander) would have been the
+    brother-in-law to Caligula and father-in-law to Domitian. Tiridates
+    of Armenia (who would have been Mithridates Chrestus'
+    great-great-grandson) was the one who spread the religion Mithraism
+    which was a syncretic a slave-morality religion to subjugate the
+    Parthians. Mithras is inspired by Zoroastrianism, the religion of
+    the Persians/Parthians, but Mithras is the same as Sabazios. It's a
+    solar son deity, a Jupiter.
+(b) Coin of Vespasian depicitng "Zeus-Sarapis":
+    https://www.coinarchives.com/a/lotviewer.php?LotID=2528933&AucID=6356&Lot=485&Val=e5e4db7aa704d656893926a33a970991
+(c) Hebrew Wordplay: Vespasian -> V'Esav Pan (ועשו פן) -> "And Esau's
+    Face" (Talmudic insult linking him to Edom).
 
 **7 Esus the Celtic Deity**
 
@@ -1226,60 +1219,6 @@ Sanskrit: "Noble Charioteer") VII of Cappadocia, et.al., and his son
 Asander (obvious reference to Alexander), King of Bosphorus aka
 Pharnaces II ("Pharao-Nikes", or "Victorious Pharaoh") aka Brogitarix,
 king of Galatia aka Ariarathes IX aka Julius Caesar.
-
-**Appendix B: Origins of Judaism**
-
-Hebrews/Jews were invented in the 3rd century BC by the Greek diadochi
-ruler Ptolemy Soter to achieve two goals:
-
-1)Foment the Maccabean revolt in order to exile Greeks back to Hellas
-since the homeland population was low after Alexander's conquests
-2)Subvert Canaanite identity once and for all, destroying the only
-contestant to Greco-Egyptian power in the world up to that point
-
-It was in Alexandria at the Library of Alexandria where the Pentateuch
-and Septuagint were written. The myth of the jewish people and the Laws
-of Moses were based on Plato's hypothetical colony of Magnesia from his
-thesis called The Laws (347 BC) in which the proposed charter for the
-Cretan colony of Magnesia was modeled in large part on Athenian legal
-and constitutional traditions. Ancestor received law from a deity,
-hereditary priesthood rather than king, as well as the division into 12
-tribes were all part of the formula. Plato's Timaeus (360 BC) is where
-the story of Abraham comes from. Plato's Timaeus is also the source for
-Genesis 1-11 [^15]. Homer's Odysseey was the source of Genesis 24,
-42-46. The biblical concept of hell was stolen from Plato's Replublic
-('Myth of Er'), and the spiritual plane of Heaven is ripped off from
-Plato's 'World of Forms'. Exodus is just a semitized retcon of Jason and
-the Argonauts, and the Oracles Against the Nations plagiarize the
-Sibylline Oracles.
-
-Moses = Osarseph (Osar (Osiris) and seph (son) = Son of Osirus). The
-Greek rendering of Moses and Osarseph are identical. Osarseph appears in
-accounts by the Egyptian priest Manetho, who described him as a renegade
-priest leading a group of lepers in rebellion, eventually adopting the
-name "Moses" (Josephus. 'Against Apion' discussing Manetho's account of
-Osarseph). Osarseph also = Serapis. The "Ser" symbol in Ser-apis is the
-same as seph meaning "son of". Serapis can be interpreted as "Son of
-Osiris-Apis", which evolved into "Son of Osiris". So, Serapis is just
-another word for Osarseph. Solomon = Sol-Amūn ("Sun of Amun"). Abraham =
-Ab-Ram, or Son of Ram. Alexander was the Ram god. The Serapis cult was
-invented by Ptolemy I Soter to subjugate the Egyptians to their Greek
-rulers.
-
-The rest of their religion and identity came from later incarnations of
-this imperial cult: I(J)upiter was also called Jove or Iove to the
-Romans. The Latin pronunciation of Iove would have been Yoh-Way, i.e
-Yahweh/Yhwh, so Yahweh Saboath, the god of the hebrew bible, is I(J)ove
-(Roman Zeus) Sabazios (Thracian Zeus).
-
-Abel and Cain are just a copy of Romulus and Remus. Judas Iscariot is a
-copy of Brutus. Genesis 4:5-31. Enoch, Irad, Mehujael, Methuselah,
-Lamech, Seth, Enosh, Kenan, Mahalalel, are copies of Titus Livy's Regal
-Rome of the seven kings.
-
-After Rabbi Akiva Judaism turned into a group strategy, but before then
-it was one of the numerous syncretic slave moralities that came out of
-the Alexandrian School.
 
 **Glossary**
 
