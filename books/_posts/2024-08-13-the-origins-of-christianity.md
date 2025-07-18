@@ -86,9 +86,8 @@ of the horse and invention of the chariot allowed them to travel vast
 distances. They were a priesthood of dragon/serpent-worshipping kings
 [^1]
 
-All ancient Mediterranean religions from antiquity derive from the
-Sythian serpent-dragon worshiping religions. See: Papaios (Scythian) = Scorpion I, Pharaoh of Egypt, Uraeus, and Apep/Apophis (Egypt) = Ningishzida (Sumerian) = Tiamat and Mušḫuššu who was associated with Marduk (Babylonian) = Aži Dahāka (Zoroastrianism) later
-syncretized with Mithra = Ophion, Agathodaemon, Typhon, and Delphi's Pythoness priestess (Greek) = Nāgendra and Nāga (Vedic), Nehushtan/serpent staff of Moses, the Dacian and Roman Draco standards, and the serpent-worshipping Gnostics, Jörmungandr (Norse), etc.
+All ancient Mediterranean religions derive from the
+Sythian serpent-dragon worshiping religion. See: Papaios (Scythian) = Scorpion I, Pharaoh of Egypt, Uraeus, and Apep/Apophis (Egypt) = Ningishzida (Sumerian) = Tiamat and Mušḫuššu who was associated with Marduk (Babylonian) = Aži Dahāka (Zoroastrianism) later syncretized with Mithra = Ophion, Agathodaemon, Typhon, and Delphi's Pythoness priestess (Greek) = Nāgendra and Nāga (Vedic), Nehushtan/serpent staff of Moses, the Dacian and Roman Draco standards, the serpent-worshipping Gnostics, Jörmungandr (Norse), Ouroboros serpent in Freemasony, etc.
 
 Timeline:
 
@@ -198,13 +197,12 @@ The Sarapis cult eventually evolved into Christianity (the Christogram symbolizi
 Christ (IHS) = "Isis-Horus-Serapis"). 
 
 Julius Caesar was Ptolemy XI Alexander II, Cleopatra's uncle, and he
-also took on the regional aliases of Asander, king of Bosphorus, and
-Pharnaces II ("Pharao-Nikes", or "Victorious Pharaoh"), among numerous
+also took on the regional aliases of Asander, king of Bosphorus, among numerous
 other aliases. Cleopatra was also Dynamis, queen of Bosphorus. Mark
 Antony the Neos-Dionysos was either Ptolemy of Cyprus, a brother of
 Cleopatra's father Ptolemy XII Auletes (Auletes name adapts well to the
 Parthian Orodes (II?)) the Neos Dionysos aka Polemon (Polemos ->
-Ptolemy) I of Pontus aka King Herod (Egyptian: Heru (Horus) + Ud
+Ptolemy) I of Pontus aka Pharnaces II ("Pharao-Nikes", or "Victorious Pharaoh") aka King Herod (Egyptian: Heru (Horus) + Ud
 (divine) -> Herud -> "Herod") aka Tiberius Claudius Nero aka Phraates
 IV of Parthia (Per-aa or Per-Nesu is a corruption of Pharaoh), or he was
 Ptolemy XII Auletes himself (Cleopatra's full name, Cleopatra VII
@@ -302,7 +300,7 @@ I. Ptolemaic & Bosphoran Dynasty
 -   Julius Caesar: Ptolemy XI Alexander
 II, Asander, King of Bosphorus (Philocaesar Philoromaios, Soter, Great
 King of Kings, "As" in his name refers to
-Asar(Osiris)/Aesar/Aeser/Aisar/Ais/Is), Pharnaces II, Brogitarix
+Asar(Osiris)/Aesar/Aeser/Aisar/Ais/Is), Brogitarix
 -   Cleopatra VII (Isis who in mythology was the wife of Osiris and the
 mother of Horus): Dynamis Ourania (Aphrodite Urania), Pythodorida
 Philometor
