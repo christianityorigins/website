@@ -193,8 +193,8 @@ salvation). Christianity was for slaves ("turn the other cheek")).
 
 Fig. 1.3 Copper statuette of the god Sarapis Amun Agathodaemon depicted as half-deity. half-snake (Egypt late Hellenistic/early Roman period 1st century BC - 1st century AD).
 
-The Sarapis cult eventually evolved into Christianity through the Alexandrian School repackaging this cult and targeting it at local populations (the Christogram symbolizing Jesus
-Christ (IHS) = "Isis-Horus-Serapis"). Religion was the technology that the empire used to subjugate the poeple they ruled.
+The Sarapis cult eventually evolved into Christianity through the Alexandrian School, which repackaged this cult and targeted it at local populations (the Christogram symbolizing Jesus
+Christ (IHS) = "Isis-Horus-Serapis"). Religion was the technology that the empire used to subjugate the people they ruled.
 
 Julius Caesar was Ptolemy XI Alexander II, Cleopatra's uncle, and he
 also took on the regional aliases of Asander, king of Bosphorus, among numerous
