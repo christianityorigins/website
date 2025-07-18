@@ -340,11 +340,13 @@ Ptolemy I Soter was also responsible for inventing Judaism. His aim was to subve
 
 It was in Alexandria at the Library of Alexandria where the Pentateuch and Septuagint were written. The myth of the jewish people and the Laws of Moses were based on Plato's hypothetical colony of Magnesia from his thesis called The Laws (347 BC) in which the proposed charter for the Cretan colony of Magnesia was modeled in large part on Athenian legal and constitutional traditions. Ancestor received law from a deity, hereditary priesthood rather than king, as well as the division into 12 tribes were all part of the formula. Plato's Timaeus (360 BC) is where the story of Abraham comes from. Plato's Timaeus is also the source for Genesis 1-11 15. Homer's Odysseey was the source of Genesis 24, 42-46. The biblical concept of hell was stolen from Plato's Replublic ('Myth of Er'), and the spiritual plane of Heaven is ripped off from Plato's 'World of Forms'. Exodus is just a semitized retcon of Jason and the Argonauts, and the Oracles Against the Nations plagiarize the Sibylline Oracles.
 
-Moses = Osarseph (Osar (Osiris) and seph (son) = Son of Osirus). The Greek rendering of Moses and Osarseph are identical. Osarseph appears in accounts by the Egyptian priest Manetho, who described him as a renegade priest leading a group of lepers in rebellion, eventually adopting the name "Moses" (Josephus. 'Against Apion' discussing Manetho's account of Osarseph). Osarseph also = Serapis. The "Ser" symbol in Ser-apis is the same as seph meaning "son of". Serapis can be interpreted as "Son of Osiris-Apis", which evolved into "Son of Osiris". So, Serapis is just another word for Osarseph. Solomon = Sol-Amūn ("Sun of Amun"). Abraham = Ab-Ram, or Son of Ram. Alexander was the Ram god. The Serapis cult was invented by Ptolemy I Soter to subjugate the Egyptians to their Greek rulers.
+Moses = Osarseph (Osar (Osiris) and seph (son) = Son of Osirus). The Greek rendering of Moses and Osarseph are identical. Osarseph appears in accounts by the Egyptian priest Manetho, who described him as a renegade priest leading a group of lepers in rebellion, eventually adopting the name "Moses" (Josephus. 'Against Apion' discussing Manetho's account of Osarseph). Osarseph also = Serapis. The "Ser" symbol in Ser-apis is the same as seph meaning "son of". Serapis can be interpreted as "Son of Osiris-Apis", which evolved into "Son of Osiris". So, Serapis is just another word for Osarseph. Solomon = Sol-Amūn ("Sun of Amun"). Abraham = Ab-Ram, or Son of Ram. Alexander was the Ram god.
 
-The rest of their religion and identity came from later incarnations of this imperial cult: I(J)upiter was also called Jove or Iove to the Romans. The Latin pronunciation of Iove would have been Yoh-Way, i.e Yahweh/Yhwh, so Yahweh Saboath, the god of the hebrew bible, is I(J)ove (Roman Zeus) Sabazios (Thracian Zeus).
+The rest of the jewish religion and identity came from later incarnations of this imperial cult: I(J)upiter was also called Jove or Iove to the Romans. The Latin pronunciation of Iove would have been Yoh-Way, i.e Yahweh/Yhwh, so Yahweh Saboath, the god of the hebrew bible, is I(J)ove (Roman Zeus) Sabazios (Thracian Zeus).
 
 Abel and Cain are just a copy of Romulus and Remus. Judas Iscariot is a copy of Brutus. Genesis 4:5-31. Enoch, Irad, Mehujael, Methuselah, Lamech, Seth, Enosh, Kenan, Mahalalel, are copies of Titus Livy's Regal Rome of the seven kings.
+
+After the Serapis cult the Alexandrian School made an industry out of taking existing religions and then adding to them a psyop slave-morality foundation. The goal was to get the population to accept monotheism and move them towards the Sarapis cult. The Serapis cult, Gnosticism, Mithraism, Christianity, Manichaeanism, Valentinianism, Hermeticism (Philo of Alexandria’s syncretic philosophy to Hellenize the Canaanite religion of the levant), Buddhism (most likely Philo of Alexandria’s syncretic attempt at combining the ancient Vedas with Stoicism/Alexandrian slave morality to subvert the Indo-Aryans, etc., all came from here. 
 
 **4 Julius Caesar aka Asander of Bosphorus**
 
@@ -730,10 +732,14 @@ Celtic tribe known as the Iudii or Iudaei. "Ioulios" (ιούλιος) in Greek
 also means "descended from Jupiter" or "son of Jupiter". So, it is
 possible that the word "jew" comes from the Iudii or Iudaei.
 
-The Egyptian name "Asar" was another name for Osiris, from which the
-Etruscan word "Aesar" (also spelled "Aeser" or "Aisar") likely derived
-from, meaning god or divine. The Greek language adds a "K" to foreign
-words, so Aesar -> Greek Kaesar -> Latin Caesar. In Celtic cultures,
+The Egyptian name "Asar" was another name for Osiris. "Ra"
+    was the Egyptian deity of the Sun (Asar-Ra). This title very likely
+    connects to "Asar-Hapi" (Osiris-Apis), another name for the
+    Graeco-Egyptian god Serapis (Osiris + Apis = Osorapis). The Etruscan
+    word "Aesar" (also spelled "Aeser" or "Aisar"), meaning god or
+    divine, likely derives from the Egyptian Asar. The Greek language
+    adds a "K" to foreign words, so Aesar -> Greek Kaesar -> Latin
+    Caesar. This title also resembles the the Scythian/Hurrian "Kur-Sar" (Sun King) and the Phoenician "Kosar" (sun god). In Celtic cultures,
 Caesarus also referred to a Celtic chieftain who likely took on a divine
 role. For example, Caesorix was the leader of the Cimbri tribe during
 the Cimbrian War.
@@ -742,15 +748,6 @@ Gaius Julius Caesar was a title, and Gaius Julius Caesar could
 conceivably translate to: Chieftain of the Iudii or Iudaiei tribe from
 Galatia, or Lord Asar/Aesus (pronunced ah-soos) of the Iudii or Iudaiei
 tribe from Galatia.
-
-Another explanation for his name could be the Roman system of
-'interpretatio romana', which linked their gods to foreign deities as
-part of their colonial program, so the name Julius (Jupiter = Roman
-Zeus) Thracian (C)Aesar (Aesar = Etruscan Zeus) could also be a
-syncretic name. An example of this is how I(J)upiter was called Jove or
-Iove to the Romans. The Latin pronunciation of Iove would have been
-Yoh-Way, i.e., Yahweh/Yhwh, so Yahweh Saboath, the god of the hebrew
-bible, is I(J)ove (Roman Zeus) Sabazios (Thracian Zeus).
 
 'Ashkenazi', or 'Ashkuza', was the name given to the Scythians by the
 ancient Akkadians (Josephus. Vol. 5: Antiquities: 8:2:5, pp. 593-595).
