@@ -55,6 +55,7 @@ Introduction\
 9 Subversion of the Imperial Cult\
 Conclusion\
 Appendix A: Alexander the Great\
+Appendix B: Who Rewrote History?\
 Glossary\
 Bibliography
 
@@ -1216,6 +1217,36 @@ Sanskrit: "Noble Charioteer") VII of Cappadocia, et.al., and his son
 Asander (obvious reference to Alexander), King of Bosphorus aka
 Pharnaces II ("Pharao-Nikes", or "Victorious Pharaoh") aka Brogitarix,
 king of Galatia aka Ariarathes IX aka Julius Caesar.
+
+**Appendix B: Who Rewrote History?**\
+
+History as we know it is totally fraudulent. Who was behind the forging of recorded history?
+
+Likely suspects:
+
+1. Emperor Augustus and the Flavians (Hiding the Scythian Bloodline)
+
+Emperor Augustus and the Flavians had motive to hide their Scythian heritage. They did not want the people to know that they were ruled by a heriditary (foreign) dynasty. They wanted the population to believe that anyone could rise up to the top. 
+
+2. The Church Fathers
+
+The mainstream claim is that the Library of Alexandria was destroyed by Julius Caesar (48 BC) or Muslim conquest (642 AD). The truth is that the final and most devastating burn was ordered by Pope Theophilus I of Alexandria in 391 AD to erase Serapis cult texts that exposed Christianity’s origins. Proof: The Nag Hammadi Library (1945) contained Gnostic texts that matched Serapis theology—proving a cover-up, and the "Letter of Hadrian to Servianus" (found in Vindobonensis manuscript) admits: "Those who worship Serapis are Christians… devotees of Serapis call themselves bishops of Christ."
+
+Pope Theophilus I of Alexandria also destroyed the Serapeum in Alexandria (referred to as the daughter of the Library of Alexandria) in 391 AD. Serapis statues were recarved into "St. Peter".
+
+3. The Vatican
+
+The Vatican made up the "Council of Nicaea". It never happened. There is no contemporary records exist of the Council of Nicaea (325 AD). The "Council of Nicaea" mirrors the Mithraic Congress of 307 AD where Emperor Galerius declared Sol Invictus the official god of Rome. Constantine’s "conversion" was fabricated. He remained a Sol Invictus sun-worshipper until death—his coins never feature Christian symbols. His last coin (337 AD) depicts him as Sol Comitatus ("Sun Companion"), not Christ. The "Chi-Rho" symbol was a later interpolation by Eusebius, who forged Life of Constantine in the 5th century. The "Arian Controversy" was a fake debate to disguise the fact that early Christianity was a Roman imperial cult. Proof: The "Life of Constantine" by Eusebius was forged in the 5th century to retroactively justify Nicaea, and the Edict of Milan (313 AD) never mentions Jesus—only a vague "Divine Providence". Also, the Vatican's greatest forgery was the Donation of Constantine. The Vatican forged it in the 8th century to claim Rome. It was based on earlier forgeries by Eusebius (a Flavian propagandist).
+
+4. The Jesuits
+
+Joseph Justus Scaliger was the Jesuit who likely "authored" most texts historians use today (he had a team of scribes), and Poggio Bracciolini was the guy who collected documents for him and even forged them (there are preserved letters from Bracciolini arranging a forgery with a remote monastery).
+
+Joseph Justus Scalinger's patron was William the Silent/William of Orange aka William Stadholder aka Guillaume de Gellone who was possibly of jewish descent (the flag of the 8th century William of Orange (Guillaume de Gellone) was a gold star on a blue background and William was known as Cortnes, or "the hooked nose"). He ruled the independent principality of Orange in France. See: https://en.wikipedia.org/wiki/A_Jewish_Princedom_in_Feudal_France
+
+If William of Orange was not of jewish descent then he was certainly a shabbos goyim who was financed by the jews. The Glorious Revolution of 1688 was financed by Sephardic Jewish bankers, including Francisco Lopes Suasso. Suasso’s loan was part of a broader network of Jewish financial support for William of Orange. Many Sephardic Jewish merchants and bankers, including Suasso’s father-in-law, Manuel Teixeira, contributed to William’s cause. 
+
+There was a Jesuit named Jean Hardouin who said that a 14th Century conspiracy forged practically all literature traditionally believed to have been written before that era. He was the official librarian to the King of France. He published a book called the Prolegomena and it caused such controversy that the Pope and the King had him come before them and explain himself. He defended his work, and refused to retract it, so they threw him in prison.
 
 **Glossary**
 
