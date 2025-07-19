@@ -46,16 +46,16 @@ Preface\
 Introduction\
 1 Name and Title Meanings\
 2 Ancient Alias Names List\
-3 The Alexandrian School\
-4 Julius Caesar aka Asander of Bosphorus\
-5 Julius Caesar was a Title   \
-6 Rome on the Bosphorus?\
-7 Flavian Dynasty\
-8 Esus the Celtic Deity\
-9 Subversion of the Imperial Cult\
+3 The Sarmatian Dragon Cult\
+4 The Alexandrian School\
+5 Julius Caesar aka Asander of Bosphorus\
+6 Julius Caesar was a Title   \
+7 Rome on the Bosphorus?\
+8 Flavian Dynasty\
+9 Esus the Celtic Deity\
+10 Subversion of the Imperial Cult\
 Conclusion\
 Appendix A: Alexander the Great\
-Appendix B: Who Rewrote History?\
 Glossary\
 Bibliography
 
@@ -75,101 +75,6 @@ who ruled through proxy dynasties. Egypt, Persia, India, Greece, Rome,
 etc., were all under the suzerainty of Aryan Iranian-Scythian elites
 since at least the 17th century BC.
 
-The Scythian tribe called the Sarmatians (also called Sauromatians
-("Saur" = "Lizard/Dragon" + "Matae" = "Men/Warriors" - where the
-Sumerian "sar" (king) comes from) were a nomadic Indo-Iranian warrior
-elite from the Pontic steppe (modern Ukraine/Russia). The domestication
-of the horse and invention of the chariot allowed them to travel vast
-distances. They were a priesthood of dragon/serpent-worshipping kings
-[^1]
-
-All ancient Mediterranean religions derive from the
-repackaging of Sythian serpent-dragon worshiping religions. See: Papaios (Scythian) = Scorpion I, Pharaoh of Egypt, Uraeus, and Apep/Apophis (Egypt) = Ningishzida (Sumerian) = Tiamat and Mušḫuššu who was associated with Marduk (Babylonian) = Aži Dahāka (Zoroastrianism) later syncretized with Mithra = Ophion, Agathodaemon, Typhon, and Delphi's Pythoness priestess (Greek) = Nāgendra and Nāga (Vedic), Nehushtan/serpent staff of Moses, the Dacian and Roman Draco standards, the serpent-worshipping Gnostics, Jörmungandr (Norse), Ouroboros serpent in Freemasony, etc.
-
-Timeline:
-
--Gutian Dynasty (2150 BC) – First Scythian rulers of Mesopotamia.\
--The Hyksos (1650–1550 BC) – Scythian Pharaohs of Egypt (Heka-Khasut means "Rulers of Foreign Lands" and Khasut is a cognate of Scythian/Saka, Scyth, Scoloti).\
--The Hittites (1600–1200 BC) – Scythians in Anatolia.\
--Kassite Dynasty (1595–1155 BCE) - Scythian rulers of Babylon after Hittites sacked it.\
--The Mitanni (1500 BC) – Scythian horse lords in Syria.\
--Vedic India (1500 BC) – Scythian chariot kings.\
--"Sea Peoples" collapse Mediterranean empires (Scythian mercenaries) (1200 BC) \
--The "Dorian Greeks" who destroyed Mycenae (c. 1200 BC) were steppe nomads and Scythian-Sarmatians.\
--Persia’s Achaemenids (705–330 BC) - Saka (Scythian) clan.\
--The Etruscan Tarquin dynasty (616 BC) - Scythian rulers of Rome. Tarquin = Tarkhu (Scythian: "Ruler"). Servius Tullius = Tulli (Scythian: "Wolf Clan").
-
-The Mitanni exercised hegemony over a pan-Eurasian empire. The Hittites,
-also known as the Neshians, were one enforcement arm for the Mitanni.
-They ruled by military dominance (chariots, cavalry, mercenaries),
-installing puppet kings (often their own bloodline), controlling trade
-routes (Silk Road, Black Sea, Pontic Steppe), and through enforcing
-religious syncretism.
-
-The eruption of Thera (Santorini) around 1600 BCE triggered a volcanic
-winter that was recorded all the way in China. This destroyed the
-ancient economy and caused continual strife and this was one of the
-causes of the eventual collapse of the Bronze Age and the fragmentation
-of Scythian hegemony. It also led to the Hyksos expulsion from Egypt and
-Assyria rising up under the Chaldean priests (the Kalani, the Jews).
-Jews refered to them as Ashkenaz, meaning Scythian (Josephus. Vol. 5:
-Antiquities: 8:2:5, pp. 593-595). Khazaria is the former territory of
-the Scythians, which is why they they were called Ashkenazi.
-
-The Sea Peoples were the revenge against Babylon, Hittites, and Egypt
-after the Mitanni were exiled.
-
-The Hyksos descendants then re-emerged in Persia and Anatolia, later
-reclaiming Egypt under the Achaemenid Period (525 BCE).
-
-![Fig.1.1](/images/SauromatesII.jpg){:width="400px"}
-
-Fig. 1.1 Tiberius Julius Sauromates II, King of Bosphorus. Does he look
-familiar? ΒΑCΙΛΕΩC CΑVΡΟΜΑΤΟΥ in the above coin translates to "King of
-the Sauromatians". Sauromates is a Greek rendering of 'Sarmatian',
-referring to the Scythian tribe who came from the Pontic steppe. 'Saur'
-means 'lizard' or 'reptile', and 'mates' means 'man' or 'warrior'.
-Therefore, translated literallly ΒΑCΙΛΕΩC CΑVΡΟΜΑΤΟΥ means "King of the
-lizard people", or "king of the dragon people".
-
-![Fig.1.2](/images/Tamga.jpg){:width="400px"}
-
-Fig. 1.2 The royal Tamga (symbol/signature) of Tiberius Julius Sauromates II contains a cross and a Chi Rho.
-
-Ramesses II = "Ra-Mesu" (Scythian for "Born of the Sun Stallion"). "Ra"
-= Egyptian sun god (syncretized with Scythian Mithra). "Mesu" = "Mares"
-(horse in Scythian, symbol of kingship). Full meaning: "Sun Stallion's
-Son".
-
-Cyrus the Great = "Kurush" (Scythian for "Sun King"). The name "Cyrus"
-(Old Persian: Kuruš) derives from Scythian "Khur" (Sun) + "Us" (Lord) =
-"Sun Lord" (identical to Mitra/Mithra, the Indo-Iranian sun god). In
-Avestan (Scythian religious texts), "Kavi" means "King-Priest". Cyrus'
-clan was the "Kayanian" dynasty (Scythian royal bloodline).
-
-Darius I = "Dārayavahuš" which was Scythian for "Holding the Horse" (a
-Scythian warlord title). Darius' father was Hystaspes (Vištāspa)---which
-means "Horse Tamer" in Scythian.
-
-Xerxes = "Xšaya-ṛšā" (Scythian for "Hero-King"). "Xšaya" = "Kshatriya"
-(warrior caste in Indo-Aryan). "Ṛšā" = "Aršan" (hero, male ruler in
-Scythian). Full meaning: "Warrior-Hero King".
-
-Sargon of Akkad = "Sharru-Kin" (Scythian for "True King of the Bow").
-"Sharru" = "Xšaya" (king in Scythian, same as Xerxes). "Kin" = "Kaman"
-(bow in Scythian, referring to horse archers). Full meaning: "King of
-the Bowmen."
-
-The Ptolemaic Egyptians (Ptolemaios - the root "ptol" resembling the
-Indo-Iranian term for warrior-kings (e.g., Parthian pat, "lord"), or
-Scythian Patala (horse lords), were the continuation of this bloodline.
-
-The "Chi-Rho" (☧) symbol of Constantine was not Christian---it was the
-Sarmatian Draco coiled around a solar cross.
-
-In Sarmatian, "Ruma" (Rome) = "Place of the Dragon" (Rhu-Ma, from Aži
-Dahāka, the Iranian dragon).
-
 Julius Caesar was Ptolemy XI Alexander II, Cleopatra's uncle, and he
 also took on the regional aliases of Asander, king of Bosphorus, among numerous
 other aliases. Cleopatra was also Dynamis, queen of Bosphorus. Mark
@@ -184,14 +89,6 @@ Philopator, derives from the Ancient Greek 'Φιλοπάτωρ' meaning "the one
 who loves her father", or simply "father-loving"). She was also married
 to two of her brothers and her uncle as listed previously. This is how
 incestuous this family was.
-
-Footnotes (Introduction)
-
-(a) The eruption of Thera (Santorini) was one factor in destroying the
-    Scythian steppe warriors hegemony, but the biggest cause was a
-    cannabis cult that stripped them of their warrior ethos
-    (https://en.wikipedia.org/wiki/Enaree). Marijuanna turned them from
-    fearless warriors into potheads who were led by transgender priests.
 
 **1 Name and Title Meanings**
 
@@ -327,9 +224,114 @@ IV. Speculative
 -   Gautama Buddha (Egyptian: "Ba-Djehuti", or "Soul of Thoth"): Gaumata
     Bardya (Cyrus the Great's son)
 
-**3 The Alexandrian School**
+**3 The Sarmatian Dragon Cult**
 
-In Egypt, Ptolemy I Soter, who was a Scythian continuation of the Sarmatian snake/serpent kings line, used religion to subjugate the vast and disparate peoples he ruled. The Alexandrian School was his religion making factory. He was in the process of creating a universal religion and this was being achieved by gradual syncretism using local identities and blending local deities into syncretic universal savior archetypes (Interpretatio Graecae) as a transitional phase toward a universal monotheism. The Ptolemaic elites were conditioning the disparate populations they ruled into accepting the Serapis cult (sarp- is a Proto-Indo-European root meaning "serpent" as seen in Sanskrit sarpa, "snake". "Sar-Ap" translates to "Serpent-Lord" in Scythian. (*One other option is that these religions were targeted towards different castes: Mithraism was for military elites (required blood oaths. Mithraic initiates/caste system/hierarchical). Serapism was for civilians (promised afterlife salvation). Christianity was for slaves ("turn the other cheek")).
+The Scythian tribe called the Sarmatians (also called Sauromatians
+("Saur" = "Lizard/Dragon" + "Matae" = "Men/Warriors" - where the
+Sumerian "sar" (king) comes from) were a nomadic Indo-Iranian warrior
+elite from the Pontic steppe (modern Ukraine/Russia). The domestication
+of the horse and invention of the chariot allowed them to travel vast
+distances. They were a priesthood of dragon/serpent-worshipping kings
+[^1]
+
+All ancient Mediterranean religions derive from the
+repackaging of Sythian serpent-dragon worshiping religions. See: Papaios (Scythian) = Scorpion I, Pharaoh of Egypt, Uraeus, and Apep/Apophis (Egypt) = Ningishzida (Sumerian) = Tiamat and Mušḫuššu who was associated with Marduk (Babylonian) = Aži Dahāka (Zoroastrianism) later syncretized with Mithra = Ophion, Agathodaemon, Typhon, and Delphi's Pythoness priestess (Greek) = Nāgendra and Nāga (Vedic), Nehushtan/serpent staff of Moses, the Dacian and Roman Draco standards, the serpent-worshipping Gnostics, Jörmungandr (Norse), Ouroboros serpent in Freemasony, etc.
+
+Timeline:
+
+-Gutian Dynasty (2150 BC) – First Scythian rulers of Mesopotamia.\
+-The Hyksos (1650–1550 BC) – Scythian Pharaohs of Egypt (Heka-Khasut means "Rulers of Foreign Lands" and Khasut is a cognate of Scythian/Saka, Scyth, Scoloti).\
+-The Hittites (1600–1200 BC) – Scythians in Anatolia.\
+-Kassite Dynasty (1595–1155 BCE) - Scythian rulers of Babylon after Hittites sacked it.\
+-The Mitanni (1500 BC) – Scythian horse lords in Syria.\
+-Vedic India (1500 BC) – Scythian chariot kings.\
+-"Sea Peoples" collapse Mediterranean empires (Scythian mercenaries) (1200 BC) \
+-The "Dorian Greeks" who destroyed Mycenae (c. 1200 BC) were steppe nomads and Scythian-Sarmatians.\
+-Persia’s Achaemenids (705–330 BC) - Saka (Scythian) clan.\
+-The Etruscan Tarquin dynasty (616 BC) - Scythian rulers of Rome. Tarquin = Tarkhu (Scythian: "Ruler"). Servius Tullius = Tulli (Scythian: "Wolf Clan").
+
+The Mitanni exercised hegemony over a pan-Eurasian empire. The Hittites,
+also known as the Neshians, were one enforcement arm for the Mitanni.
+They ruled by military dominance (chariots, cavalry, mercenaries),
+installing puppet kings (often their own bloodline), controlling trade
+routes (Silk Road, Black Sea, Pontic Steppe), and through enforcing
+religious syncretism.
+
+The eruption of Thera (Santorini) around 1600 BCE triggered a volcanic
+winter that was recorded all the way in China. This destroyed the
+ancient economy and caused continual strife and this was one of the
+causes of the eventual collapse of the Bronze Age and the fragmentation
+of Scythian hegemony. It also led to the Hyksos expulsion from Egypt and
+Assyria rising up under the Chaldean priests (the Kalani, the Jews).
+Jews refered to them as Ashkenaz, meaning Scythian (Josephus. Vol. 5:
+Antiquities: 8:2:5, pp. 593-595). Khazaria is the former territory of
+the Scythians, which is why they they were called Ashkenazi.
+
+The Sea Peoples were the revenge against Babylon, Hittites, and Egypt
+after the Mitanni were exiled.
+
+The Hyksos descendants then re-emerged in Persia and Anatolia, later
+reclaiming Egypt under the Achaemenid Period (525 BCE).
+
+![Fig.1.1](/images/SauromatesII.jpg){:width="400px"}
+
+Fig. 1.1 Tiberius Julius Sauromates II, King of Bosphorus. Does he look
+familiar? ΒΑCΙΛΕΩC CΑVΡΟΜΑΤΟΥ in the above coin translates to "King of
+the Sauromatians". Sauromates is a Greek rendering of 'Sarmatian',
+referring to the Scythian tribe who came from the Pontic steppe. 'Saur'
+means 'lizard' or 'reptile', and 'mates' means 'man' or 'warrior'.
+Therefore, translated literallly ΒΑCΙΛΕΩC CΑVΡΟΜΑΤΟΥ means "King of the
+lizard people", or "king of the dragon people".
+
+![Fig.1.2](/images/Tamga.jpg){:width="400px"}
+
+Fig. 1.2 The royal Tamga (symbol/signature) of Tiberius Julius Sauromates II contains a cross and a Chi Rho.
+
+Ramesses II = "Ra-Mesu" (Scythian for "Born of the Sun Stallion"). "Ra"
+= Egyptian sun god (syncretized with Scythian Mithra). "Mesu" = "Mares"
+(horse in Scythian, symbol of kingship). Full meaning: "Sun Stallion's
+Son".
+
+Cyrus the Great = "Kurush" (Scythian for "Sun King"). The name "Cyrus"
+(Old Persian: Kuruš) derives from Scythian "Khur" (Sun) + "Us" (Lord) =
+"Sun Lord" (identical to Mitra/Mithra, the Indo-Iranian sun god). In
+Avestan (Scythian religious texts), "Kavi" means "King-Priest". Cyrus'
+clan was the "Kayanian" dynasty (Scythian royal bloodline).
+
+Darius I = "Dārayavahuš" which was Scythian for "Holding the Horse" (a
+Scythian warlord title). Darius' father was Hystaspes (Vištāspa)---which
+means "Horse Tamer" in Scythian.
+
+Xerxes = "Xšaya-ṛšā" (Scythian for "Hero-King"). "Xšaya" = "Kshatriya"
+(warrior caste in Indo-Aryan). "Ṛšā" = "Aršan" (hero, male ruler in
+Scythian). Full meaning: "Warrior-Hero King".
+
+Sargon of Akkad = "Sharru-Kin" (Scythian for "True King of the Bow").
+"Sharru" = "Xšaya" (king in Scythian, same as Xerxes). "Kin" = "Kaman"
+(bow in Scythian, referring to horse archers). Full meaning: "King of
+the Bowmen."
+
+The Ptolemaic Egyptians (Ptolemaios - the root "ptol" resembling the
+Indo-Iranian term for warrior-kings (e.g., Parthian pat, "lord"), or
+Scythian Patala (horse lords), were the continuation of this bloodline.
+
+The "Chi-Rho" (☧) symbol of Constantine was not Christian---it was the
+Sarmatian Draco coiled around a solar cross.
+
+In Sarmatian, "Ruma" (Rome) = "Place of the Dragon" (Rhu-Ma, from Aži
+Dahāka, the Iranian dragon).
+
+Footnotes (Chapter 3)
+
+(a) The eruption of Thera (Santorini) was one factor in destroying the
+    Scythian steppe warriors hegemony, but the biggest cause was a
+    cannabis cult that stripped them of their warrior ethos
+    (https://en.wikipedia.org/wiki/Enaree). Marijuanna turned them from
+    fearless warriors into potheads who were led by transgender priests.
+
+**4 The Alexandrian School**
+
+In Egypt, Ptolemy I Soter, who was a Scythian continuation of the Sarmatian snake/serpent kings line, used religion to subjugate the vast and disparate peoples he ruled. This was likely inspired by Plato's noble lie which is a concept from his work "The Republic" where he suggests that a myth or falsehood can be used by rulers to maintain social order and promote the common good. The Alexandrian School then became his religion making factory. He was in the process of creating a universal religion and this was being achieved by gradual syncretism using local identities and blending local deities into syncretic universal savior archetypes (Interpretatio Graecae) as a transitional phase toward a universal monotheism. The Ptolemaic elites were conditioning the disparate populations they ruled into accepting the Serapis cult (sarp- is a Proto-Indo-European root meaning "serpent" as seen in Sanskrit sarpa, "snake". "Sar-Ap" translates to "Serpent-Lord" in Scythian. (*One other option is that these religions were targeted towards different castes: Mithraism was for military elites (required blood oaths. Mithraic initiates/caste system/hierarchical). Serapism was for civilians (promised afterlife salvation). Christianity was for slaves ("turn the other cheek")).
 
 ![Fig.1.3](/images/SarapisAmunAgathodaemon.jpg){:width="400px"}
 
@@ -349,7 +351,7 @@ Abel and Cain are just a copy of Romulus and Remus. Judas Iscariot is a copy of 
 
 After the Serapis cult the Alexandrian School made an industry out of taking existing religions and then adding to them a psyop slave-morality foundation. The goal was to get the population to accept monotheism and move them towards the Sarapis cult. The Serapis cult, Gnosticism, Mithraism, Christianity, Manichaeanism, Valentinianism, Hermeticism (Philo of Alexandria’s syncretic philosophy to Hellenize the Canaanite religion of the levant), Buddhism (most likely Philo of Alexandria’s syncretic attempt at combining the ancient Vedas with Stoicism/Alexandrian slave morality to subvert the Indo-Aryans, etc., all came from here. 
 
-**4 Julius Caesar aka Asander of Bosphorus**
+**5 Julius Caesar aka Asander of Bosphorus**
 
 There was a Byzantine [^2] imperial cult where Julius Caesar [^3] took
 on the role of Asander (also Asandros), King of Bosphorus [^4] ("Asa"
@@ -666,7 +668,7 @@ even has a story about a 'spurious Alexander' that showed up in Rome
 claiming to be the son of Herod who faked his death [^12], so he was
 'resurrected' as Juba II, king of Numidia and Mauretania. 
 
-Endnotes (Chapter 3)
+Endnotes (Chapter 5)
 
 (a) Other suspected aliases of Ptolemy XI Alexander II/Asander/Julius
     Caesar: Akrosandros II, King of Scythia, Idumean Antipater, Parthian Artavasdes (Greek Alex = Persian
@@ -716,7 +718,7 @@ Endnotes (Chapter 3)
     design slave moralities to strip the will to power from the
     population to prevent rebellions.
 
-**4 Julius Caesar was a Title**
+**6 Julius Caesar was a Title**
 
 Identifying Julius Caesar as Asander of Bosphorus necessitates a
 re-examination of his name.
@@ -786,7 +788,7 @@ was an irrelevant slice of land in the desert, this makes this claim
 more credible. jews just adopted this imperial cult and they got their
 entire identity and history from here.
 
-**5 Rome on the Bosphorus?**
+**7 Rome on the Bosphorus?**
 
 My research on the origins of Christianity takes me to the Bosphorus
 river in classical Anatolia (Julius Caesar = Asander, King of Bosphorus,
@@ -810,15 +812,15 @@ substantial part of Byzantine coinage from two millennia ago boasts
 inscriptions in Latin and not in Greek, including the Asander of
 Bosphorus coin above.
 
-There is genetic and historical evidence proving the Rome on the
-Bosphorus theory. Rome was founded by Italic tribes of "Indo-Europeans".
-However, this is where academic definitions fail because those founders
-of Rome were actually 85%+ Anatolian Early European Farmer (EAF). The
-Etruscans who established Rome were invaders from Anatolia, and the
-Carians who hailed from southwest Anatolia have a strong connection with
-the settlement of Rome (Aquilla = Qos = god of Kos of Caria).
+The creation of the Papacy during the elevation of Charlemagne was likely when the myth of a "Roman empire" began. The renaissance finished the fabrication of history. This was all to secretly make Rome into a Carian empire. It was an Aryan and Thracian proxy state of the Scythins who were based out of the Boshorus. The Bosphorus was always its capital. Latin was the original language of the Dacians and it was high-noble Aryan; German mixed the middle language (proto Latin) with degenerated old Gothic.
 
-Endnotes (Chapter 5)
+Emperor Theodosius, Pope Theophilus I of Alexandria, and Jerome also played a big role in the deception. The mainstream claim is that the Library of Alexandria was destroyed by Julius Caesar (48 BC) or Muslim conquest (642 AD). The truth is that the final and most devastating burn was ordered by Emperor Theodosius and Pope Theophilus I of Alexandria in 391 AD to erase Serapis cult texts that exposed Christianity’s origins. Proof: The Nag Hammadi Library (1945) contained Gnostic texts that matched Serapis theology—proving a cover-up, and the "Letter of Hadrian to Servianus" (found in Vindobonensis manuscript) admits: "Those who worship Serapis are Christians… devotees of Serapis call themselves bishops of Christ."
+
+Pope Theophilus I of Alexandria also destroyed the Serapeum in Alexandria (referred to as the daughter of the Library of Alexandria) in 391 AD. Serapis statues were recarved into "St. Peter".
+
+Then the Vatican later made up the "Council of Nicaea". It never happened. There is no contemporary records that exist of the Council of Nicaea (325 AD). The Council of Nicaea mirrors the Mithraic Congress of 307 AD where Emperor Galerius declared Sol Invictus the official god of Rome. Constantine’s "conversion" was fabricated. He remained a Sol Invictus sun-worshipper until death—his coins never feature Christian symbols. His last coin (337 AD) depicts him as Sol Comitatus ("Sun Companion"), not Christ. The "Chi-Rho" symbol was a later interpolation by Eusebius, who forged Life of Constantine in the 5th century. The "Arian Controversy" was a fake debate to disguise the fact that early Christianity was a Roman imperial cult. Proof: The "Life of Constantine" by Eusebius was forged in the 5th century to retroactively justify Nicaea, and the Edict of Milan (313 AD) never mentions Jesus—only a vague "Divine Providence". Also, the Vatican's greatest forgery was the Donation of Constantine. The Vatican forged it in the 8th century to claim Rome. It was based on earlier forgeries by Eusebius (a Flavian propagandist).
+
+Endnotes (Chapter 7)
 
 (a) Asander and Dynamis had one known son, Tiberius Julius Aspurgus
     Philoromaios. He was born about the same time as "Caesarion" and
@@ -852,7 +854,7 @@ Rhoemetalces II whose reign coincided with emperor Claudius.
 Emperor Titus = Polemon II of Pontus who was the prince of the Bosporan,
 Pontus, Cilicia, and Cappadocia.
 
-**6 Flavian Dynasty**
+**8 Flavian Dynasty**
 
 Vespasian was also a great-grandson of Cleopatra and Mark Antony (King
 Herod). He was Herod Pollio aka Herod Agrippa I, grandson of King
@@ -897,7 +899,7 @@ Aristobulus IV was likely Vespasian and Vitellius's father, so like his
 cousin Alexander (grandson of King Herod), he was also married to his
 sister).
 
-Endnotes (Chapter 6)
+Endnotes (Chapter 8)
 
 (a) Theory: Alexander (grandson of King Herod) aka Gaius Julius
     Alexander, Herodian Prince of Judaea aka Alexander Lysimachus aka
@@ -923,7 +925,7 @@ Endnotes (Chapter 6)
 (c) Hebrew Wordplay: Vespasian -> V'Esav Pan (ועשו פן) -> "And Esau's
     Face" (Talmudic insult linking him to Edom).
 
-**7 Esus the Celtic Deity**
+**9 Esus the Celtic Deity**
 
 The Celts in classical Galatia worshiped a deity called
 Aesus/Esus/Iesus. The Celtic name Esus is believed to be related to the
@@ -967,7 +969,7 @@ submission, etc. The fact it resembles Christianity is because it
 follows the same framework that all the other Alexandrian School
 religions do.
 
-**8 Subversion of the Imperial Cult**
+**10 Subversion of the Imperial Cult**
 
 Sometime after the Bar Kokhba Revolt (132--136 CE), a group of rabbis
 that were headed by a rabbi named Akiva who led the Talmudic Pharisees
@@ -1082,7 +1084,7 @@ was responsible for burining down the Library of Alexandria which
 resulted in the loss of all recorded history up until that point so that
 they could cover up the tracks of their psy-op religion.
 
-Endnotes (Chapter 8)
+Endnotes (Chapter 10)
 
 (a) Marcion of Sinope aka Markianos of Alexandria grew up in the
     Attis-Sabazios cult on Anatolia before traveling to Judea to study
@@ -1217,36 +1219,6 @@ Sanskrit: "Noble Charioteer") VII of Cappadocia, et.al., and his son
 Asander (obvious reference to Alexander), King of Bosphorus aka
 Pharnaces II ("Pharao-Nikes", or "Victorious Pharaoh") aka Brogitarix,
 king of Galatia aka Ariarathes IX aka Julius Caesar.
-
-**Appendix B: Who Rewrote History?**\
-
-History as we know it is totally fraudulent. Who was behind the forging of recorded history?
-
-Likely suspects:
-
-1. Emperor Augustus and the Flavians (Hiding the Scythian Bloodline)
-
-Emperor Augustus and the Flavians had motive to hide their Scythian heritage. They did not want the people to know that they were ruled by a heriditary (foreign) dynasty. They wanted the population to believe that anyone could rise up to the top. 
-
-2. The Church Fathers
-
-The mainstream claim is that the Library of Alexandria was destroyed by Julius Caesar (48 BC) or Muslim conquest (642 AD). The truth is that the final and most devastating burn was ordered by Pope Theophilus I of Alexandria in 391 AD to erase Serapis cult texts that exposed Christianity’s origins. Proof: The Nag Hammadi Library (1945) contained Gnostic texts that matched Serapis theology—proving a cover-up, and the "Letter of Hadrian to Servianus" (found in Vindobonensis manuscript) admits: "Those who worship Serapis are Christians… devotees of Serapis call themselves bishops of Christ."
-
-Pope Theophilus I of Alexandria also destroyed the Serapeum in Alexandria (referred to as the daughter of the Library of Alexandria) in 391 AD. Serapis statues were recarved into "St. Peter".
-
-3. The Vatican
-
-The Vatican made up the "Council of Nicaea". It never happened. There is no contemporary records exist of the Council of Nicaea (325 AD). The "Council of Nicaea" mirrors the Mithraic Congress of 307 AD where Emperor Galerius declared Sol Invictus the official god of Rome. Constantine’s "conversion" was fabricated. He remained a Sol Invictus sun-worshipper until death—his coins never feature Christian symbols. His last coin (337 AD) depicts him as Sol Comitatus ("Sun Companion"), not Christ. The "Chi-Rho" symbol was a later interpolation by Eusebius, who forged Life of Constantine in the 5th century. The "Arian Controversy" was a fake debate to disguise the fact that early Christianity was a Roman imperial cult. Proof: The "Life of Constantine" by Eusebius was forged in the 5th century to retroactively justify Nicaea, and the Edict of Milan (313 AD) never mentions Jesus—only a vague "Divine Providence". Also, the Vatican's greatest forgery was the Donation of Constantine. The Vatican forged it in the 8th century to claim Rome. It was based on earlier forgeries by Eusebius (a Flavian propagandist).
-
-4. The Jesuits
-
-Joseph Justus Scaliger was the Jesuit who likely "authored" most texts historians use today (he had a team of scribes), and Poggio Bracciolini was the guy who collected documents for him and even forged them (there are preserved letters from Bracciolini arranging a forgery with a remote monastery).
-
-Joseph Justus Scalinger's patron was William the Silent/William of Orange aka William Stadholder aka Guillaume de Gellone who was possibly of jewish descent (the flag of the 8th century William of Orange (Guillaume de Gellone) was a gold star on a blue background and William was known as Cortnes, or "the hooked nose"). He ruled the independent principality of Orange in France. See: https://en.wikipedia.org/wiki/A_Jewish_Princedom_in_Feudal_France
-
-If William of Orange was not of jewish descent then he was certainly a shabbos goyim who was financed by the jews. The Glorious Revolution of 1688 was financed by Sephardic Jewish bankers, including Francisco Lopes Suasso. Suasso’s loan was part of a broader network of Jewish financial support for William of Orange. Many Sephardic Jewish merchants and bankers, including Suasso’s father-in-law, Manuel Teixeira, contributed to William’s cause. 
-
-There was a Jesuit named Jean Hardouin who said that a 14th Century conspiracy forged practically all literature traditionally believed to have been written before that era. He was the official librarian to the King of France. He published a book called the Prolegomena and it caused such controversy that the Pope and the King had him come before them and explain himself. He defended his work, and refused to retract it, so they threw him in prison.
 
 **Glossary**
 
