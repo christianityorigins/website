@@ -73,7 +73,7 @@ Much of recorded ancient history is fabricated. The
 Egyptian-Persian-Indian-Greek-Roman elite were Sarmatian/Saka warlords
 who ruled through proxy dynasties. Egypt, Persia, India, Greece, Rome,
 etc., were all under the suzerainty of Aryan Iranian-Scythian elites
-since at least the 17th century BC.
+since at least the 17th century BC and their base of operation was on the Bosphorus river.
 
 Julius Caesar was Ptolemy XI Alexander II, Cleopatra's uncle, and he
 also took on the regional aliases of Asander, king of Bosphorus, among numerous
@@ -353,7 +353,7 @@ After the Serapis cult the Alexandrian School made an industry out of taking exi
 
 **5 Julius Caesar aka Asander of Bosphorus**
 
-There was a Byzantine [^2] imperial cult where Julius Caesar [^3] took
+There was a Bosphoran [^2] imperial cult where Julius Caesar [^3] took
 on the role of Asander (also Asandros), King of Bosphorus [^4] ("Asa"
 means "lord" in Thracian and Celtic and likely derives from the Scythian Assaioi (As-saioi = As is Scythian for "Serpent Lord", and Sai refers to clan/tribe), and "andros" means "man" or "son of
 man" in Greek. Jesus is referred to as "the son of man" 81 times in the
