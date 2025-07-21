@@ -152,7 +152,7 @@ incestuous this family was.
 -   "Sar" root (Sar is the Scythian word for King. Sarpa (Sanskrit) =
     Serpent, so "King of the Serpent"): Sarmatian, Sargon,
     Sarlagab, Akkadian šarrum, Vedic Sarpa, Serapis (Sar-Apis),
-    Zarathustra, Saracen (Roman word for Middle Easterners), Cesar, Asar, Tsar, etc. Sar means king across empires. In the bible the Scythian Sar (king) became Esau (Edom) the progenitor of the Edomites in the bible, a metaphor for the forces of oppression and
+    Zarathustra, Saracen (Roman word for Middle Easterners), Cesar, Asar, Tsar, etc. Sar means king across empires. In the bible the Scythian Sar (king) became Esau (Edom) the progenitor of the Edomites, a metaphor for the forces of oppression and
 injustice.
 
 **2 Ancient Alias Names List (Chronologically Organized by Era and Dynasty)**
