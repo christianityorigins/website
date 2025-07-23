@@ -92,6 +92,53 @@ incestuous this family was.
 
 **1 Name and Title Meanings**
 
+Name and Title Root Glossary
+
+| Root or Title   | Meaning                     | Recurs As / Examples                                                    |
+|-----------------|-----------------------------|-------------------------------------------------------------------------|
+| **asar / aesar**| God-king, divine ruler       | Asar (Osiris), Aesar (Etruscan "divine"), Caesar, Aesus, Aisar, Kosar, Czar/Tsar         |
+| **arta–**        | Truth, justice, right order | Artaxerxes, Artaamenes, Artames                                        |
+| **ata–**         | Father, patriarch           | Ateas, Atropates, Ates                                                 |
+| **barz–**        | High, elevated              | Barzam, Barzanes, Barzaeus                                             |
+| **baz / boz**    | King, strength, son         | Monobazus, Boethus, Barzai, Bazoo, Bazytius, Boz (Turkic)              |
+| **cotys**        | Lord, tribal chieftain       | Cotys (Thracian kings), Cottius, Kotys                                 |
+| **esus / isa / izas** | Lord, divine being       | Esus (Celtic), Isa/Izas (Jesus), Yeshua, Eshmun, Isa (Sanskrit “lord”) |
+| **heru / hero**  | Anointed warrior-king       | Heru (Horus), Heracles, Hero, Christus, Krishna                        |
+| **iusa / iusaset**| Great one, divine mother    | Iusaas, Isis, Jesus (Iesous), Iusas + "sau" = savior                   |
+| **kavi / xavi / xšaya** | King-priest, divine ruler | Kavi (Avestan), Xšayathiya (Old Persian king), Kyrios (Greek lord), Caesar |
+| **krst / karast**| Anointed one                | Christos, Karast, Christus, Krishna, Chrestos, Soter                   |
+| **maza–**        | Wisdom, majesty             | Mazares, Mazdara, Mazadai (Medes)                                      |
+| **mithra–**      | Sun, oath, contract         | Mithridates, Mithrobates, Mihr (Persian), Maitreya (Vedic)             |
+| **mono / man–**  | One, son of man, sage       | Monobazus, Manu, Menneus, Manichaeus, Moses (Mosheh)                   |
+| **piso / peisistratos** | Noble house, ruler name | Piso (Julio-Claudian gens), Appius, Arrius, Pisistratus of Athens      |
+| **phra–**        | Chosen one, protector       | Phraates, Phraortes, Phraaspa, Pharazon (biblical)                     |
+| **ra / re / roh / rohk–** | Sun, king of light  | Amun-Ra, Re, Roh-Ka, Roh-Kha (Ra-Pharaoh complex), Rama (Vedic)        |
+| **sar / šarrum** | King, serpent-lord          | Sargon, Saratun, Saracen, Serapis, Tsar, Caesar, Asar, Zarathustra     |
+| **sarpa / saur / sauro–** | Serpent, reptilian, dragon | Sauromatai (Sarmatians), Sauroktonos (Apollo), Sarpedon, Sarpa (Sanskrit) |
+| **saka / sku–**  | Archer, warrior nomad       | Sakaumara, Scoloti, Scythae, Skula, Ashkuzaya (Assyrian)               |
+| **soter / sutar / sudra** | Savior, redeemer     | Soter (Greek), Sudra (Vedic caste), Savitar, Jesus Christ, Serapis     |
+| **sparga–**      | Scion, flame/spark of dynasty| Spargapises, Spargapeithes, Sparda (Persia)                            |
+| **tsar / czar**  | Emperor, Caesar-derived     | Russian Tsars, Bulgarian Czar, Byzantine Eastern Caesars               |
+| **yasata / yaz / izad** | Divine one, angelic being | Yazata (Avestan), Izates, Izad (Parthian divine figure)              |
+| **za / zan / sat–** | Protector, ruler          | Satarp, Zanites, Azanes, Zand (Pahlavi commentaries), Satraces         |
+
+---
+
+Special Notes:
+
+- Deities were not gods. They were title-masks for living priest-kings. The pattern: one elite family assumes divine names in one region and mortal king names in another, playing both priest and politician.
+
+Notes on the "Sar" root:
+
+- **Sar** is the Scythian word for “king”.
+- **Sarpa** in Sanskrit means “serpent,” linking the king concept with the serpent symbolism.
+- Variants and cognates include Sarmatian tribe names, Akkadian *šarrum* (king), and titles like *Sargon* (“true king of the bow”).
+- Other related names and titles: Sarlagab, Serapis (*Sar-Apis*), Zarathustra, Saracen (Roman designation for Middle Eastern peoples), Caesar, Asar (Osiris), Tsar (Slavic monarch).
+- In the Bible, the Scythian *Sar* ("king") corresponds to Esau (Edom), symbolizing forces of oppression.
+- This root signifies rulership and serpent-king symbolism across numerous empires and cultures.
+
+Futher name and title decoding (some speculative):
+
 -   Caesar: The Egyptian name "Asar" was another name for Osiris. "Ra"
     was the Egyptian deity of the Sun (Asar-Ra). This title very likely
     connects to "Asar-Hapi" (Osiris-Apis), another name for the
@@ -145,11 +192,6 @@ incestuous this family was.
     Julio-Claudian dynasty were Pisos, including Nero who was nearly
     deposed by a Piso. Appius is also cognate with Arrius (through
     rhotacization in ancient Latin the /p/ and /r/ could be swapped.
--   "Sar" root (Sar is the Scythian word for King. Sarpa (Sanskrit) =
-    Serpent, so "King of the Serpent"): Sarmatian, Sargon,
-    Sarlagab, Akkadian šarrum, Vedic Sarpa, Serapis (Sar-Apis),
-    Zarathustra, Saracen (Roman word for Middle Easterners), Cesar, Asar, Tsar, etc. Sar means king across empires. In the bible the Scythian Sar (king) became Esau (Edom) the progenitor of the Edomites, a metaphor for the forces of oppression and
-injustice.
 
 **2 Ancient Alias Names List (Chronologically Organized by Era and Dynasty)**
 
@@ -207,8 +249,7 @@ IV. Speculative
 -   Alexander the Great: Scythian prince who was the son of Artaxerxes
     II Memnon ("Kai Bahman") and half-brother of Darius III ("Darab").
     In India he took the regional aliases of Chandragupta Maurya
-    (Alakshandra is a Sanskritized translation of Alexander and Gupta
-    (Gup-ta) translates to "Hidden Lord" in Scythian). "Aži-ander": Aži
+    (Chandragupta" = "Sander-Gupta" (Scythian "Sander" = Alexander. "Aleks" = Greekization of "Alakh" which means "not seen" or "unseen" in Sanskrit/Hindi. "Gupta" = Hidden)). "Aži-ander": Aži
     (Avestan "dragon") + Andros (Greek "man") = "Dragon-Man". Alaksandu
     of Wilusa, a Hittie king of Wilusa (Troy) (Alaksandu = Alak-San-Du
     (Hurrian: "Ruler-Dragon-Son")), who predates Alexander by 800 years,
@@ -219,6 +260,7 @@ IV. Speculative
     Ammon disguised as a dragon.
 -   Gautama Buddha (Egyptian: "Ba-Djehuti", or "Soul of Thoth"): Gaumata
     Bardya (Cyrus the Great's son)
+    -Moses = Manes/Mannu-Kuras = Manu (Scythian Sage-King) = Menes (Egypt’s legend-founder). Also appears in "Monobazus" → “Manu Bazus” → Sarmatian-Mythological Sage King. The Iranian Manu is a legendary civilizer, and in India he becomes the first Lawgiver (the Manu Smriti = Scythian governance code). The biblical Moses defeats Pharaoh (actually Mitanni elite), parts waters with a serpent-staff—obvious encoding of dragon-kingship (Aži Dahāka). Moses takes on different masks: M enes – the first official Pharaoh (not real, a compilation of conquerors). Menes – the semi-mythical Median king, founder of the priest-class. Mannu-kuras – Proto-Mede, whose name becomes Cyrus. The name Kur-Ash = "Sun Man". The Exodus is not Judaic memory: it's a political memory of Mitanni-Scythian expulsion from Egypt after the religious revolution of Thutmose III → Horemheb wiped them out with a new priest-kingship in Amarna.
 
 **3 The Sarmatian Dragon Cult**
 
