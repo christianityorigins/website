@@ -99,7 +99,7 @@ incestuous this family was.
     word "Aesar" (also spelled "Aeser" or "Aisar"), meaning god or
     divine, likely derives from the Egyptian Asar. The Greek language
     adds a "K" to foreign words, so Aesar -> Greek Kaesar -> Latin
-    Caesar. This title also resembles the the Scythian/Hurrian "Kur-Sar" (Sun King) and the Phoenician "Kosar" (sun god).
+    Caesar. This title also resembles the the Scythian/Hurrian "Kur-Sar" (Sun King), the Phoenician "Kosar" (sun god), and also Cyrus the Great's title (Kuruš (Cyrus) = Khur (Sun) + -uš (lord)).
 -   Christ: In ancient Egypt Karast is a person who is anointed as a
     Heru (Hero) during their lifetime. When they are deceased they
     receive a great honor as a KRST or Ausar (Osiris). Heru =
