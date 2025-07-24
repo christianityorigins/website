@@ -235,7 +235,9 @@ distances. They were a priesthood of dragon/serpent-worshipping kings
 [^1]
 
 All ancient Mediterranean religions derive from the
-repackaging of Sythian serpent-dragon worshiping religions. See: Papaios and the Snake-Legged Goddess (Scythian) = Scorpion I, Pharaoh of Egypt, Nehebkau, Uraeus, and Apep/Apophis (Egypt) = Ningishzida (Sumerian) = Tiamat and Mušḫuššu who was associated with Marduk (Babylonian) = Aži Dahāka (Zoroastrianism) later syncretized with Mithra = Ophion, Agathodaemon, Typhon, and Delphi's Pythoness priestess (Greek) = Nāgendra and Nāga (Vedic), Nehushtan/serpent staff of Moses, the Dacian and Roman Draco standards, the serpent-worshipping Gnostics, Sebazi (Phrygian/Bulgarian ), Jörmungandr (Norse), Ouroboros serpent in Freemasony, etc.
+repackaging of Sythian serpent-dragon worshiping religions. See: Papaios and the Snake-Legged Goddess (Scythian) = Scorpion I, Pharaoh of Egypt, Nehebkau, Uraeus, and Apep/Apophis (Egypt) = Ningishzida (Sumerian) = Tiamat and Mušḫuššu who was associated with Marduk (Babylonian) = Aži Dahāka (Zoroastrianism) later syncretized with Mithra = Ophion, Agathodaemon, Typhon, and Delphi's Pythoness priestess (Greek) = Nāgendra and Nāga (Vedic), Nehushtan/serpent staff of Moses, the Dacian and Roman Draco standards, the serpent-worshipping Gnostics, Sebazi (Phrygian/Bulgarian), Jörmungandr (Norse), Ouroboros serpent in Freemasony, etc.
+
+The snake was revered by the Scythians for several reasons: the Sarmatians used armor that resembled snake skin, the Scythians created poisons called "scythicon" from snake venom that they used on their arrows, and snake venom was used as pain killers and stimulants before war. Snake venom was also used as anecdotes, as later emulated by figures such as Mithridates of Pontus.
 
 Timeline:
 
