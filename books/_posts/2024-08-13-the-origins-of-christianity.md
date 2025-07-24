@@ -92,53 +92,6 @@ incestuous this family was.
 
 **1 Name and Title Meanings**
 
-Name and Title Root Glossary
-
-| Root or Title                          | Meaning / Function                       | Recurs As / Hidden Examples                                                               | Deep Decoding, Masked/Hidden History                                                                        |
-|----------------------------------------|------------------------------------------|-------------------------------------------------------------------------------------------|-------------------------------------------------------------------------------------------------------------|
-| **asar / aesar / asar**                | God-king, divine ruler, “resurrected”    | Asar (Osiris), Aesar (Etruscan "divine"), Caesar, Aesus, Kosar, Tsar/Czar                 | Core cult root for “god-king” on earth; Osiris ritual + Sarmatian “sar” (king). “Caesar” and “Czar” are the throne-names of snake dynasts feigning dynastic difference.                             |
-| **arta– / asha**                       | Cosmic order, truth, law-bringer         | Artaxerxes, Artaamenes, Rta (Vedic), Asha (Zoroastrian)                                   | “Arta” kings claim bridge between heaven and earth. Their “law” was secret steppe code codified as divine right, not human justice.                                                         |
-| **ata– / atta–**                       | Father, patriarch, progenitor            | Ateas, Atropates, Attalus, Ataman (Cossack), Atar (fire father, Persian)                  | “Father” names mark founders, but also serve as hidden links in disguised or exiled lineages; “Atar” overlays fire/sky worship.                                                              |
-| **barz– / barzan / ber / bir**         | High, exalted, mountain-lord             | Barzam, Barzanes, Barzan, Ber/Bir (Altaic), “Bereket” (fertility)                         | Used by Eurasian upland dynasts to encode rule from “above” and fertility; marks transitions from hill to city rule.                                                                        |
-| **baz / boz / bazus / bas**            | Prince, son, king                        | Monobazus, Bazus, Boet(h)us, Bazyli, Basileus, Boz (Turkic)                               | “Baz” names are often “son of the true king,” proxy-rulers installed over subdued or rival cultures.                                                |
-| **cotys / kotys / kut / kotos**        | Lord, high-chief, tribal king             | Cotys (Thracian), Cottius, Kotys, Kutuz (Turkic), Cottos (Greek giant)                    | “Cotys” links Thracian, Celtic, Anatolian ruling masks; sometimes feminine (moon queen), sometimes as mountain-lord.                                  |
-| **esus / isa / izas / is / iesus**     | Lord, savior, “righteous one”            | Esus (Celtic god), Isa/Izas (Jesus), Eshmun, Isa (Sanskrit “lord”), Iset/Isis             | Is root is pan-Eurasian “lordship”; Jesus = “the revived ruler” role, not a single historic person. Overlays with Isis (mother of king) and Esus (human-sacrifice king).                       |
-| **heru / hor / hero**                  | Anointed, hero-king, solar son           | Heru (Horus), Heracles, Hero, Christus, Krishna, Herod                                     | The “hero” was always a kingly function; in Egypt ‘Heru’ is “the living king,” reborn as the “son.” Herod (Heru+Ud) is the “divine son ruler.”                                             |
-| **iusa / iusaset / ias / iossa**       | Great one/Divine mother, generatrix, reviver | Iusaaset, Isis, Jesus (Iesous), Iaso, Iasus (Greek), Iusas + “sau” (“savior”)            | “Iusa” or “Ias” denotes the ‘mother of kings’, masking matrilineal succession. Jesus’s name is Isis+son, not a distinct male innovation.                                                  |
-| **kavi / xavi / xšaya / kshatriya**    | King-priest, serpent-ruler               | Kavi (Avestan), Xšayathiya (Old Persian), Kyrios (Greek), Kshatriya (Vedic), Caesar        | Monarch-priesthood always signals dragon/serpent legitimacy—“Kavi” (Serpent priest) encoded by both east and west.                                   |
-| **krst / karast / chrest / christ**    | Anointed, “anointed one,” redeemer       | Christos, Karast (Egypt), Christus, Krishna, Chrestos, Soter                               | Every “anointed one” is a new dynasty’s priest-king—Krishna and Christ both encode black/serpent solar rebirth.                                        |
-| **maza– / mazda / magh**               | Wisdom, sage, “magus”                    | Mazares, Mazdara, Mazda (Zoroastrian), Magnus, Magi, Mage                                 | Priest-kingship with “dark wisdom” claims; every “Magi” is magician-king, acting as intermediary and “builder of dynasty fires.”                        |
-| **mithra– / mihr / mitra / matreya**   | Sun, contract, cosmic enforcer           | Mithridates, Mithra, Maitreya (Buddhist), Mihr (Persian sun)                              | Mithra marks covenant and conqueror roles; title assumed by “sun-king” royals of steppe and Iran—miscast as mere “god”.                                |
-| **mono / manu / men / min**            | One, lone, son of man, hidden founder    | Monobazus, Manu, Menes, Moses (Mosheh), Minos, Menelaus                                   | All “Manu”s and “Menes” are founding masks for new dynasties in exile; “Mono-” coding as unique or primogenitor.                                      |
-| **piso / pisistratos / appius / arrius/Cleopatros**  | Noble clan, aristocratic founder         | Piso (Julio-Claudian gens), Pisistratos, Appius, Arrius, Cleopatros (Herod)                | “Piso” titles were used to mask Julio-Claudian and Athenian elite bloodlines; converge in “Appius/Arrius” by vowel shift—dynasty recycles the mask by localizing spelling.                  |
-| **phra– / pharaoh / fraate**           | Chosen, protector, god-ruler             | Phraates, Pharaoh, Phraortes, Pharazon (biblical), Per-aa                                 | “Phra-” phonetically adapted in each new empire. Even Parthian “Phraates” and “Pharaoh” are the same function—divine office, not ethnic title.           |
-| **ra / re / roh / or / rama**          | Solar king, radiant lord, “seed of sun”  | Amun-Ra, Rama (Vedic), Roh-Ka, Romulus, Orpheus, Ra-Pharaoh complex                       | “Ra” root recurring in every solar dynasty, its “Roma” encoding dragon/serpent regality—Orpheus as founder-bard.                                       |
-| **sar / šarrum / saur**                | King, “serpent/lizard” king, emperor     | Sargon, Saracen, Serapis, Tsar, Caesar, Asar, Sarpa, Sarlagab, Zarathustra                | Every “sar” is a scion of the steppe-Scythian “serpent king” cult. Rulership = wisdom/serpent totem. Esau/Edom is biblical war, not separate ethnicity.|
-| **sarpa / saur / sauro / saurian**     | Dragon, reptile, priestly lord, enemy    | Sarmatians (“lizard men”), Sauromatai, Sauroktonos (Apollo), Sarpedon, Sarpa (Sanskrit)   | “Serpent slain” story = mask for dynasty replaced, not death of a god. “Sauro-” and “Sarpa-” = dynasty’s totem and secret claim.                     |
-| **saka / sku– / sha / scyth**          | Archer/nomad, steppe warrior, “skull”    | Sakaumara, Scoloti, Scythae, Skula, Ashkuzaya, Sha (Egypt), Skanda                        | “Saka/Scyth” is not an ethnicity but a transdynastic role. Control by archers/horsemen signals the presence of steppe overlordship, not “invasion.”   |
-| **soter / sudra / savitar**            | Savior, redeemer, liberator, foundation  | Soter (Greek), Sudra (Vedic), Savitar, Jesus Christ, Serapis                              | “Soter” transferred to “savior” role with each city/cult takeover; posthumous mask for benefactor priests or rulers.                                  |
-| **sparga– / sparda / spr–**            | Seed, scion, founder “of the flame”      | Spargapises, Sparda (Persia), Sparta, Spargapeithes                                       | Usually signals re-founding branch of house/dynasty; “sparg-” = legitimate but junior offshoot.                                                      |
-| **tsar / czar / cezar**                | Overking, emperor over kings             | Tsar (Russian), Czar (Bulgarian), Caesar (Rome/Byzantium), Sarmatian Saur-King            | Nobility and empire encoded as “tsar” or “czar” after “Caesar” codification; title moved with mobile court.                                          |
-| **yasata / yaz / izad / izas**         | Divine one, angel, avatar, “lord”        | Yazata (Avestan), Izates, Izad (Parthian), Izas/Isa (Jesus), Esus                         | “Yaz-” always an avatar title, assumed by those royalty who claimed direct divine representation on earth, not birthright.                            |
-| **za / zan / sat– / satarp**           | Protector, foundation, satrap/governor   | Satarp, Zanites, Azanes, Zand (Pahlavi), Satraces, Satrap                                 | Satrap means “guardian prince.” “Zan” marks matriarchal or foundational goddess/queen, often obscured by later king-lists.                            |
-
----
-
-Special Notes:
-
-- Deities were not gods. They were title-masks for living priest-kings. The pattern: one elite family assumes divine names in one region and mortal king names in another, playing both priest and politician.
-
-Notes on the "Sar" root:
-
-- **Sar** is the Scythian word for “king”.
-- **Sarpa** in Sanskrit means “serpent,” linking the king concept with the serpent symbolism.
-- Variants and cognates include Sarmatian tribe names, Akkadian *šarrum* (king), and titles like *Sargon* (“true king of the bow”).
-- Other related names and titles: Sarlagab, Serapis (*Sar-Apis*), Zarathustra, Saracen (Roman designation for Middle Eastern peoples), Caesar, Asar (Osiris), Tsar (Slavic monarch).
-- In the Bible, the Scythian *Sar* ("king") corresponds to Esau (Edom), symbolizing forces of oppression.
-- This root signifies rulership and serpent-king symbolism across numerous empires and cultures.
-
-Futher name and title decoding (some speculative):
-
 -   Caesar: The Egyptian name "Asar" was another name for Osiris. "Ra"
     was the Egyptian deity of the Sun (Asar-Ra). This title very likely
     connects to "Asar-Hapi" (Osiris-Apis), another name for the
@@ -192,6 +145,7 @@ Futher name and title decoding (some speculative):
     Julio-Claudian dynasty were Pisos, including Nero who was nearly
     deposed by a Piso. Appius is also cognate with Arrius (through
     rhotacization in ancient Latin the /p/ and /r/ could be swapped.
+-   Sar root:  Sar is the Scythian word for "king". Sarpa in Sanskrit means "serpent". Sarmatian, Akkadian Sarrum (king), Sargon, Sarlagab, Serapis (Sar-Apis), Zarathustra, Saracen (Roman designation for Middle Eastern peoples), Caesar, Asar (Osiris), Tsar (Slavic monarch), etc. Sar means king, or serpent king, across the empires that the Scythians used to rule over.
 
 **2 Ancient Alias Names List (Chronologically Organized by Era and Dynasty)**
 
@@ -260,7 +214,15 @@ IV. Speculative
     Ammon disguised as a dragon.
 -   Gautama Buddha (Egyptian: "Ba-Djehuti", or "Soul of Thoth"): Gaumata
     Bardya (Cyrus the Great's son)
-    -Moses = Manes/Mannu-Kuras = Manu (Scythian Sage-King) = Menes (Egypt’s legend-founder). Also appears in "Monobazus" → “Manu Bazus” → Sarmatian-Mythological Sage King. The Iranian Manu is a legendary civilizer, and in India he becomes the first Lawgiver (the Manu Smriti = Scythian governance code). The biblical Moses defeats Pharaoh (actually Mitanni elite), parts waters with a serpent-staff—obvious encoding of dragon-kingship (Aži Dahāka). Moses takes on different masks: M enes – the first official Pharaoh (not real, a compilation of conquerors). Menes – the semi-mythical Median king, founder of the priest-class. Mannu-kuras – Proto-Mede, whose name becomes Cyrus. The name Kur-Ash = "Sun Man". The Exodus is not Judaic memory: it's a political memory of Mitanni-Scythian expulsion from Egypt after the religious revolution of Thutmose III → Horemheb wiped them out with a new priest-kingship in Amarna.
+-    Moses = Manes/Mannu-Kuras = Manu (Scythian Sage-King) = Menes (Egypt’s legend-founder). Also appears in "Monobazus" → “Manu Bazus” → Sarmatian-Mythological Sage King. The Iranian Manu is a legendary civilizer, and in India he becomes the first Lawgiver (the Manu Smriti = Scythian governance code). The biblical Moses defeats Pharaoh (actually Mitanni elite), parts waters with a serpent-staff—obvious encoding of dragon-kingship (Aži Dahāka). Moses takes on different masks: M enes – the first official Pharaoh (not real, a compilation of conquerors). Menes – the semi-mythical Median king, founder of the priest-class. Mannu-kuras – Proto-Mede, whose name becomes Cyrus. The name Kur-Ash = "Sun Man". The Exodus is not Judaic memory: it's a political memory of Mitanni-Scythian expulsion from Egypt after the religious revolution of Thutmose III → Horemheb wiped them out with a new priest-kingship in Amarna.
+ -   Paul the Apostle = likely a composite character or an avatar/cipher. Two suspects for having taking on the character are: 1) Saulus ben Antipater who was the
+    son of Antipater/Herod Antipas the Tetrarch, grandson of King Herod
+    (Josephus, Antiquities of the Jews, Chapter 9, section 211), and 2) Rabbi Akiva (whose students included: Aquila of Sinope aka Onkelos, Markianos of Alexandria aka Marcion (Greek Markion) of Sinope, Shimon bar Yohai aka Simon Peter (Shimon bar Yonah)). The character
+    Paul/Saul's life story was stolen from the ancient Egyptian story
+    "Tale of the Shipwrecked Sailor". Josephus in Antiquities of the
+    Jews, Book XX (CH 9.4) refers to Paul (Saulus) as related to Herod
+    Agrippa.    -
+ -   Pythagoras: Abaris the Hyperborean. The high priestess of the Temple of Apollo at Delphi was called Pythia https://en.wikipedia.org/wiki/Pythia \[[link](https://en.wikipedia.org/wiki/Pythia)\]. Greek writers regarded the Hyperboreans as the mythical founders of Apollo's shrines at Delos and Delphi  https://en.wikipedia.org/wiki/Hyperborea#Hyperboreans_in_Delos \[[link](https://en.wikipedia.org/wiki/Hyperborea#Hyperboreans_in_Delos)\]. The name "Pythagoras" is derived from the Greek words "Pythios" (Πύθιος), meaning "of Pythia" or "belonging to the Pythia ("Pythoness"). Abaris was a Scythian and the Scythians worshiped snake deities. Pythia was probably Pythagoras' mother.
 
 **3 The Sarmatian Dragon Cult**
 
@@ -273,7 +235,7 @@ distances. They were a priesthood of dragon/serpent-worshipping kings
 [^1]
 
 All ancient Mediterranean religions derive from the
-repackaging of Sythian serpent-dragon worshiping religions. See: Papaios (Scythian) = Scorpion I, Pharaoh of Egypt, Uraeus, and Apep/Apophis (Egypt) = Ningishzida (Sumerian) = Tiamat and Mušḫuššu who was associated with Marduk (Babylonian) = Aži Dahāka (Zoroastrianism) later syncretized with Mithra = Ophion, Agathodaemon, Typhon, and Delphi's Pythoness priestess (Greek) = Nāgendra and Nāga (Vedic), Nehushtan/serpent staff of Moses, the Dacian and Roman Draco standards, the serpent-worshipping Gnostics, Jörmungandr (Norse), Ouroboros serpent in Freemasony, etc.
+repackaging of Sythian serpent-dragon worshiping religions. See: Papaios and the Snake-Legged Goddess (Scythian) = Scorpion I, Pharaoh of Egypt, Nehebkau, Uraeus, and Apep/Apophis (Egypt) = Ningishzida (Sumerian) = Tiamat and Mušḫuššu who was associated with Marduk (Babylonian) = Aži Dahāka (Zoroastrianism) later syncretized with Mithra = Ophion, Agathodaemon, Typhon, and Delphi's Pythoness priestess (Greek) = Nāgendra and Nāga (Vedic), Nehushtan/serpent staff of Moses, the Dacian and Roman Draco standards, the serpent-worshipping Gnostics, Sebazi (Phrygian/Bulgarian ), Jörmungandr (Norse), Ouroboros serpent in Freemasony, etc.
 
 Timeline:
 
@@ -1259,6 +1221,53 @@ Pharnaces II ("Pharao-Nikes", or "Victorious Pharaoh") aka Brogitarix,
 king of Galatia aka Ariarathes IX aka Julius Caesar.
 
 **Glossary**
+
+Name and Title Root Glossary
+
+| Root or Title                          | Meaning / Function                       | Recurs As / Hidden Examples                                                               | Deep Decoding, Masked/Hidden History                                                                        |
+|----------------------------------------|------------------------------------------|-------------------------------------------------------------------------------------------|-------------------------------------------------------------------------------------------------------------|
+| **asar / aesar / asar**                | God-king, divine ruler, “resurrected”    | Asar (Osiris), Aesar (Etruscan "divine"), Caesar, Aesus, Kosar, Tsar/Czar                 | Core cult root for “god-king” on earth; Osiris ritual + Sarmatian “sar” (king). “Caesar” and “Czar” are the throne-names of snake dynasts feigning dynastic difference.                             |
+| **arta– / asha**                       | Cosmic order, truth, law-bringer         | Artaxerxes, Artaamenes, Rta (Vedic), Asha (Zoroastrian)                                   | “Arta” kings claim bridge between heaven and earth. Their “law” was secret steppe code codified as divine right, not human justice.                                                         |
+| **ata– / atta–**                       | Father, patriarch, progenitor            | Ateas, Atropates, Attalus, Ataman (Cossack), Atar (fire father, Persian)                  | “Father” names mark founders, but also serve as hidden links in disguised or exiled lineages; “Atar” overlays fire/sky worship.                                                              |
+| **barz– / barzan / ber / bir**         | High, exalted, mountain-lord             | Barzam, Barzanes, Barzan, Ber/Bir (Altaic), “Bereket” (fertility)                         | Used by Eurasian upland dynasts to encode rule from “above” and fertility; marks transitions from hill to city rule.                                                                        |
+| **baz / boz / bazus / bas**            | Prince, son, king                        | Monobazus, Bazus, Boet(h)us, Bazyli, Basileus, Boz (Turkic)                               | “Baz” names are often “son of the true king,” proxy-rulers installed over subdued or rival cultures.                                                |
+| **cotys / kotys / kut / kotos**        | Lord, high-chief, tribal king             | Cotys (Thracian), Cottius, Kotys, Kutuz (Turkic), Cottos (Greek giant)                    | “Cotys” links Thracian, Celtic, Anatolian ruling masks; sometimes feminine (moon queen), sometimes as mountain-lord.                                  |
+| **esus / isa / izas / is / iesus**     | Lord, savior, “righteous one”            | Esus (Celtic god), Isa/Izas (Jesus), Eshmun, Isa (Sanskrit “lord”), Iset/Isis             | Is root is pan-Eurasian “lordship”; Jesus = “the revived ruler” role, not a single historic person. Overlays with Isis (mother of king) and Esus (human-sacrifice king).                       |
+| **heru / hor / hero**                  | Anointed, hero-king, solar son           | Heru (Horus), Heracles, Hero, Christus, Krishna, Herod                                     | The “hero” was always a kingly function; in Egypt ‘Heru’ is “the living king,” reborn as the “son.” Herod (Heru+Ud) is the “divine son ruler.”                                             |
+| **iusa / iusaset / ias / iossa**       | Great one/Divine mother, generatrix, reviver | Iusaaset, Isis, Jesus (Iesous), Iaso, Iasus (Greek), Iusas + “sau” (“savior”)            | “Iusa” or “Ias” denotes the ‘mother of kings’, masking matrilineal succession. Jesus’s name is Isis+son, not a distinct male innovation.                                                  |
+| **kavi / xavi / xšaya / kshatriya**    | King-priest, serpent-ruler               | Kavi (Avestan), Xšayathiya (Old Persian), Kyrios (Greek), Kshatriya (Vedic), Caesar        | Monarch-priesthood always signals dragon/serpent legitimacy—“Kavi” (Serpent priest) encoded by both east and west.                                   |
+| **krst / karast / chrest / christ**    | Anointed, “anointed one,” redeemer       | Christos, Karast (Egypt), Christus, Krishna, Chrestos, Soter                               | Every “anointed one” is a new dynasty’s priest-king—Krishna and Christ both encode black/serpent solar rebirth.                                        |
+| **maza– / mazda / magh**               | Wisdom, sage, “magus”                    | Mazares, Mazdara, Mazda (Zoroastrian), Magnus, Magi, Mage                                 | Priest-kingship with “dark wisdom” claims; every “Magi” is magician-king, acting as intermediary and “builder of dynasty fires.”                        |
+| **mithra– / mihr / mitra / matreya**   | Sun, contract, cosmic enforcer           | Mithridates, Mithra, Maitreya (Buddhist), Mihr (Persian sun)                              | Mithra marks covenant and conqueror roles; title assumed by “sun-king” royals of steppe and Iran—miscast as mere “god”.                                |
+| **mono / manu / men / min**            | One, lone, son of man, hidden founder    | Monobazus, Manu, Menes, Moses (Mosheh), Minos, Menelaus                                   | All “Manu”s and “Menes” are founding masks for new dynasties in exile; “Mono-” coding as unique or primogenitor.                                      |
+| **piso / pisistratos / appius / arrius/Cleopatros**  | Noble clan, aristocratic founder         | Piso (Julio-Claudian gens), Pisistratos, Appius, Arrius, Cleopatros (Herod)                | “Piso” titles were used to mask Julio-Claudian and Athenian elite bloodlines; converge in “Appius/Arrius” by vowel shift—dynasty recycles the mask by localizing spelling.                  |
+| **phra– / pharaoh / fraate**           | Chosen, protector, god-ruler             | Phraates, Pharaoh, Phraortes, Pharazon (biblical), Per-aa                                 | “Phra-” phonetically adapted in each new empire. Even Parthian “Phraates” and “Pharaoh” are the same function—divine office, not ethnic title.           |
+| **ra / re / roh / or / rama**          | Solar king, radiant lord, “seed of sun”  | Amun-Ra, Rama (Vedic), Roh-Ka, Romulus, Orpheus, Ra-Pharaoh complex                       | “Ra” root recurring in every solar dynasty, its “Roma” encoding dragon/serpent regality—Orpheus as founder-bard.                                       |
+| **sar / šarrum / saur**                | King, “serpent/lizard” king, emperor     | Sargon, Saracen, Serapis, Tsar, Caesar, Asar, Sarpa, Sarlagab, Zarathustra                | Every “sar” is a scion of the steppe-Scythian “serpent king” cult. Rulership = wisdom/serpent totem. Esau/Edom is biblical war, not separate ethnicity.|
+| **sarpa / saur / sauro / saurian**     | Dragon, reptile, priestly lord, enemy    | Sarmatians (“lizard men”), Sauromatai, Sauroktonos (Apollo), Sarpedon, Sarpa (Sanskrit)   | “Serpent slain” story = mask for dynasty replaced, not death of a god. “Sauro-” and “Sarpa-” = dynasty’s totem and secret claim.                     |
+| **saka / sku– / sha / scyth**          | Archer/nomad, steppe warrior, “skull”    | Sakaumara, Scoloti, Scythae, Skula, Ashkuzaya, Sha (Egypt), Skanda                        | “Saka/Scyth” is not an ethnicity but a transdynastic role. Control by archers/horsemen signals the presence of steppe overlordship, not “invasion.”   |
+| **soter / sudra / savitar**            | Savior, redeemer, liberator, foundation  | Soter (Greek), Sudra (Vedic), Savitar, Jesus Christ, Serapis                              | “Soter” transferred to “savior” role with each city/cult takeover; posthumous mask for benefactor priests or rulers.                                  |
+| **sparga– / sparda / spr–**            | Seed, scion, founder “of the flame”      | Spargapises, Sparda (Persia), Sparta, Spargapeithes                                       | Usually signals re-founding branch of house/dynasty; “sparg-” = legitimate but junior offshoot.                                                      |
+| **tsar / czar / cezar**                | Overking, emperor over kings             | Tsar (Russian), Czar (Bulgarian), Caesar (Rome/Byzantium), Sarmatian Saur-King            | Nobility and empire encoded as “tsar” or “czar” after “Caesar” codification; title moved with mobile court.                                          |
+| **yasata / yaz / izad / izas**         | Divine one, angel, avatar, “lord”        | Yazata (Avestan), Izates, Izad (Parthian), Izas/Isa (Jesus), Esus                         | “Yaz-” always an avatar title, assumed by those royalty who claimed direct divine representation on earth, not birthright.                            |
+| **za / zan / sat– / satarp**           | Protector, foundation, satrap/governor   | Satarp, Zanites, Azanes, Zand (Pahlavi), Satraces, Satrap                                 | Satrap means “guardian prince.” “Zan” marks matriarchal or foundational goddess/queen, often obscured by later king-lists.                            |
+
+---
+
+Special Notes:
+
+- Deities were not gods. They were title-masks for living priest-kings. The pattern: one elite family assumes divine names in one region and mortal king names in another, playing both priest and politician.
+
+Notes on the "Sar" root:
+
+- **Sar** is the Scythian word for “king”.
+- **Sarpa** in Sanskrit means “serpent,” linking the king concept with the serpent symbolism.
+- Variants and cognates include Sarmatian tribe names, Akkadian *šarrum* (king), and titles like *Sargon* (“true king of the bow”).
+- Other related names and titles: Sarlagab, Serapis (*Sar-Apis*), Zarathustra, Saracen (Roman designation for Middle Eastern peoples), Caesar, Asar (Osiris), Tsar (Slavic monarch).
+- In the Bible, the Scythian *Sar* ("king") corresponds to Esau (Edom), symbolizing forces of oppression.
+- This root signifies rulership and serpent-king symbolism across numerous empires and cultures.
+
+Names:
 
 **Aži Dahāka**: A dragon-serpent deity in Zoroastrian mythology, symbolizing chaos and power. In this book, Aži Dahāka is proposed as a proto-Christ figure, central to the Sarmatian dragon cult and syncretized with figures like Serapis and Jesus.
 
