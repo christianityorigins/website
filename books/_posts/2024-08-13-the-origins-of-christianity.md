@@ -75,9 +75,12 @@ who ruled through proxy dynasties. Egypt, Persia, India, Greece, Rome,
 etc., were all under the suzerainty of Aryan Iranian-Scythian elites
 since at least the 17th century BC and their base of operation was on the Bosphorus river.
 
-Julius Caesar was Ptolemy XI Alexander II, Cleopatra's uncle, and he
-also took on the regional aliases of Asander, king of Bosphorus, among numerous
-other aliases. Cleopatra was also Dynamis, queen of Bosphorus. Mark
+Western Rome in Italy was a phantom empire invented by the Vatican. Western Rome was built during the Renaissance period. The original Rome (in Sarmatian, "Ruma" (Rome) = "Place of the Dragon" (Rhu-Ma, from Aži Dahāka, the Iranian dragon)) was located on the Bosphorus.
+
+Jesus in the bible was a cipher, or an avatar, for members of the Bosphoran royal family. Asander, king of Bosphorus (Julius Caesars real identity), and his descendants Izates II, king of Adiabene ("Iza" = Avestan root for "serpent" (cognate with Scythian Aži) + "-tes" = "given by," as in Mithradates = "Given by Mithra". This is cognate with the Scythian (and broader Iranian) mythological figure Aži Dahāka (Avestan) or Azhi Dahak (Middle Persian)), and Tiberius Julius Sauromates II, took on the role. 
+    
+Asander, king of Bosphorus aka Julius Caesar was also Ptolemy XI Alexander II, Cleopatra's uncle, but he took on numerous
+other regional aliases. Cleopatra was also Dynamis, queen of Bosphorus. Mark
 Antony the Neos-Dionysos was either Ptolemy of Cyprus, a brother of
 Cleopatra's father Ptolemy XII Auletes (Auletes name adapts well to the
 Parthian Orodes (II?)) the Neos Dionysos aka Polemon (Polemos ->
@@ -120,12 +123,7 @@ incestuous this family was.
 -   Cotys: In Thracian, "Cotys" is related to the word "kotys", a title
     meaning "lord". In the Celtic languages the word "cottos" or
     "cottius" means "chieftain".
--   Izates or Izas: Yazata in Avestan means "divine being". The Egyptian
-    "Asar" or "Iset", another name for Osiris, could be at the root of
-    this title. So could Aži ("dragon"). "Is" or "Isa" is also related to the Proto-Indo-European
-    root "ais-", which means "lord", "ruler", or "noble". This root is
-    also seen in other ancient languages, such as Sanskrit "īśa" (ईश),
-    meaning "lord" or "god". Asa, Esus, Izas, Aesar are all related.
+-   Izates or Izas: "Iza" (𐬌𐬰𐬀) = Avestan root for "serpent" (cognate with Scythian Aži). "-tes" = Greek suffix, but possibly from dāta ("given by," as in Mithradates = "Given by Mithra"). This is cognate with the Scythian (and broader Iranian) mythological figure Aži Dahāka (Avestan) or Azhi Dahak (Middle Persian), a monstrous serpent or dragon.
  -   Jew: Summerian "Ju" means opposite and the Summerian Ud or Udu means snake or serpent. This word is also connected to the Akkadian word Usum which also means serpent or dragon. "Against the serpent" = against the Scythians. Also related: Saka/Sata (Scythians) + -an (lord) = "Serpent Lord".
 -   Jesus: Likely a phonetic shift from Asar/Aesus (pronounced
     ah-soos). Another more speculative option: "Jesus" comes from the Ancient Egyptian Goddess named Iusaaset who was considered the Grandmother of all the Egyptian God's, except for her husband the Sun God Amen-Ra (Alexander the Great was the first Zeus-Ammon (Amun-Ra)). Egyptian "Iusa" (or Iusaaset, also Iusaas) means "Great One Who Comes Forth"—a title linked to Isis and the resurrection of Osiris. 'Aset' (Isis) was the mother of Horus (Cleopatra claimed to be Isis who in mythology was the wife of Osiris and the mother of Horus), just as Mary (Miriam) is the mother of Jesus. The name 'Iusas' is a variation of Iusaaset, with 'Jusas' still the preferred spelling for Jesus in some cultures (also, Iusa + -sous (from "Sau", meaning "savior" in Demotic Egyptian) = Iesous). The acacia tree, sacred to Iusaaset, symbolizes rebirth—just like the cross (a "tree" in early Christian texts, Galatians 3:13).
