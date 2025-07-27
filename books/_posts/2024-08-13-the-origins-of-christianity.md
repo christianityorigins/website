@@ -146,7 +146,7 @@ incestuous this family was.
     Julio-Claudian dynasty were Pisos, including Nero who was nearly
     deposed by a Piso. Appius is also cognate with Arrius (through
     rhotacization in ancient Latin the /p/ and /r/ could be swapped.
--   Sar root:  Sar is the Scythian word for "king". Sarpa in Sanskrit means "serpent". Sarmatian, Akkadian Sarrum (king), Sargon, Sarlagab, Serapis (Sar-Apis), Zarathustra, Saracen (Roman designation for Middle Eastern peoples), Caesar, Asar (Osiris), Tsar (Slavic monarch), etc. Sar means king, or serpent king, across the empires that the Scythians used to rule over.
+-   Sar root:  Sar is the Scythian word for "king". Sarpa in Sanskrit means "serpent". Sarmatian, Akkadian Sarrum (king), Sargon, Sarlagab, Serapis (Sar-Apis = "Serpent Bull"), Zarathustra, Saracen (Roman designation for Middle Eastern peoples), Caesar, Asar (Osiris), Tsar (Slavic monarch), etc. Sar means king, or serpent king, across the empires that the Scythians used to rule over.
 
 **2 Ancient Alias Names List (Chronologically Organized by Era and Dynasty)**
 
@@ -238,7 +238,7 @@ distances. They were a priesthood of dragon/serpent-worshipping kings
 All ancient Mediterranean religions derive from the
 repackaging of Sythian serpent-dragon worshiping religions. See: Papaios and the Snake-Legged Goddess (Scythian) = Scorpion I, Pharaoh of Egypt, Nehebkau, Uraeus, and Apep/Apophis (Egypt) = Ningishzida (Sumerian) = Tiamat and Mušḫuššu who was associated with Marduk (Babylonian) = Aži Dahāka (Zoroastrianism) later syncretized with Mithra = Ophion, Agathodaemon, Typhon, and Delphi's Pythoness priestess (Greek) = Nāgendra and Nāga (Vedic), Nehushtan/serpent staff of Moses, the Dacian and Roman Draco standards, the serpent-worshipping Gnostics, Sebazi (Phrygian/Bulgarian), Jörmungandr (Norse), Ouroboros serpent in Freemasony, etc.
 
-The snake was revered by the Scythians for several reasons: the Sarmatians used armor that resembled snake skin, the Scythians created poisons called "scythicon" from snake venom that they used on their arrows, and snake venom was used as pain killers and stimulants before war. Snake venom was also used as anecdotes, as later emulated by figures such as Mithridates of Pontus.
+The snake was revered by the Scythians for several reasons: apart from symbolism, the Sarmatians used armor that resembled snake skin, the Scythian priesthood called the Agaroi created poisons called "scythicon" from snake venom that they used on their arrows, and snake venom was used as pain killers and stimulants before war. Snake venom was also used to stop battlefield wounds from bleeding, as well as, they were used as anecdotes, as later emulated by figures such as Mithridates of Pontus. Also, the foundation myth of the Scythians is that they were created from the Snake-Legged Goddess who was impregnated by Hercules (Targiatos).
 
 Timeline:
 
@@ -331,6 +331,7 @@ Footnotes (Chapter 3)
     cannabis cult that stripped them of their warrior ethos
     (https://en.wikipedia.org/wiki/Enaree). Marijuanna turned them from
     fearless warriors into potheads who were led by transgender priests.
+(b) Azhdahak, which is the Armenian form of the name of the Avestan Azhi Dahaka, was associated with the Median king Astyages (r. 564–550 BC) https://en.wikipedia.org/wiki/Azhdahak_(mythology)   
 
 **4 The Alexandrian School**
 
