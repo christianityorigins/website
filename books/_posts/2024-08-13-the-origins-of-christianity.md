@@ -42,7 +42,6 @@ Numbers 21:9 (The "serpents" in this passage are identified as Scythians in late
 
 **Table of Contents**
 
-Preface\
 Introduction\
 1 Name and Title Meanings\
 2 Ancient Alias Names List\
@@ -58,14 +57,6 @@ Conclusion\
 Appendix A: Alexander the Great\
 Glossary\
 Bibliography
-
-**Preface**
-
-This book challenges mainstream historiography. My methodologies are:
-archaeological and numismatic evidence, linguistic and etymological
-analysis, and historical correlation and timeline analysis. The sources
-that inspired my work are listed in the 'Bibliography' section at the
-end of the book.
 
 **Introduction**
 
@@ -95,6 +86,12 @@ Philopator, derives from the Ancient Greek 'Φιλοπάτωρ' meaning "the one
 who loves her father", or simply "father-loving"). She was also married
 to two of her brothers and her uncle as listed previously. This is how
 incestuous this family was.
+
+This book challenges mainstream historiography. My methodologies are:
+archaeological and numismatic evidence, linguistic and etymological
+analysis, and historical correlation and timeline analysis. The sources
+that inspired my work are listed in the 'Bibliography' section at the
+end of the book.
 
 **1 Name and Title Meanings**
 
