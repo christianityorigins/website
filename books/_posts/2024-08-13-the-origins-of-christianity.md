@@ -62,8 +62,7 @@ Bibliography
  
 Christianity is an offspring of one of the religions that was invented at the Alexandrian School in Egypt. The Alexandrian School was a religion-making factory that was set up by Ptolemy Soter. The Serapis cult, Judaism, Gnosticism,
     Valentinianism, Christianity, Hermeticism, Mithraism, Manichaeism,
-    Mandaeism, and many other religions came from the Alexandrian
-    School. 
+    Mandaeism, and many other religions came from the here. 
     
 Christianity is likely the synthesis of the Serapis Cult that was rebranded for one of the later Roman (Bosphoran) imperial cults which was later subverted by a group of Rabbis who were headed by a rabbi named Akiva sometime after the Bar Kokhba revolt. Jesus in the bible was a cipher, or an avatar, originally for members of the Bosphoran royal family. Asander, king of Bosphorus (Julius Caesars real identity) took on this role, so did his son Aspurgus, king of Bosphorus aka Amyntas ("Amon-Tas". "Hidden
 Lord", linking to Amun-Ra - with "Amen"(tas) at the root) Nikator aka
@@ -82,7 +81,7 @@ who ruled through proxy dynasties. Egypt, Persia, India, Greece, Rome,
 etc., were all under the suzerainty of Aryan Iranian-Scythian elites
 since at least the 17th century BC and their base of operation was on the Bosphorus river.
 
--Western Rome in Italy was a phantom empire invented by the Vatican. Western Rome was built during the Renaissance period. The original Rome (in Sarmatian, "Ruma" (Rome) = "Place of the Dragon" (Rhu-Ma, from Aži Dahāka, the Iranian dragon)) was located on the Bosphorus.
+-Western Rome in Italy is a phantom empire that was invented by the Vatican. Western Rome was built during the Renaissance period. The original Rome (in Sarmatian, "Ruma" (Rome) = "Place of the Dragon" (Rhu-Ma, from Aži Dahāka, the Iranian dragon)) was located on the Bosphorus.
     
 -Asander, king of Bosphorus aka Julius Caesar was also Ptolemy XI Alexander II, Cleopatra's uncle, but he took on numerous
 other regional aliases. Cleopatra was also Dynamis, queen of Bosphorus. Mark
