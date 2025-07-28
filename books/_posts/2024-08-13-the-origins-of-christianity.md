@@ -1038,7 +1038,7 @@ ferre", which means "light-bearer" or "morning star", is Venus who was
 the Roman goddess whose functions encompassed love, beauty, desire, sex,
 fertility, prosperity, and victory. In Roman mythology, she was the
 ancestor of the Roman people through her son, Aeneas. The Greco-Egyptian
-deity Serapis (the horned deity) became the image of Satan. In Norse
+deity Serapis (the horned deity) became the image of Satan. Sin (also called Nanna or Suen) is a Mesopotamian god of the moon. He was worshiped as the lunar deity whose symbol was the crescent moon. Sin was considered the son of the sky god Enlil and the grain goddess Ninlil, and the father of the sun god Shamash (Sumerian Utu) as well as the goddess Ishtar (Inanna). Together, Sin, Shamash, and Ishtar formed an important astral triad in Mesopotamian religion. In Norse
 mythology Iðunn/Idun (equivalent to Greek Hebe, and Celtic Brigid), is
 the goddess of youth, her name means "giver of eternal youth". The other
 gods get golden apples from her. She stores them in a basket and they
