@@ -59,21 +59,32 @@ Glossary\
 Bibliography
 
 **Introduction**
+ 
+Christianity is an offspring of one of the religions that was invented at the Alexandrian School in Egypt. The Alexandrian School was a religion-making factory that was set up by Ptolemy Soter. The Serapis cult, Judaism, Gnosticism,
+    Valentinianism, Christianity, Hermeticism, Mithraism, Manichaeism,
+    Mandaeism, and many other religions came from the Alexandrian
+    School. 
+    
+Christianity is likely the synthesis of the Serapis Cult that was rebranded for one of the later Roman (Bosphoran) imperial cults which was later subverted by a group of Rabbis who were headed by a rabbi named Akiva sometime after the Bar Kokhba revolt. Jesus in the bible was a cipher, or an avatar, originally for members of the Bosphoran royal family. Asander, king of Bosphorus (Julius Caesars real identity) took on this role, so did his son Aspurgus, king of Bosphorus aka Amyntas ("Amon-Tas". "Hidden
+Lord", linking to Amun-Ra - with "Amen"(tas) at the root) Nikator aka
+Amyntas of Galatia aka Jesus ben Fabus aka Isa Amen (Jesus was named
+"Amen" in Rev. iii. 14) aka Caesarion, and his later descendants Izates II, king of Adiabene ("Iza" = Avestan root for "serpent" (cognate with Scythian Aži) + "-tes" = "given by," as in Mithradates = "Given by Mithra". This is cognate with the Scythian (and broader Iranian) mythological figure Aži Dahāka (Avestan) or Azhi Dahak (Middle Persian)), and Tiberius Julius Sauromates II, also took on the role. After Rabbi Akiva Jesus then became Simon Bar Kokhba.
 
-Much of recorded ancient history is fabricated. The
+It was necessary that these rabbis cut-and-pasted from an imperial cult. Getting people to abandon their religions for a new one is an impossible task. However, there are thousands of sects of major religions today.
+
+This book traces Christiantiy all the way back to its antecedent, the Scythian snake-worshiping cults, to the Sarapis cult, to the Roman (Bosphoran) imperial cult, then finishes with the subversion of the Bosphoran cult.
+    
+A few things you need to know before you read my book:
+
+-Much of what we know of ancient history is fabricated by the Jesuits and Vatican. The
 Egyptian-Persian-Indian-Greek-Roman elite were Sarmatian/Saka warlords
 who ruled through proxy dynasties. Egypt, Persia, India, Greece, Rome,
 etc., were all under the suzerainty of Aryan Iranian-Scythian elites
 since at least the 17th century BC and their base of operation was on the Bosphorus river.
 
-Western Rome in Italy was a phantom empire invented by the Vatican. Western Rome was built during the Renaissance period. The original Rome (in Sarmatian, "Ruma" (Rome) = "Place of the Dragon" (Rhu-Ma, from Aži Dahāka, the Iranian dragon)) was located on the Bosphorus.
-
-Jesus in the bible was a cipher, or an avatar, for members of the Bosphoran royal family. Asander, king of Bosphorus (Julius Caesars real identity) took on this role, so did his son Aspurgus, king of Bosphorus aka Amyntas ("Amon-Tas". "Hidden
-Lord", linking to Amun-Ra - with "Amen"(tas) at the root) Nikator aka
-Amyntas of Galatia aka Jesus ben Fabus aka Isa Amen (Jesus was named
-"Amen" in Rev. iii. 14) aka Caesarion, and his later descendants Izates II, king of Adiabene ("Iza" = Avestan root for "serpent" (cognate with Scythian Aži) + "-tes" = "given by," as in Mithradates = "Given by Mithra". This is cognate with the Scythian (and broader Iranian) mythological figure Aži Dahāka (Avestan) or Azhi Dahak (Middle Persian)), and Tiberius Julius Sauromates II, also took on the role. 
+-Western Rome in Italy was a phantom empire invented by the Vatican. Western Rome was built during the Renaissance period. The original Rome (in Sarmatian, "Ruma" (Rome) = "Place of the Dragon" (Rhu-Ma, from Aži Dahāka, the Iranian dragon)) was located on the Bosphorus.
     
-Asander, king of Bosphorus aka Julius Caesar was also Ptolemy XI Alexander II, Cleopatra's uncle, but he took on numerous
+-Asander, king of Bosphorus aka Julius Caesar was also Ptolemy XI Alexander II, Cleopatra's uncle, but he took on numerous
 other regional aliases. Cleopatra was also Dynamis, queen of Bosphorus. Mark
 Antony the Neos-Dionysos was either Ptolemy of Cyprus, a brother of
 Cleopatra's father Ptolemy XII Auletes (Auletes name adapts well to the
