@@ -62,7 +62,7 @@ Bibliography
  
 Christianity is an offspring of one of the religions that was invented at the Alexandrian School in Egypt. The Alexandrian School was a religion-making factory that was set up by Ptolemy Soter. The Serapis cult, Judaism, Gnosticism,
     Valentinianism, Christianity, Hermeticism, Mithraism, Manichaeism,
-    Mandaeism, and many other religions came from the here. 
+    Mandaeism, and many other religions came from the here. All these religions were designed to subvert local religions to bring the population to monotheism, and then gradually towards a universal imperial cult. 
     
 Christianity likely arose as a synthesis of the Serapis Cult, rebranded to serve one of the later Roman (Bosphoran) imperial cults which was later subverted by a group of Rabbis who were headed by a rabbi named Akiva sometime after the Bar Kokhba revolt. Jesus in the bible was a cipher, or an avatar, originally for members of the Bosphoran royal family. Asander, king of Bosphorus (Julius Caesars real identity) took on this role, so did his son Aspurgus, king of Bosphorus aka Amyntas ("Amon-Tas". "Hidden
 Lord", linking to Amun-Ra - with "Amen"(tas) at the root) Nikator aka
