@@ -64,7 +64,7 @@ Christianity is an offspring of one of the religions that was invented at the Al
     Valentinianism, Christianity, Hermeticism, Mithraism, Manichaeism,
     Mandaeism, and many other religions came from the here. 
     
-Christianity is likely the synthesis of the Serapis Cult that was rebranded for one of the later Roman (Bosphoran) imperial cults which was later subverted by a group of Rabbis who were headed by a rabbi named Akiva sometime after the Bar Kokhba revolt. Jesus in the bible was a cipher, or an avatar, originally for members of the Bosphoran royal family. Asander, king of Bosphorus (Julius Caesars real identity) took on this role, so did his son Aspurgus, king of Bosphorus aka Amyntas ("Amon-Tas". "Hidden
+Christianity likely arose as a synthesis of the Serapis Cult, rebranded to serve one of the later Roman (Bosphoran) imperial cults which was later subverted by a group of Rabbis who were headed by a rabbi named Akiva sometime after the Bar Kokhba revolt. Jesus in the bible was a cipher, or an avatar, originally for members of the Bosphoran royal family. Asander, king of Bosphorus (Julius Caesars real identity) took on this role, so did his son Aspurgus, king of Bosphorus aka Amyntas ("Amon-Tas". "Hidden
 Lord", linking to Amun-Ra - with "Amen"(tas) at the root) Nikator aka
 Amyntas of Galatia aka Jesus ben Fabus aka Isa Amen (Jesus was named
 "Amen" in Rev. iii. 14) aka Caesarion, and his later descendants Izates II, king of Adiabene ("Iza" = Avestan root for "serpent" (cognate with Scythian Aži) + "-tes" = "given by," as in Mithradates = "Given by Mithra". This is cognate with the Scythian (and broader Iranian) mythological figure Aži Dahāka (Avestan) or Azhi Dahak (Middle Persian)), and Tiberius Julius Sauromates II, also took on the role. After Rabbi Akiva Jesus then became Simon Bar Kokhba.
@@ -73,7 +73,7 @@ It was necessary that these rabbis cut-and-pasted from an imperial cult. Getting
 
 This book traces Christiantiy all the way back to its antecedent, the Scythian snake-worshiping cults, to the Sarapis cult, to the Roman (Bosphoran) imperial cult, then finishes with the subversion of the Bosphoran cult.
     
-A few things you need to know before you read my book:
+A few things that you need to know before you read my book:
 
 -Much of what we know of ancient history is fabricated by the Jesuits and Vatican. The
 Egyptian-Persian-Indian-Greek-Roman elite were Sarmatian/Saka warlords
@@ -97,7 +97,7 @@ who loves her father", or simply "father-loving"). She was also married
 to two of her brothers and her uncle as listed previously. This is how
 incestuous this family was.
 
-This book challenges mainstream historiography. My methodologies are:
+This book directly challenges mainstream historiography. My methodologies are:
 archaeological and numismatic evidence, linguistic and etymological
 analysis, and historical correlation and timeline analysis. The sources
 that inspired my work are listed in the 'Bibliography' section at the
