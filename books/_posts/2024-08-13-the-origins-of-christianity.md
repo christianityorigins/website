@@ -71,7 +71,7 @@ Amyntas of Galatia aka Jesus ben Fabus aka Isa Amen (Jesus was named
 
 It was necessary that these rabbis cut-and-pasted from an imperial cult. Getting people to abandon their religions for a new one is an impossible task. However, there are thousands of sects of major religions today.
 
-This book traces Christianity all the way back to its foundations — from the Scythian snake-worshiping cults, to the Alexandrian School in Egypt and the Sarapis cult, to the Roman (Bosphoran) imperial cult — and then finishes with the subversion of the Bosphoran cult.
+This book traces Christianity all the way back to its foundations — from the mythemes of Scythian snake-worshiping cults, to the Alexandrian School in Egypt and the Sarapis cult, to the Roman (Bosphoran) imperial cult — and then finishes with the subversion of the Bosphoran cult.
 
 A few things that you need to know before you read my book:
 
@@ -209,7 +209,7 @@ III. Flavian Emperors
 
 IV. Speculative
 
--   Alexander the Great: Scythian prince who was the son of Artaxerxes
+-   Alexander the Great: Scythian prince who was the son of Ateas the Scythian aka Artaxerxes
     II Memnon ("Kai Bahman") and half-brother of Darius III ("Darab").
     In India he took the regional aliases of Chandragupta Maurya
     (Chandragupta" = "Sander-Gupta" (Scythian "Sander" = Alexander. "Aleks" = Greekization of "Alakh" which means "not seen" or "unseen" in Sanskrit/Hindi. "Gupta" = Hidden)). "Aži-ander": Aži
@@ -220,7 +220,7 @@ IV. Speculative
     Aži-Sandar also = "Dragon King" in Mittani and Old Persian.
     Alexander's mother Olympias (Ol or ophis + Pias = "serpent queen"), who was a Scythian princess of the
     Molossian tribe, claimed to have been impregnanted by the god Zeus
-    Ammon disguised as a dragon.
+    Ammon disguised as a dragon. Alexander also married the Scythian princess Roxana.
 -   Gautama Buddha (Egyptian: "Ba-Djehuti", or "Soul of Thoth"): Gaumata
     Bardya (Cyrus the Great's son)
 -    Moses = Manes/Mannu-Kuras = Manu (Scythian Sage-King) = Menes (Egypt’s legend-founder). Also appears in "Monobazus" → “Manu Bazus” → Sarmatian-Mythological Sage King. The Iranian Manu is a legendary civilizer, and in India he becomes the first Lawgiver (the Manu Smriti = Scythian governance code). The biblical Moses defeats Pharaoh (actually Mitanni elite), parts waters with a serpent-staff—obvious encoding of dragon-kingship (Aži Dahāka). Moses takes on different masks: M enes – the first official Pharaoh (not real, a compilation of conquerors). Menes – the semi-mythical Median king, founder of the priest-class. Mannu-kuras – Proto-Mede, whose name becomes Cyrus. The name Kur-Ash = "Sun Man". The Exodus is not Judaic memory: it's a political memory of Mitanni-Scythian expulsion from Egypt after the religious revolution of Thutmose III → Horemheb wiped them out with a new priest-kingship in Amarna.
