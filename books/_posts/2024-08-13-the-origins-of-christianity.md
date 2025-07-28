@@ -71,8 +71,8 @@ Amyntas of Galatia aka Jesus ben Fabus aka Isa Amen (Jesus was named
 
 It was necessary that these rabbis cut-and-pasted from an imperial cult. Getting people to abandon their religions for a new one is an impossible task. However, there are thousands of sects of major religions today.
 
-This book traces Christiantiy all the way back to its antecedent, the Scythian snake-worshiping cults, to the Sarapis cult, to the Roman (Bosphoran) imperial cult, then finishes with the subversion of the Bosphoran cult.
-    
+This book traces Christianity all the way back to its foundations — from the Scythian snake-worshiping cults, to the Alexandrian School in Egypt and the Sarapis cult, to the Roman (Bosphoran) imperial cult — and then finishes with the subversion of the Bosphoran cult.
+
 A few things that you need to know before you read my book:
 
 -Much of what we know of ancient history is fabricated by the Jesuits and Vatican. The
@@ -105,6 +105,7 @@ end of the book.
 
 **1 Name and Title Meanings**
 
+-   Azhi: Azhi = Až ("serpent") + Hi ("power, divine") in Avestan, meaning "mighty dragon". It extends Aži to signify divine authority across Indo-Iranian and Scythian cultures. Azhi = Asia (Azhi-A) = "land of the mighty dragon", a very similar name as Rome (Rhu-Ma) = "Place of the Dragon" and  Romania (Rhu-Ma + Na) = "dragon land".
 -   Caesar: The Egyptian name "Asar" was another name for Osiris. "Ra"
     was the Egyptian deity of the Sun (Asar-Ra). This title very likely
     connects to "Asar-Hapi" (Osiris-Apis), another name for the
@@ -134,7 +135,7 @@ end of the book.
     meaning "lord". In the Celtic languages the word "cottos" or
     "cottius" means "chieftain".
 -   Izates or Izas: "Iza" (𐬌𐬰𐬀) = Avestan root for "serpent" (cognate with Scythian Aži). "-tes" = Greek suffix, but possibly from dāta ("given by," as in Mithradates = "Given by Mithra"). This is cognate with the Scythian (and broader Iranian) mythological figure Aži Dahāka (Avestan) or Azhi Dahak (Middle Persian), a monstrous serpent or dragon.
- -   Jew: Summerian "Ju" means opposite and the Summerian Ud or Udu means snake or serpent. This word is also connected to the Akkadian word Usum which also means serpent or dragon. "Against the serpent" = against the Scythians. Also related: Saka/Sata (Scythians) + -an (lord) = "Serpent Lord".
+ -   Jew: Summerian "Ju" means opposite and the Summerian Ud or Udu means snake or serpent. This word is also connected to the Akkadian word Usum which also means serpent or dragon. "Against the serpent" = against the Scythians. Also related: Saka/Sata (Scythians) + -an (lord) = "Serpent Lord". Jews were originally a Scythian priestly caste worshipping Aži Dahāka, later demonized by Rabbi Akiva’s circle as "anti-serpent" to sever their steppe origins (Israel = Sura (Su ("divine") + Ra ("light, ruler") + El ("god") = Serpent god).
 -   Jesus: Likely a phonetic shift from Asar/Aesus (pronounced
     ah-soos). Another option: "Yeshua" = "Yazata" (Divine Serpent-Lord), related to Izates (Yazata).
   - Lord: The term Kavi in Avestan texts (e.g., Yasna 10.6) denotes a divine ruler associated with Aži (dragon/serpent). Translating Kavi to Greek yields Kyrios ("lord"), a title used for Jesus in the New Testament (e.g., Kyrios Iesous). The Scythian title Xšaya (king) appears in Old Persian as Xšayathiya, phonetically linked to Kshatriya (Sanskrit: warrior-king) and Caesar via the Greek Kaesar. A kurgan inscription from Issyk (Kazakhstan, 4th century BCE) mentions a ruler named Ašakavi ("dragon-priest"), combining Aša (truth/order) and Kavi. This title parallels Asander (Thracian: Asa = "lord") and suggests a pan-steppe naming convention for dragon-kings. 
@@ -153,7 +154,7 @@ end of the book.
     Julio-Claudian dynasty were Pisos, including Nero who was nearly
     deposed by a Piso. Appius is also cognate with Arrius (through
     rhotacization in ancient Latin the /p/ and /r/ could be swapped.
--   Sar root:  Sar is the Scythian word for "king". Sarpa in Sanskrit means "serpent". Sarmatian, Akkadian Sarrum (king), Sargon, Sarlagab, Serapis (Sar-Apis = "Serpent Bull"), Zarathustra, Saracen (Roman designation for Middle Eastern peoples), Caesar, Asar (Osiris), Tsar (Slavic monarch), etc. Sar means king, or serpent king, across the empires that the Scythians used to rule over.
+-   Sar root:  Sar is the Scythian word for "king". Sarpa in Sanskrit means "serpent". Sarmatian, Akkadian Sarrum (king), Sargon, Sarlagab, Serapis (Sar-Apis = "Serpent Bull"), Zarathustra (Sar + Ustra = "serpent-lord"), Saracen (Roman designation for Middle Eastern peoples), Caesar, Asar (Osiris), Tsar (Slavic monarch), etc. Sar means king, or serpent king, across the empires that the Scythians used to rule over.
 
 **2 Ancient Alias Names List (Chronologically Organized by Era and Dynasty)**
 
@@ -217,7 +218,7 @@ IV. Speculative
     (Hurrian: "Ruler-Dragon-Son")), who predates Alexander by 800 years,
     proves that the name Alexander was a Scythian title for kings.
     Aži-Sandar also = "Dragon King" in Mittani and Old Persian.
-    Alexander's mother Olympias, who was a Scythian princess of the
+    Alexander's mother Olympias (Ol or ophis + Pias = "serpent queen"), who was a Scythian princess of the
     Molossian tribe, claimed to have been impregnanted by the god Zeus
     Ammon disguised as a dragon.
 -   Gautama Buddha (Egyptian: "Ba-Djehuti", or "Soul of Thoth"): Gaumata
