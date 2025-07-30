@@ -712,7 +712,7 @@ Endnotes (Chapter 5)
     So, Alexander aka Juba II was also Apollonius of Tyre. Juba II
     carried the title "Rex Literatissimus" which can be translated as
     "Most Learned King" or "The Most Scholarly King". He was known as a
-    philosopher. Is Apollonius of Tyre the same person as Apollonius of
+    philosopher. These members of this royal family liked to role-play as philosopher kings. Is Apollonius of Tyre the same person as Apollonius of
     Tyana? This would make Apollonius of Tyana the brother-husband of
     Philo of Alexandria and the father of Josephus. These three created
     the core of Christianity.\
