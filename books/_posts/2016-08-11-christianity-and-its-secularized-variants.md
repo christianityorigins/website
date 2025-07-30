@@ -2,8 +2,8 @@
 layout: default
 open_links_in_new_tab: true
 title:  "The Slave Morality Mind Virus: From Christianity to Marxism"
-date:   2016-08-12 09:00:00 +0200
-updated: 2024-08-12 19:46:50 +0200
+date:   2016-08-11 09:00:00 +0200
+updated: 2024-08-11 19:46:50 +0200
 category: books
 ---
 
