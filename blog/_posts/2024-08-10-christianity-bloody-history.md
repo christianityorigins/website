@@ -3,7 +3,7 @@ layout: default
 open_links_in_new_tab: true
 title: "Christianity’s Bloody History: Faith, Fire, and the Sword"
 date: 2024-08-10
-category: books
+category: blog
 ---
 
 # Christianity’s Bloody History: Faith, Fire, and the Sword
