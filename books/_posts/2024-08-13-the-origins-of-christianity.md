@@ -103,7 +103,7 @@ end of the book.
 
 **1 Name and Title Meanings**
 
--   Azhi: Azhi = Až ("serpent") + Hi ("power, divine") in Avestan, meaning "mighty dragon". It extends Aži to signify divine authority across Indo-Iranian and Scythian cultures. Azhi = Asia (Azhi-A) = "land of the mighty dragon", a very similar name as Rome (Rhu-Ma) = "Place of the Dragon" and  Romania (Rhu-Ma + Na) = "dragon land".
+-   Azhi: Azhi = Až ("serpent") + Hi ("power, divine") in Avestan, meaning "mighty dragon". It extends Aži to signify divine authority across Indo-Iranian and Scythian cultures. Azhi = Asia (Azhi-A) = "land of the mighty dragon", a very similar name as Rome (Rhu-Ma) = "Place of the Dragon", Romania (Rhu-Ma + Na) = "dragon land", and Sarmatia ((serpent) + ma (mother, land). 
 -   Caesar: The Egyptian name "Asar" was another name for Osiris. "Ra"
     was the Egyptian deity of the Sun (Asar-Ra). This title very likely
     connects to "Asar-Hapi" (Osiris-Apis), another name for the
@@ -152,7 +152,7 @@ end of the book.
     Julio-Claudian dynasty were Pisos, including Nero who was nearly
     deposed by a Piso. Appius is also cognate with Arrius (through
     rhotacization in ancient Latin the /p/ and /r/ could be swapped.
--   Sar root:  Sar is the Scythian word for "king". Sarpa in Sanskrit means "serpent". Sarmatian, Akkadian Sarrum (king), Sargon, Sarlagab, Serapis (Sar-Apis = "Serpent Bull"), Zarathustra (Sar + Ustra = "serpent-lord"), Saracen (Roman designation for Middle Eastern peoples), Caesar, Asar (Osiris), Tsar (Slavic monarch), etc. Sar means king, or serpent king, across the empires that the Scythians used to rule over.
+-   Sar root:  Sar is the Scythian word for "king". Sarpa in Sanskrit means "serpent". Sarmatian, Akkadian Sarrum (king), Hurrian Šarri, Sargon, Sarlagab, Serapis (Sar-Apis = "Serpent Bull"), Zarathustra (Sar + Ustra = "serpent-lord"), Saracen (Roman designation for Middle Eastern peoples), Caesar, Asar (Osiris), Tsar (Slavic monarch), etc. Sar means king, or serpent king, across the empires that the Scythians used to rule over.
 
 **2 Ancient Alias Names List (Chronologically Organized by Era and Dynasty)**
 
@@ -170,7 +170,12 @@ I. Ptolemaic & Bosphoran Dynasty
 -   Julius Caesar: Ptolemy XI Alexander
 II, Asander, King of Bosphorus (Philocaesar Philoromaios, Soter, Great
 King of Kings, "As" in his name refers to
-Asar(Osiris)/Aesar/Aeser/Aisar/Ais/Is), Brogitarix
+Asar(Osiris)/Aesar/Aeser/Aisar/Ais/Is), Brogitarix. Other suspected aliases: Akrosandros II, King of Scythia, Idumean Antipater, Parthian Artavasdes (Greek Alex = Persian
+    Arta) who was the brother of Tigranes II (Tigranes II/the Great was called Azhdahak proving Aži Dahāka was a royal Scythian title), and the Hasmonean
+    Alexander II (son of king Aristobulus II son of Jannaeus Alexander
+    also the nephew and son-in-law of king/high-priest Hyrcanus II.
+    Also, Julius = Janneus? Or Janneus (Yannai) is related to the Roman
+    name Gaius?)
 -   Cleopatra VII (Isis who in mythology was the wife of Osiris and the
 mother of Horus): Dynamis Ourania (Aphrodite Urania), Pythodorida
 Philometor
@@ -229,7 +234,7 @@ IV. Speculative
     "Tale of the Shipwrecked Sailor". Josephus in Antiquities of the
     Jews, Book XX (CH 9.4) refers to Paul (Saulus) as related to Herod
     Agrippa.    -
- -   Pythagoras: Abaris the Hyperborean. The high priestess of the Temple of Apollo at Delphi was called Pythia https://en.wikipedia.org/wiki/Pythia \[[link](https://en.wikipedia.org/wiki/Pythia)\]. Greek writers regarded the Hyperboreans as the mythical founders of Apollo's shrines at Delos and Delphi  https://en.wikipedia.org/wiki/Hyperborea#Hyperboreans_in_Delos \[[link](https://en.wikipedia.org/wiki/Hyperborea#Hyperboreans_in_Delos)\]. The name "Pythagoras" is derived from the Greek words "Pythios" (Πύθιος), meaning "of Pythia" or "belonging to the Pythia ("Pythoness"). Abaris was a Scythian and the Scythians worshiped snake deities. Pythia was probably Pythagoras' mother.
+ -   Pythagoras: Abaris the Hyperborean. The high priestess of the Temple of Apollo at Delphi was called Pythia https://en.wikipedia.org/wiki/Pythia \[[link](https://en.wikipedia.org/wiki/Pythia)\] who breathed serpent vapors (ethylene gas). Greek writers regarded the Hyperboreans as the mythical founders of Apollo's shrines at Delos and Delphi  https://en.wikipedia.org/wiki/Hyperborea#Hyperboreans_in_Delos \[[link](https://en.wikipedia.org/wiki/Hyperborea#Hyperboreans_in_Delos)\]. The name "Pythagoras" is derived from the Greek words "Pythios" (Πύθιος), meaning "of Pythia" or "belonging to the Pythia ("Pythoness"). Abaris was a Scythian and the Scythians worshiped snake deities. Pythia was probably Pythagoras' mother.
 
 **3 The Sarmatian Dragon Cult**
 
@@ -242,7 +247,10 @@ distances. They were a priesthood of dragon/serpent-worshipping kings
 [^1]
 
 All ancient Mediterranean religions derive from the
-repackaging of Sythian serpent-dragon worshiping religions. See: Papaios and the Snake-Legged Goddess (Scythian) = Scorpion I, Pharaoh of Egypt, Nehebkau, Uraeus, and Apep/Apophis (Egypt) = Ningishzida (Sumerian) = Tiamat and Mušḫuššu who was associated with Marduk (Babylonian) = Aži Dahāka (Zoroastrianism) later syncretized with Mithra = Ophion, Agathodaemon, Typhon, and Delphi's Pythoness priestess (Greek) = Nāgendra and Nāga (Vedic), Nehushtan/serpent staff of Moses, the Dacian and Roman Draco standards, the serpent-worshipping Gnostics, Sebazi (Phrygian/Bulgarian), Jörmungandr (Norse), Ouroboros serpent in Freemasony, etc.
+repackaging of Sythian serpent-dragon worshiping religions. See: Papaios and the Snake-Legged Goddess (Scythian) = Nehebkau, Uraeus, and Apep/Apophis (Egypt) = Ningishzida (Sumerian) = Tiamat and Mušḫuššu who was associated with Marduk (Babylonian) = Aži Dahāka (Zoroastrianism) later syncretized with Mithra = Ophion, Agathodaemon, Typhon, and Delphi's Pythoness priestess (Greek) = Nāgendra and Nāga (Vedic), Nehushtan/serpent staff of Moses, the Dacian and Roman Draco standards, the serpent-worshipping Gnostics, Sebazi (Phrygian/Bulgarian), Jörmungandr (Norse), Ouroboros serpent in Freemasony, etc. The Knights Templar knew the truth. The Templars worshipped Baphomet—a Sarmatian dragon deity (Aži Dahāka).
+
+Kings who took on the snake/dragan/serpent/Azhi Dahaka title: Scorpion I, Pharaoh of Egypt, Azhdahak, which is the Armenian form of the name of the Avestan Azhi Dahaka, was associated with the Median king Astyages (564–550 BC) who was the grandfather of Cyrus the Great. Tigranes II/the Great, King of Armenia (140–55 BC) was also called Azhdahak. Izates II, king of Adiabene's title Iza" = Avestan root for "serpent" (cognate with Scythian Aži), Tiberius Julius Sauromates II, King of Bosphorus ('Saur'
+means 'lizard' or 'reptile', and 'mates' means 'man' or 'warrior'). The roots of the snake titles were: Aži-, Azhd-, -zates, Sauro-, Draco-.
 
 The snake was revered by the Scythians for several reasons: apart from symbolism, the Sarmatians used armor that resembled snake skin, the Scythian priesthood called the Agaroi created poisons called "scythicon" from snake venom that they used on their arrows, and snake venom was used as pain killers and stimulants before war. Snake venom was also used to stop battlefield wounds from bleeding, as well as, they were used as anecdotes, as later emulated by figures such as Mithridates of Pontus. Also, the foundation myth of the Scythians is that they were created from the Snake-Legged Goddess who was impregnated by Hercules (Targiatos).
 
@@ -680,23 +688,16 @@ claiming to be the son of Herod who faked his death [^12], so he was
 
 Endnotes (Chapter 5)
 
-(a) Other suspected aliases of Ptolemy XI Alexander II/Asander/Julius
-    Caesar: Akrosandros II, King of Scythia, Idumean Antipater, Parthian Artavasdes (Greek Alex = Persian
-    Arta) who was the brother of Tigranes II, and the Hasmonean
-    Alexander II (son of king Aristobulus II son of Jannaeus Alexander
-    also the nephew and son-in-law of king/high-priest Hyrcanus II.
-    Also, Julius = Janneus? Or Janneus (Yannai) is related to the Roman
-    name Gaius?)\
-(b) The throne name of Ptolemy Philometer was Ir-maat-en-amun-re. This
+(a) The throne name of Ptolemy Philometer was Ir-maat-en-amun-re. This
     would strengthen the word play between the names Philo-meter,
     Mithra-dates, and Matthath-ius. (The Egyptian Maat-en transliterates
     to the Hebrew Mattan/Mattath and the name "metor" transliterates
     into Parthian Mithra). Philometer then corresponds to Mithradates of
     Parthia and Mattathius the Hasmonean. (Mattath is the Hebrew
     feminine form of Mattan).\
-(c) Speculative: Ptolemy XIII Theos Philopator = Gaius Octavius aka
+(b) Speculative: Ptolemy XIII Theos Philopator = Gaius Octavius aka
     Emperor Gaius Julius Caesar Augustus, Cleopatra VII's brother.\
-(d) Apollonius of Tyre was married to the daughter of a king of Libya
+(c) Apollonius of Tyre was married to the daughter of a king of Libya
     ("Historia Apollonii Regis Tyri" or "The Story of Apollonius, King
     of Tyre"), who was Cleopatra Selene aka Drusilla (aka Cleopatra
     (Thea Philopator) of Mauretania aka Cleopatra IX aka Helene aka
@@ -716,7 +717,7 @@ Endnotes (Chapter 5)
     Tyana? This would make Apollonius of Tyana the brother-husband of
     Philo of Alexandria and the father of Josephus. These three created
     the core of Christianity.\
-(e) Gautama Buddha was Gaumata Bardya, the son of Cyrus the Great.
+(d) Gautama Buddha was Gaumata Bardya, the son of Cyrus the Great.
     Ptolemy I Soter and his successors were closely associated with
     Serapis. "Jesus" was an avatar for the Bosphioran royal family.
     Apollonius of Tyana was king Juba II, the grandson of Julius
