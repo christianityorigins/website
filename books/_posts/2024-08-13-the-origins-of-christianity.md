@@ -111,7 +111,7 @@ end of the book.
     word "Aesar" (also spelled "Aeser" or "Aisar"), meaning god or
     divine, likely derives from the Egyptian Asar. The Greek language
     adds a "K" to foreign words, so Aesar -> Greek Kaesar -> Latin
-    Caesar. This title also resembles the the Scythian/Hurrian "Kur-Sar" (Sun King), the Phoenician "Kosar" (sun god), and also Cyrus the Great's title (Kuruš (Cyrus) = Khur (Sun) + -uš (lord)).
+    Caesar. This title also resembles the the Scythian/Hurrian "Kur-Sar" (Sun King), the Phoenician "Kosar" (sun god), Assyrian "Aššur" (god) Scythian "As" (lord), and also Cyrus the Great's title (Kuruš (Cyrus) = Khur (Sun) + -uš (lord)).
 -   Christ: In ancient Egypt Karast is a person who is anointed as a
     Heru (Hero) during their lifetime. When they are deceased they
     receive a great honor as a KRST or Ausar (Osiris). Heru =
@@ -252,7 +252,7 @@ repackaging of Sythian serpent-dragon worshiping religions. See: Papaios and the
 Kings who took on the snake/dragan/serpent/Azhi Dahaka title: Scorpion I, Pharaoh of Egypt, Azhdahak, which is the Armenian form of the name of the Avestan Azhi Dahaka, was associated with the Median king Astyages (564–550 BC) who was the grandfather of Cyrus the Great. Tigranes II/the Great, King of Armenia (140–55 BC) was also called Azhdahak. Izates II, king of Adiabene's title Iza" = Avestan root for "serpent" (cognate with Scythian Aži), Tiberius Julius Sauromates II, King of Bosphorus ('Saur'
 means 'lizard' or 'reptile', and 'mates' means 'man' or 'warrior'). The roots of the snake titles were: Aži-, Azhd-, -zates, Sauro-, Draco-.
 
-The snake was revered by the Scythians for several reasons: apart from symbolism, the Sarmatians used armor that resembled snake skin, the Scythian priesthood called the Agaroi created poisons called "scythicon" from snake venom that they used on their arrows, and snake venom was used as pain killers and stimulants before war. Snake venom was also used to stop battlefield wounds from bleeding, as well as, they were used as anecdotes, as later emulated by figures such as Mithridates of Pontus. Also, the foundation myth of the Scythians is that they were created from the Snake-Legged Goddess who was impregnated by Hercules (Targiatos).
+The snake was revered by the Scythians for several reasons: apart from symbolism, the Sarmatians used armor that resembled snake skin, the Scythian priesthood called the Agaroi created poisons called "scythicon" from snake venom that they used on their arrows, and snake venom was used as pain killers and stimulants before war. Snake venom was also used to stop battlefield wounds from bleeding, as well as, they were used as anecdotes, as later emulated by figures such as Mithridates of Pontus who daily consumed a potion called "Mithridatium" which was claimed to make people invincible. Also, the foundation myth of the Scythians is that they were created from the Snake-Legged Goddess who was impregnated by Hercules (Targiatos).
 
 Timeline:
 
