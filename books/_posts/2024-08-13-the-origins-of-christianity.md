@@ -238,13 +238,15 @@ IV. Speculative
 
 **3 The Sarmatian Dragon Cult**
 
-The Scythian tribe called the Sarmatians (also called Sauromatians
-("Saur" = "Lizard/Dragon" + "Matae" = "Men/Warriors" - where the
-Sumerian "sar" (king) comes from) were a nomadic Indo-Iranian warrior
-elite from the Pontic steppe (modern Ukraine/Russia). The domestication
+The Hyperboreans were a real Bronze Age civilization in the Ural-Volga region of modern Russia who spread their culture southward via the Kurgan hypothesis (c. 4000 BCE). Their descendants, the Scythians, then spread their Draco (dragon/serpent) cult across Eurasia, encoded in snake worshiping myths. The domestication
 of the horse and invention of the chariot allowed them to travel vast
 distances. They were a priesthood of dragon/serpent-worshipping kings
 [^1]
+
+The Scythian tribe called the Sarmatians (also called Sauromatians
+("Saur" = "Lizard/Dragon" + "Matae" = "Men/Warriors" - where the
+Sumerian "sar" (king) comes from) were a nomadic Indo-Iranian warrior
+elite from the Pontic steppe (modern Ukraine/Russia). 
 
 All ancient Mediterranean religions derive from the
 repackaging of Sythian serpent-dragon worshiping religions. See: Papaios and the Snake-Legged Goddess (Scythian) = Nehebkau, Uraeus, and Apep/Apophis (Egypt) = Ningishzida (Sumerian) = Tiamat and Mušḫuššu who was associated with Marduk (Babylonian) = Aži Dahāka (Zoroastrianism) later syncretized with Mithra = Ophion, Agathodaemon, Typhon, and Delphi's Pythoness priestess (Greek) = Nāgendra and Nāga (Vedic), Nehushtan/serpent staff of Moses, the Dacian and Roman Draco standards, the serpent-worshipping Gnostics, Sebazi (Phrygian/Bulgarian), Jörmungandr (Norse), Ouroboros serpent in Freemasony, etc. The Knights Templar knew the truth. The Templars worshipped Baphomet—a Sarmatian dragon deity (Aži Dahāka).
