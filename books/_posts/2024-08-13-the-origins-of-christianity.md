@@ -105,13 +105,13 @@ end of the book.
 
 -   Azhi: Azhi = Až ("serpent") + Hi ("power, divine") in Avestan, meaning "mighty dragon". It extends Aži to signify divine authority across Indo-Iranian and Scythian cultures. Azhi = Asia (Azhi-A) = "land of the mighty dragon", a very similar name as Rome (Rhu-Ma) = "Place of the Dragon", Romania (Rhu-Ma + Na) = "dragon land", and Sarmatia ((serpent) + ma (mother, land). 
 -   Caesar: The Egyptian name "Asar" was another name for Osiris. "Ra"
-    was the Egyptian deity of the Sun (Asar-Ra). This title very likely
+    was the Egyptian deity of the Sun (Asar-Ra). Sar means king in Scythain. This title very likely
     connects to "Asar-Hapi" (Osiris-Apis), another name for the
     Graeco-Egyptian god Serapis (Osiris + Apis = Osorapis). The Etruscan
     word "Aesar" (also spelled "Aeser" or "Aisar"), meaning god or
     divine, likely derives from the Egyptian Asar. The Greek language
     adds a "K" to foreign words, so Aesar -> Greek Kaesar -> Latin
-    Caesar. This title also resembles the the Scythian/Hurrian "Kur-Sar" (Sun King), the Phoenician "Kosar" (sun god), Assyrian "Aššur" (god) Scythian "As" (lord), and also Cyrus the Great's title (Kuruš (Cyrus) = Khur (Sun) + -uš (lord)).
+    Caesar. This title also resembles the the Scythian/Hurrian "Kur-Sar" (Sun King), the Phoenician "Kosar" (sun god), Assyrian "Aššur" (god) Scythian "As" (lord) and Scythian Sar (king), and also Cyrus the Great's title (Kuruš (Cyrus) = Khur (Sun) + -uš (lord)).
 -   Christ: In ancient Egypt Karast is a person who is anointed as a
     Heru (Hero) during their lifetime. When they are deceased they
     receive a great honor as a KRST or Ausar (Osiris). Heru =
@@ -344,10 +344,11 @@ Footnotes (Chapter 3)
 
 (a) The eruption of Thera (Santorini) was one factor in destroying the
     Scythian steppe warriors hegemony, but the biggest cause was a
-    cannabis cult that stripped them of their warrior ethos
+    cannabis cult that stripped them of their martial spirit
     (https://en.wikipedia.org/wiki/Enaree). Marijuanna turned them from
     fearless warriors into potheads who were led by transgender priests.
 (b) Azhdahak, which is the Armenian form of the name of the Avestan Azhi Dahaka, was associated with the Median king Astyages (r. 564–550 BC) https://en.wikipedia.org/wiki/Azhdahak_(mythology)   
+(c) Quetzalcōātl, the Mesoamerican serpent deity, shares uncanny similarities to Aži Dahāka which suggests a transoceanic exchange of religious ideas long before Columbus (the Jade Mask of Calakmul (7th century CE) depicts a Caucasian-featured ruler with a serpent headdress—resembling Scythian dragon crowns).
 
 **4 The Alexandrian School**
 
@@ -375,7 +376,7 @@ After the Serapis cult the Alexandrian School made an industry out of taking exi
 
 There was a Bosphoran [^2] imperial cult where Julius Caesar [^3] took
 on the role of Asander (also Asandros), King of Bosphorus [^4] ("Asa"
-means "lord" in Thracian and Celtic and likely derives from the Scythian Assaioi (As-saioi = As is Scythian for "Serpent Lord", and Sai refers to clan/tribe), and "andros" means "man" or "son of
+means "lord" in Thracian and Celtic and likely derives from the Scythian Assaioi (As-saioi = As is Scythian for "Serpent Lord", and Sai refers to clan/tribe. Sar means king in Scythian), and "andros" means "man" or "son of
 man" in Greek. Jesus is referred to as "the son of man" 81 times in the
 four canonical gospels. Asandros can also be interpreted as "son of the
 lord" or "son of Asa, the lord". The Thracian version of Zeus was Asa,
