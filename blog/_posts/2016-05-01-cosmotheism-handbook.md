@@ -7,13 +7,13 @@ category: blog
 ---
 CONTENTS
 
-1 Cosmotheism\
+1 Cosmology\
 2 Types of Cosmotheism \
 3 Scientific Basis \
 4 Beliefs \
-5 Practices
+5 Rituals
 
-1 Cosmotheism
+1 Cosmology
 
 Cosmotheism is the philosophical and spiritual view that the universe itself is divine and that all existence is interconnected within this cosmic whole. It posits that the cosmos is not merely a backdrop for life but is a living, conscious entity in which everything is an expression of the divine. This perspective encourages a deep appreciation for nature and the universe as sacred.
 
