@@ -371,7 +371,7 @@ As for the term 'Hebrew", it comes from the Celts who called themselves Iberi. T
 
 'Ashkenazi', or 'Ashkuza', was the name given to the Scythians by the ancient Akkadians. The Assyrians called the Scythians "Asguzaya" and the ancient Persians called the Scythians 'Saka'. In Biblical Hebrew, the Ashkuz (Ashkenaz) are considered to be a direct offshoot from the Gimirri, known as the Cimmerians to the ancient Greeks. Cimmerians were a middle eastern offshoot of the Celtic Cimbri tribe. 
 
-These Celtic males mixed with Neolithic Anatolian woman before their descendants moved into Egypt (Apiru or Habiru) and Caanan and then mixed with indigenous people in those places. Celtic Jews (Iudii) then dissapeared after the Bar Kokhba Revolt when emperor Hadrian decimated their popuation. Modern Ashkenazi Jews are a hodgepodge of Celtic, Neolitic (proto-Sicilian who originated in Anatolia), and Natufian (proto-Arabs).
+These Celtic males mixed with Neolithic Anatolian woman before their descendants moved into Egypt (Apiru or Habiru) and Caanan and then mixed with indigenous people in those places. Celtic Jews (Iudii) then dissapeared after the Bar Kokhba Revolt when emperor Hadrian decimated their popuation. Modern Ashkenazi Jews are a hodgepodge of Neolithic (proto-Sicilian who originated in Anatolia), native Canaanites (who were literal human-neanderthal hybrids [^2]), proto-Arab Natufians (Natufians had ~20% higher Basal Eurasian -- Basal means with SSA, North Africa was green/fertile so sub-saharin Africans could cross the Sahara), and Celtic Cimbri and Celtic Galatian from Anatolia.
 
 The rest of the jewish religion and identity came from later incarnations of this imperial cult: I(J)upiter was also called Jove or Iove to the Romans. The Latin pronunciation of Iove would have been Yoh-Way, i.e Yahweh/Yhwh, so Yahweh Saboath, the god of the Hebrew bible, is I(J)ove (Roman Zeus) Sabazios (Thracian Zeus).
 
@@ -381,8 +381,8 @@ After the Serapis cult the Alexandrian School made an industry out of taking exi
 
 **5 Julius Caesar aka Asander of Bosphorus**
 
-There was a Bosphoran [^2] imperial cult where Julius Caesar [^3] took
-on the role of Asander (also Asandros), King of Bosphorus [^4] ("Asa"
+There was a Bosphoran [^3] imperial cult where Julius Caesar [^4] took
+on the role of Asander (also Asandros), King of Bosphorus [^5] ("Asa"
 means "lord" in Thracian and Celtic and likely derives from the Scythian Assaioi (As-saioi = As is Scythian for "Serpent Lord", and Sai refers to clan/tribe. Sar means king in Scythian), and "andros" means "man" or "son of
 man" in Greek. Jesus is referred to as "the son of man" 81 times in the
 four canonical gospels. Asandros can also be interpreted as "son of the
@@ -395,7 +395,7 @@ from which Asa may also derive, means "god" or "divine". Asandros can
 also translate to either "son of god", or "son of Lord Aesar/Asar
 (Osiris)". The Greek language often added the prefix "K" to words
 borrowed from other languages, so Aesar ("god") -> Greek Kaesar ->
-Latin Caesar. Cleopatra used the regional alias of Dynamis Ourania [^5]
+Latin Caesar. Cleopatra used the regional alias of Dynamis Ourania [^6]
 (translating to 'heavenly power'), queen of the Bosporus. Cimmerian
 Bosporus approximates to modern-day Crimea in southern Ukraine (see
 also: Jesus Christ Was Born in Crimea by Anatoly Fomenko).
@@ -459,7 +459,7 @@ Caesar is the only historical figure who had a comparable level of
 prestige as Cyrus and Alexander.
 
 Dynamis's father was Mithridates VI Eupator who also carried the title
-"King of Kings". Her uncle was Mithridates "Chrestus" [^6]. The name
+"King of Kings". Her uncle was Mithridates "Chrestus" [^7]. The name
 Mithridates (more accurately, Mithradates) is the Hellenized form of the
 Indo-Aryan Mithra-Datt, meaning "One given by Mithra". Mithra is the
 Indo-Aryan sun-god and Datt ("given by") derives from the
@@ -521,7 +521,7 @@ of the Celtes Trocmii which refers to the Trocmi, a Celtic tribe that
 lived in ancient Galatia). Brogitarix's son Amyntas ("Amon-Tas". "Hidden
 Lord", linking to Amun-Ra - with "Amen"(tas) at the root) Nikator aka
 Amyntas of Galatia aka Jesus ben Fabus aka Isa Amen (Jesus was named
-"Amen" in Rev. iii. 14) [^7] ruled an empire that stretched from
+"Amen" in Rev. iii. 14) [^8] ruled an empire that stretched from
 modern-day Turkey through India. His palace at Isauria refers to Isis
 (also known as Isa or Aset) who was the mother of Horus (Cleopatra
 identified herself with the Greco-Egyptian goddess Isis. So, her son
@@ -534,7 +534,7 @@ Julius Aspurgus Philoromaios (Aspurgus translates to "horseman-lord" in
 Thracian languages. Sabazios was a Thracian deity worshipped as a
 horseman.).
 
-Cleopatra aka Dynamis's son with Mark Antony [^8] (aka Ptolemy of
+Cleopatra aka Dynamis's son with Mark Antony [^9] (aka Ptolemy of
 Cyprus, a brother of Ptolemy XII Auletes (Cleopatra's father) making him
 Celopatra's uncle aka Polemon I of Pontus aka King Herod aka Tiberius
 Claudius Nero aka Phraates IV of Parthia) = Alexander Helios aka
@@ -600,7 +600,7 @@ Thracian, 'Cotys' is related to the word 'kotys' which is a title that
 means 'lord') aka Emperor Nerva, and Marcus Julius Alexander aka Yeshua
 Cleopatros (Cantheras/Panthera) ben Josephus bar Menneus aka Ma'nu of
 Adiabene/Edessa aka Ptolemy aka Yakov Zu Tolomoy aka Izates aka Jesus
-Emmanuel aka Monobazus of Adiabene [^9]
+Emmanuel aka Monobazus of Adiabene [^10]
 
 ![Fig.
 1.14](/images/Josephus.jpg){:width="400px"}
@@ -663,7 +663,7 @@ Sabazios you get Zebedaios, sons of Zebedee.
 Ptolemy Menneus/Simon Boethus's son was named Philippion who I believe
 is a good candidate for Philip II Philoromaios and also Tiridates II of
 Parthia or Arsaces Philoromaios. Arsaces was the brother of Dynamis
-[^10]. So, Simon Boethus/Magus/Ptolemy (Alexander) bar Menneus, et.al.,
+[^11]. So, Simon Boethus/Magus/Ptolemy (Alexander) bar Menneus, et.al.,
 were the aliases of Ptolemy X Alexander I, king of Egypt, and Marriamme
 Boethus was another of Cleopatra's regional aliases?  If you identify
 King Herod as Mark Antony aka Tiberius Claudius Nero aka Phraates IV of
@@ -684,7 +684,7 @@ a source, Antipater the Idumean's son King Herod was married to Simon
 Boethus's daughter Mariamme and Antipater the Idumean saved Julius
 Caesar's life during the Battle of the Nile (47 BC). As a reward,
 Josephus claims that Julius Caesar adopted King Herod's sons (Simon
-Boethus's grandsons) Aristobulus IV (Vespasian's grandfather [^11],
+Boethus's grandsons) Aristobulus IV (Vespasian's grandfather [^12],
 Alexander (son of king Herod) aka Alexandros III aka Juba II, Herod
 Antipas the Tetrarch, Archelaus, and Philip and raised them in Rome, in
 the household of Gaius Asinius Pollio which was the same household that
@@ -693,7 +693,7 @@ Caesar Augustus was raised in (Josephus, "Antiquities of the Jews", Book
 untrue and those kids were his biological sons. It is also untrue that
 Alexander, son of King Herod, was killed by his father Herod, Josephus
 even has a story about a 'spurious Alexander' that showed up in Rome
-claiming to be the son of Herod who faked his death [^12], so he was
+claiming to be the son of Herod who faked his death [^13], so he was
 'resurrected' as Juba II, king of Numidia and Mauretania. 
 
 Endnotes (Chapter 5)
@@ -881,7 +881,7 @@ Vespasian was also a great-grandson of Cleopatra and Mark Antony (King
 Herod). He was Herod Pollio aka Herod Agrippa I, grandson of King
 Herod's son Aristobulus IV. Vespasian was his title, not his name
 (Vas/Bas was the royal abbreviation for the Greek word Basilius which =
-King, and Pasius = Peace. 'Vespasian' = 'King Peace') [^13]. He was also
+King, and Pasius = Peace. 'Vespasian' = 'King Peace') [^14]. He was also
 'Flavius Scaevinus' the conspirator involved in Nero's assassination.
 
 ![Fig.
@@ -1138,7 +1138,7 @@ Endnotes (Chapter 10)
     Valerius Maximus, in his work 'Facta ac dicta memorabilia', mentions
     the expulsion of Jews from Rome in 139 BCE by the praetor peregrinus
     Cn. Cornelius Hispalus for attempting to currupt the cult of
-    Jupiter.[^14]
+    Jupiter.[^15]
 (d) Quintus Tineius Sacerdos, the brother of Quintus Tinnius Rufus, was
     the governor of Pontus in Anatolia, so the family likely derived
     from there. Pilate means the temperament of a warrior I.e., famously
@@ -1307,8 +1307,42 @@ https://unz.com/article/how-fake-is-church-history by Laurent Guyénot
     --Royal families of Europe descend from this Scythian line: Vlad
     Dracula (Son of the Dragon) is an example of this bloodline in
     Wallachia.
+    
+[^2]:You can read more about the Jew-Neanderthal connection here: (Humans
+    and Neanderthals likely interbred in the Middle East. Science
+    Magazine,
+    https://www.sciencemag.org/news/2015/01/humans-and-neandertals-likely-interbred-middle-east),
+    (Remains of hybrid Neanderthal-Sapiens population found in Israel.
+    Haaretz,
+    https://www.haaretz.com/israel-news/2019-11-08/ty-article-magazine/.premium/remains-of-hybrid-neanderthal-sapiens-population-found-in-israel/0000017f-dbcf-db5a-a57f-dbef18940000),
+    (Evidence of human-Neanderthal hybrids found in Israeli cave.
+    Forward,
+    https://forward.com/culture/434525/evidence-of-human-neanderthal-hybrids-found-in-israeli-cave),
+    (The Chosen People: Caucasus, Deceptions, and Historical. Amazon,
+    https://www.amazon.com/Chosen-People-Caucasus-Deceptions-Historical/dp/0883781476),
+    (Genetic studies of Jews. National Center for Biotechnology
+    Information, https://www.ncbi.nlm.nih.gov/pmc/articles/PMC6309227),
+    (Genetic studies of Jews. Wikipedia,
+    https://en.wikipedia.org/wiki/Genetic_studies_of_Jews),
+    (Ashkenazi Jewish population history revealed by ancient DNA
+    analysis. GenomeWeb,
+    https://www.genomeweb.com/sequencing/ashkenazi-jewish-population-history-revealed-ancient-dna-analysis),
+    (Ashkenazi gene increases schizophrenia. Haaretz,
+    https://www.haaretz.com/2013-11-26/ty-article/.premium/ashkenazi-gene-increases-schizophrenia/0000017f-e04b-d75c-a7ff-fccfa3e10000),
+    (Genetic studies of Jews. National Center for Biotechnology
+    Information, https://www.ncbi.nlm.nih.gov/pmc/articles/PMC7465115/),
+    (So, are the Neanderthals still Jews? Slate,
+    https://slate.com/news-and-politics/1997/08/so-are-the-neanderthals-still-jews.html),
+    (Did modern humans and Neanderthals really meet in the Negev?
+    Haaretz,
+    https://www.haaretz.com/archaeology/2021-06-21/ty-article/.premium/did-modern-humans-and-neanderthals-really-meet-in-the-negev/),
+    (BBC News, https://www.bbc.co.uk/news/science-environment-57586315),
+    (New America Government,
+    https://archive.ph/2024.02.24-211636/https://newamericangovernment.org/ailink/802/),
+    (Blogger,
+    https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiyDzxbNmb6Oj5aDWOknO84-hwkdkoi) \
 
-[^2]: See: "History: Fiction or Science? Russia. Britain. Byzantium.
+[^3]: See: "History: Fiction or Science? Russia. Britain. Byzantium.
     Rome. New Chronology Vol.IV" (2008) by Anatoly T. Fomenko, "Jesus
     Among the Julio-Claudians" (2017) by Charles N. Pope
     '[[link](https://books.google.se/books/about/Jesus_Among_the_Julio_Claudians.html?id=c7A3DwAAQBAJ&redir_esc=y)],
@@ -1348,7 +1382,7 @@ https://unz.com/article/how-fake-is-church-history by Laurent Guyénot
     confirmed. Julius Caesar = Asander of Bosphorus, and all early
     Christianity traces back to to the Bosphorus.
 
-[^3]: Julius Caesar was his title (Caesar is etymologically similar to
+[^4]: Julius Caesar was his title (Caesar is etymologically similar to
     the Indo-Aryan word for "king" and Julius (Iulius) is similar to
     both (I)Jupiter and to the Indo-Aryan word for "sun"). Julius Caesar
     was deified in two religions: in the Flamen Dialis cult (Dialis is
@@ -1369,7 +1403,7 @@ https://unz.com/article/how-fake-is-church-history by Laurent Guyénot
     Bosporani (CIRB 30)
     https://www.researchgate.net/publication/333149205_CIRB_30_Asandros_and_Dynamis_CIRB_Corpus_Inscriptionum_Regni_Bospori.
 
-[^4]: "The Gospel of Jesus' Wife Papyrus." The Nazarene Way,
+[^5]: "The Gospel of Jesus' Wife Papyrus." The Nazarene Way,
     https://www.thenazareneway.com/Gospel%20of%20Jesus%20Wife%20Papyrus.htm.[[link](https://www.thenazareneway.com/Gospel%20of%20Jesus%20Wife%20Papyrus.htm)]
     --Asander and Julius Caesar both used the Nike crescent. Nike is the
     goddess who personifies victory in Greek mythology.
@@ -1395,7 +1429,7 @@ https://unz.com/article/how-fake-is-church-history by Laurent Guyénot
     "divine.". The Etruscan word "Aesar" (also spelled "Aeser" or
     "Aisar") means "god" or "divine". As is at the root of Caesar.
 
-[^5]: A coin of Dynamis, queen of Bosphorus, where she is depicted as
+[^6]: A coin of Dynamis, queen of Bosphorus, where she is depicted as
     Aphrodite "Urania":
     https://www.forumancientcoins.com/gallery/displayimage.php?album=880&pid=2383#top_display_media
     [[link](https://www.forumancientcoins.com/gallery/displayimage.php?album=880&pid=2383#top_display_media)].
@@ -1420,7 +1454,7 @@ https://unz.com/article/how-fake-is-church-history by Laurent Guyénot
     https://www.vcoins.com/en/stores/den_of_antiquity/48/product/mauretania_juba_ii_ar_denarius/1952816/Default.aspx
     [[link](https://www.vcoins.com/en/stores/den_of_antiquity/48/product/mauretania_juba_ii_ar_denarius/1952816/Default.aspx)]
 
-[^6]: His name alludes to the Mithras cult. Mithraism was spread by
+[^7]: His name alludes to the Mithras cult. Mithraism was spread by
     Tiridates of Armenia (alias of Alexander, grandson of King Herod,
     Mithridates Chrestus descendant?) after Rome's defeat of Parthia
     around 53 AD as a slave-morality religion to subjugate the
@@ -1438,7 +1472,7 @@ https://unz.com/article/how-fake-is-church-history by Laurent Guyénot
     School. The Sibylline Oracles were the blueprint for these
     religions./
 
-[^7]: Jesus ben Fabus who was Isa Amen (Jesus Amen) of Rev. iii. 14 who
+[^8]: Jesus ben Fabus who was Isa Amen (Jesus Amen) of Rev. iii. 14 who
     was also Amyntas (Amen(tas)) of Galatia who was also Amyntas Nikator
     (the name Fabus may have been distorted by Josephus from Jesus ben
     Bagus. Amyntas was the son of Bogitarus. In Persian "Bagus" means
@@ -1448,7 +1482,7 @@ https://unz.com/article/how-fake-is-church-history by Laurent Guyénot
     Jesus Christ Was Amyntas of Galatia (2010) by Ranajit Pal
     [[link](https://ranajitpal-jesus-from-asia-minor.blogspot.com/2011/06/jesus-christ-was-amyntas-of-galatia_20.html)])
 
-[^8]: The name Herod likely derives from the amalgamation of Horus and
+[^9]: The name Herod likely derives from the amalgamation of Horus and
     Hercules (Herakles in Greek). Mark Antony claimed descent from
     Hercules and declared himself an incarnation of Horus. Herod became
     king of judaea around the time of Mark Antony's "suicide". This is
@@ -1483,7 +1517,7 @@ https://unz.com/article/how-fake-is-church-history by Laurent Guyénot
     of 62 BC. Tiberius Claudius Nero and Livia Drusilla's son was
     emperor Tiberius Julius Caesar Augustus.
 
-[^9]: Jesus ben Gamala/Gamaliel aka Jesus ben Sapphias was also King
+[^10]: Jesus ben Gamala/Gamaliel aka Jesus ben Sapphias was also King
     Izas Ma'nu (Jesus Emmanuel) Monobazus of Adiabene aka Yeshua
     Cleopatros (Cantheras/Panthera) ben Josephus bar Menneus aka Ptolemy
     aka Yakov Zu Tolomoy. (See: Jesus, King of Edessa (2012) by Ralph
@@ -1496,24 +1530,24 @@ https://unz.com/article/how-fake-is-church-history by Laurent Guyénot
     Jews for derogatory reasons called it as Panthera. ie. Jesus
     Panthera.
 
-[^10]: Tiridates II, King of Parthia." Geni,
+[^11]: Tiridates II, King of Parthia." Geni,
     https://www.geni.com/people/Tiridates-II-king-of-Parthia/6000000019000945876
     [[link](https://www.geni.com/people/Tiridates-II-king-of-Parthia/6000000019000945876)]
 
-[^11]: Davis, Henry. "The Royal Ancestry of the Roman Emperor
+[^12]: Davis, Henry. "The Royal Ancestry of the Roman Emperor
     Vespasian." Medium,
     https://henrydavis-cc.medium.com/the-royal-ancestry-of-the-roman-emperor-vespasian-72e144335299.
     [[link](https://henrydavis-cc.medium.com/the-royal-ancestry-of-the-roman-emperor-vespasian-72e144335299)]
 
-[^12]: Josephus, "Antiquities of the Jews", Book 12
+[^13]: Josephus, "Antiquities of the Jews", Book 12
     [[link](https://www.ccel.org/ccel/josephus/complete.ii.xviii.xii.html)]
 
-[^13]: Davis, Henry. "The Royal Ancestry of the Roman Emperor
+[^14]: Davis, Henry. "The Royal Ancestry of the Roman Emperor
     Vespasian." Medium,
     https://henrydavis-cc.medium.com/the-royal-ancestry-of-the-roman-emperor-vespasian-72e144335299.
     [[link](https://henrydavis-cc.medium.com/the-royal-ancestry-of-the-roman-emperor-vespasian-72e144335299)]
 
-[^14]: https://en.wikipedia.org/wiki/Claudius%27_expulsion_of_Jews_from_Rome
+[^15]: https://en.wikipedia.org/wiki/Claudius%27_expulsion_of_Jews_from_Rome
     ---https://en.wikipedia.org/wiki/Sabazios#Jewish_connection
     ---Emperor Caligula Brought an End to the Illustrious Ptolemies, but
     Why?. Ancient Origins Reconstructing the Story of Humanity's Past.
@@ -1523,5 +1557,5 @@ https://unz.com/article/how-fake-is-church-history by Laurent Guyénot
     Why?. Ancient Origins Reconstructing the Story of Humanity's Past.
     www.ancient-origins.net/history-famous-people/emperor-caligula-brought-end-illustrious-ptolemies-why-007591
 
-[^15]: Gmirkin, Russell (2016). Plato and the Creation of the Hebrew
+[^16]: Gmirkin, Russell (2016). Plato and the Creation of the Hebrew
     Bible.
