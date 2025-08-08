@@ -47,6 +47,7 @@ Introduction\
 2 Ancient Alias Names List\
 3 The Sarmatian Dragon Cult\
 4 The Alexandrian School\
+4.1 Judaism\
 5 Julius Caesar aka Asander of Bosphorus\
 6 Julius Caesar was a Title   \
 7 Rome on the Bosphorus?\
@@ -114,16 +115,9 @@ end of the book.
     word "Aesar" (also spelled "Aeser" or "Aisar"), meaning god or
     divine, likely derives from the Egyptian Asar. The Greek language
     adds a "K" to foreign words, so Aesar -> Greek Kaesar -> Latin
-    Caesar. This title also resembles the the Scythian/Hurrian "Kur-Sar" (Sun King), the Phoenician "Kosar" (sun god), Assyrian "Aššur" (god) Scythian "As" (lord) and Scythian Sar (king), and also Cyrus the Great's title (Kuruš (Cyrus) = Khur (Sun) + -uš (lord)).
--   Christ: In ancient Egypt Karast is a person who is anointed as a
-    Heru (Hero) during their lifetime. When they are deceased they
-    receive a great honor as a KRST or Ausar (Osiris). Heru =
-    Hero-Horus-Heracles (Hercules) Heracles, Hercules, Hero, Christ, are
-    all titles directly derived from the word HERU. Egyptian Karast
-    ("Anointed One") = Greek Christos ("Anointed One"). Also likely
-    related to Krishna (Sanskrit) = "Dark Serpent" (from Kṛṣṇa =
-    "black," linked to Ananta-Shesha, the cosmic serpent), Kurios
-    (Greek) = "Lord," and "Kur" (Sumerian: "Mountain Serpent"). Christ
+    Caesar. This title also resembles the the Scythian/Hurrian "Kur-Sar" (Sun King), the Phoenician "Kosar" (sun god), Assyrian "Aššur" (god) Scythian "As" (lord) and Scythian Sar (king), Kšar (from the Old Persian Xšaya = king) and also Cyrus the Great's title (Kuruš (Cyrus) = Khur (Sun) + -uš (lord)).
+-   Christ: Kur-Ist (Scythian: Kur, "mountain serpent" + Ist, "being/existence"). This ties to Sumerian "Kur" (mountain/dragon), Vedic "Kṛṣṇa" = "Dark Serpent" (from Kṛṣṇa =
+    "black," linked to Ananta-Shesha, the cosmic serpent), Avestan Kavi-Rist (Kavi, king-priest + Rist, order/truth) and Greek Kurios =   "Lord". Christ
     is identical to the title Soter. Several historical figures were
     Christs/Soters. In Isaiah 45:1 the jews called Cyrus the Great "The
     Anointed One". Alexander the Great was also a Chréstos/Soter
@@ -136,7 +130,7 @@ end of the book.
     meaning "lord". In the Celtic languages the word "cottos" or
     "cottius" means "chieftain".
 -   Izates or Izas: "Iza" (𐬌𐬰𐬀) = Avestan root for "serpent" (cognate with Scythian Aži). "-tes" = Greek suffix, but possibly from dāta ("given by," as in Mithradates = "Given by Mithra"). This is cognate with the Scythian (and broader Iranian) mythological figure Aži Dahāka (Avestan) or Azhi Dahak (Middle Persian), a monstrous serpent or dragon.
- -   Jew: Summerian "Ju" means opposite and the Summerian Ud or Udu means snake or serpent. This word is also connected to the Akkadian word Usum which also means serpent or dragon. "Against the serpent" = against the Scythians. Also related: Saka/Sata (Scythians) + -an (lord) = "Serpent Lord". Jews were originally a Scythian priestly caste worshipping Aži Dahāka, later demonized by Rabbi Akiva’s circle as "anti-serpent" to sever their steppe origins (Israel = Sura (Su ("divine")) + Ra ("light, ruler") + El ("god") = Serpent god).
+ -   Jew: Iudii (Celtic tribe) + Aži (serpent). The Iudii, a Galatian tribe, were Sarmatian priests whose religious practices were rooted in Druidism who later became "Jews" under Alexandrian syncretism. The term "Ashkenazi" (Scythian: Ashkuza) confirms their steppe origins, demonized by Rabbi Akiva to erase their Sarmatian roots. 
 -   Jesus: Likely a phonetic shift from Asar/Aesus (pronounced
     ah-soos). Another option: "Yeshua" = "Yazata" (Divine Serpent-Lord), related to Izates (Yazata).
   - Lord: The term Kavi in Avestan texts (e.g., Yasna 10.6) denotes a divine ruler associated with Aži (dragon/serpent). Translating Kavi to Greek yields Kyrios ("lord"), a title used for Jesus in the New Testament (e.g., Kyrios Iesous). The Scythian title Xšaya (king) appears in Old Persian as Xšayathiya, phonetically linked to Kshatriya (Sanskrit: warrior-king) and Caesar via the Greek Kaesar. A kurgan inscription from Issyk (Kazakhstan, 4th century BCE) mentions a ruler named Ašakavi ("dragon-priest"), combining Aša (truth/order) and Kavi. This title parallels Asander (Thracian: Asa = "lord") and suggests a pan-steppe naming convention for dragon-kings. 
@@ -217,7 +211,7 @@ IV. Speculative
 -   Alexander the Great: Scythian prince who was the son of Ateas the Scythian aka Artaxerxes
     II Memnon ("Kai Bahman") and half-brother of Darius III ("Darab").
     In India he took the regional aliases of Chandragupta Maurya
-    (Chandragupta" = "Sander-Gupta" (Scythian "Sander" = Alexander. "Aleks" = Greekization of "Alakh" which means "not seen" or "unseen" in Sanskrit/Hindi. "Gupta" = Hidden)). "Aži-ander": Aži
+    ("Chandragupta" = "Sander-Gupta" (Scythian "Sander" = Alexander. "Aleks" = Greekization of "Alakh" which means "not seen" or "unseen" in Sanskrit/Hindi. "Gupta" = Hidden)). "Aži-ander": Aži
     (Avestan "dragon") + Andros (Greek "man") = "Dragon-Man". Alaksandu
     of Wilusa, a Hittie king of Wilusa (Troy) (Alaksandu = Alak-San-Du
     (Hurrian: "Ruler-Dragon-Son")), who predates Alexander by 800 years,
@@ -363,13 +357,23 @@ Fig. 1.3 Copper statuette of the god Sarapis Amun Agathodaemon depicted as half-
 
 The Sarapis cult eventually evolved into Christianity, which was repackaged Serapis cult and targeted at local populations (the Christogram symbolizing Jesus Christ (IHS) = "Isis-Horus-Serapis"). Religion was the technology that the empire used to subjugate the people they ruled.
 
+4.1 Judaism 
+
 Ptolemy I Soter was also responsible for inventing Judaism. His aim was to subvert Canaanite identity once and for all, destroying the only contestant to Greco-Egyptian power in the world up to that point, and gradually forcing jews to accept the Serapis cult. 
 
 It was in Alexandria at the Library of Alexandria where the Pentateuch and Septuagint were written. The myth of the jewish people and the Laws of Moses were based on Plato's hypothetical colony of Magnesia from his thesis called The Laws (347 BC) in which the proposed charter for the Cretan colony of Magnesia was modeled in large part on Athenian legal and constitutional traditions. Ancestor received law from a deity, hereditary priesthood rather than king, as well as the division into 12 tribes were all part of the formula. Plato's Timaeus (360 BC) is where the story of Abraham comes from. Plato's Timaeus is also the source for Genesis 1-11 15. Homer's Odysseey was the source of Genesis 24, 42-46. The biblical concept of hell was stolen from Plato's Replublic ('Myth of Er'), and the spiritual plane of Heaven is ripped off from Plato's 'World of Forms'. Exodus is just a semitized retcon of Jason and the Argonauts, and the Oracles Against the Nations plagiarize the Sibylline Oracles.
 
 Moses = Osarseph (Osar (Osiris) and seph (son) = Son of Osirus). The Greek rendering of Moses and Osarseph are identical. Osarseph appears in accounts by the Egyptian priest Manetho, who described him as a renegade priest leading a group of lepers in rebellion, eventually adopting the name "Moses" (Josephus. 'Against Apion' discussing Manetho's account of Osarseph). Osarseph also = Serapis. The "Ser" symbol in Ser-apis is the same as seph meaning "son of". Serapis can be interpreted as "Son of Osiris-Apis", which evolved into "Son of Osiris". So, Serapis is just another word for Osarseph. Solomon = Sol-Amūn ("Sun of Amun"). Abraham (Brahmin > Ibrahim > Abraham. A(Braha)m(in)) = Ab-Ram, or Son of Ram. Alexander was the Ram god (https://en.wikipedia.org/wiki/Horns_of_Alexander), he was also Chandragupta Maurya in India.
 
-The rest of the jewish religion and identity came from later incarnations of this imperial cult: I(J)upiter was also called Jove or Iove to the Romans. The Latin pronunciation of Iove would have been Yoh-Way, i.e Yahweh/Yhwh, so Yahweh Saboath, the god of the hebrew bible, is I(J)ove (Roman Zeus) Sabazios (Thracian Zeus).
+The original redhead clan of Druids that ended up becoming Israelites were Celtic Scythians who migrated southwards during the early Aryan invasion of 4000 BC. Scythian --> Saka --> Isaac. This migration coincides with the development of early bronze age civilization. They went to Anatolia first (Galatia), then Babylon, then Canaan ('Gaulinitis' = Golan Heights). In Canaan, the natives then came under the suzerainty of these Celts and their entire identity, language, and religion derives from this. The evidence for this is paternal DNA assays (Galatian Celts carried the Celtic R1b haploytpe (10% of Ashkenazi jews), but also R1a, G2a, J2a, which are other paternal lineages that make up the bulk of jews paternal haplotypes), the fact that the Celtic languages are surprisingly Semitic with a verb-subject-object word order and a shocking amount of vocabulary overlap, and the name of Irish deities, Balor and his holiday Beltaine are cognate to Bal and Elatha the Irish Uranus is cognate to Hebrew El. King David (DWD) = King Druid. 1 Samuel 16:12 claims that King David had red hair. As for the name 'jew', the descriptive name Judaism was never used by the Hebrews or Israelites; it appears only with Christianity. It comes from Yahud or Auda which comes from Iodh or Ioux. Iodh and Ioux are associated with the yew tree in Druidism and is sometimes linked to the concept of rebirth and regeneration. The ancient Celtic prefixes 'Rab' or 'Rhab' mean 'wise one' or 'seer', and a Druid equates to a Rabbi.
+
+As for the term 'Hebrew", it comes from the Celts who called themselves Iberi. The name of Abaris the Hyperborean, a Druid priest who was Pythagoras's teacher, who was the son of Seuthes (Seth), shows this. The term Abaris was inspired by the Semitic Iber. Iber was sometimes rendered as Aber or Heber and is pronounced as Hebrew in the Hebrew languages. Hyperborea, which just like Atlantis, was another name for Ireland. The word Atlantis means ‘The Island of Atlas’. The titan Atlas was a key figure in Greek mythology and is depicted as being the  bearer of the heavens. According to early Greek mythology, Atlas lived on the island of Hyperborea. Over time Hyperborea became Hybernia or Hibernia, the Roman name for Ireland. Iber is an ethnonym that shows up in areas where the Celtic people settled (Ebro river, Iberia, Hibernia, etc.). Dionysius of Alexandria in Egypt (ca. 190-264 CE) also referred to the inhabitants of Britain as Iberi.
+
+'Ashkenazi', or 'Ashkuza', was the name given to the Scythians by the ancient Akkadians. The Assyrians called the Scythians "Asguzaya" and the ancient Persians called the Scythians 'Saka'. In Biblical Hebrew, the Ashkuz (Ashkenaz) are considered to be a direct offshoot from the Gimirri, known as the Cimmerians to the ancient Greeks. Cimmerians were a middle eastern offshoot of the Celtic Cimbri tribe. 
+
+These Celtic males mixed with Neolithic Anatolian woman before their descendants moved into Egypt (Apiru or Habiru) and Caanan and then mixed with indigenous people in those places. Celtic Jews (Iudii) then dissapeared after the Bar Kokhba Revolt when emperor Hadrian decimated their popuation. Modern Ashkenazi Jews are a hodgepodge of Celtic, Neolitic (proto-Sicilian who originated in Anatolia), and Natufian (proto-Arabs).
+
+The rest of the jewish religion and identity came from later incarnations of this imperial cult: I(J)upiter was also called Jove or Iove to the Romans. The Latin pronunciation of Iove would have been Yoh-Way, i.e Yahweh/Yhwh, so Yahweh Saboath, the god of the Hebrew bible, is I(J)ove (Roman Zeus) Sabazios (Thracian Zeus).
 
 Abel and Cain are just a copy of Romulus and Remus. Judas Iscariot is a copy of Brutus. Genesis 4:5-31. Enoch, Irad, Mehujael, Methuselah, Lamech, Seth, Enosh, Kenan, Mahalalel, are copies of Titus Livy's Regal Rome of the seven kings.
 
