@@ -136,7 +136,7 @@ end of the book.
     meaning "lord". In the Celtic languages the word "cottos" or
     "cottius" means "chieftain".
 -   Izates or Izas: "Iza" (𐬌𐬰𐬀) = Avestan root for "serpent" (cognate with Scythian Aži). "-tes" = Greek suffix, but possibly from dāta ("given by," as in Mithradates = "Given by Mithra"). This is cognate with the Scythian (and broader Iranian) mythological figure Aži Dahāka (Avestan) or Azhi Dahak (Middle Persian), a monstrous serpent or dragon.
- -   Jew: Summerian "Ju" means opposite and the Summerian Ud or Udu means snake or serpent. This word is also connected to the Akkadian word Usum which also means serpent or dragon. "Against the serpent" = against the Scythians. Also related: Saka/Sata (Scythians) + -an (lord) = "Serpent Lord". Jews were originally a Scythian priestly caste worshipping Aži Dahāka, later demonized by Rabbi Akiva’s circle as "anti-serpent" to sever their steppe origins (Israel = Sura (Su ("divine") + Ra ("light, ruler") + El ("god") = Serpent god).
+ -   Jew: Summerian "Ju" means opposite and the Summerian Ud or Udu means snake or serpent. This word is also connected to the Akkadian word Usum which also means serpent or dragon. "Against the serpent" = against the Scythians. Also related: Saka/Sata (Scythians) + -an (lord) = "Serpent Lord". Jews were originally a Scythian priestly caste worshipping Aži Dahāka, later demonized by Rabbi Akiva’s circle as "anti-serpent" to sever their steppe origins (Israel = Sura (Su ("divine")) + Ra ("light, ruler") + El ("god") = Serpent god).
 -   Jesus: Likely a phonetic shift from Asar/Aesus (pronounced
     ah-soos). Another option: "Yeshua" = "Yazata" (Divine Serpent-Lord), related to Izates (Yazata).
   - Lord: The term Kavi in Avestan texts (e.g., Yasna 10.6) denotes a divine ruler associated with Aži (dragon/serpent). Translating Kavi to Greek yields Kyrios ("lord"), a title used for Jesus in the New Testament (e.g., Kyrios Iesous). The Scythian title Xšaya (king) appears in Old Persian as Xšayathiya, phonetically linked to Kshatriya (Sanskrit: warrior-king) and Caesar via the Greek Kaesar. A kurgan inscription from Issyk (Kazakhstan, 4th century BCE) mentions a ruler named Ašakavi ("dragon-priest"), combining Aša (truth/order) and Kavi. This title parallels Asander (Thracian: Asa = "lord") and suggests a pan-steppe naming convention for dragon-kings. 
@@ -211,7 +211,6 @@ III. Flavian Emperors
     [[link](https://henrydavis-cc.medium.com/the-royal-ancestry-of-the-roman-emperor-vespasian-72e144335299)]),
     Flavius Scaevinus
 -   Titus: Polemon II, Aulus Avillius Flaccus
--   Marcion of Sinope: Markianos of Alexandria, St. Mark
 
 IV. Speculative
 
@@ -229,6 +228,7 @@ IV. Speculative
     Ammon disguised as a dragon. Alexander also married the Scythian princess Roxana.
 -   Gautama Buddha (Egyptian: "Ba-Djehuti", or "Soul of Thoth"): Gaumata
     Bardya (Cyrus the Great's son)
+-   Marcion of Sinope: Markianos of Alexandria, St. Mark
 -    Moses = Manes/Mannu-Kuras = Manu (Scythian Sage-King) = Menes (Egypt’s legend-founder). Also appears in "Monobazus" → “Manu Bazus” → Sarmatian-Mythological Sage King. The Iranian Manu is a legendary civilizer, and in India he becomes the first Lawgiver (the Manu Smriti = Scythian governance code). The biblical Moses defeats Pharaoh (actually Mitanni elite), parts waters with a serpent-staff—obvious encoding of dragon-kingship (Aži Dahāka). Moses takes on different masks: M enes – the first official Pharaoh (not real, a compilation of conquerors). Menes – the semi-mythical Median king, founder of the priest-class. Mannu-kuras – Proto-Mede, whose name becomes Cyrus. The name Kur-Ash = "Sun Man". The Exodus is not Judaic memory: it's a political memory of Mitanni-Scythian expulsion from Egypt after the religious revolution of Thutmose III → Horemheb wiped them out with a new priest-kingship in Amarna.
  -   Paul the Apostle = likely a composite character or an avatar/cipher. Two suspects for having taking on the character are: 1) Saulus ben Antipater who was the
     son of Antipater/Herod Antipas the Tetrarch, grandson of King Herod
