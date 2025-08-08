@@ -62,16 +62,16 @@ Bibliography
  
 Christianity is a derivative of one of the religions that were invented at the Alexandrian School in Egypt. The Alexandrian School was a religion-making factory that was set up by Ptolemy Soter. The Serapis cult, Judaism, Gnosticism, Valentinianism, Christianity, Hermeticism, Mithraism, Manichaeism, Mandaeism, and many other religions originated from there. 
 
-All these religions were created to target regional populations in the empire and were designed to subvert their regional religions in a syncretic manner, aiming to lead the population toward monotheism and gradually toward a universal imperial cult. One other option for why they created so many religions is that these religions were targeted towards different castes: Mithraism was for military elites (required blood oaths. Mithraic initiates/caste system/hierarchical). Serapism was for civilians (promised afterlife salvation). Christianity was for slaves ("turn the other cheek")). Segmentation of populations by class, culture, and region, prevents unified resistance.
+All these religions were created to target regional populations in the empire and were designed to subvert their regional religions in a syncretic manner, aiming to lead the population toward monotheism and gradually toward a universal imperial cult. These religions were also likely designed to segmentat the populations by class, culture, and region to prevent a unified resistance (Mithraism was for military elites (required blood oaths. Mithraic initiates/caste system/hierarchical). Serapism was for civilians (promised afterlife salvation). Christianity was for slaves ("turn the other cheek")).
 
-In these religions they used symbolic figures, allegories, and pseudohistorical events rather than directly deifying themselves with their own names because if they deified themselves it would have exposed their identity and centralized power too visibly, risking rebellion. Religions were psychological and political tools. The goal was to embed moral codes, centralized texts and priesthoods replacing oral tradition, ethos like submission, self-sacrifice, obedience, loyalty, divine judgement.
+In these religions they used symbolic figures, allegories, and pseudohistorical events rather than directly deifying themselves with their own names because if they deified themselves it would have exposed their identity and centralized power too visibly, risking rebellion. Religions were psychological and political tools. The goal was to subvert regional religions, create centralized texts and priesthoods, and embed moral codes like submission, self-sacrifice, obedience, loyalty, divine judgement.
 
 Christianity likely arose as a synthesis of the Serapis Cult, rebranded to serve one of the later Roman (Bosphoran) imperial cults which was later subverted by a group of Rabbis who were headed by a rabbi named Akiva sometime after the Bar Kokhba revolt. Jesus in the bible was a cipher, or an avatar, originally for members of the Bosphoran royal family. Asander, king of Bosphorus (Julius Caesars real identity) took on this role, so did his son Aspurgus, king of Bosphorus aka Amyntas ("Amon-Tas". "Hidden
 Lord", linking to Amun-Ra - with "Amen"(tas) at the root) Nikator aka
 Amyntas of Galatia aka Jesus ben Fabus aka Isa Amen (Jesus was named
 "Amen" in Rev. iii. 14) aka Caesarion, and his later descendants Izates II, king of Adiabene ("Iza" = Avestan root for "serpent" (cognate with Scythian Aži) + "-tes" = "given by," as in Mithradates = "Given by Mithra". This is cognate with the Scythian (and broader Iranian) mythological figure Aži Dahāka (Avestan) or Azhi Dahak (Middle Persian)), and Tiberius Julius Sauromates II, also took on the role. After Rabbi Akiva Jesus then became Simon Bar Kokhba.
 
-It was a necessary for these rabbis to cut and paste from an imperial cult, just as it was necessary for the Alexandrian School religions to be packaged as sects of local religions. Getting people to abandon their religions for a new one is an impossible task. However, there are thousands of sects of major religions today, many with different prophets.
+It was a necessary for these rabbis to cut and paste from an imperial cult, just as it was necessary for the Alexandrian School religions to be packaged as sects of local religions, because getting people to abandon their religions for a new one is an impossible task. However, there are thousands of sects of major religions today, many with different prophets.
 
 This book traces Christianity all the way back to its foundations — from the mythemes of Scythian snake-worshiping cults, to the Alexandrian School in Egypt and the Sarapis cult, to the Roman (Bosphoran) imperial cult — and then finishes with the subversion of the Bosphoran cult.
 
@@ -160,7 +160,7 @@ the regional alias of Emperor Titus. The character of Aulus Avillius
 Flaccus dies at the same time Polemon II of Pontus takes power, and then
 Polemon II of Pontus dies around the same time Titus becomes emperor.
 The way to connect them is through the fact that they were all married
-to the same woman, Berenice, granddaughter of King Herod.
+to the same woman, Berenice, granddaughter of King Herod. Also note that all these kings/emperors had philosopher or religious figure aliasas, probably derived Summeria who required kings to also be priests or from Plato's "Philospher Kings" concept (Asander of Bosphours aka Julius Caesar was Gaius Julius Sohaemus the Priest-King of Emesa, Tiberius Julius Alexander was Josephus, Juba II was Apollonius of Tyana, King Izates was Jesus Ben Gamala, Cleopatra (Thea Philopator) of Mauretania was Philo of Alexndria, etc.).
 
 I. Ptolemaic & Bosphoran Dynasty 
 
