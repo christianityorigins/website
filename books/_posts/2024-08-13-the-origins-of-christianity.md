@@ -222,7 +222,7 @@ IV. Speculative
     Ammon disguised as a dragon. Alexander also married the Scythian princess Roxana.
 -   Gautama Buddha (Egyptian: "Ba-Djehuti", or "Soul of Thoth"): Gaumata
     Bardya (Cyrus the Great's son)
--   Marcion of Sinope: Markianos of Alexandria, St. Mark
+-   Marcion of Sinope: Markianos of Alexandria, The association with Sinope came from Aquila of Sinope who was a disciple of Rabbi Akiva. Are the two the same? Probably.
 -    Moses = Manes/Mannu-Kuras = Manu (Scythian Sage-King) = Menes (Egypt’s legend-founder). Also appears in "Monobazus" → “Manu Bazus” → Sarmatian-Mythological Sage King. The Iranian Manu is a legendary civilizer, and in India he becomes the first Lawgiver (the Manu Smriti = Scythian governance code). The biblical Moses defeats Pharaoh (actually Mitanni elite), parts waters with a serpent-staff—obvious encoding of dragon-kingship (Aži Dahāka). Moses takes on different masks: M enes – the first official Pharaoh (not real, a compilation of conquerors). Menes – the semi-mythical Median king, founder of the priest-class. Mannu-kuras – Proto-Mede, whose name becomes Cyrus. The name Kur-Ash = "Sun Man". The Exodus is not Judaic memory: it's a political memory of Mitanni-Scythian expulsion from Egypt after the religious revolution of Thutmose III → Horemheb wiped them out with a new priest-kingship in Amarna.
  -   Paul the Apostle = likely a composite character or an avatar/cipher. Two suspects for having taking on the character are: 1) Saulus ben Antipater who was the
     son of Antipater/Herod Antipas the Tetrarch, grandson of King Herod
