@@ -116,8 +116,7 @@ end of the book.
     divine, likely derives from the Egyptian Asar. The Greek language
     adds a "K" to foreign words, so Aesar -> Greek Kaesar -> Latin
     Caesar. This title also resembles the the Scythian/Hurrian "Kur-Sar" (Sun King), the Phoenician "Kosar" (sun god), Assyrian "Aššur" (god) Scythian "As" (lord) and Scythian Sar (king), Kšar (from the Old Persian Xšaya = king) and also Cyrus the Great's title (Kuruš (Cyrus) = Khur (Sun) + -uš (lord)).
--   Christ: Kur-Ist (Scythian: Kur, "mountain serpent" + Ist, "being/existence"). This ties to Sumerian "Kur" (mountain/dragon), Vedic "Kṛṣṇa" = "Dark Serpent" (from Kṛṣṇa =
-    "black," linked to Ananta-Shesha, the cosmic serpent), Avestan Kavi-Rist (Kavi, king-priest + Rist, order/truth) and Greek Kurios =   "Lord". Christ
+-   Christ: Karast, a person who is anointed as a Heru (Hero/Horus) during their lifetime. When they are deceased they receive a great honor as a KRST or Ausar (Osiris). Egyptian Karast (“Anointed One”) = Greek Christos (“Anointed One”). Christ
     is identical to the title Soter. Several historical figures were
     Christs/Soters. In Isaiah 45:1 the jews called Cyrus the Great "The
     Anointed One". Alexander the Great was also a Chréstos/Soter
