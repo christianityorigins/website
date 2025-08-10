@@ -772,32 +772,6 @@ conceivably translate to: Chieftain of the Iudii or Iudaiei tribe from
 Galatia, or Lord Asar/Aesus (pronunced ah-soos) of the Iudii or Iudaiei
 tribe from Galatia.
 
-'Ashkenazi', or 'Ashkuza', was the name given to the Scythians by the
-ancient Akkadians (Josephus. Vol. 5: Antiquities: 8:2:5, pp. 593-595).
-The Assyrians called the Scythians "Asguzaya" and the ancient Persians
-called the Scythians 'Saka'. In Biblical Hebrew, the Ashkuz (Ashkenaz)
-are considered to be a direct offshoot from the Gimirri, known as the
-Cimmerians to the ancient Greeks. Cimmerians were a Middle Eastern
-offshoot of the Celtic Cimbri tribe. The Bosphorus Kingdom that Asander
-ruled over was also known as the Kingdom of the Cimmerian Bosphorus.
-
-As for the term 'Hebrew", it comes from the Celts as well, who called
-themselves Iberi. The name of Abaris the Hyperborean, a Druid priest who
-was Pythagoras's teacher shows this. Iber was sometimes rendered as Aber
-or Heber and is pronounced as Hebrew in the Hebrew languages.
-Hyperborea, which just like Atlantis, was another name for Ireland. The
-word Atlantis means 'The Island of Atlas'. The titan Atlas was a key
-figure in Greek mythology and is depicted as being the bearer of the
-heavens. According to early Greek mythology, Atlas lived on the island
-of Hyperborea. Over time Hyperborea became Hybernia or Hibernia, the
-Roman name for Ireland. Iber is an ethnonym that shows up in areas where
-the Celtic people settled (Ebro river, Iberia, Hibernia, etc.).
-
-Abel and Cain are just a copy of Romulus and Remus. Judas Iscariot is a
-copy of Brutus. Genesis 4:5-31. Enoch, Irad, Mehujael, Methuselah,
-Lamech, Seth, Enosh, Kenan, Mahalalel, are copies of Titus Livy's Regal
-Rome of the seven kings.
-
 Russian historian and mathematician Anatoly Fomenko wrote several books
 where he claimed that the city of Yoros = Jerusalem = Troy and it was
 situated on the eastern, Asiatic shore of Bosphorus, closer to the Black
