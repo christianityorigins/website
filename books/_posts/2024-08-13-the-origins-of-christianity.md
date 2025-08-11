@@ -1128,20 +1128,18 @@ Endnotes (Chapter 10)
 
 **Appendix A: Alexander the Great**
 
-Alexander was a Sarmatian dragon-king, Ptolemy I Soter was his
-biological son with Barsine (Scythian priestess) and was his dragon-born
+Alaksandu of Wilusa, a Hittie king of Wilusa (Troy) (Alaksandu = Alak-San-Du (Hurrian: "Ruler-Dragon-Son")), who predates Alexander by 800 years,
+    proves that the name Alexander was a Scythian title for kings.
+Alexander was a Sarmatian dragon-king who was the son of Ateas the Scythian aka Artaxerxes
+    II Memnon ("Kai Bahman") and half-brother of Darius III ("Darab").
+    In India he took the regional aliases of Chandragupta Maurya
+    ("Chandragupta" = "Sander-Gupta" (Scythian "Sander" = Alexander. "Aleks" = Greekization of "Alakh" which means "not seen" or "unseen" in Sanskrit/Hindi. "Gupta" = Hidden)). "Aži-ander": Aži
+    (Avestan "dragon") + Andros (Greek "man") = "Dragon-Man". Ptolemy I Soter was his biological son with Barsine (Scythian priestess) and was his dragon-born
 heir, and Caesar was their bloodline successor. The Persian narrative is
 a Flavian forgery to hide their stolen legacy. Alexander conquered
 Persia as vengeance for Persian enslavement of Scythia.
 
-In the Persian Book of Kings, the Alexander Romance, and Islamic
-sources, Alexander the Great is a Persian prince who was the son of
-Artaxerxes II Memnon ("Kai Bahman") and half-brother of Darius III
-("Darab"). No one today is taught that such a relationship was even
-remotely possible in ancient times, much less taken as gospel in certain
-parts of the world. Nevertheless, the case can readily be made that the
-little kingdom of Macedon had been part of the Persian Empire from the
-time of Darius the Great. In fact, the very first Persian-appointed
+The very first Persian-appointed
 overseer of Macedon had the Persian name Bubares son of Megabyzus
 (likely Cyrus the Great), and subsequent kings of Macedon are said to
 have descended from him. After Megabyzus (Cyrus the Great) conquered
@@ -1169,11 +1167,7 @@ The conqueror of the Indian sub-continent is known by a different name,
 Chandra-Gupta, one of the most celebrated kings of all of Indian
 history. Curiously, almost nothing is known about his early life until
 after the death of Alexander the Great. No sooner did the attempted
-conquest of Alexander end than that of Chandragupta began. The name
-Chandra Gupta can be interpreted as "Alexander the Copt/ Upper Egyptian"
-as Gupta has been linguistically associated with Coptos (a Greek word
-for a critical locale in Upper Egypt), and Chandra is a transliteration
-of Sander (a hypocorism of Alexander/ Iksander). There is a claim by
+conquest of Alexander end than that of Chandragupta began. There is a claim by
 ancient rulers of Bukhara/ Bochara on the Silk Road (in Sogdiana) that
 they were descended from Alexander -- a claim which becomes far more
 credible (and even inevitable) when one realizes that Alexander's life
@@ -1211,17 +1205,7 @@ identity. Amyntas (son of Bubares) (born around 350 BCE) =
 Heracles/Helios (born around 350 BCE) = Mithridates I Ctistes (born
 around 350 BCE)?
 
-Alexander was the first "Jesus" (Ye-Zeus (YHWH + Zeus), I(J)upiter-Zeus
-(I-Zeus), Zeus-Amun, Zeus-Ahura Mazda, Zeus-Yahweh, et.al., were titles
-Alexander carried) then became an avatar for his direct descendants in
-an imperial cult, including Ptolemy XII Auletes/Ptolemy X Alexander I,
-king of Egypt aka Mithridates VI Eupator aka Ariarathes ("Arya-Ratha".
-Sanskrit: "Noble Charioteer") VII of Cappadocia, et.al., and his son
-Asander (obvious reference to Alexander), King of Bosphorus aka
-Pharnaces II ("Pharao-Nikes", or "Victorious Pharaoh") aka Brogitarix,
-king of Galatia aka Ariarathes IX aka Julius Caesar.
-
-**Appendix C: Scythians in China**
+**Appendix B: Scythians in China**
 
 The Scythains ruled an empire that streached into China. 
 
@@ -1229,12 +1213,9 @@ Azhi = Asia (Azhi-A) = "land of the mighty dragon" (Aži is cognate with the Chi
 
 The Tarim basin mummies are Tocharians, and the Kizilgaha cave portraits deprict redheaded “Chinese” people. Genetic studies show that indegenous people of Linzi in south east China were genetically more similar to Europeans than modern Chinese (https://eurogenes.blogspot.com/2017/07/north-european-admixture-in-han-chinese.html). Tang dynasty mural in tomb unearthed in China portrays a ‘Westerner’ man with blond hair (https://www.livescience.com/archaeology/stunning-tang-dynasty-mural-in-tomb-unearthed-in-china-may-portray-a-westerner-man-with-blond-hair).
 
-Alexander the Great = Qin Shi Huang (China’s First Emperor)
-
-Both “died” mysteriously at 33 (Alexander in 323 BC; Qin Shi Huang in 210 BC).
+Alexander the Great = Qin Shi Huang (China’s First Emperor). Both “died” mysteriously at 33 (Alexander in 323 BC; Qin Shi Huang in 210 BC).
 Qin’s terracotta army has Caucasian features and Hellenistic armor. The word “Qin” (秦) may derive from “Scythian” (Saka-Sina).
-Alakshandra (Sanskrit) → Qin Shi Huang (Chinese): The “-shandra” morpheme appears in “Shi Huang,” meaning “First Guardian.”
-Qin was founded by Alexander, it starts right exactly around the Greco-Bactrian city states era in Central Asia, it was started by people coming from the West right exactly bordering Central Asia during Greco-Bactrian rule, DA-QIN meaning BIG OR GREATER QIN as a word name term was used to refer to the Roman empire during the “Han dynasty” that came after Qin dynasty which means the QIN people had to have been Greco-Bactrian Seleucids since they equated with Roman type people and they came from the farthest West direction. Greek style coins and statues have been found from this time period, and the terracotta army was built by Greeks from Central Asia [8], to this day the Chinese currency which came about formally during Qin dynasty era is called a YUAN which is another name for YON-IONIAN Greeks etc.
+Alakshandra (Sanskrit) → Qin Shi Huang (Chinese): The “-shandra” morpheme appears in “Shi Huang,” meaning “First Guardian.”. Qin was founded by Alexander, it starts right exactly around the Greco-Bactrian city states era in Central Asia, it was started by people coming from the West right exactly bordering Central Asia during Greco-Bactrian rule, DA-QIN meaning BIG OR GREATER QIN as a word name term was used to refer to the Roman empire during the “Han dynasty” that came after Qin dynasty which means the QIN people had to have been Greco-Bactrian Seleucids since they equated with Roman type people and they came from the farthest West direction. Greek style coins and statues have been found from this time period, and the terracotta army was built by Greeks from Central Asia [8], to this day the Chinese currency which came about formally during Qin dynasty era is called a YUAN which is another name for YON-IONIAN Greeks etc.
 
 China had no chronology until the Jesuits came to the Emperor’s court. Their oldest “ancient” records date from this period. Stone inscriptions and bronze engravings and a few bamboo slips survive from older times, but they were never arranged into a consistent chronology. If you read the Bellum Tartaricum, a pre-edit Jesuit source, it gives a very different chronology as well as info about the white Slav-like race known as the Tartarians, their rulers and their wars with China.
 
@@ -1246,9 +1227,7 @@ Genetic studies show the Yangshao culture (5000 BC) had 90% European DNA (Haplog
 
 The An Lushan rebellion was an ethnic war, mongoloids vs caucasoids which resulted the slaughter of millions of caucasians. The Xianbei were mongoloids and helped rape and sexually enslave Indo Europeans in China in the An Lushan rebellion. Goguryeo Korean general Gao Juren in the Tang dynasty committed genocide and rape against An Lushan’s community after defeating An Lushan at his headquarters in Fanyang (Beijing).
 
-Similarly, Ran Min slaughtered and committed genocide on the entire Caucasian Jie people who were native to Chin.
-
-The Manchus had the Central Asian Indo-European children castrated. Manchu officials ordered British and American sailors who violated rules in ports executed before the Opium wars and had British and Indian sailors on the Nerbudda mass executed. The Manchus castrated and sliced up Indo-european Caucasians. The Manchus also raped caucasian women.
+Similarly, Ran Min slaughtered and committed genocide on the entire Caucasian Jie people who were native to Chin. Then the Manchus had the Central Asian Indo-European children castrated. 
 
 **Bibliography**
 
