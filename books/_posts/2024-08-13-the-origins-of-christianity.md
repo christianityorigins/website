@@ -1207,7 +1207,7 @@ around 350 BCE)?
 
 **Appendix B: Scythians in China**
 
-The Scythains ruled an empire that streached into China. 
+The Scythains ruled a Eurasian empire that stretched into China. 
 
 Azhi = Asia (Azhi-A) = "land of the mighty dragon" (Aži is cognate with the Chinese Zhī (dragon)), a very similar name as Rome (Rhu-Ma) = "Place of the Dragon", Romania (Rhu-Ma + Na) = "dragon land", and Sarmatia (serpent) + ma (mother, land). 
 
@@ -1221,11 +1221,11 @@ China had no chronology until the Jesuits came to the Emperor’s court. Their o
 
 Mateo Ricci invented Confucius and was the one who wrote the Art of War.
 
-The modern “Han Chinese” are not infact “Chinese” (“Chinese” is a identity concept fabricated and conjured up by Jesuits) but are infact Miao-Hmong people. Mao-tse Dong used artificial weaponized famines and outright direct purges to direct human wave attacks in the Korean war to mass kill off original Scythian Tartar Turanian stock authentic real “Chinese” populations which is continuing today with the genocide and ethnic cleansing of the Uighurs and Mongolians whom are far more genetically ancestrally connected and linked to the original real actual ancient “Chinese” rather than a vast majority of modern “Han Chinese” whom are actually Miao-Hmong or Miao-Tse or Hmong or Yao or other southern origin non-“Chinese” group pretending to be “Chinese”
+The modern “Han Chinese” are not infact “Chinese” (“Chinese” is an identity fabricated and conjured up by Jesuits) but are infact Miao-Hmong people. Mao-tse Dong used artificial weaponized famines and outright direct purges to direct human wave attacks in the Korean war to mass kill off original Scythian Tartar Turanian stock authentic real “Chinese” populations which is continuing today with the genocide and ethnic cleansing of the Uighurs and Mongolians whom are far more genetically ancestrally connected and linked to the original real actual ancient “Chinese” rather than a vast majority of modern “Han Chinese” whom are actually Miao-Hmong or Miao-Tse or Hmong or Yao or other southern origin non-“Chinese” group pretending to be “Chinese”
 
 Genetic studies show the Yangshao culture (5000 BC) had 90% European DNA (Haplogroup R1a). The modern Han are Miao who migrated from Vietnam after the Mongol invasions.
 
-The An Lushan rebellion was an ethnic war, mongoloids vs caucasoids which resulted the slaughter of millions of caucasians. The Xianbei were mongoloids and helped rape and sexually enslave Indo Europeans in China in the An Lushan rebellion. Goguryeo Korean general Gao Juren in the Tang dynasty committed genocide and rape against An Lushan’s community after defeating An Lushan at his headquarters in Fanyang (Beijing).
+The An Lushan rebellion was an ethnic war, mongoloids vs caucasoids which resulted the slaughter of millions of caucasians [^17]. The Xianbei were mongoloids and helped rape and sexually enslave Indo Europeans in China in the An Lushan rebellion. Goguryeo Korean general Gao Juren in the Tang dynasty committed genocide and rape against An Lushan’s community after defeating An Lushan at his headquarters in Fanyang (Beijing).
 
 Similarly, Ran Min slaughtered and committed genocide on the entire Caucasian Jie people who were native to Chin. Then the Manchus had the Central Asian Indo-European children castrated. 
 
@@ -1547,3 +1547,5 @@ https://unz.com/article/how-fake-is-church-history by Laurent Guyénot
 
 [^16]: Gmirkin, Russell (2016). Plato and the Creation of the Hebrew
     Bible.
+
+[^17]: https://desuarchive.org/his/thread/10105977/
