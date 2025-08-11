@@ -56,6 +56,7 @@ Introduction\
 10 Subversion of the Imperial Cult\
 Conclusion\
 Appendix A: Alexander the Great\
+Appendix B: Scythians in China\
 Bibliography
 
 **Introduction**
@@ -814,6 +815,10 @@ Pope Theophilus I of Alexandria also destroyed the Serapeum in Alexandria (refer
 
 Then the Vatican later made up the "Council of Nicaea". It never happened. There is no contemporary records that exist of the Council of Nicaea (325 AD). The Council of Nicaea mirrors the Mithraic Congress of 307 AD where Emperor Galerius declared Sol Invictus the official god of Rome. Constantine’s "conversion" was fabricated. He remained a Sol Invictus sun-worshipper until death—his coins never feature Christian symbols. His last coin (337 AD) depicts him as Sol Comitatus ("Sun Companion"), not Christ. The "Chi-Rho" symbol was a later interpolation by Eusebius, who forged Life of Constantine in the 5th century. The "Arian Controversy" was a fake debate to disguise the fact that early Christianity was a Roman imperial cult. Proof: The "Life of Constantine" by Eusebius was forged in the 5th century to retroactively justify Nicaea, and the Edict of Milan (313 AD) never mentions Jesus—only a vague "Divine Providence". Also, the Vatican's greatest forgery was the Donation of Constantine. The Vatican forged it in the 8th century to claim Rome. It was based on earlier forgeries by Eusebius (a Flavian propagandist).
 
+Most of what we know of Roman history comes from Herodotus (aka The Father of Lies), and the other half from Cassius Dio.
+
+Two other men are responsible for most of what we know about the rest of European history from the middle ages and before: Joseph Justus Scaliger who was the Jesuit who “authored” most texts historians use today (possibly had a team of scribes), and Poggio Bracciolini was the guy who collected documents for him and even forged them (there are preserved letters from Bracciolini arranging a forgery with a remote monastery).
+
 Endnotes (Chapter 7)
 
 (a) Asander and Dynamis had one known son, Tiberius Julius Aspurgus
@@ -825,7 +830,7 @@ Endnotes (Chapter 7)
     lover of father"). Their second son was "Tiberius Julius Cotys I
     Philocaesar Philoromaios Eusebes" ("lover of Caesar, lover of Rome
     who is the Pious One").
-
+    
 Tiberius Julius Aspurgus Philoromaios (son). Married to: Gepae-pyris.
 Children:
 Tiberius Julius Mithridates Philo-Germanicus Philopatris (eldest son)
@@ -846,7 +851,9 @@ Pontus (Cleopatra/Dynamis) had a daughter Antonia Tryphaena. Her son was
 Rhoemetalces II whose reign coincided with emperor Claudius.
 
 Emperor Titus = Polemon II of Pontus who was the prince of the Bosporan,
-Pontus, Cilicia, and Cappadocia.
+Pontus, Cilicia, and Cappadocia.\
+
+(b) There was a Jesuit named Jean Hardouin who said that a 14th Century conspiracy forged practically all literature traditionally believed to have been written before that era. He was the official librarian to the King of France. He published a book called the Prolegomena and it caused such controversy that the Pope and the King had him come before them and explain himself. He defended his work, and refused to retract it, so they threw him in prison.
 
 **8 Flavian Dynasty**
 
@@ -1213,6 +1220,35 @@ Sanskrit: "Noble Charioteer") VII of Cappadocia, et.al., and his son
 Asander (obvious reference to Alexander), King of Bosphorus aka
 Pharnaces II ("Pharao-Nikes", or "Victorious Pharaoh") aka Brogitarix,
 king of Galatia aka Ariarathes IX aka Julius Caesar.
+
+**Appendix C: Scythians in China**
+
+The Scythains ruled an empire that streached into China. 
+
+Azhi = Asia (Azhi-A) = "land of the mighty dragon" (Aži is cognate with the Chinese Zhī (dragon)), a very similar name as Rome (Rhu-Ma) = "Place of the Dragon", Romania (Rhu-Ma + Na) = "dragon land", and Sarmatia (serpent) + ma (mother, land). 
+
+The Tarim basin mummies are Tocharians, and the Kizilgaha cave portraits deprict redheaded “Chinese” people. Genetic studies show that indegenous people of Linzi in south east China were genetically more similar to Europeans than modern Chinese (https://eurogenes.blogspot.com/2017/07/north-european-admixture-in-han-chinese.html). Tang dynasty mural in tomb unearthed in China portrays a ‘Westerner’ man with blond hair (https://www.livescience.com/archaeology/stunning-tang-dynasty-mural-in-tomb-unearthed-in-china-may-portray-a-westerner-man-with-blond-hair).
+
+Alexander the Great = Qin Shi Huang (China’s First Emperor)
+
+Both “died” mysteriously at 33 (Alexander in 323 BC; Qin Shi Huang in 210 BC).
+Qin’s terracotta army has Caucasian features and Hellenistic armor. The word “Qin” (秦) may derive from “Scythian” (Saka-Sina).
+Alakshandra (Sanskrit) → Qin Shi Huang (Chinese): The “-shandra” morpheme appears in “Shi Huang,” meaning “First Guardian.”
+Qin was founded by Alexander, it starts right exactly around the Greco-Bactrian city states era in Central Asia, it was started by people coming from the West right exactly bordering Central Asia during Greco-Bactrian rule, DA-QIN meaning BIG OR GREATER QIN as a word name term was used to refer to the Roman empire during the “Han dynasty” that came after Qin dynasty which means the QIN people had to have been Greco-Bactrian Seleucids since they equated with Roman type people and they came from the farthest West direction. Greek style coins and statues have been found from this time period, and the terracotta army was built by Greeks from Central Asia [8], to this day the Chinese currency which came about formally during Qin dynasty era is called a YUAN which is another name for YON-IONIAN Greeks etc.
+
+China had no chronology until the Jesuits came to the Emperor’s court. Their oldest “ancient” records date from this period. Stone inscriptions and bronze engravings and a few bamboo slips survive from older times, but they were never arranged into a consistent chronology. If you read the Bellum Tartaricum, a pre-edit Jesuit source, it gives a very different chronology as well as info about the white Slav-like race known as the Tartarians, their rulers and their wars with China.
+
+Mateo Ricci invented Confucius and was the one who wrote the Art of War.
+
+The modern “Han Chinese” are not infact “Chinese” (“Chinese” is a identity concept fabricated and conjured up by Jesuits) but are infact Miao-Hmong people. Mao-tse Dong used artificial weaponized famines and outright direct purges to direct human wave attacks in the Korean war to mass kill off original Scythian Tartar Turanian stock authentic real “Chinese” populations which is continuing today with the genocide and ethnic cleansing of the Uighurs and Mongolians whom are far more genetically ancestrally connected and linked to the original real actual ancient “Chinese” rather than a vast majority of modern “Han Chinese” whom are actually Miao-Hmong or Miao-Tse or Hmong or Yao or other southern origin non-“Chinese” group pretending to be “Chinese”
+
+Genetic studies show the Yangshao culture (5000 BC) had 90% European DNA (Haplogroup R1a). The modern Han are Miao who migrated from Vietnam after the Mongol invasions.
+
+The An Lushan rebellion was an ethnic war, mongoloids vs caucasoids which resulted the slaughter of millions of caucasians. The Xianbei were mongoloids and helped rape and sexually enslave Indo Europeans in China in the An Lushan rebellion. Goguryeo Korean general Gao Juren in the Tang dynasty committed genocide and rape against An Lushan’s community after defeating An Lushan at his headquarters in Fanyang (Beijing).
+
+Similarly, Ran Min slaughtered and committed genocide on the entire Caucasian Jie people who were native to Chin.
+
+The Manchus had the Central Asian Indo-European children castrated. Manchu officials ordered British and American sailors who violated rules in ports executed before the Opium wars and had British and Indian sailors on the Nerbudda mass executed. The Manchus castrated and sliced up Indo-european Caucasians. The Manchus also raped caucasian women.
 
 **Bibliography**
 
