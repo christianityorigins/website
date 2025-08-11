@@ -160,11 +160,11 @@ the regional alias of Emperor Titus. The character of Aulus Avillius
 Flaccus dies at the same time Polemon II of Pontus takes power, and then
 Polemon II of Pontus dies around the same time Titus becomes emperor.
 The way to connect them is through the fact that they were all married
-to the same woman, Berenice, granddaughter of King Herod. Also note that all these kings/emperors had philosopher or religious figure aliasas, probably derived Summeria who required kings to also be priests or from Plato's "Philospher Kings" concept (Asander of Bosphours aka Julius Caesar was Gaius Julius Sohaemus the Priest-King of Emesa, Tiberius Julius Alexander was Josephus, Juba II was Apollonius of Tyana, King Izates was Jesus Ben Gamala, Cleopatra (Thea Philopator) of Mauretania was Philo of Alexndria, etc.).
+to the same woman, Berenice, granddaughter of King Herod. Also note that all these kings/emperors had philosopher or religious figure aliasas, probably derived Summeria who required kings to also be priests or from Plato's "Philospher Kings" concept (Asander of Bosphours aka Julius Caesar was Gaius Julius Sohaemus the Priest-King of Emesa, Tiberius Julius Alexander was Josephus, Juba II was Apollonius of Tyana, King Izates was Jesus Ben Gamala, Cleopatra (Thea Philopator) of Mauretania was Philo of Alexandria, etc.).
 
 I. Ptolemaic & Bosphoran Dynasty 
 
--   Julius Caesar: Ptolemy XI Alexander
+-   Julius Caesar: Ptolemy XI Alexander.
 II, Asander, King of Bosphorus (Philocaesar Philoromaios, Soter, Great
 King of Kings, "As" in his name refers to
 Asar(Osiris)/Aesar/Aeser/Aisar/Ais/Is), Brogitarix. Other suspected aliases: Akrosandros II, King of Scythia, Idumean Antipater, Parthian Artavasdes (Greek Alex = Persian
@@ -172,10 +172,10 @@ Asar(Osiris)/Aesar/Aeser/Aisar/Ais/Is), Brogitarix. Other suspected aliases: Akr
     Alexander II (son of king Aristobulus II son of Jannaeus Alexander
     also the nephew and son-in-law of king/high-priest Hyrcanus II.
     Also, Julius = Janneus? Or Janneus (Yannai) is related to the Roman
-    name Gaius?)
+    name Gaius?).
 -   Cleopatra VII (Isis who in mythology was the wife of Osiris and the
 mother of Horus): Dynamis Ourania (Aphrodite Urania), Pythodorida
-Philometor
+Philometor.
 -   Mark Antony (Marcus Antonius = Mar (Phoenician "lord") +
 Anton (from Antaeus, giant son of Gaia)): King Herod, Tiberius Claudius
 Nero, Phraates IV, Polemon I.
@@ -191,11 +191,11 @@ II. Herodian & Flavian Dynasty
 -   Cleopatra (Thea Philopator) of Mauretania: Cleopatra IX, Helene,
     Drusilla of Mauretania, Julia Ourania of Parthia, Philo of
     Alexandria. She was also Claudius and Nero's secretary "Pallas", and
-    "Antonia Caenis" who was Vespasian's first cousin and mistress.
--   Simon Boethus: Simon Magus, Ptolemy X Alexander I
--   Tiberius Julius Alexander: Emperor Nerva, Arrius Piso, Josephus
+    "Antonia Caenis" who was Vespasian's first cousin and mistress (the full name of Pallas was Marcus Antonius Pallas, with the Antonius part being an obvious sign of descent from Mark Antony and that Pallas wasn’t a random slave. Caenis was the Greek goddess who was transformed into a man, and she role-played as two men: Marcus Antonius Pallas and Philo).
+-   Simon Boethus: Simon Magus, Ptolemy X Alexander I.
+-   Tiberius Julius Alexander: Emperor Nerva, Arrius Piso, Josephus.
 -   Marcus Julius Alexander: Izates Monobazus ("Jesus Emmanuel"), Yeshua
-    Cleopatros
+    Cleopatros.
 
 III. Flavian Emperors
 
@@ -203,8 +203,8 @@ III. Flavian Emperors
     Vespasian. Henry Davis,
     https://www.henryhdavis.com/theroyalancestryofemperorvespasian
     [[link](https://henrydavis-cc.medium.com/the-royal-ancestry-of-the-roman-emperor-vespasian-72e144335299)]),
-    Flavius Scaevinus
--   Titus: Polemon II, Aulus Avillius Flaccus
+    Flavius Scaevinus.
+-   Titus: Polemon II, Aulus Avillius Flaccus.
 
 IV. Speculative
 
@@ -221,7 +221,7 @@ IV. Speculative
     Molossian tribe, claimed to have been impregnanted by the god Zeus
     Ammon disguised as a dragon. Alexander also married the Scythian princess Roxana.
 -   Gautama Buddha (Egyptian: "Ba-Djehuti", or "Soul of Thoth"): Gaumata
-    Bardya (Cyrus the Great's son)
+    Bardya (Cyrus the Great's son).
 -   Marcion of Sinope: Markianos of Alexandria, The association with Sinope came from Aquila of Sinope who was a disciple of Rabbi Akiva. Are the two the same? Probably.
 -    Moses = Manes/Mannu-Kuras = Manu (Scythian Sage-King) = Menes (Egypt’s legend-founder). Also appears in "Monobazus" → “Manu Bazus” → Sarmatian-Mythological Sage King. The Iranian Manu is a legendary civilizer, and in India he becomes the first Lawgiver (the Manu Smriti = Scythian governance code). The biblical Moses defeats Pharaoh (actually Mitanni elite), parts waters with a serpent-staff—obvious encoding of dragon-kingship (Aži Dahāka). Moses takes on different masks: M enes – the first official Pharaoh (not real, a compilation of conquerors). Menes – the semi-mythical Median king, founder of the priest-class. Mannu-kuras – Proto-Mede, whose name becomes Cyrus. The name Kur-Ash = "Sun Man". The Exodus is not Judaic memory: it's a political memory of Mitanni-Scythian expulsion from Egypt after the religious revolution of Thutmose III → Horemheb wiped them out with a new priest-kingship in Amarna.
  -   Paul the Apostle = likely a composite character or an avatar/cipher. Two suspects for having taking on the character are: 1) Saulus ben Antipater who was the
@@ -345,7 +345,7 @@ Footnotes (Chapter 3)
     (https://en.wikipedia.org/wiki/Enaree). Marijuanna turned them from
     fearless warriors into potheads who were led by transgender priests.
 (b) Azhdahak, which is the Armenian form of the name of the Avestan Azhi Dahaka, was associated with the Median king Astyages (r. 564–550 BC) https://en.wikipedia.org/wiki/Azhdahak_(mythology)   
-(c) Quetzalcōātl, the Mesoamerican serpent deity, shares uncanny similarities to Aži Dahāka which suggests a transoceanic exchange of religious ideas long before Columbus (the Jade Mask of Calakmul (7th century CE) depicts a Caucasian-featured ruler with a serpent headdress—resembling Scythian dragon crowns).
+(c) Quetzalcōātl, the Mesoamerican serpent deity, shares uncanny similarities to Aži Dahāka which suggests a transoceanic exchange of religious ideas long before Columbus (the Jade Mask of Calakmul (7th century CE) also depicts a Caucasian-featured ruler with a serpent headdress—resembling Scythian dragon crowns).
 
 **4 The Alexandrian School**
 
