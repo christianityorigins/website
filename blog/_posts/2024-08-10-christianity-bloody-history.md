@@ -15,7 +15,7 @@ category: blog
 
 Christianity’s ascent was no divine miracle but a historical catastrophe that accelerated Rome’s collapse, plunged Europe into centuries of repression, and justified genocide in the name of God.
 
-Christianity’s bloody history stems from a mix of ideological, structural, and historical factors that amplified its capacity for violence. Here’s a direct breakdown of what drove it, building on your focus on monotheism and sin, with additional elements grounded in historical patterns:
+Christianity’s bloody history stems from a mix of ideological, structural, and historical factors that amplified its capacity for violence. Here’s a direct breakdown of what drove it.
 
 - **Monotheism’s Us-vs-Them Mentality**: Christianity’s strict monotheism framed all other beliefs as not just wrong but evil, creating a binary of saved versus damned. This justified violence against “infidels” (pagans, Jews, Muslims) as a divine mandate. The *Codex Theodosianus* (438 CE) outlawed paganism, branding it idolatry punishable by death, which fueled massacres like the Serapeum’s destruction (391 CE). Unlike polytheistic systems, which often absorbed other gods, Christianity demanded exclusivity, leaving no room for coexistence (*R. MacMullen, Christianizing the Roman Empire*).
 
