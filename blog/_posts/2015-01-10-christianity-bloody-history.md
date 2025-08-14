@@ -2,7 +2,7 @@
 layout: default
 open_links_in_new_tab: true
 title: "Christianity’s Bloody History"
-date: 2024-08-10
+date: 2015-01-10
 category: blog
 ---
 
