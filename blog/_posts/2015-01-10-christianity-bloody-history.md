@@ -1,12 +1,13 @@
 ---
 layout: default
 open_links_in_new_tab: true
-title: "Christianity’s Bloody History"
+title: "Christianity: The Blood-Soaked Sword of Division"
 date: 2015-01-10
 category: blog
 ---
 
-# Christianity’s Bloody History: Faith, Fire, and the Sword
+# Christianity: The Blood-Soaked Sword of Division
+
 
 **By Ralph Perrier**  
 
