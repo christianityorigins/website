@@ -1,5 +1,5 @@
 ---
-layout: default
+layout: Post
 open_links_in_new_tab: true
 title:  "Christianity Secularized: Leftism and Marxism as Neo-Christian Cults"
 date:   2016-08-11 09:00:00 +0200
