@@ -4,7 +4,7 @@ open_links_in_new_tab: true
 title:  "Christianity Secularized: Leftism and Marxism as Neo-Christian Cults"
 date:   2016-08-11 09:00:00 +0200
 updated: 2024-08-11 19:46:50 +0200
-category: books
+category: blog
 ---
 
 Christianity Secularized: Leftism and Marxism as Neo-Christian Cults
