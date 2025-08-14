@@ -11,7 +11,8 @@ Christianity Secularized: Leftism and Marxism as Neo-Christian Cults
 
 By Ralph Perrier
 
-Contents
+Contents\
+
 1 Secularization of Christianity\
 2 Marxism is Secularized Christianity\
 3 Marxist Denominations and the Frankfurt School\
