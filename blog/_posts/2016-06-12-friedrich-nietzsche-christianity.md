@@ -1,7 +1,7 @@
 ---
 layout: post
 open_links_in_new_tab: true
-title:  "Christianity: Nietzsche’s Philosophical Critique"
+title:  "Nietzsche’s Critique of Christianity: Philosophical and Historical Perspectives"
 date:   2016-06-12 09:00:00 +0200
 category: blog
 ---

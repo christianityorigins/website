@@ -1,13 +1,12 @@
 ---
 layout: default
 open_links_in_new_tab: true
-title: "Christianity: The Blood-Soaked Sword of Division"
+title: "The Dark Side of Christendom: Atrocities, Genocide, and the Cost of Faith"
 date: 2015-01-10
 category: blog
 ---
 
-# Christianity: The Blood-Soaked Sword of Division
-
+The Dark Side of Christendom: Atrocities, Genocide, and the Cost of Faith
 
 **By Ralph Perrier**  
 
