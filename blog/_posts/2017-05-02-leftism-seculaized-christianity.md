@@ -1,5 +1,5 @@
 ---
-layout: Post
+layout: post
 open_links_in_new_tab: true
 title:  "Christianity: The Secular Cult of Leftism and Marxism"
 date:   2016-08-11 09:00:00 +0200
