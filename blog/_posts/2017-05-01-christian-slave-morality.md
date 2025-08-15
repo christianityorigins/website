@@ -1,12 +1,12 @@
 ---
 layout: post
 open_links_in_new_tab: true
-title:  "Christianity and the Genealogy of Slave Morality: A Historical Analysis"
+title:  "A Guide to Christianity’s Control Matrix: Dissecting Slave Morality and Political-Psychological Mechanisms"
 date:   2017-05-01 09:00:00 +0200
 category: blog
 ---
 
-Christianity and the Genealogy of Slave Morality: A Historical Analysis
+A Guide to Christianity’s Control Matrix: Dissecting Slave Morality and Political-Psychological Mechanisms
 
 By Ralph Perrier
 
