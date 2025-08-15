@@ -21,7 +21,7 @@ For permission requests, contact the author at hereticalbooks.com
 This book presents a revisionist historical perspective based on archaeological, textual, and etymological evidence. Reader discretion is advised—this is not traditional historiography.
 
 First Edition: 2025\
-ISBN: \
+ISBN: 978-1-0696862-0-6 \
 Library of Congress Control Number: \
 Published by Heretical Books
 
