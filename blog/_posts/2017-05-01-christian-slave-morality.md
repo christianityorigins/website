@@ -1,12 +1,12 @@
 ---
 layout: post
 open_links_in_new_tab: true
-title:  "A Guide to Christianity’s Control Matrix: Dissecting Slave Morality and Political-Psychological Mechanisms"
+title:  "A Guide to Christianity’s Control Matrix: Dissecting the Slave Morality"
 date:   2017-05-01 09:00:00 +0200
 category: blog
 ---
 
-A Guide to Christianity’s Control Matrix: Dissecting Slave Morality and Political-Psychological Mechanisms
+A Guide to Christianity’s Control Matrix: Dissecting the Slave Morality
 
 By Ralph Perrier
 
