@@ -1,12 +1,12 @@
 ---
 layout: default
 open_links_in_new_tab: true
-title: "The Sarmatian Dragon Cult: Aži Dahāka as the Proto-Christ"
+title: "On the Origins of Christianity: Aži Dahāka as the Proto-Christ"
 date: 2024-08-13
 category: books
 ---
 
-# The Sarmatian Dragon Cult: Aži Dahāka as the Proto-Christ  
+# On the Origins of Christianity: Aži Dahāka as the Proto-Christ 
 
 **By Ralph Perrier**  
 
@@ -29,7 +29,7 @@ Published by Heretical Books
 
 **Keywords** 
 
-*Sarmatian Dragon Cult, Aži Dahāka, Bible Origins, Scythian Elites, Ancient Religion Origins, Religious Syncretism, Julius Caesar Aliases, Cleopatra Revisionist History, Bosphorus Kingdom Secrets, Scythian religious practices, Mithraism origins*
+*Sarmatian Dragon Cult, Aži Dahāka, Bible Origins, Scythian Elites, Ancient Religion Origins, Religious Syncretism, Julius Caesar Aliases, Cleopatra Revisionist History, Bosphorus Kingdom Secrets, Scythian Religious Practices, Mithraism Origins*
 
 ---
 
@@ -63,20 +63,20 @@ Bibliography
  
 Christianity is a derivative of one of the religions that were invented at the Alexandrian School in Egypt. The Alexandrian School was a religion-making factory that was set up by Ptolemy Soter. The Serapis cult, Judaism, Gnosticism, Valentinianism, Christianity, Hermeticism, Mithraism, Manichaeism, Mandaeism, and many other religions originated from there. 
 
-All these religions were created to target regional populations in the empire and were designed to subvert their regional religions in a syncretic manner, aiming to lead the population toward monotheism and gradually toward a universal imperial cult. These religions were also likely designed to segmentat the populations by class, culture, and region to prevent a unified resistance (Mithraism was for military elites (required blood oaths. Mithraic initiates/caste system/hierarchical). Serapism was for civilians (promised afterlife salvation). Christianity was for slaves ("turn the other cheek")).
+All these religions were created to target regional populations in the empire and were designed to subvert their regional religions in a syncretic manner, aiming to lead the population toward monotheism and gradually toward a universal imperial cult. These religions were also likely designed to segment the populations by class, culture, and region to prevent unified resistance (Mithraism was for military elites (required blood oaths. Mithraic initiates/caste system/hierarchical). Serapism was for civilians (promised afterlife salvation). Christianity was for slaves ("turn the other cheek")).
 
 In these religions they used symbolic figures, allegories, and pseudohistorical events rather than directly deifying themselves with their own names because if they deified themselves it would have exposed their identity and centralized power too visibly, risking rebellion. Religions were psychological and political tools. The goal was to subvert regional religions, create centralized texts and priesthoods, and embed moral codes like submission, self-sacrifice, obedience, loyalty, divine judgement. Also, it is likely that they didn't deify themselves directly because in many Middle Eastern cultures deifying humans was considered idolatry and the Alexandrian School and Library of Alexandria was founded not long after the Ptolemaic cult of Alexander the Great failed to catch on.
 
-Christianity likely arose as a synthesis of the Serapis Cult, rebranded to serve one of the later Roman (Bosphoran) imperial cults which was later subverted by a group of Rabbis who were headed by a rabbi named Akiva sometime after the Bar Kokhba revolt. Jesus in the bible was a cipher, or an avatar, originally for members of the Bosphoran royal family. Asander, king of Bosphorus (Julius Caesars real identity) took on this role, so did his son Aspurgus, king of Bosphorus aka Amyntas ("Amon-Tas". "Hidden
+Christianity likely arose as a synthesis of the Serapis Cult, rebranded to serve one of the later Roman (Bosphoran) imperial cults which was later subverted by a group of Rabbis who were headed by a rabbi named Akiva sometime after the Bar Kokhba Revolt. Jesus in the bible was a cipher, or an avatar, originally for members of the Bosphoran royal family. Asander, king of Bosphorus (Julius Caesars real identity) took on this role, so did his son Aspurgus, king of Bosphorus aka Amyntas ("Amon-Tas". "Hidden
 Lord", linking to Amun-Ra - with "Amen"(tas) at the root) Nikator aka
 Amyntas of Galatia aka Jesus ben Fabus aka Isa Amen (Jesus was named
 "Amen" in Rev. iii. 14) aka Caesarion, and his later descendants Izates II, king of Adiabene ("Iza" = Avestan root for "serpent" (cognate with Scythian Aži) + "-tes" = "given by," as in Mithradates = "Given by Mithra". This is cognate with the Scythian (and broader Iranian) mythological figure Aži Dahāka (Avestan) or Azhi Dahak (Middle Persian)), and Tiberius Julius Sauromates II, also took on the role. After Rabbi Akiva Jesus then became Simon Bar Kokhba.
 
-It was a necessary for these rabbis to cut and paste from an imperial cult, just as it was necessary for the Alexandrian School religions to be packaged as sects of local religions, because getting people to abandon their religions for a new one is an impossible task. However, there are thousands of sects of major religions today, many with different prophets.
+It was necessary for these rabbis to cut and paste from an imperial cult, just as it was necessary for the Alexandrian School religions to be packaged as sects of local religions, because getting people to abandon their religions for a new one is an impossible task. However, there are thousands of sects of major religions today, many with different prophets.
 
-This book traces Christianity all the way back to its foundations — from the mythemes of Scythian snake-worshiping cults, to the Alexandrian School in Egypt and the Sarapis cult, to the Roman (Bosphoran) imperial cult — and then finishes with the subversion of the Bosphoran cult.
+This book traces Christianity back to its foundations — from the mythemes of Scythian snake-worshiping cults, to the Alexandrian School in Egypt and the Sarapis cult, to the Roman (Bosphoran) imperial cult — and then finishes with the subversion of the Bosphoran cult.
 
-A few things that you need to know before you read my book:
+A few things you need to know before you read my book:
 
 -Much of what we know of ancient history is fabricated by the Jesuits and Vatican. The
 Egyptian-Persian-Indian-Greek-Roman elite were Sarmatian/Saka warlords
@@ -108,21 +108,20 @@ end of the book.
 
 **1 Name and Title Meanings**
 
--   Azhi: Azhi = Až ("serpent") + Hi ("power, divine") in Avestan, meaning "mighty dragon". It extends Aži to signify divine authority across Indo-Iranian and Scythian cultures. Azhi = Asia (Azhi-A) = "land of the mighty dragon" (Aži is cognate with the Chinese Zhī (dragon)), a very similar name as Rome (Rhu-Ma) = "Place of the Dragon", Romania (Rhu-Ma + Na) = "dragon land", and Sarmatia (serpent) + ma (mother, land). 
+-   Azhi: Azhi = Až ("serpent") + Hi ("power, divine") in Avestan, meaning "mighty dragon". It extends Aži to signify divine authority across Indo-Iranian and Scythian cultures. Azhi = Asia (Azhi-A) = "land of the mighty dragon" (Aži is cognate with the Chinese Zhī (dragon)), a very similar name to Rome (Rhu-Ma) = "Place of the Dragon", Romania (Rhu-Ma + Na) = "dragon land", and Sarmatia (serpent) + ma (mother, land). Aži links to Aesir (Norse gods), Asar (Egyptian Osiris), and Ahura (Zoroastrian god). The phonetic root Az-/As- means "divine power" in Indo-European languages (Sanskrit asura, Hittite hasu = king). 
 -   Caesar: The Egyptian name "Asar" was another name for Osiris. "Ra"
-    was the Egyptian deity of the Sun (Asar-Ra). Sar means king in Scythain. This title very likely
+    was the Egyptian deity of the Sun (Asar-Ra). Sar means king in Scythian. This title very likely
     connects to "Asar-Hapi" (Osiris-Apis), another name for the
     Graeco-Egyptian god Serapis (Osiris + Apis = Osorapis). The Etruscan
     word "Aesar" (also spelled "Aeser" or "Aisar"), meaning god or
     divine, likely derives from the Egyptian Asar. The Greek language
     adds a "K" to foreign words, so Aesar -> Greek Kaesar -> Latin
     Caesar. This title also resembles the the Scythian/Hurrian "Kur-Sar" (Sun King), the Phoenician "Kosar" (sun god), Assyrian "Aššur" (god) Scythian "As" (lord) and Scythian Sar (king), Kšar (from the Old Persian Xšaya = king) and also Cyrus the Great's title (Kuruš (Cyrus) = Khur (Sun) + -uš (lord)).
--   Christ: Karast, a person who is anointed as a Heru (Hero/Horus) during their lifetime. When they are deceased they receive a great honor as a KRST or Ausar (Osiris). Egyptian Karast (“Anointed One”) = Greek Christos (“Anointed One”). Christ
-    is identical to the title Soter. Several historical figures were
+-   Christ: Karast, a person who is anointed as a Heru (Hero/Horus) during their lifetime. When they are deceased they receive great honor as a KRST or Ausar (Osiris). Egyptian Karast (“Anointed One”) = Greek Christos (“Anointed One”) = Vedic "Krishna" = Hyksos "Khasut", linking India, Egypt, and Judea to a Scythian elite. Christ is identical to the title Soter. Several historical figures were
     Christs/Soters. In Isaiah 45:1 the jews called Cyrus the Great "The
     Anointed One". Alexander the Great was also a Chréstos/Soter
     (Josephus. Antiquities, XI. 8. Talmud, Yoma 67b). Up until the First
-    Council of Nicaea the title "Christ", or "Christian", refered to the
+    Council of Nicaea the title "Christ", or "Christian", referred to the
     Serapis Cult ("those who worship Serapis are, in fact, Christians,
     and those who call themselves bishops of Christ are, in fact,
     devotees of Serapis.". Source: The Letter of Hadrian to Servianus).
@@ -131,8 +130,7 @@ end of the book.
     "cottius" means "chieftain".
 -   Izates or Izas: "Iza" (𐬌𐬰𐬀) = Avestan root for "serpent" (cognate with Scythian Aži). "-tes" = Greek suffix, but possibly from dāta ("given by," as in Mithradates = "Given by Mithra"). This is cognate with the Scythian (and broader Iranian) mythological figure Aži Dahāka (Avestan) or Azhi Dahak (Middle Persian), a monstrous serpent or dragon.
  -   Jew: Iudii (Celtic tribe) + Aži (serpent). The Iudii, a Galatian tribe, were Sarmatian priests whose religious practices were rooted in Druidism who later became "Jews" under Alexandrian syncretism. The term "Ashkenazi" (Scythian: Ashkuza) confirms their steppe origins, demonized by Rabbi Akiva to erase their Sarmatian roots. 
--   Jesus: Likely a phonetic shift from Asar/Aesus (pronounced
-    ah-soos). Another option: "Yeshua" = "Yazata" (Divine Serpent-Lord), related to Izates (Yazata).
+-   Jesus: Yeshua derives from Aesus (Etruscan god) via Yazata (Divine Serpent-Lord), related to Izates (Yazata).
   - Lord: The term Kavi in Avestan texts (e.g., Yasna 10.6) denotes a divine ruler associated with Aži (dragon/serpent). Translating Kavi to Greek yields Kyrios ("lord"), a title used for Jesus in the New Testament (e.g., Kyrios Iesous). The Scythian title Xšaya (king) appears in Old Persian as Xšayathiya, phonetically linked to Kshatriya (Sanskrit: warrior-king) and Caesar via the Greek Kaesar. A kurgan inscription from Issyk (Kazakhstan, 4th century BCE) mentions a ruler named Ašakavi ("dragon-priest"), combining Aša (truth/order) and Kavi. This title parallels Asander (Thracian: Asa = "lord") and suggests a pan-steppe naming convention for dragon-kings. 
 -   Monobazus: Sabazios is the Phrygian and Thracian version of Zeus.
     Ma'nu is likely a diminutive of Menneus ("son of man"), and then
@@ -160,7 +158,7 @@ the regional alias of Emperor Titus. The character of Aulus Avillius
 Flaccus dies at the same time Polemon II of Pontus takes power, and then
 Polemon II of Pontus dies around the same time Titus becomes emperor.
 The way to connect them is through the fact that they were all married
-to the same woman, Berenice, granddaughter of King Herod. Also note that all these kings/emperors had philosopher or religious figure aliasas, probably derived Summeria who required kings to also be priests or from Plato's "Philospher Kings" concept (Asander of Bosphours aka Julius Caesar was Gaius Julius Sohaemus the Priest-King of Emesa, Tiberius Julius Alexander was Josephus, Juba II was Apollonius of Tyana, King Izates was Jesus Ben Gamala, Cleopatra (Thea Philopator) of Mauretania was Philo of Alexandria, etc.).
+to the same woman, Berenice, granddaughter of King Herod. Also note that all these kings/emperors had philosopher or religious figure aliasas, probably derived Sumeria, which required kings to also be priests or from Plato's "Philospher Kings" concept (Asander of Bosphours aka Julius Caesar was Gaius Julius Sohaemus the Priest-King of Emesa, Tiberius Julius Alexander was Josephus, Juba II was Apollonius of Tyana, King Izates was Jesus Ben Gamala, Cleopatra (Thea Philopator) of Mauretania was Philo of Alexandria, etc.).
 
 I. Ptolemaic & Bosphoran Dynasty 
 
@@ -218,24 +216,24 @@ IV. Speculative
     proves that the name Alexander was a Scythian title for kings.
     Aži-Sandar also = "Dragon King" in Mittani and Old Persian.
     Alexander's mother Olympias (Ol or ophis + Pias = "serpent queen"), who was a Scythian princess of the
-    Molossian tribe, claimed to have been impregnanted by the god Zeus
+    Molossian tribe, claimed to have been impregnated by the god Zeus
     Ammon disguised as a dragon. Alexander also married the Scythian princess Roxana.
 -   Gautama Buddha (Egyptian: "Ba-Djehuti", or "Soul of Thoth"): Gaumata
     Bardya (Cyrus the Great's son).
--   Marcion of Sinope: Markianos of Alexandria, The association with Sinope came from Aquila of Sinope who was a disciple of Rabbi Akiva. Are the two the same? Probably.
--    Moses = Manes/Mannu-Kuras = Manu (Scythian Sage-King) = Menes (Egypt’s legend-founder). Also appears in "Monobazus" → “Manu Bazus” → Sarmatian-Mythological Sage King. The Iranian Manu is a legendary civilizer, and in India he becomes the first Lawgiver (the Manu Smriti = Scythian governance code). The biblical Moses defeats Pharaoh (actually Mitanni elite), parts waters with a serpent-staff—obvious encoding of dragon-kingship (Aži Dahāka). Moses takes on different masks: M enes – the first official Pharaoh (not real, a compilation of conquerors). Menes – the semi-mythical Median king, founder of the priest-class. Mannu-kuras – Proto-Mede, whose name becomes Cyrus. The name Kur-Ash = "Sun Man". The Exodus is not Judaic memory: it's a political memory of Mitanni-Scythian expulsion from Egypt after the religious revolution of Thutmose III → Horemheb wiped them out with a new priest-kingship in Amarna.
- -   Paul the Apostle = likely a composite character or an avatar/cipher. Two suspects for having taking on the character are: 1) Saulus ben Antipater who was the
+-   Marcion of Sinope: Markianos of Alexandria. The association with Sinope came from Aquila of Sinope who was a disciple of Rabbi Akiva. Are the two the same? Probably.
+-    Moses = Manes/Mannu-Kuras = Manu (Scythian Sage-King) = Menes (Egypt’s legendary founder). Also appears in "Monobazus" → “Manu Bazus” → Sarmatian-Mythological Sage King. The Iranian Manu is a legendary civilizer, and in India he becomes the first Lawgiver (the Manu Smriti = Scythian governance code). The biblical Moses defeats Pharaoh (actually Mitanni elite), parts waters with a serpent-staff—obvious encoding of dragon-kingship (Aži Dahāka). Moses takes on different masks: M enes – the first official Pharaoh (not real, a compilation of conquerors). Menes – the semi-mythical Median king, founder of the priest-class. Mannu-kuras – Proto-Mede, whose name becomes Cyrus. The name Kur-Ash = "Sun Man". The Exodus is not Judaic memory: it's a political memory of Mitanni-Scythian expulsion from Egypt after the religious revolution of Thutmose III → Horemheb wiped them out with a new priest-kingship in Amarna.
+ -   Paul the Apostle = likely a composite character or an avatar/cipher. Two suspects for having taken on the character are: 1) Saulus ben Antipater who was the
     son of Antipater/Herod Antipas the Tetrarch, grandson of King Herod
     (Josephus, Antiquities of the Jews, Chapter 9, section 211), and 2) Rabbi Akiva (whose students included: Aquila of Sinope aka Onkelos, Markianos of Alexandria aka Marcion (Greek Markion) of Sinope, Shimon bar Yohai aka Simon Peter (Shimon bar Yonah)). The character
     Paul/Saul's life story was stolen from the ancient Egyptian story
     "Tale of the Shipwrecked Sailor". Josephus in Antiquities of the
-    Jews, Book XX (CH 9.4) refers to Paul (Saulus) as related to Herod
+    Jews, Book XX (Ch 9.4) refers to Paul (Saulus) as related to Herod
     Agrippa.    -
  -   Pythagoras: Abaris the Hyperborean. The high priestess of the Temple of Apollo at Delphi was called Pythia https://en.wikipedia.org/wiki/Pythia \[[link](https://en.wikipedia.org/wiki/Pythia)\] who breathed serpent vapors (ethylene gas). Greek writers regarded the Hyperboreans as the mythical founders of Apollo's shrines at Delos and Delphi  https://en.wikipedia.org/wiki/Hyperborea#Hyperboreans_in_Delos \[[link](https://en.wikipedia.org/wiki/Hyperborea#Hyperboreans_in_Delos)\]. The name "Pythagoras" is derived from the Greek words "Pythios" (Πύθιος), meaning "of Pythia" or "belonging to the Pythia ("Pythoness"). Abaris was a Scythian and the Scythians worshiped snake deities. Pythia was probably Pythagoras' mother.
 
 **3 The Sarmatian Dragon Cult**
 
-The Hyperboreans were a real Bronze Age civilization in the Ural-Volga region of modern Russia who spread their culture southward via the Kurgan hypothesis (c. 4000 BCE). Their descendants, the Scythians, then spread their Draco (dragon/serpent) cult across Eurasia, encoded in snake worshiping myths. The domestication
+The Hyperboreans were a real Bronze Age civilization in the Ural-Volga region of modern Russia who spread their culture southward via the Kurgan hypothesis (c. 4000 BCE). Their descendants, the Scythians, then spread their Draco (dragon/serpent) cult across Eurasia, encoded in snake-worshiping myths. The domestication
 of the horse and invention of the chariot allowed them to travel vast
 distances. They were a priesthood of dragon/serpent-worshipping kings
 [^1]
@@ -246,12 +244,12 @@ Sumerian "sar" (king) comes from) were a nomadic Indo-Iranian warrior
 elite from the Pontic steppe (modern Ukraine/Russia). 
 
 All ancient Mediterranean religions derive from the
-repackaging of Sythian serpent-dragon worshiping religions. See: Papaios and the Snake-Legged Goddess (Scythian) = Nehebkau, Uraeus, and Apep/Apophis (Egypt) = Ningishzida (Sumerian) = Tiamat and Mušḫuššu who was associated with Marduk (Babylonian) = Aži Dahāka (Zoroastrianism) later syncretized with Mithra = Ophion, Agathodaemon, Typhon, and Delphi's Pythoness priestess (Greek) = Nāgendra and Nāga (Vedic), Nehushtan/serpent staff of Moses, the Dacian and Roman Draco standards, the serpent-worshipping Essenes and Gnostics, Sebazi (Phrygian/Bulgarian), Jörmungandr (Norse), Ouroboros serpent in Freemasony, etc. The Knights Templar knew the truth. The Templars worshipped Baphomet—a Sarmatian dragon deity (Aži Dahāka).
+repackaging of Sythian serpent-dragon worshiping religions. See: Papaios and the Snake-Legged Goddess (Scythian) = Nehebkau, Uraeus, and Apep/Apophis (Egypt) = Ningishzida (Sumerian) = Tiamat and Mušḫuššu who was associated with Marduk (Babylonian) = Aži Dahāka (Zoroastrianism) later syncretized with Mithra = Ophion, Agathodaemon, Typhon, and Delphi's Pythoness priestess (Greek) = Nāgendra and Nāga (Vedic), Nehushtan/serpent staff of Moses, the Dacian and Roman Draco standards, the serpent-worshipping Essenes and Gnostics, Sebazi (Phrygian/Bulgarian), Jörmungandr (Norse), Ouroboros serpent in Freemasonry, etc. The Knights Templar knew the truth. The Templars worshipped Baphomet—a Sarmatian dragon deity (Aži Dahāka).
 
-Kings who took on the snake/dragan/serpent/Azhi Dahaka title: Scorpion I, Pharaoh of Egypt, Azhdahak, which is the Armenian form of the name of the Avestan Azhi Dahaka, was associated with the Median king Astyages (564–550 BC) who was the grandfather of Cyrus the Great. Tigranes II/the Great, King of Armenia (140–55 BC) was also called Azhdahak. Izates II, king of Adiabene's title Iza" = Avestan root for "serpent" (cognate with Scythian Aži), Tiberius Julius Sauromates II, King of Bosphorus ('Saur'
+Kings who took on the snake/dragon/serpent/Azhi Dahaka title: Scorpion I, Pharaoh of Egypt, Azhdahak, which is the Armenian form of the name of the Avestan Azhi Dahaka, was associated with the Median king Astyages (564–550 BC) who was the grandfather of Cyrus the Great. Tigranes II/the Great, King of Armenia (140–55 BC) was also called Azhdahak. Izates II, king of Adiabene's title Iza" = Avestan root for "serpent" (cognate with Scythian Aži), Tiberius Julius Sauromates II, King of Bosphorus ('Saur'
 means 'lizard' or 'reptile', and 'mates' means 'man' or 'warrior'). The roots of the snake titles were: Aži-, Azhd-, -zates, Sauro-, Draco-.
 
-The snake was revered by the Scythians for several reasons: apart from symbolism, the Sarmatians used armor that resembled snake skin, the Scythian priesthood called the Agaroi created poisons called "scythicon" from snake venom that they used on their arrows, and snake venom was used as pain killers and stimulants before war. Snake venom was also used to stop battlefield wounds from bleeding, as well as, they were used as anecdotes, as later emulated by figures such as Mithridates of Pontus who daily consumed a potion called "Mithridatium" which was claimed to make people invincible. Also, the foundation myth of the Scythians is that they were created from the Snake-Legged Goddess who was impregnated by Hercules (Targiatos).
+The snake was revered by the Scythians for several reasons: apart from symbolism, the Sarmatians used armor that resembled snake skin, the Scythian priesthood called the Agaroi created poisons called "scythicon" from snake venom that they used on their arrows, and snake venom was used as painkillers and stimulants before war. Snake venom was also used to stop battlefield wounds from bleeding, as well as, they were used as anecdotes, as later emulated by figures such as Mithridates of Pontus who daily consumed a potion called "Mithridatium" which was claimed to make people invincible. Also, the foundation myth of the Scythians is that they were created from the Snake-Legged Goddess who was impregnated by Hercules (Targiatos).
 
 Timeline:
 
@@ -279,7 +277,7 @@ ancient economy and caused continual strife and this was one of the
 causes of the eventual collapse of the Bronze Age and the fragmentation
 of Scythian hegemony. It also led to the Hyksos expulsion from Egypt and
 Assyria rising up under the Chaldean priests (the Kalani, the Jews).
-Jews refered to them as Ashkenaz, meaning Scythian (Josephus. Vol. 5:
+Jews referred to them as Ashkenaz, meaning Scythian (Josephus. Vol. 5:
 Antiquities: 8:2:5, pp. 593-595). Khazaria is the former territory of
 the Scythians, which is why they they were called Ashkenazi.
 
@@ -296,7 +294,7 @@ familiar? ΒΑCΙΛΕΩC CΑVΡΟΜΑΤΟΥ in the above coin translates to "Kin
 the Sauromatians". Sauromates is a Greek rendering of 'Sarmatian',
 referring to the Scythian tribe who came from the Pontic steppe. 'Saur'
 means 'lizard' or 'reptile', and 'mates' means 'man' or 'warrior'.
-Therefore, translated literallly ΒΑCΙΛΕΩC CΑVΡΟΜΑΤΟΥ means "King of the
+Therefore, translated literally ΒΑCΙΛΕΩC CΑVΡΟΜΑΤΟΥ means "King of the
 lizard people", or "king of the dragon people".
 
 ![Fig.1.2](/images/Tamga.jpg){:width="400px"}
@@ -349,35 +347,35 @@ Footnotes (Chapter 3)
 
 **4 The Alexandrian School**
 
-In Egypt, Ptolemy I Soter, who was a Scythian continuation of the Sarmatian snake/serpent kings line, used religion to subjugate the vast and disparate peoples he ruled. This was likely inspired by Plato's noble lie which is a concept from his work "The Republic" where he suggests that a myth or falsehood can be used by rulers to maintain social order and promote the common good. The Alexandrian School then became his religion making factory. He was in the process of creating a universal religion and this was being achieved by gradual syncretism using local identities and blending local deities into syncretic universal savior archetypes (Interpretatio Graecae) as a transitional phase toward a universal monotheism. The Ptolemaic elites were conditioning the disparate populations they ruled into accepting the Serapis cult (sarp- is a Proto-Indo-European root meaning "serpent" as seen in Sanskrit sarpa, "snake". "Sar-Ap" translates to "Serpent-Lord" in Scythian.
+In Egypt, Ptolemy I Soter, who was a Scythian continuation of the Sarmatian snake/serpent kings line, used religion to subjugate the vast and disparate peoples he ruled. This was likely inspired by Plato's noble lie which is a concept from his work "The Republic" where he suggests that a myth or falsehood can be used by rulers to maintain social order and promote the common good. The Alexandrian School then became his religion making factory. He was in the process of creating a universal religion and this was being achieved by gradual syncretism using local identities and blending local deities into syncretic universal savior archetypes (Interpretatio Graecae) as a transitional phase toward a universal monotheism. The Ptolemaic elites were conditioning the disparate populations they ruled into accepting the Serapis cult (sarp- is a Proto-Indo-European root meaning "serpent" as seen in Sanskrit sarpa, "snake". "Sar-Ap" translates to "Serpent-Lord" in Scythian).
 
 ![Fig.1.3](/images/SarapisAmunAgathodaemon.jpg){:width="400px"}
 
 Fig. 1.3 Copper statuette of the god Sarapis Amun Agathodaemon depicted as half-deity. half-snake (Egypt late Hellenistic/early Roman period 1st century BC - 1st century AD).
 
-The Sarapis cult eventually evolved into Christianity, which was repackaged Serapis cult and targeted at local populations (the Christogram symbolizing Jesus Christ (IHS) = "Isis-Horus-Serapis"). Religion was the technology that the empire used to subjugate the people they ruled.
+The Sarapis Cult eventually evolved into Christianity, which was repackaged Serapis cult and targeted at local populations (the Christogram symbolizing Jesus Christ (IHS) = "Isis-Horus-Serapis"). Religion was the technology that the empire used to subjugate the people they ruled.
 
 4.1 Judaism 
 
 Ptolemy I Soter was also responsible for inventing Judaism. His aim was to subvert Canaanite identity once and for all, destroying the only contestant to Greco-Egyptian power in the world up to that point, and gradually forcing jews to accept the Serapis cult. 
 
-It was in Alexandria at the Library of Alexandria where the Pentateuch and Septuagint were written. The myth of the jewish people and the Laws of Moses were based on Plato's hypothetical colony of Magnesia from his thesis called The Laws (347 BC) in which the proposed charter for the Cretan colony of Magnesia was modeled in large part on Athenian legal and constitutional traditions. Ancestor received law from a deity, hereditary priesthood rather than king, as well as the division into 12 tribes were all part of the formula. Plato's Timaeus (360 BC) is where the story of Abraham comes from. Plato's Timaeus is also the source for Genesis 1-11 15. Homer's Odysseey was the source of Genesis 24, 42-46. The biblical concept of hell was stolen from Plato's Replublic ('Myth of Er'), and the spiritual plane of Heaven is ripped off from Plato's 'World of Forms'. Exodus is just a semitized retcon of Jason and the Argonauts, and the Oracles Against the Nations plagiarize the Sibylline Oracles.
+It was in Alexandria at the Library of Alexandria where the Pentateuch and Septuagint were written. The myth of the jewish people and the Laws of Moses were based on Plato's hypothetical colony of Magnesia from his thesis called "The Laws" (347 BC) in which the proposed charter for the Cretan colony of Magnesia was modeled in large part on Athenian legal and constitutional traditions. Ancestor received law from a deity, hereditary priesthood rather than king, as well as the division into 12 tribes were all part of the formula. Plato's Timaeus (360 BC) is where the story of Abraham comes from. Plato's Timaeus is also the source for Genesis 1-11 15. Homer's Odysseey was the source of Genesis 24, 42-46. The biblical concept of hell was stolen from Plato's Replublic ('Myth of Er'), and the spiritual plane of Heaven is ripped off from Plato's 'World of Forms'. Exodus is just a semitized retcon of Jason and the Argonauts, and the Oracles Against the Nations plagiarize the Sibylline Oracles.
 
-Moses = Osarseph (Osar (Osiris) and seph (son) = Son of Osirus). The Greek rendering of Moses and Osarseph are identical. Osarseph appears in accounts by the Egyptian priest Manetho, who described him as a renegade priest leading a group of lepers in rebellion, eventually adopting the name "Moses" (Josephus. 'Against Apion' discussing Manetho's account of Osarseph). Osarseph also = Serapis. The "Ser" symbol in Ser-apis is the same as seph meaning "son of". Serapis can be interpreted as "Son of Osiris-Apis", which evolved into "Son of Osiris". So, Serapis is just another word for Osarseph. Solomon = Sol-Amūn ("Sun of Amun"). Abraham (Brahmin > Ibrahim > Abraham. A(Braha)m(in)) = Ab-Ram, or Son of Ram. Alexander was the Ram god (https://en.wikipedia.org/wiki/Horns_of_Alexander), he was also Chandragupta Maurya in India.
+Moses = Manes/Mannu-Kuras = Manu (Scythian Sage-King) = Menes (Egypt’s legendary founder), but this name/title was reappropriated for the Sarapis Cult as Moses = Osarseph (Osar (Osiris) and seph (son) = Son of Osirus). The Greek rendering of Moses and Osarseph is identical. Osarseph appears in accounts by the Egyptian priest Manetho, who described him as a renegade priest leading a group of lepers in rebellion, eventually adopting the name "Moses" (Josephus. 'Against Apion' discussing Manetho's account of Osarseph). Osarseph also = Serapis. The "Ser" symbol in Ser-apis is the same as seph meaning "son of". Serapis can be interpreted as "Son of Osiris-Apis", which evolved into "Son of Osiris". So, Serapis is just another word for Osarseph. Solomon = Sol-Amūn ("Sun of Amun"). Abraham (Brahmin > Ibrahim > Abraham. A(Braha)m(in)) = Ab-Ram, or Son of Ram. Alexander was the Ram god (https://en.wikipedia.org/wiki/Horns_of_Alexander), he was also Chandragupta Maurya in India.
 
-The original redhead clan of Druids that ended up becoming Israelites were Celtic Scythians who migrated southwards during the early Aryan invasion of 4000 BC. Scythian --> Saka --> Isaac. This migration coincides with the development of early bronze age civilization. They went to Anatolia first (Galatia), then Babylon, then Canaan ('Gaulinitis' = Golan Heights). In Canaan, the natives then came under the suzerainty of these Celts and their entire identity, language, and religion derives from this. The evidence for this is paternal DNA assays (Galatian Celts carried the Celtic R1b haploytpe (10% of Ashkenazi jews), but also R1a, G2a, J2a, which are other paternal lineages that make up the bulk of jews paternal haplotypes), the fact that the Celtic languages are surprisingly Semitic with a verb-subject-object word order and a shocking amount of vocabulary overlap, and the name of Irish deities, Balor and his holiday Beltaine are cognate to Bal and Elatha the Irish Uranus is cognate to Hebrew El. King David (DWD) = King Druid. 1 Samuel 16:12 claims that King David had red hair. As for the name 'jew', the descriptive name Judaism was never used by the Hebrews or Israelites; it appears only with Christianity. It comes from Yahud or Auda which comes from Iodh or Ioux. Iodh and Ioux are associated with the yew tree in Druidism and is sometimes linked to the concept of rebirth and regeneration. The ancient Celtic prefixes 'Rab' or 'Rhab' mean 'wise one' or 'seer', and a Druid equates to a Rabbi.
+The original redhead clan of Druids that ended up becoming Israelites were Celtic Scythians who migrated southward during the early Aryan invasion of 4000 BC. Scythian --> Saka --> Isaac. This migration coincides with the development of early Bronze Age civilization. They went to Anatolia first (Galatia), then Babylon, then Canaan ('Gaulinitis' = Golan Heights). In Canaan, the natives then came under the suzerainty of these Celts and their entire identity, language, and religion derives from this. The evidence for this is paternal DNA assays (Galatian Celts carried the Celtic R1b haplotype (10% of Ashkenazi jews), but also R1a, G2a, J2a, which are other paternal lineages that make up the bulk of jews paternal haplotypes), the fact that the Celtic languages are surprisingly Semitic with a verb-subject-object word order and a shocking amount of vocabulary overlap, and the name of Irish deities, Balor and his holiday Beltaine are cognate to Bal and Elatha the Irish Uranus is cognate to Hebrew El. King David (DWD) = King Druid. 1 Samuel 16:12 claims that King David had red hair. As for the name 'jew', the descriptive name Judaism was never used by the Hebrews or Israelites; it appears only with Christianity. It comes from Yahud or Auda which comes from Iodh or Ioux. Iodh and Ioux are associated with the yew tree in Druidism and are sometimes linked to the concept of rebirth and regeneration. The ancient Celtic prefixes 'Rab' or 'Rhab' mean 'wise one' or 'seer', and a Druid equates to a Rabbi.
 
-As for the term 'Hebrew", it comes from the Celts who called themselves Iberi. The name of Abaris the Hyperborean, a Druid priest who was Pythagoras's teacher, who was the son of Seuthes (Seth), shows this. The term Abaris was inspired by the Semitic Iber. Iber was sometimes rendered as Aber or Heber and is pronounced as Hebrew in the Hebrew languages. Hyperborea, which just like Atlantis, was another name for Ireland. The word Atlantis means ‘The Island of Atlas’. The titan Atlas was a key figure in Greek mythology and is depicted as being the  bearer of the heavens. According to early Greek mythology, Atlas lived on the island of Hyperborea. Over time Hyperborea became Hybernia or Hibernia, the Roman name for Ireland. Iber is an ethnonym that shows up in areas where the Celtic people settled (Ebro river, Iberia, Hibernia, etc.). Dionysius of Alexandria in Egypt (ca. 190-264 CE) also referred to the inhabitants of Britain as Iberi.
+As for the term 'Hebrew", it comes from the Celts who called themselves Iberi. The name of Abaris the Hyperborean, a Druid priest who was Pythagoras's teacher, who was the son of Seuthes (Seth), shows this. The term Abaris was inspired by the Semitic Iber. Iber was sometimes rendered as Aber or Heber and is pronounced as Hebrew in the Hebrew language. Hyperborea, which just like Atlantis, was another name for Ireland. The word Atlantis means ‘The Island of Atlas’. The titan Atlas was a key figure in Greek mythology and is depicted as being the  bearer of the heavens. According to early Greek mythology, Atlas lived on the island of Hyperborea. Over time Hyperborea became Hybernia or Hibernia, the Roman name for Ireland. Iber is an ethnonym that shows up in areas where the Celtic people settled (Ebro river, Iberia, Hibernia, etc.). Dionysius of Alexandria in Egypt (ca. 190-264 CE) also referred to the inhabitants of Britain as Iberi.
 
-'Ashkenazi', or 'Ashkuza', was the name given to the Scythians by the ancient Akkadians. The Assyrians called the Scythians "Asguzaya" and the ancient Persians called the Scythians 'Saka'. In Biblical Hebrew, the Ashkuz (Ashkenaz) are considered to be a direct offshoot from the Gimirri, known as the Cimmerians to the ancient Greeks. Cimmerians were a middle eastern offshoot of the Celtic Cimbri tribe. 
+'Ashkenazi', or 'Ashkuza', was the name given to the Scythians by the ancient Akkadians. The Assyrians called the Scythians "Asguzaya" and the ancient Persians called the Scythians 'Saka'. In Biblical Hebrew, the Ashkuz (Ashkenaz) are considered to be a direct offshoot from the Gimirri, known as the Cimmerians to the ancient Greeks. Cimmerians were a Middle Eastern offshoot of the Celtic Cimbri tribe. 
 
-These Celtic males mixed with Neolithic Anatolian woman before their descendants moved into Egypt (Apiru or Habiru) and Caanan and then mixed with indigenous people in those places. Celtic Jews (Iudii) then dissapeared after the Bar Kokhba Revolt when emperor Hadrian decimated their popuation. Modern Ashkenazi Jews are a hodgepodge of Neolithic (proto-Sicilian who originated in Anatolia), native Canaanites (who were literal human-neanderthal hybrids [^2]), proto-Arab Natufians (Natufians had ~20% higher Basal Eurasian -- Basal means with SSA, North Africa was green/fertile so sub-saharin Africans could cross the Sahara), and Celtic Cimbri and Celtic Galatian from Anatolia.
+These Celtic males mixed with Neolithic Anatolian women before their descendants moved into Egypt (Apiru or Habiru) and Caanan and then mixed with indigenous people in those places. Celtic Jews (Iudii) then disappeared after the Bar Kokhba Revolt when Emperor Hadrian decimated their population. Modern Ashkenazi Jews are a hodgepodge of Neolithic (proto-Sicilian who originated in Anatolia), native Canaanites (who were literal human-neanderthal hybrids [^2]), proto-Arab Natufians (Natufians had ~20% higher Basal Eurasian -- Basal means with SSA, North Africa was green/fertile so sub-Saharin Africans could cross the Sahara), and Celtic Cimbri and Celtic Galatian from Anatolia.
 
 The rest of the jewish religion and identity came from later incarnations of this imperial cult: I(J)upiter was also called Jove or Iove to the Romans. The Latin pronunciation of Iove would have been Yoh-Way, i.e Yahweh/Yhwh, so Yahweh Saboath, the god of the Hebrew bible, is I(J)ove (Roman Zeus) Sabazios (Thracian Zeus).
 
 Abel and Cain are just a copy of Romulus and Remus. Judas Iscariot is a copy of Brutus. Genesis 4:5-31. Enoch, Irad, Mehujael, Methuselah, Lamech, Seth, Enosh, Kenan, Mahalalel, are copies of Titus Livy's Regal Rome of the seven kings.
 
-After the Serapis cult the Alexandrian School made an industry out of taking existing religions and then adding to them a psyop slave-morality foundation. The goal was to get the population to accept monotheism and move them towards the Sarapis cult. The Serapis cult, Gnosticism, Mithraism, Christianity, Manichaeanism, Valentinianism, Hermeticism (Philo of Alexandria’s syncretic philosophy to Hellenize the Canaanite religion of the levant), Buddhism (Pyrrho of Elis's syncretic attempt at subverting the Indo-Aryans in Bactria which was governed by Gaumata Bardya, Cyrus the Greats son), etc., all came from here. 
+After the Serapis cult the Alexandrian School made an industry out of taking existing religions and then adding to them a psy-op slave-morality foundation. The goal was to get the population to accept monotheism and move them towards the Sarapis Cult. The Serapis Cult, Gnosticism, Mithraism, Christianity, Manichaeanism, Valentinianism, Hermeticism (Philo of Alexandria’s syncretic philosophy to Hellenize the Canaanite religion of the levant), Buddhism (Pyrrho of Elis's syncretic attempt at subverting the Indo-Aryans in Bactria which was governed by Gaumata Bardya, Cyrus the Greats son), etc., all came from here. 
 
 **5 Julius Caesar aka Asander of Bosphorus**
 
@@ -412,7 +410,7 @@ Fig. 1.5. Coin of Asander, King of Bosphorus depicting a Nike
 
 ![Fig.1.6](/images/Polemon.jpg){:width="400px"}
 
-Fig. 1.6. Coin of Polemon I of Pontus who was an alias of Asander (both were married to Dynamis, queen of Bosphorus. You can usually find their aliases through marraiges) depicting a Uraeus (the Egyptian cobra) and also Zeus-Ammon. Other depictions of Asander show the star and cresent
+Fig. 1.6. Coin of Polemon I of Pontus who was an alias of Asander (both were married to Dynamis, queen of Bosphorus. You can usually find their aliases through marriages) depicting a Uraeus (the Egyptian cobra) and also Zeus-Ammon. Other depictions of Asander show the star and cresent
 that is visible in the Julius Caesar coin above. The crescent moon and
 star symbol has Mithraic symbolism, and another coin of Asander depicts a
 Phrygian cap which is closely associated with the Roman god Mithras:
@@ -431,7 +429,7 @@ Dynamis was recorded as being of "Sarmatian" ancestry.
 ![Fig.1.8](/images/cleopatra.png){:width="400px"}
 
 Fig. 1.8. (L) Julia Mamaea, Queen of Pontus (wife of Polemon II), (R)
-Cleopatra VII. Polemon Pythodoros, King of Pontus was a regional aliases
+Cleopatra VII. Polemon Pythodoros, King of Pontus was a regional alias
 of Julius Caesar/Asander (as Asander and Polemon were both married to
 Dynamis), and if he also played the religious role of Gaius Julius
 Sohaemus of Emesa, Priest-King of Emesa, and Cleopatra played the
@@ -536,7 +534,7 @@ horseman.).
 
 Cleopatra aka Dynamis's son with Mark Antony [^9] (aka Ptolemy of
 Cyprus, a brother of Ptolemy XII Auletes (Cleopatra's father) making him
-Celopatra's uncle aka Polemon I of Pontus aka King Herod aka Tiberius
+Cleopatra's uncle aka Polemon I of Pontus aka King Herod aka Tiberius
 Claudius Nero aka Phraates IV of Parthia) = Alexander Helios aka
 Alexander (son of King Herod) aka Juba II who was married to his twin
 sister Cleopatra Selene II aka Queen Thea Muse Ourania. Juba II of
@@ -551,7 +549,7 @@ of King Herod) aka Juba II).
 Cleopatra aka Dynamis's son with Mark Antony = Ptolemy Philadelphus who
 was Sampsiceramus I?
 
-Mark Antony's son with Livia Drusilla = emperor Tiberius Julius Caesar
+Mark Antony's son with Livia Drusilla = Emperor Tiberius Julius Caesar
 Augustus (one way to prove that Mark Antony was both King Herod and
 Tiberius Claudius Nero is through the equivalence of Doris the first
 wife of Herod the Great and Livia Drusilla the second wife of
@@ -705,8 +703,8 @@ Endnotes (Chapter 5)
     into Parthian Mithra). Philometer then corresponds to Mithradates of
     Parthia and Mattathius the Hasmonean. (Mattath is the Hebrew
     feminine form of Mattan).\
-(b) Speculative: Ptolemy XIII Theos Philopator = Gaius Octavius aka
-    Emperor Gaius Julius Caesar Augustus, Cleopatra VII's brother.\
+(b) Speculative: Mark Antony's son with Livia Drusilla = Emperor Tiberius Julius Caesar
+Augustus who was also Ptolemy XIII Theos Philopator, Cleopatra VII's brother?\
 (c) Apollonius of Tyre was married to the daughter of a king of Libya
     ("Historia Apollonii Regis Tyri" or "The Story of Apollonius, King
     of Tyre"), who was Cleopatra Selene aka Drusilla (aka Cleopatra
