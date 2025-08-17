@@ -70,7 +70,7 @@ What is the end goal of these divide-and-conquer slave-morality systems? (Christ
 
 _Addendum_
 
-My critique of leftism was not coming from a conservative perspective. Leftism is a secularized variant of protestantism (puritanism), but conservatism is secularized catholicism with its focus on hierarcy and tradtion. Western left vs. right politics is a relict of abrahamic monotheism.
+My critique of modern leftism was not coming from a conservative perspective. Leftism is a secularized variant of protestantism (puritanism), but conservatism is secularized catholicism with its focus on hierarcy and tradtion. Western left vs. right politics is a relict of abrahamic monotheism.
 
 _Footnotes_
   
