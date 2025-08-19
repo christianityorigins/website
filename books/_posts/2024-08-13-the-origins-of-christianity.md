@@ -1066,7 +1066,7 @@ According to his prophecy, after "Ishmael" weakens Edom (Rome) and then "dies a 
 
 In Jerusalem Talmud Kiddushin, Rabbi Shimon bar Yochai stated: "Kill the best of Gentiles, smash the head of the best of snakes". He was the biggest proponent of the belief that Rome was Edom.
 
-King Izates of Monobazus's (Isa in the Quran) son was named 'Zamaris' (Zamaris the Babylonian jew?) and Zamaris has the same meaning as Muhammad. Allah and Muhammad the red-headed warlord were parodies of Attila the Hun and his uncle Ruglia waging war against Rome (Edom) because they wanted the Arabs to attack eastern Rome. 
+King Izates of Monobazus's (Isa in the Quran) son was named 'Zamaris' (Zamaris the Babylonian jew?) and Zamaris has the same meaning as Muhammad. Allah and Muhammad the red-headed warlord were parodies of Attila the Hun [^15] and his uncle Ruglia waging war against Rome (Edom) because they wanted the Arabs to attack eastern Rome. 
 
 So, Talmudic jews who were hiding out in the Himyarite Kingdom after
 Emperor Hadrian kicked them out of judea basically just cut-and-pasted
@@ -1114,7 +1114,7 @@ Endnotes (Chapter 10)
     Valerius Maximus, in his work 'Facta ac dicta memorabilia', mentions
     the expulsion of Jews from Rome in 139 BCE by the praetor peregrinus
     Cn. Cornelius Hispalus for attempting to currupt the cult of
-    Jupiter.[^15]
+    Jupiter.[^17]
 (d) Quintus Tineius Sacerdos, the brother of Quintus Tinnius Rufus, was
     the governor of Pontus in Anatolia, so the family likely derived
     from there. Pilate means the temperament of a warrior I.e., famously
@@ -1211,7 +1211,7 @@ The Tarim basin mummies are Tocharians, and the Kizilgaha cave portraits deprict
 
 Alexander the Great = Qin Shi Huang (China’s First Emperor). Both “died” mysteriously at 33 (Alexander in 323 BC; Qin Shi Huang in 210 BC).
 Qin’s terracotta army has Caucasian features and Hellenistic armor. The word “Qin” (秦) may derive from “Scythian” (Saka-Sina).
-Alakshandra (Sanskrit) → Qin Shi Huang (Chinese): The “-shandra” morpheme appears in “Shi Huang,” meaning “First Guardian.”. Qin was founded by Alexander, it starts right exactly around the Greco-Bactrian city states era in Central Asia, it was started by people coming from the West right exactly bordering Central Asia during Greco-Bactrian rule, DA-QIN meaning BIG OR GREATER QIN as a word name term was used to refer to the Roman empire during the “Han dynasty” that came after Qin dynasty which means the QIN people had to have been Greco-Bactrian Seleucids since they equated with Roman type people and they came from the farthest West direction. Greek style coins and statues have been found from this time period, and the terracotta army was built by Greeks from Central Asia [^17], to this day the Chinese currency which came about formally during Qin dynasty era is called a YUAN which is another name for YON-IONIAN Greeks etc.
+Alakshandra (Sanskrit) → Qin Shi Huang (Chinese): The “-shandra” morpheme appears in “Shi Huang,” meaning “First Guardian.”. Qin was founded by Alexander, it starts right exactly around the Greco-Bactrian city states era in Central Asia, it was started by people coming from the West right exactly bordering Central Asia during Greco-Bactrian rule, DA-QIN meaning BIG OR GREATER QIN as a word name term was used to refer to the Roman empire during the “Han dynasty” that came after Qin dynasty which means the QIN people had to have been Greco-Bactrian Seleucids since they equated with Roman type people and they came from the farthest West direction. Greek style coins and statues have been found from this time period, and the terracotta army was built by Greeks from Central Asia [^18], to this day the Chinese currency which came about formally during Qin dynasty era is called a YUAN which is another name for YON-IONIAN Greeks etc.
 
 China had no chronology until the Jesuits came to the Emperor’s court. Their oldest “ancient” records date from this period. Stone inscriptions and bronze engravings and a few bamboo slips survive from older times, but they were never arranged into a consistent chronology. If you read the Bellum Tartaricum, a pre-edit Jesuit source, it gives a very different chronology as well as info about the white Slav-like race known as the Tartarians, their rulers and their wars with China.
 
@@ -1534,7 +1534,9 @@ https://unz.com/article/how-fake-is-church-history by Laurent Guyénot
     https://henrydavis-cc.medium.com/the-royal-ancestry-of-the-roman-emperor-vespasian-72e144335299.
     [[link](https://henrydavis-cc.medium.com/the-royal-ancestry-of-the-roman-emperor-vespasian-72e144335299)]
 
-[^15]: https://en.wikipedia.org/wiki/Claudius%27_expulsion_of_Jews_from_Rome
+[^15]: Attila The Hun was actually Priscus Attalus, the Roman governor who led a revolt against Rome.
+
+[^16]: https://en.wikipedia.org/wiki/Claudius%27_expulsion_of_Jews_from_Rome
     ---https://en.wikipedia.org/wiki/Sabazios#Jewish_connection
     ---Emperor Caligula Brought an End to the Illustrious Ptolemies, but
     Why?. Ancient Origins Reconstructing the Story of Humanity's Past.
@@ -1544,10 +1546,10 @@ https://unz.com/article/how-fake-is-church-history by Laurent Guyénot
     Why?. Ancient Origins Reconstructing the Story of Humanity's Past.
     www.ancient-origins.net/history-famous-people/emperor-caligula-brought-end-illustrious-ptolemies-why-007591
 
-[^16]: Gmirkin, Russell (2016). Plato and the Creation of the Hebrew
+[^17]: Gmirkin, Russell (2016). Plato and the Creation of the Hebrew
     Bible.
 
-[^17]: <a href="https://www.smithsonianmag.com/smart-news/did-greeks-help-sculpt-chinas-terracotta-warriors-180960771/">https://www.smithsonianmag.com/smart-news/did-greeks-help-sculpt-chinas-terracotta-warriors-180960771/</a>\ 
+[^18]: <a href="https://www.smithsonianmag.com/smart-news/did-greeks-help-sculpt-chinas-terracotta-warriors-180960771/">https://www.smithsonianmag.com/smart-news/did-greeks-help-sculpt-chinas-terracotta-warriors-180960771/</a>\ 
      -<a href="https://www.independent.co.uk/news/science/china-terracotta-army-ancient-greek-sculptors-alexander-the-great-marco-polo-a7357606.html">https://www.independent.co.uk/news/science/china-terracotta-army-ancient-greek-sculptors-alexander-the-great-marco-polo-a7357606.html</a> \
      -<a href="https://www.theguardian.com/science/2016/oct/12/ancient-greeks-may-have-inspired-china-terracotta-army-sculptors-ancient-dna">https://www.theguardian.com/science/2016/oct/12/ancient-greeks-may-have-inspired-china-terracotta-army-sculptors-ancient-dna</a> \
      -<a href="https://www.history.com/news/greeks-may-have-influenced-chinas-terra-cotta-army">https://www.history.com/news/greeks-may-have-influenced-chinas-terra-cotta-army</a>\
