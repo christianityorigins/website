@@ -1066,12 +1066,12 @@ According to his prophecy, after "Ishmael" weakens Edom (Rome) and then "dies a 
 
 In Jerusalem Talmud Kiddushin, Rabbi Shimon bar Yochai stated: "Kill the best of Gentiles, smash the head of the best of snakes". He was the biggest proponent of the belief that Rome was Edom.
 
-King Izates of Monobazus's (Isa in the Quran) son was named 'Zamaris' (Zamaris the Babylonian jew?) and Zamaris has the same meaning as Muhammad. Allah and Muhammad the red-headed warlord were parodies of Attila the Hun and his uncle Ruglia waging war against Rome (Edom) because they wanted the Arabs to attack eastern Rome. So, did Rabbi Simon ben Yohai do a bait-and-switch and instead turned judaism in a group strategy while turning the Adiabene imperial cult into Islam to weaponize the Arabs? It is impossible to get people to abandon their religions for a new one, so he created a sect of one of the popular religions at the time and infused the trojan horse ideology into it.
+King Izates of Monobazus's (Isa in the Quran) son was named 'Zamaris' (Zamaris the Babylonian jew?) and Zamaris has the same meaning as Muhammad. Allah and Muhammad the red-headed warlord were parodies of Attila the Hun and his uncle Ruglia waging war against Rome (Edom) because they wanted the Arabs to attack eastern Rome. 
 
 So, Talmudic jews who were hiding out in the Himyarite Kingdom after
 Emperor Hadrian kicked them out of judea basically just cut-and-pasted
 from one of the Bosphoran/Adiabene/Roman imperial cults of the time and created two sects: Christianity as a
-slave morality/proto-Bolshavism for the Romans and Islam as a warrior morality to weaponize the Arabs to attack Rome.
+slave morality/proto-Bolshavism for the Romans and Islam as a warrior morality to weaponize the Arabs to attack Rome. It is impossible to get people to abandon their religions for a new one, so they created sects of one of the popular religions at the time and infused the trojan horse ideology into it.
 This conspiracy was so sophisticated that not only did they rewrite the
 imperial cult, but they rewrote history to align with their psy-op.
 Josephus's (Tiberius Julius Alexander aka Emperor Nerva) works were
