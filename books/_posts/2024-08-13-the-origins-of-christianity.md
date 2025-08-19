@@ -107,7 +107,7 @@ end of the book.
 
 **1 Name and Title Meanings**
 
--   Azhi: Azhi = Až ("serpent") + Hi ("power, divine") in Avestan, meaning "mighty dragon". It extends Aži to signify divine authority across Indo-Iranian and Scythian cultures. Azhi = Asia (Azhi-A) = "land of the mighty dragon" (Aži is cognate with the Chinese Zhī (dragon)), a very similar name to Rome (Rhu-Ma) = "Place of the Dragon", Romania (Rhu-Ma + Na) = "dragon land", and Sarmatia (serpent) + ma (mother, land). Aži links to Aesir (Norse gods), Asar (Egyptian Osiris), and Ahura (Zoroastrian god). The phonetic root Az-/As- means "divine power" in Indo-European languages (Sanskrit asura, Hittite hasu = king). 
+-   Azhi: Azhi = Až ("serpent") + Hi ("power, divine") in Avestan, meaning "mighty dragon". It extends Aži to signify divine authority across Indo-Iranian and Scythian cultures. Azhi = Asia (Azhi-A) = "land of the mighty dragon" (Aži is cognate with the Chinese Zhī (dragon)), a very similar name to Rome (Rhu-Ma) = "Place of the Dragon", Romania (Rhu-Ma + Na) = "dragon land", and Sarmatia (serpent) + ma (mother, land). Aži links to Aesir (Norse gods), Asar (Egyptian Osiris), and Ahura (Zoroastrian god). The phonetic root Az-/As- means "divine power" in Indo-European languages (Sanskrit asura, Hittite hasu = king). Aži Dahāka in Avestan = Aži (serpent) + Dahāka (man) which translates to "Serpent-Man". 
 -   Caesar: The Egyptian name "Asar" was another name for Osiris. "Ra"
     was the Egyptian deity of the Sun (Asar-Ra). Sar means king in Scythian. This title very likely
     connects to "Asar-Hapi" (Osiris-Apis), another name for the
@@ -354,7 +354,7 @@ Fig. 1.3 Copper statuette of the god Sarapis Amun Agathodaemon depicted as half-
 
 The Sarapis Cult eventually evolved into Christianity, which was repackaged Serapis cult and targeted at local populations (the Christogram symbolizing Jesus Christ (IHS) = "Isis-Horus-Serapis"). Religion was the technology that the empire used to subjugate the people they ruled.
 
-4.1 Judaism 
+**4.1 Judaism** 
 
 Ptolemy I Soter was also responsible for inventing Judaism. His aim was to subvert Canaanite identity once and for all, destroying the only contestant to Greco-Egyptian power in the world up to that point, and gradually forcing jews to accept the Serapis cult. 
 
@@ -1054,11 +1054,11 @@ as a leader from the land of Magog in the north, who will gather a
 coalition of nations to attack Israel, but will be defeated by God in a
 great battle.
 
-10.1 Islam
+**10.1 Islam**
 
 At the same time these rabbi's created Christianity they created Islam.
 
-In the book 'Hagarism: The Making of the Islamic World' (1977) by Patricia Crone and Michael Cook they trace the origins of Islam to 'The Secrets of Shimon bar Yochai'. They theorize that Islam was started as a psy-op to weaponize the Arabs to attack the Byzantine empire (eastern Rome) to free judea. 
+In the book 'Hagarism: The Making of the Islamic World' (1977) by Patricia Crone and Michael Cook they trace the origins of Islam to 'The Secrets of Shimon bar Yochai' [^15]. They theorize that Islam was started as a psy-op to weaponize the Arabs to attack the Byzantine empire (eastern Rome) to free judea. 
 
 Rabbi Akiva's student Shimon bar Yohai aka Simon Peter (Shimon bar Yonah) wrote that his "secrets" were revealed to him when he was hiding in a cave on account of the persecutions of Caesar king of Edom (Rome). His "secrets" were his blueprint for the destruction of Rome (Esau/Edom) and all western "gyrwn" (Aramic form of goyim) through using Ishmael (Arabs) and "four-arms" (Indians).
 
@@ -1066,7 +1066,7 @@ According to his prophecy, after "Ishmael" weakens Edom (Rome) and then "dies a 
 
 In Jerusalem Talmud Kiddushin, Rabbi Shimon bar Yochai stated: "Kill the best of Gentiles, smash the head of the best of snakes". He was the biggest proponent of the belief that Rome was Edom.
 
-King Izates of Monobazus's (Isa in the Quran) son was named 'Zamaris' (Zamaris the Babylonian jew?) and Zamaris has the same meaning as Muhammad. Allah and Muhammad the red-headed warlord were parodies of Attila the Hun [^15] and his uncle Ruglia waging war against Rome (Edom) because they wanted the Arabs to attack eastern Rome. 
+King Izates of Monobazus's (Isa in the Quran) son was named 'Zamaris' (Zamaris the Babylonian jew?) and Zamaris has the same meaning as Muhammad. Allah and Muhammad the red-headed warlord were parodies of Attila the Hun [^16] and his uncle Ruglia waging war against Rome (Edom) because they wanted the Arabs to attack eastern Rome. 
 
 So, Talmudic jews who were hiding out in the Himyarite Kingdom after
 Emperor Hadrian kicked them out of judea basically just cut-and-pasted
@@ -1205,13 +1205,13 @@ around 350 BCE)?
 
 The Scythains ruled a Eurasian empire that stretched into China. 
 
-Azhi = Asia (Azhi-A) = "land of the mighty dragon" (Aži is cognate with the Chinese Zhī (dragon)), a very similar name as Rome (Rhu-Ma) = "Place of the Dragon", Romania (Rhu-Ma + Na) = "dragon land", and Sarmatia (serpent) + ma (mother, land). 
+Azhi = Asia (Azhi-A) = "land of the mighty dragon" (Aži is cognate with the Chinese Zhī (dragon)), a very similar name as Rome (Rhu-Ma) = "Place of the Dragon", Romania (Rhu-Ma + Na) = "dragon land", and Sarmatia (serpent) + ma (mother, land). The Chinese dragon, a symbol of imperial power, is a direct descendant of the Scythian Draco standard, carried by Sarmatian cavalry and adopted by the Han dynasty.
 
 The Tarim basin mummies are Tocharians, and the Kizilgaha cave portraits deprict redheaded “Chinese” people. Genetic studies show that indegenous people of Linzi in south east China were genetically more similar to Europeans than modern Chinese (https://eurogenes.blogspot.com/2017/07/north-european-admixture-in-han-chinese.html). Tang dynasty mural in tomb unearthed in China portrays a ‘Westerner’ man with blond hair (https://www.livescience.com/archaeology/stunning-tang-dynasty-mural-in-tomb-unearthed-in-china-may-portray-a-westerner-man-with-blond-hair).
 
 Alexander the Great = Qin Shi Huang (China’s First Emperor). Both “died” mysteriously at 33 (Alexander in 323 BC; Qin Shi Huang in 210 BC).
 Qin’s terracotta army has Caucasian features and Hellenistic armor. The word “Qin” (秦) may derive from “Scythian” (Saka-Sina).
-Alakshandra (Sanskrit) → Qin Shi Huang (Chinese): The “-shandra” morpheme appears in “Shi Huang,” meaning “First Guardian.”. Qin was founded by Alexander, it starts right exactly around the Greco-Bactrian city states era in Central Asia, it was started by people coming from the West right exactly bordering Central Asia during Greco-Bactrian rule, DA-QIN meaning BIG OR GREATER QIN as a word name term was used to refer to the Roman empire during the “Han dynasty” that came after Qin dynasty which means the QIN people had to have been Greco-Bactrian Seleucids since they equated with Roman type people and they came from the farthest West direction. Greek style coins and statues have been found from this time period, and the terracotta army was built by Greeks from Central Asia [^18], to this day the Chinese currency which came about formally during Qin dynasty era is called a YUAN which is another name for YON-IONIAN Greeks etc.
+Alakshandra (Sanskrit) → Qin Shi Huang (Chinese): The “-shandra” morpheme appears in “Shi Huang,” meaning “First Guardian.”. Qin was founded by Alexander, it starts right exactly around the Greco-Bactrian city states era in Central Asia, it was started by people coming from the West right exactly bordering Central Asia during Greco-Bactrian rule, DA-QIN meaning BIG OR GREATER QIN as a word name term was used to refer to the Roman empire during the “Han dynasty” that came after Qin dynasty which means the QIN people had to have been Greco-Bactrian Seleucids since they equated with Roman type people and they came from the farthest West direction. Greek style coins and statues have been found from this time period, and the terracotta army was built by Greeks from Central Asia [^19], to this day the Chinese currency which came about formally during Qin dynasty era is called a YUAN which is another name for YON-IONIAN Greeks etc.
 
 China had no chronology until the Jesuits came to the Emperor’s court. Their oldest “ancient” records date from this period. Stone inscriptions and bronze engravings and a few bamboo slips survive from older times, but they were never arranged into a consistent chronology. If you read the Bellum Tartaricum, a pre-edit Jesuit source, it gives a very different chronology as well as info about the white Slav-like race known as the Tartarians, their rulers and their wars with China.
 
@@ -1222,7 +1222,7 @@ The modern “Han Chinese” are not infact “Chinese” (“Chinese” is an i
 
 Genetic studies show the Yangshao culture (5000 BC) had 90% European DNA (Haplogroup R1a). The modern Han are Miao who migrated from Vietnam after the Mongol invasions.
 
-The An Lushan rebellion was an ethnic war, mongoloids vs caucasoids which resulted the slaughter of millions of caucasians [^18]. The Xianbei were mongoloids and helped rape and sexually enslave Indo Europeans in China in the An Lushan rebellion. Goguryeo Korean general Gao Juren in the Tang dynasty committed genocide and rape against An Lushan’s community after defeating An Lushan at his headquarters in Fanyang (Beijing).
+The An Lushan rebellion was an ethnic war, mongoloids vs caucasoids which resulted the slaughter of millions of caucasians [^20]. The Xianbei were mongoloids and helped rape and sexually enslave Indo Europeans in China in the An Lushan rebellion. Goguryeo Korean general Gao Juren in the Tang dynasty committed genocide and rape against An Lushan’s community after defeating An Lushan at his headquarters in Fanyang (Beijing).
 
 Similarly, Ran Min slaughtered and committed genocide on the entire Caucasian Jie people who were native to Chin, and the Manchus had the Central Asian Indo-European children castrated. 
 
@@ -1534,9 +1534,11 @@ https://unz.com/article/how-fake-is-church-history by Laurent Guyénot
     https://henrydavis-cc.medium.com/the-royal-ancestry-of-the-roman-emperor-vespasian-72e144335299.
     [[link](https://henrydavis-cc.medium.com/the-royal-ancestry-of-the-roman-emperor-vespasian-72e144335299)]
 
-[^15]: Attila The Hun was actually Priscus Attalus, the Roman governor who led a revolt against Rome.
+[^15]: https://en.wikipedia.org/wiki/The_Secrets_of_Rabbi_Simon_ben_Yohai
 
-[^16]: https://en.wikipedia.org/wiki/Claudius%27_expulsion_of_Jews_from_Rome
+[^16]: Attila The Hun was actually Priscus Attalus, the Roman governor who led a revolt against Rome.
+
+[^17]: https://en.wikipedia.org/wiki/Claudius%27_expulsion_of_Jews_from_Rome
     ---https://en.wikipedia.org/wiki/Sabazios#Jewish_connection
     ---Emperor Caligula Brought an End to the Illustrious Ptolemies, but
     Why?. Ancient Origins Reconstructing the Story of Humanity's Past.
@@ -1546,13 +1548,13 @@ https://unz.com/article/how-fake-is-church-history by Laurent Guyénot
     Why?. Ancient Origins Reconstructing the Story of Humanity's Past.
     www.ancient-origins.net/history-famous-people/emperor-caligula-brought-end-illustrious-ptolemies-why-007591
 
-[^17]: Gmirkin, Russell (2016). Plato and the Creation of the Hebrew
+[^18]: Gmirkin, Russell (2016). Plato and the Creation of the Hebrew
     Bible.
 
-[^18]: <a href="https://www.smithsonianmag.com/smart-news/did-greeks-help-sculpt-chinas-terracotta-warriors-180960771/">https://www.smithsonianmag.com/smart-news/did-greeks-help-sculpt-chinas-terracotta-warriors-180960771/</a>\ 
+[^19]: <a href="https://www.smithsonianmag.com/smart-news/did-greeks-help-sculpt-chinas-terracotta-warriors-180960771/">https://www.smithsonianmag.com/smart-news/did-greeks-help-sculpt-chinas-terracotta-warriors-180960771/</a>\ 
      -<a href="https://www.independent.co.uk/news/science/china-terracotta-army-ancient-greek-sculptors-alexander-the-great-marco-polo-a7357606.html">https://www.independent.co.uk/news/science/china-terracotta-army-ancient-greek-sculptors-alexander-the-great-marco-polo-a7357606.html</a> \
      -<a href="https://www.theguardian.com/science/2016/oct/12/ancient-greeks-may-have-inspired-china-terracotta-army-sculptors-ancient-dna">https://www.theguardian.com/science/2016/oct/12/ancient-greeks-may-have-inspired-china-terracotta-army-sculptors-ancient-dna</a> \
      -<a href="https://www.history.com/news/greeks-may-have-influenced-chinas-terra-cotta-army">https://www.history.com/news/greeks-may-have-influenced-chinas-terra-cotta-army</a>\
      -<a href="https://en.wikipedia.org/wiki/Terracotta_Army">https://en.wikipedia.org/wiki/Terracotta_Army</a>
 
-[^18]: https://desuarchive.org/his/thread/10105977/
+[^20]: https://desuarchive.org/his/thread/10105977/
