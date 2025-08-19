@@ -13,7 +13,7 @@ The Dark Side of Christendom: Atrocities, Genocide, and the Cost of Faith
 **Introduction: The Cost of Christian Triumph**  
 > *"In the entire New Testament, there is only one person worth respecting; Pilate, the roman governor."* —Friedrich Nietzsche. The Antichrist, 1888  
 
-Christianity’s ascent was no divine miracle but a historical catastrophe that accelerated Rome’s collapse, plunged Europe into centuries of repression, and justified genocide in the name of God.
+Christianity’s ascent was no divine miracle but a historical catastrophe that accelerated Rome’s collapse, plunged Europe into centuries of repression, and justified genocide in the name of God (1).
 
 Christianity’s bloody history stems from a mix of ideological, structural, and historical factors that amplified its capacity for violence. Here’s a direct breakdown of what drove it.
 
@@ -138,7 +138,7 @@ These factors—monotheism’s exclusivity, sin’s demonization of dissent, div
  **Chapter 7: The Catholic Church Sexual Abuse Crisis – A Modern Atrocity**  
 
  **Global Scope of Abuse**  
-The Catholic Church’s sexual abuse scandals, spanning the 20th–21st centuries, reveal systemic predation and cover-ups across continents (*Catholic Church Sexual Abuse Cases*).  
+The Catholic Church’s sexual abuse scandals (2), spanning the 20th–21st centuries, reveal systemic predation and cover-ups across continents (*Catholic Church Sexual Abuse Cases*).  
 - **United States:** Over **6,000 priests** accused of abusing **15,000+ children** (1940s–2000s), with the **Boston Archdiocese** (2002) exposing systemic cover-ups (*Boston Globe, Spotlight Investigation*).  
 - **Ireland:** The **Ferns Report** (2005) and **Dublin Archdiocese** scandals documented **hundreds of victims** abused by priests, with bishops shielding predators (*Murphy Report*).  
 - **Australia:** A **Royal Commission** (2017) found 7% of Catholic priests abused children, affecting **4,000+ victims** (*Catholic Sexual Abuse Scandal in Australia*).  
@@ -212,14 +212,15 @@ Christianity’s legacy is not just faith—it is empires toppled, knowledge era
 - **Baltic Crusade Sites:** Skeletons with Teutonic arrowheads (*Prussian Archaeological Surveys*).  
 - **Kamloops, Canada (2021):** **215 child graves** detected via radar (*Truth and Reconciliation Commission*).  
 
-Read more:
+**Footnotes**
 
-https://en.wikipedia.org/wiki/Christianity_and_violence\
+[1] https://en.wikipedia.org/wiki/Christianity_and_violence\
 https://en.wikipedia.org/wiki/Christian_terrorism\
 https://en.wikipedia.org/wiki/Category:Christianity_and_violence\
 https://en.wikipedia.org/wiki/Persecution_of_pagans_in_the_late_Roman_Empire\
 https://en.wikipedia.org/wiki/Persecution_of_pagans_under_Theodosius_I\
-https://en.wikipedia.org/wiki/Catholic_Church_sexual_abuse_cases\
+
+[2] https://en.wikipedia.org/wiki/Catholic_Church_sexual_abuse_cases\
 https://en.wikipedia.org/wiki/Catholic_Church_sex_abuse_cases_in_the_United_States\
 https://en.wikipedia.org/wiki/Catholic_Church_sexual_abuse_cases\
 https://en.wikipedia.org/wiki/Catholic_sexual_abuse_scandal_in_Canada\
