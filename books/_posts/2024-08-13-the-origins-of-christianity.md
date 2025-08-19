@@ -54,6 +54,7 @@ Introduction\
 8 Flavian Dynasty\
 9 Esus the Celtic Deity\
 10 Subversion of the Imperial Cult\
+10.1 Islam\
 Conclusion\
 Appendix A: Alexander the Great\
 Appendix B: Scythians in China\
@@ -1053,22 +1054,24 @@ as a leader from the land of Magog in the north, who will gather a
 coalition of nations to attack Israel, but will be defeated by God in a
 great battle.
 
+10.1 Islam
+
+At the same time these rabbi's created Christianity they created Islam.
+
+In the book 'Hagarism: The Making of the Islamic World' (1977) by Patricia Crone and Michael Cook they trace the origins of Islam to 'The Secrets of Shimon bar Yochai'. They theorize that Islam was started as a psy-op to weaponize the Arabs to attack the Byzantine empire (eastern Rome) to free judea. 
+
+Rabbi Akiva's student Shimon bar Yohai aka Simon Peter (Shimon bar Yonah) wrote that his "secrets" were revealed to him when he was hiding in a cave on account of the persecutions of Caesar king of Edom (Rome). His "secrets" were his blueprint for the destruction of Rome (Esau/Edom) and all western "gyrwn" (Aramic form of goyim) through using Ishmael (Arabs) and "four-arms" (Indians).
+
+According to his prophecy, after "Ishmael" weakens Edom (Rome) and then "dies a noble death", the jews would import millions of "four-arms" ("Chaturbhuja" in Sanskri means "four-armed" and many Hindu deities are depicted with four-arms, including Vishnu) to dilute the Roman population and finish the job.
+
+In Jerusalem Talmud Kiddushin, Rabbi Shimon bar Yochai stated: "Kill the best of Gentiles, smash the head of the best of snakes". He was the biggest proponent of the belief that Rome was Edom.
+
+King Izates of Monobazus's (Isa in the Quran) son was named 'Zamaris' (Zamaris the Babylonian jew?) and Zamaris has the same meaning as Muhammad. Allah and Muhammad the red-headed warlord were parodies of Attila the Hun and his uncle Ruglia waging war against Rome (Edom) because they wanted the Arabs to attack eastern Rome. So, did Rabbi Simon ben Yohai do a bait-and-switch and instead turned judaism in a group strategy while turning the Adiabene imperial cult into Islam to weaponize the Arabs? It is impossible to get people to abandon their religions for a new one, so he created a sect of one of the popular religions at the time and infused the trojan horse ideology into it.
+
 So, Talmudic jews who were hiding out in the Himyarite Kingdom after
 Emperor Hadrian kicked them out of judea basically just cut-and-pasted
-from one of the Bosphoran/Roman imperial cults of the time and infused a
-slave morality into it. Getting people to abandon their religons for a
-new one is an almost impossible task, so instead, through religious
-syncretism and intertextuality, creating a new sect of an established
-religion makes it easier for a population to adapt. Julius Caesar aka
-Asander of Bosphorus or one of his successors in the Bosphoran imperial
-cult (King Izates Monobazus or Tiberius Julius Sauromates II) was
-replaced with Simon bar Kokhba. This became modern Christianity.
-
-The goal was obviously to turn the imperial cult into a
-slave-morality/proto-Marxism to subvert the population, make them
-worship a jew, and to give jews financial and legal control (Talmudic
-law) over the empire.
-
+from one of the Bosphoran/Adiabene/Roman imperial cults of the time and created two sects: Christianity as a
+slave morality/proto-Bolshavism for the Romans and Islam as a warrior morality to weaponize the Arabs to attack Rome.
 This conspiracy was so sophisticated that not only did they rewrite the
 imperial cult, but they rewrote history to align with their psy-op.
 Josephus's (Tiberius Julius Alexander aka Emperor Nerva) works were
@@ -1076,10 +1079,7 @@ rewritten by Rabbi Akiva's students under the alias Hegesippus. The book
 'The Antiquities of the Jews' then became a pseudo-epigraphical work (of
 propaganda) that was backdated to make christianity look legitimate in
 the same way that the 'Letter of Aristeas' was backdated to exaggerate
-the age of the Septuagint. I would even hazard a guess that this group
-was responsible for burining down the Library of Alexandria which
-resulted in the loss of all recorded history up until that point so that
-they could cover up the tracks of their psy-op religion.
+the age of the Septuagint. 
 
 Endnotes (Chapter 10)
 
@@ -1548,9 +1548,9 @@ https://unz.com/article/how-fake-is-church-history by Laurent Guyénot
     Bible.
 
 [^17]: <a href="https://www.smithsonianmag.com/smart-news/did-greeks-help-sculpt-chinas-terracotta-warriors-180960771/">https://www.smithsonianmag.com/smart-news/did-greeks-help-sculpt-chinas-terracotta-warriors-180960771/</a>\ 
--<a href="https://www.independent.co.uk/news/science/china-terracotta-army-ancient-greek-sculptors-alexander-the-great-marco-polo-a7357606.html">https://www.independent.co.uk/news/science/china-terracotta-army-ancient-greek-sculptors-alexander-the-great-marco-polo-a7357606.html</a> \
--<a href="https://www.theguardian.com/science/2016/oct/12/ancient-greeks-may-have-inspired-china-terracotta-army-sculptors-ancient-dna">https://www.theguardian.com/science/2016/oct/12/ancient-greeks-may-have-inspired-china-terracotta-army-sculptors-ancient-dna</a> \
--<a href="https://www.history.com/news/greeks-may-have-influenced-chinas-terra-cotta-army">https://www.history.com/news/greeks-may-have-influenced-chinas-terra-cotta-army</a>\
--<a href="https://en.wikipedia.org/wiki/Terracotta_Army">https://en.wikipedia.org/wiki/Terracotta_Army</a>
+     -<a href="https://www.independent.co.uk/news/science/china-terracotta-army-ancient-greek-sculptors-alexander-the-great-marco-polo-a7357606.html">https://www.independent.co.uk/news/science/china-terracotta-army-ancient-greek-sculptors-alexander-the-great-marco-polo-a7357606.html</a> \
+     -<a href="https://www.theguardian.com/science/2016/oct/12/ancient-greeks-may-have-inspired-china-terracotta-army-sculptors-ancient-dna">https://www.theguardian.com/science/2016/oct/12/ancient-greeks-may-have-inspired-china-terracotta-army-sculptors-ancient-dna</a> \
+     -<a href="https://www.history.com/news/greeks-may-have-influenced-chinas-terra-cotta-army">https://www.history.com/news/greeks-may-have-influenced-chinas-terra-cotta-army</a>\
+     -<a href="https://en.wikipedia.org/wiki/Terracotta_Army">https://en.wikipedia.org/wiki/Terracotta_Army</a>
 
 [^18]: https://desuarchive.org/his/thread/10105977/
