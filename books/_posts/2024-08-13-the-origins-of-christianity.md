@@ -10,32 +10,18 @@ category: books
 
 **By Ralph Perrier**  
 
----
 
-**Copyright © 2025 Ralph Perrier**  
-
-All rights reserved. No part of this publication may be reproduced, distributed, or transmitted in any form or by any means, including photocopying, recording, or other electronic or mechanical methods, without the prior written permission of the publisher, except in the case of brief quotations embodied in critical reviews and certain other noncommercial uses permitted by copyright law.
-
-For permission requests, contact the author at hereticalbooks.com
-
+Copyright © 2025 Ralph Perrier\
+All rights reserved. No part of this publication may be reproduced or transmitted in any form without written permission from the publisher, except for brief quotations in reviews or scholarly works.
+For permissions, contact: hereticalbooks.com\
 First Edition: 2025\
 ISBN: 978-1-0696862-0-6 \
 Library of Congress Control Number: 2025917902\
 Published by Heretical Books
 
----
-
-**Keywords** 
-
-*Sarmatian Dragon Cult, Aži Dahāka, Bible Origins, Scythian Elites, Ancient Religion Origins, Religious Syncretism, Julius Caesar Aliases, Cleopatra Revisionist History, Bosphorus Kingdom Secrets, Scythian Religious Practices, Mithraism Origins*
-
----
-
 **Epigraph**  
 
 *And the Lord sent fiery serpents among the people, and they bit the people; and much people of Israel died … And the Lord said unto Moses, make thee a fiery serpent, and set it upon a pole: and it shall come to pass, that every one that is bitten, when he looketh upon it, shall live. And Moses made a serpent of brass, and put it upon a pole, and it came to pass, that if a serpent had bitten any man, when he beheld the serpent of brass, he lived.* - Numbers 21:9 (The "serpents" in this passage are identified as Scythians in later analysis.)
-
----
 
 **Table of Contents**
 
