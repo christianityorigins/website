@@ -33,7 +33,7 @@ Published by Heretical Books
 
 **Epigraph**  
 
-*And the Lord sent fiery serpents among the people, and they bit the people; and much people of Israel died … And the Lord said unto Moses, make thee a fiery serpent, and set it upon a pole: and it shall come to pass, that every one that is bitten, when he looketh upon it, shall live. And Moses made a serpent of brass, and put it upon a pole, and it came to pass, that if a serpent had bitten any man, when he beheld the serpent of brass, he lived.* - Numbers 21:9 (The “serpents” in this passage are identified as Scythians in later analysis.)
+*And the Lord sent fiery serpents among the people, and they bit the people; and much people of Israel died … And the Lord said unto Moses, make thee a fiery serpent, and set it upon a pole: and it shall come to pass, that every one that is bitten, when he looketh upon it, shall live. And Moses made a serpent of brass, and put it upon a pole, and it came to pass, that if a serpent had bitten any man, when he beheld the serpent of brass, he lived.* - Numbers 21:9 (The "serpents" in this passage are identified as Scythians in later analysis.)
 
 ---
 
@@ -63,7 +63,7 @@ Christianity is a derivative of one of the religions that were invented at the A
 
 All these religions were psychological and political tools that were created to target regional populations in the empire and were designed to subvert their regional religions in a syncretic manner, through the creation of centralized texts and priesthoods, embedding moral codes like submission, self-sacrifice, obedience, loyalty, and divine judgment, and aiming to lead the population toward monotheism and gradually toward a universal imperial cult. These religions were also likely designed to segment the populations by class, culture, and region to prevent unified resistance. For example, Mithraism was for military elites (requiring blood oaths, with a Mithraic initiate caste system and hierarchical structure). Serapism was for civilians (promising afterlife salvation). Christianity was for slaves ("turn the other cheek").
 
-Christianity likely arose as a synthesis of the Serapis Cult, rebranded to serve one of the later Roman (Bosphoran) imperial cults which was later subverted by a group of Rabbis who were headed by a rabbi named Akiva sometime after the Bar Kokhba Revolt. Jesus in the bible was a cipher, or an avatar, originally for members of the Bosphoran royal family. Asander, king of Bosphorus (Julius Caesars real identity) took on this role, so did his son Aspurgus, king of Bosphorus aka Amyntas ("Amon-Tas". "Hidden
+Christianity was created in phases, the first phase as a synthesis of the Serapis Cult rebranded to serve one of the later Roman (Bosphoran) imperial cults, and then later this imperial cult was subverted by a group of Rabbis who were headed by a rabbi named Akiva sometime after the Bar Kokhba Revolt. Jesus in the bible was a cipher, or an avatar, originally for members of the Bosphoran royal family. Asander, king of Bosphorus (Julius Caesars real identity) took on this role, so did his son Aspurgus, king of Bosphorus aka Amyntas ("Amon-Tas". "Hidden
 Lord", linking to Amun-Ra - with "Amen"(tas) at the root) Nikator aka
 Amyntas of Galatia aka Jesus ben Fabus aka Isa Amen (Jesus was named
 "Amen" in Rev. iii. 14) aka Caesarion, and his later descendants Izates II, king of Adiabene ("Iza" = Avestan root for "serpent" (cognate with Scythian Aži) + "-tes" = "given by," as in Mithradates = "Given by Mithra". This is cognate with the Scythian (and broader Iranian) mythological figure Aži Dahāka (Avestan) or Azhi Dahak (Middle Persian)), and Tiberius Julius Sauromates II, also took on the role. After Rabbi Akiva Jesus then became Simon Bar Kokhba.
@@ -1055,15 +1055,15 @@ great battle.
 
 At the same time these rabbi's created Christianity they created Islam.
 
-In the book 'Hagarism: The Making of the Islamic World' (1977) by Patricia Crone and Michael Cook they trace the origins of Islam to 'The Secrets of Shimon bar Yochai' [^15]. They theorize that Islam was started as a psy-op to weaponize the Arabs to attack the Byzantine empire (eastern Rome) to free judea. 
+In the book 'Hagarism: The Making of the Islamic World' (1977) by Patricia Crone and Michael Cook they trace the origins of Islam to 'The Secrets of Shimon bar Yochai' [^15] which is a record of the "divine visions" of the 2nd-century rabbi, Simon ben Yohai aka Simon Peter (Shimon bar Yonah) who was a student of rabbi Akiva, to his students. They theorize that Islam was started as a psy-op to weaponize the Arabs to attack the Byzantine empire (eastern Rome) to free judea. 
 
-Rabbi Akiva's student Shimon bar Yohai aka Simon Peter (Shimon bar Yonah) wrote that his "secrets" were revealed to him when he was hiding in a cave on account of the persecutions of Caesar king of Edom (Rome). His "secrets" were his blueprint for the destruction of Rome (Esau/Edom) and all western "gyrwn" (Aramic form of goyim) through using Ishmael (Arabs) and "four-arms" (Indians).
+Shimon bar Yohai wrote that his "secrets" were revealed to him when he was hiding in a cave on account of the persecutions of Caesar king of Edom (Rome). His secrets were his blueprint for the destruction of Rome (Esau/Edom) and all western "gyrwn" (Aramic form of goyim) through using "Ishmael" (Arabs) and "four-arms" (Indians).
 
-According to his prophecy, after "Ishmael" weakens Edom (Rome) and then "dies a noble death", the jews would import millions of "four-arms" ("Chaturbhuja" in Sanskri means "four-armed" and many Hindu deities are depicted with four-arms, including Vishnu) to dilute the Roman population and finish the job.
+According to his prophecy, after Ishmael weakens Edom (Rome) and then "dies a noble death", the jews would import millions of four-arms ("Chaturbhuja" in Sanskri means "four-armed" and many Hindu deities are depicted with four-arms, including Vishnu) to dilute the Roman population and finish the job.
 
 In Jerusalem Talmud Kiddushin, Rabbi Shimon bar Yochai stated: "Kill the best of Gentiles, smash the head of the best of snakes". He was the biggest proponent of the belief that Rome was Edom.
 
-King Izates of Monobazus's (Isa in the Quran) son was named 'Zamaris' (Zamaris the Babylonian jew?) and Zamaris has the same meaning as Muhammad. Allah and Muhammad the red-headed warlord were parodies of Attila the Hun [^16] and his uncle Ruglia waging war against Rome (Edom) because they wanted the Arabs to attack eastern Rome. 
+King Izates of Monobazus's (Isa in the Quran) son was named Zamaris (Zamaris the Babylonian jew?) and Zamaris has the same meaning as Muhammad. Allah and Muhammad the red-headed warlord were parodies of Attila the Hun [^16] and his uncle Ruglia waging war against Rome (Edom) because they wanted the Arabs to attack eastern Rome. 
 
 So, Talmudic jews who were hiding out in the Himyarite Kingdom after
 Emperor Hadrian kicked them out of judea basically just cut-and-pasted
