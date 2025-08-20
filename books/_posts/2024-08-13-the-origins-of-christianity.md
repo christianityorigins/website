@@ -18,11 +18,9 @@ All rights reserved. No part of this publication may be reproduced, distributed,
 
 For permission requests, contact the author at hereticalbooks.com
 
-This book presents a revisionist historical perspective based on archaeological, textual, and etymological evidence. Reader discretion is advised—this is not traditional historiography.
-
 First Edition: 2025\
 ISBN: 978-1-0696862-0-6 \
-Library of Congress Control Number: \
+Library of Congress Control Number: 2025917902\
 Published by Heretical Books
 
 ---
@@ -35,8 +33,7 @@ Published by Heretical Books
 
 **Epigraph**  
 
-*And the Lord sent fiery serpents among the people, and they bit the people; and much people of Israel died ... And the Lord said unto Moses, make thee a fiery serpent, and set it upon a pole: and it shall come to pass, that every one that is bitten, when he looketh upon it, shall live. And Moses made a serpent of brass, and put it upon a pole, and it came to pass, that if a serpent had bitten any man, when he beheld the serpent of brass, he lived.* -
-Numbers 21:9 (The "serpents" in this passage are identified as Scythians in later analysis.)
+*I condemn Christianity, I bring against the Christian Church the most terrible charge any prosecutor has ever uttered. To me it is the extremest thinkable form of corruption [. . .] The Christian Church has left nothing untouched by its depravity, it has made of every value a disvalue, of every truth a lie, of every kind of integrity a vileness of soul. People still dare talk to me of its 'humanitarian' blessings! [. . .] These are the blessings of Christianity! Parasitism as the sole practice of the church . . . of 'holiness' draining away all blood, all love, all hope for life; the Beyond as the will to deny reality of every kind; the Cross as a badge of recognition for the most subterranean conspiracy there has ever been — a conspiracy against health, beauty, well-constitutedness, bravery, intellect, benevolence of soul, against life itself . . . Wherever there are walls I shall inscribe this eternal accusation against Christianity upon them — I can write in letters which make even the blind see . . . call Christianity the one great curse, the one great intrinsic depravity, the one great instinct for revenge for which no expedient is sufficiently poisonous, secret, subterranean, petty — I call it the one immortal blemish of mankind* - Friedrich Nietzsche. The Antichrist, Section 62.
 
 ---
 
