@@ -41,7 +41,7 @@ In cosmotheist religions, rituals are about bringing someone to self-realization
 
 Addendum
 
-This is just a simple explanatory framework the of this religion. In a collective sense, traditions, shared identity, and group strategy/goals are built over this core. You can read more about this here:
+This is just a simple explanatory framework of this religion. In a collective sense, traditions, shared identity, and group strategy/goals are built over this core. You can read more about this here:
 
 https://en.metapedia.org/wiki/Cosmotheism <a href="https://en.metapedia.org/wiki/Cosmotheism" target="_blank">[link]</a> \
 https://en.metapedia.org/wiki/Category:Cosmotheist_lectures <a href="https://en.metapedia.org/wiki/Category:Cosmotheist_lectures" target="_blank">[link]</a>
