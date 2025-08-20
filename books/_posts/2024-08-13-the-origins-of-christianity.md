@@ -33,7 +33,7 @@ Published by Heretical Books
 
 **Epigraph**  
 
-*I condemn Christianity, I bring against the Christian Church the most terrible charge any prosecutor has ever uttered. To me it is the extremest thinkable form of corruption [. . .] The Christian Church has left nothing untouched by its depravity, it has made of every value a disvalue, of every truth a lie, of every kind of integrity a vileness of soul. People still dare talk to me of its 'humanitarian' blessings! [. . .] These are the blessings of Christianity! Parasitism as the sole practice of the church . . . of 'holiness' draining away all blood, all love, all hope for life; the Beyond as the will to deny reality of every kind; the Cross as a badge of recognition for the most subterranean conspiracy there has ever been — a conspiracy against health, beauty, well-constitutedness, bravery, intellect, benevolence of soul, against life itself . . . Wherever there are walls I shall inscribe this eternal accusation against Christianity upon them — I can write in letters which make even the blind see . . . call Christianity the one great curse, the one great intrinsic depravity, the one great instinct for revenge for which no expedient is sufficiently poisonous, secret, subterranean, petty — I call it the one immortal blemish of mankind* - Friedrich Nietzsche. The Antichrist, Section 62.
+*And the Lord sent fiery serpents among the people, and they bit the people; and much people of Israel died … And the Lord said unto Moses, make thee a fiery serpent, and set it upon a pole: and it shall come to pass, that every one that is bitten, when he looketh upon it, shall live. And Moses made a serpent of brass, and put it upon a pole, and it came to pass, that if a serpent had bitten any man, when he beheld the serpent of brass, he lived.* - Numbers 21:9 (The “serpents” in this passage are identified as Scythians in later analysis.)
 
 ---
 
@@ -81,7 +81,7 @@ etc., were all under the suzerainty of Aryan Iranian-Scythian elites
 since at least the 17th century BC and their base of operation was on the Bosphorus river.
 
 -Western Rome in Italy is a phantom empire that was invented by the Vatican. Western Rome was built during the Renaissance period. The original Rome (in Sarmatian, "Ruma" (Rome) = "Place of the Dragon" (Rhu-Ma, from Aži Dahāka, the Iranian dragon)) was located on the Bosphorus.
-    
+
 -Asander, king of Bosphorus aka Julius Caesar was also Ptolemy XI Alexander II, Cleopatra's uncle, but he took on numerous
 other regional aliases. Cleopatra was also Dynamis, queen of Bosphorus. Mark
 Antony the Neos-Dionysos was either Ptolemy of Cyprus, a brother of
@@ -337,7 +337,7 @@ Footnotes (Chapter 3)
     Scythian steppe warriors hegemony, but the biggest cause was a
     cannabis cult that stripped them of their martial spirit
     (https://en.wikipedia.org/wiki/Enaree). Marijuanna turned them from
-    fearless warriors into potheads who were led by transgender priests.
+    fearless warriors into potheads who were led by transgender priests.\
 (b) Azhdahak, which is the Armenian form of the name of the Avestan Azhi Dahaka, was associated with the Median king Astyages (r. 564–550 BC) https://en.wikipedia.org/wiki/Azhdahak_(mythology)   
 (c) Quetzalcōātl, the Mesoamerican serpent deity, shares uncanny similarities to Aži Dahāka which suggests a transoceanic exchange of religious ideas long before Columbus (the Jade Mask of Calakmul (7th century CE) also depicts a Caucasian-featured ruler with a serpent headdress—resembling Scythian dragon crowns).
 
@@ -914,9 +914,9 @@ Endnotes (Chapter 8)
     which was a syncretic a slave-morality religion to subjugate the
     Parthians. Mithras is inspired by Zoroastrianism, the religion of
     the Persians/Parthians, but Mithras is the same as Sabazios. It's a
-    solar son deity, a Jupiter.
+    solar son deity, a Jupiter.\
 (b) Coin of Vespasian depicitng "Zeus-Sarapis":
-    https://www.coinarchives.com/a/lotviewer.php?LotID=2528933&AucID=6356&Lot=485&Val=e5e4db7aa704d656893926a33a970991
+    https://www.coinarchives.com/a/lotviewer.php?LotID=2528933&AucID=6356&Lot=485&Val=e5e4db7aa704d656893926a33a970991\
 (c) Hebrew Wordplay: Vespasian -> V'Esav Pan (ועשו פן) -> "And Esau's
     Face" (Talmudic insult linking him to Edom).
 
@@ -1083,7 +1083,7 @@ Endnotes (Chapter 10)
 (a) Marcion of Sinope aka Markianos of Alexandria grew up in the
     Attis-Sabazios cult on Anatolia before traveling to Judea to study
     under rabbi Akiva and finally to Alexandria at the Alexandrian
-    School.
+    School.\
 (b) There was a Marcus who founded the Marcosian Gnostic sect. He was a
     teacher of Bishop Irenaeus and a friend of Clement of Alexandria.
     Was he also Marcion of Sinope aka Markianos of Alexandria?
@@ -1096,7 +1096,7 @@ Endnotes (Chapter 10)
     Sinope, Marcus the Marcosian. Mark of Apollonias, John Mark, Mark
     the cousin of Barnabas, and Mark the Apostle are considered to be
     the same person by historians, so it is conceivable that all these
-    "Marks" were the same person.
+    "Marks" were the same person.\
 (c) In 41 A.D Emperor Claudius sent a letter of warning to the Jews in
     Egypt (preserved in a papyrus now in the British Museum, R Lond.
     1912), where he described them as "the fomenters of a universal
@@ -1111,7 +1111,7 @@ Endnotes (Chapter 10)
     Valerius Maximus, in his work 'Facta ac dicta memorabilia', mentions
     the expulsion of Jews from Rome in 139 BCE by the praetor peregrinus
     Cn. Cornelius Hispalus for attempting to currupt the cult of
-    Jupiter.[^17]
+    Jupiter.[^17]\
 (d) Quintus Tineius Sacerdos, the brother of Quintus Tinnius Rufus, was
     the governor of Pontus in Anatolia, so the family likely derived
     from there. Pilate means the temperament of a warrior I.e., famously
