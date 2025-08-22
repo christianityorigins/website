@@ -48,8 +48,9 @@ Chapter 9.4: Horus the Egyptian Deity\
 Chapter 9.5: Dionysus\
 Chapter 9.6: Attis\
 Chapter 9.7: Esus the Celtic Deity\
+Part 6: Rewriting History\
 Chapter 10: Who Forged History?\
-Part 6. Repackaging of the Imperial Cult\
+Part 7. Repackaging of the Imperial Cult\
 Chapter 11: Repackaging of the Imperial Cult\
 Chapter 11.1: The Cult of Antinous\
 Chapter 11.2: Subversion of the Imperial Cult by Rabbi Akiva and His Students\
