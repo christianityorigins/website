@@ -36,8 +36,9 @@ Introduction\
 7 Rome on the Bosphorus?\
 8 Flavian Dynasty\
 9 Esus the Celtic Deity\
-10 Subversion of the Imperial Cult\
-10.1 Islam\
+10 Who Forged History?\
+11 Subversion of the Imperial Cult\
+12.1 Islam\
 Conclusion\
 Appendix A: Alexander the Great\
 Appendix B: Scythians in China\
@@ -787,17 +788,6 @@ substantial part of Byzantine coinage from two millennia ago boasts
 inscriptions in Latin and not in Greek, including the Asander of
 Bosphorus coin above.
 
-The creation of the Papacy during the elevation of Charlemagne was likely when the myth of a "Roman empire" began. The renaissance finished the fabrication of history. This was all to secretly make Rome into a Carian empire. It was an Aryan and Thracian proxy state of the Scythins who were based out of the Boshorus. The Bosphorus was always its capital. Latin was the original language of the Dacians and it was high-noble Aryan; German mixed the middle language (proto Latin) with degenerated old Gothic.
-
-Emperor Theodosius, Pope Theophilus I of Alexandria, and Jerome also played a big role in the deception. The mainstream claim is that the Library of Alexandria was destroyed by Julius Caesar (48 BC) or Muslim conquest (642 AD). The truth is that the final and most devastating burn was ordered by Emperor Theodosius and Pope Theophilus I of Alexandria in 391 AD to erase Serapis cult texts that exposed Christianity’s origins. Proof: The Nag Hammadi Library (1945) contained Gnostic texts that matched Serapis theology—proving a cover-up, and the "Letter of Hadrian to Servianus" (found in Vindobonensis manuscript) admits: "Those who worship Serapis are Christians… devotees of Serapis call themselves bishops of Christ."
-
-Pope Theophilus I of Alexandria also destroyed the Serapeum in Alexandria (referred to as the daughter of the Library of Alexandria) in 391 AD. Serapis statues were recarved into "St. Peter".
-
-Then the Vatican later made up the "Council of Nicaea". It never happened. There is no contemporary records that exist of the Council of Nicaea (325 AD). The Council of Nicaea mirrors the Mithraic Congress of 307 AD where Emperor Galerius declared Sol Invictus the official god of Rome. Constantine’s "conversion" was fabricated. He remained a Sol Invictus sun-worshipper until death—his coins never feature Christian symbols. His last coin (337 AD) depicts him as Sol Comitatus ("Sun Companion"), not Christ. The "Chi-Rho" symbol was a later interpolation by Eusebius, who forged Life of Constantine in the 5th century. The "Arian Controversy" was a fake debate to disguise the fact that early Christianity was a Roman imperial cult. Proof: The "Life of Constantine" by Eusebius was forged in the 5th century to retroactively justify Nicaea, and the Edict of Milan (313 AD) never mentions Jesus—only a vague "Divine Providence". Also, the Vatican's greatest forgery was the Donation of Constantine. The Vatican forged it in the 8th century to claim Rome. It was based on earlier forgeries by Eusebius (a Flavian propagandist).
-
-Most of what we know of Roman history comes from Herodotus (aka The Father of Lies), and the other half from Cassius Dio.
-
-Two other men are responsible for most of what we know about the rest of European history from the middle ages and before: Joseph Justus Scaliger who was the Jesuit who “authored” most texts historians use today (possibly had a team of scribes), and Poggio Bracciolini was the guy who collected documents for him and even forged them (there are preserved letters from Bracciolini arranging a forgery with a remote monastery).
 
 Endnotes (Chapter 7)
 
@@ -832,8 +822,6 @@ Rhoemetalces II whose reign coincided with emperor Claudius.
 
 Emperor Titus = Polemon II of Pontus who was the prince of the Bosporan,
 Pontus, Cilicia, and Cappadocia.\
-
-(b) There was a Jesuit named Jean Hardouin who said that a 14th Century conspiracy forged practically all literature traditionally believed to have been written before that era. He was the official librarian to the King of France. He published a book called the Prolegomena and it caused such controversy that the Pope and the King had him come before them and explain himself. He defended his work, and refused to retract it, so they threw him in prison.
 
 **8 Flavian Dynasty**
 
@@ -950,7 +938,25 @@ submission, etc. The fact it resembles Christianity is because it
 follows the same framework that all the other Alexandrian School
 religions do.
 
-**10 Subversion of the Imperial Cult**
+**10: Who Forged History?**
+
+The creation of the Papacy during the elevation of Charlemagne was likely when the myth of a "Roman empire" began. The renaissance finished the fabrication of history. This was all to secretly make Rome into a Carian empire. It was an Aryan and Thracian proxy state of the Scythins who were based out of the Boshorus. The Bosphorus was always its capital. Latin was the original language of the Dacians and it was high-noble Aryan; German mixed the middle language (proto Latin) with degenerated old Gothic.
+
+Emperor Theodosius, Pope Theophilus I of Alexandria, and Jerome also played a big role in the deception. The mainstream claim is that the Library of Alexandria was destroyed by Julius Caesar (48 BC) or Muslim conquest (642 AD). The truth is that the final and most devastating burn was ordered by Emperor Theodosius and Pope Theophilus I of Alexandria in 391 AD to erase Serapis cult texts that exposed Christianity’s origins. Proof: The Nag Hammadi Library (1945) contained Gnostic texts that matched Serapis theology—proving a cover-up, and the "Letter of Hadrian to Servianus" (found in Vindobonensis manuscript) admits: "Those who worship Serapis are Christians… devotees of Serapis call themselves bishops of Christ."
+
+Pope Theophilus I of Alexandria also destroyed the Serapeum in Alexandria (referred to as the daughter of the Library of Alexandria) in 391 AD. Serapis statues were recarved into "St. Peter".
+
+Then the Vatican later made up the "Council of Nicaea". It never happened. There is no contemporary records that exist of the Council of Nicaea (325 AD). The Council of Nicaea mirrors the Mithraic Congress of 307 AD where Emperor Galerius declared Sol Invictus the official god of Rome. Constantine’s "conversion" was fabricated. He remained a Sol Invictus sun-worshipper until death—his coins never feature Christian symbols. His last coin (337 AD) depicts him as Sol Comitatus ("Sun Companion"), not Christ. The "Chi-Rho" symbol was a later interpolation by Eusebius, who forged Life of Constantine in the 5th century. The "Arian Controversy" was a fake debate to disguise the fact that early Christianity was a Roman imperial cult. Proof: The "Life of Constantine" by Eusebius was forged in the 5th century to retroactively justify Nicaea, and the Edict of Milan (313 AD) never mentions Jesus—only a vague "Divine Providence". Also, the Vatican's greatest forgery was the Donation of Constantine. The Vatican forged it in the 8th century to claim Rome. It was based on earlier forgeries by Eusebius (a Flavian propagandist).
+
+Most of what we know of Roman history comes from Herodotus (aka The Father of Lies), and the other half from Cassius Dio.
+
+Two other men are responsible for most of what we know about the rest of European history from the Middle Ages and before: Joseph Justus Scaliger who was the Jesuit who “authored” most texts historians use today (possibly had a team of scribes), and Poggio Bracciolini was the guy who collected documents for him and even forged them (there are preserved letters from Bracciolini arranging a forgery with a remote monastery).
+
+There was a Jesuit named Jean Hardouin who said that a 14th Century Jesuit conspiracy forged practically all literature traditionally believed to have been written before that era. He was the official librarian to the King of France. He published a book called the Prolegomena and it caused such controversy that the Pope and the King had him come before them and explain himself. He defended his work, and refused to retract it, so they threw him in prison.
+
+Isaac Newton’s wrote a book called The Chronology Of Ancient Kingdoms Amended where he analysed the eclipses recorded in ancient times and showed that 753 years (the exact number of years between the founding of Rome, or specifically the birth of the Roman deity Romulus and the birth of Jesus was added in to the first "millennium". This would line up with the gaps of time found across European and world history, oddities like the invention of paper taking 700 years to travel across the Silk Road, or the 1st century Mexican deity Quetzalcoatl being temporarily forgotten til the 8th,
+
+**11 Subversion of the Imperial Cult**
 
 Sometime after the Bar Kokhba Revolt (132--136 CE), a group of rabbis
 that were headed by a rabbi named Akiva who led the Talmudic Pharisees
@@ -1037,7 +1043,7 @@ as a leader from the land of Magog in the north, who will gather a
 coalition of nations to attack Israel, but will be defeated by God in a
 great battle.
 
-**10.1 Islam**
+**11.1 Islam**
 
 At the same time these rabbi's created Christianity they created Islam.
 
