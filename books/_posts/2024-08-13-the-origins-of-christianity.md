@@ -35,7 +35,9 @@ Introduction\
 6 Julius Caesar was a Title   \
 7 Rome on the Bosphorus?\
 8 Flavian Dynasty\
-9 Esus the Celtic Deity\
+9 The Jesus Archtype\
+9.1 Romulus the Roman Deity\
+9.2 Esus the Celtic Deity\
 10 Who Forged History?\
 11 Subversion of the Imperial Cult\
 12.1 Islam\
@@ -894,7 +896,21 @@ Endnotes (Chapter 8)
 (c) Hebrew Wordplay: Vespasian -> V'Esav Pan (ועשו פן) -> "And Esau's
     Face" (Talmudic insult linking him to Edom).
 
-**9 Esus the Celtic Deity**
+**9 The Jesus Archtype**
+
+The Jesus archetype, as presented in Christianity, and characterized as a divine birth, a role as a savior or king, betrayal, sacrifice (often by crucifixion or a similar act), and resurrection is not a unique historical phenomenon but a syncretic construct, drawing from a recurring pattern of divine or semi-divine figures across ancient Indo-European, Scythian, and Near Eastern mythologies. 
+
+**9.1 Romulus the Roman Deity**
+
+According to Plutarch’s Life of Romulus (circa 75 CE) the Roman deity of Quirinus aka Romulus was born to a virgin, Rhea Silvia, impregnated by the god Mars, establishing his divine lineage. Hailed as a king and revered as the son of a god, Romulus founded Rome after a fratricidal conflict with his brother Remus, a narrative echoing the biblical Cain and Abel, crucified by a conniving elite and rose from the dead.
+
+![Fig.1.19](/images/Denarius_C._Memmius_C._F._Romulus.jpg){:width="400px"}
+
+Fig. 1.19. Romulus. 
+
+The Alexandrian School likely adapted the Romulus myth to serve as a prototype for later imperial cults, including Christianity. The narrative of a divine founder who sacrifices and ascends was a powerful tool for legitimizing Roman authority, much as the Jesus story would later unify disparate populations under a monotheistic framework.
+
+**9.2 Esus the Celtic Deity**
 
 The Celts in classical Galatia worshiped a deity called
 Aesus/Esus/Iesus. The Celtic name Esus is believed to be related to the
@@ -914,9 +930,9 @@ Aesus/Esus/Iesus then eventually phonetically shifted to
 I-zas/Izas/Izates.
 
 ![Fig.
-1.19](/images/Esus.jpg){:width="400px"}
+1.20](/images/Esus.jpg){:width="400px"}
 
-Fig. 1.19. Statue from classical Anatolia that is dedicated to "Esumopas
+Fig. 1.20. Statue from classical Anatolia that is dedicated to "Esumopas
 Cnusticus". Esumopas means "Slave to Esus", and Esus means lord in
 Proto-Celtic. If you combine the Etruscan word "cnus" with the suffix
 "-ticus" or "-tic-" you get a word that translates to "anointed one" or
