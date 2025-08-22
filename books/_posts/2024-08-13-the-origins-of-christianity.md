@@ -26,28 +26,34 @@ Published by Heretical Books
 **Table of Contents**
 
 Introduction\
-1 Name and Title Meanings\
-2 Ancient Alias Names List\
-3 The Sarmatian Dragon Cult\
-4 The Alexandrian School\
-4.1 Judaism\
-5 Julius Caesar aka Asander of Bosphorus\
-6 Julius Caesar was a Title   \
-7 Rome on the Bosphorus?\
-8 Flavian Dynasty\
-9 The Jesus Archtype\
-9.1 Romulus the Roman Deity\
-9.2 Serapis the Greco-Egyptian Deity\
-9.3 Mithras\
-9.4 Horus the Egyptian Deity\
-9.5 Dionysus\
-9.6 Attis\
-9.7 Esus the Celtic Deity\
-10 Who Forged History?\
-11 Repackaging of the Imperial Cult\
-11.1 The Cult of Antinous\
-11.2 Subversion of the Imperial Cult by Rabbi Akiva and His Students\
-11.3 Islam\
+Chapter 1: Name and Title Meanings\
+Chapter 2: Ancient Alias Names List\
+Part 1: Foundations of the Dragon Cult\
+Chapter 3: The Sarmatian Dragon Cult\
+Part 2: The Alexandrian Synthesis\
+Chapter 4: The Alexandrian School\
+Chapter 4.1: Judaism\
+Part 3: The Bosphoran Connection\
+Chapter 5: Julius Caesar aka Asander of Bosphorus\
+Chapter 6: Julius Caesar was a Title\
+Chapter 7: Rome on the Bosphorus?\
+Part 4: From Imperial Cult to Christianity\
+Chapter 8: Flavian Dynasty\
+Part 5. The Archetypal Savior: Blueprints for a Christ\
+Chapter 9: The Jesus Archtype\
+Chapter 9.1: Romulus the Roman Deity\
+Chapter 9.2: Serapis the Greco-Egyptian Deity\
+Chapter 9.3: Mithras\
+Chapter 9.4: Horus the Egyptian Deity\
+Chapter 9.5: Dionysus\
+Chapter 9.6: Attis\
+Chapter 9.7: Esus the Celtic Deity\
+Chapter 10: Who Forged History?\
+Part 6. Repackaging of the Imperial Cult\
+Chapter 11: Repackaging of the Imperial Cult\
+Chapter 11.1: The Cult of Antinous\
+Chapter 11.2: Subversion of the Imperial Cult by Rabbi Akiva and His Students\
+Chapter 11.3: Islam\
 Conclusion\
 Appendix A: Alexander the Great\
 Appendix B: Scythians in China\
