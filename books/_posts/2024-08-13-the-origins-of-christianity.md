@@ -37,10 +37,17 @@ Introduction\
 8 Flavian Dynasty\
 9 The Jesus Archtype\
 9.1 Romulus the Roman Deity\
-9.2 Esus the Celtic Deity\
+9.2 Serapis the Greco-Egyptian Deity\
+9.3 Mithras\
+9.4 Horus the Egyptian Deity\
+9.5 Dionysus\
+9.6 Attis\
+9.7 Esus the Celtic Deity\
 10 Who Forged History?\
-11 Subversion of the Imperial Cult\
-12.1 Islam\
+11 Repackaging of the Imperial Cult\
+11.1 The Cult of Antinous\
+11.2 Subversion of the Imperial Cult by Rabbi Akiva and His Students\
+11.3 Islam\
 Conclusion\
 Appendix A: Alexander the Great\
 Appendix B: Scythians in China\
@@ -910,24 +917,33 @@ Fig. 1.19. Romulus.
 
 The Alexandrian School likely adapted the Romulus myth to serve as a prototype for later imperial cults, including Christianity. The narrative of a divine founder who sacrifices and ascends was a powerful tool for legitimizing Roman authority, much as the Jesus story would later unify disparate populations under a monotheistic framework.
 
-**9.2 Esus the Celtic Deity**
+**9.2 Serapis the Greco-Egyptian Deity**
+
+Serapis, crafted under Ptolemy I at the Alexandrian School, fused Osiris’ resurrection with Apis’ strength, embodying the Jesus archetype through divine creation, salvation, and rebirth. Declared a god, Serapis mirrors Jesus’ divine sonship (Matthew 1:18–25), with his name (“Ser” = son) tying to “Aesar” (divine) and Scythian dragon-kings (Chapter 3). As a savior, he offered healing and afterlife promises, like Jesus (John 3:16), with serpent imagery (Fig. 1.3) reflecting Aži Dahāka. Osiris’ death-rebirth cycle parallels Jesus’ crucifixion-resurrection (Mark 15–16), and the Serapis cult’s destruction by Theophilus I (391 CE) echoes Judas’ betrayal. The “Letter of Hadrian” (Vindobonensis) links Serapis worshippers to Christians, suggesting Christianity rebranded Serapis to unify civilians under imperial monotheism.
+
+**9.3 Mithras**
+
+Mithras, a solar god shaped by the Alexandrian School for Roman military elites, parallels the Jesus archetype through divine birth, cosmic salvation, and sacrificial renewal. Born from a rock, Mithras mirrors Jesus’ virgin birth, while his tauroctony (bull-slaying) symbolizes redemption, akin to Jesus’ crucifixion (Mark 15:24). His cult’s suppression by Christian emperors reflects Jesus’ betrayal, and serpent imagery in Mithraic reliefs (CIMRM 593) ties to Scythian sun-god motifs (Chapter 3). Offering salvation through rituals like communal meals, Mithras prefigures Christian sacraments, supporting the manuscript’s claim that Christianity adapted Mithraism’s framework, redirecting its appeal from soldiers to slaves under a monotheistic imperial cult.
+
+**9.4 Horus the Egyptian Deity**
+
+Horus, the Egyptian god of kingship and son of Osiris, embodies the Jesus archetype through miraculous birth, divine victory, and resurrection, shaped by Alexandrian syncretism. Born to Isis after Osiris’ death, Horus parallels Jesus’ virgin birth (Matthew 1:18–25). As a savior, he defeated Set, akin to Jesus’ triumph over evil, with the Uraeus serpent linking to Scythian motifs (Fig. 1.6). His eye, torn out and restored, mirrors Jesus’ sacrificial death and resurrection (Mark 15–16), while Set’s betrayal of Osiris echoes Judas’ role. Tied to Cleopatra as Isis (Chapter 5), Horus’ royal-divine status supports Christianity’s adaptation of Egyptian theology for imperial unity.
+
+**9.5 Dionysus**
+
+Dionysus, the Greek god of wine and resurrection, syncretized with Osiris by the Alexandrian School, mirrors the Jesus archetype through divine birth, liberation, and rebirth. Born to Zeus and a mortal, Dionysus parallels Jesus’ divine-human parentage (Matthew 1:18–25). His ecstatic rites and wine symbolism, akin to Jesus’ sacraments (John 2:1–11), offered spiritual freedom, while his death by Titans and resurrection echo Jesus’ crucifixion-resurrection. Betrayed by Pentheus (Bacchae), Dionysus ties to Mark Antony as Neos-Dionysos (Chapter 5), with serpent imagery (Orphic Hymns) linking to Aži Dahāka. His cult’s universal appeal prefigures Christianity’s monotheistic framework.
+
+**9.6 Attis**
+
+Attis, the Phrygian god of vegetation tied to Cybele, reflects the Jesus archetype through virgin birth, sacrificial death, and resurrection, adapted by Hellenistic cults. Born to virgin Nana on December 25 (Ovid, Fasti 4), Attis mirrors Jesus’ nativity (Matthew 1:18–25). His self-castration under a pine tree, a crucifixion-like act, and resurrection after three days (Pausanias 7.17) parallel Jesus’ sacrifice and rebirth (Mark 15–16). Betrayed by Cybele’s jealousy, Attis’ cult, linked to Sabazios (Chapter 5), features serpent motifs, aligning with Scythian dragon symbolism. Attis’ rites, emphasizing renewal, prefigure Christianity’s imperial adaptation for mass devotion.
+
+**9.7 Esus the Celtic Deity**
 
 The Celts in classical Galatia worshiped a deity called
 Aesus/Esus/Iesus. The Celtic name Esus is believed to be related to the
 Proto-Celtic word "aisu", which means "lord" or "master". The letter "J"
 was invented in the 17th century, so the name "Jesus" would have been
 "Esus" in the classical sense.
-
-In the name Asander, "Asa" means "lord" in Thracian, and "andros" means
-"man" or "son of man" in Greek. Jesus is refered to as "the son of man"
-81 times in the four canonical gospels. Asandros can also be interpreted
-as "son of the lord" or "son of Asa, the lord". The Etruscan word
-"Aesar" (also spelled "Aeser" or "Aisar") where Asa could also derive
-from means "god" or "divine". Aesar ("god") → Aesar → Caesar. So,
-Asandros can translate to either "son of god", or "son of Lord Esus".
-
-Aesus/Esus/Iesus then eventually phonetically shifted to
-I-zas/Izas/Izates.
 
 ![Fig.
 1.20](/images/Esus.jpg){:width="400px"}
@@ -972,17 +988,36 @@ There was a Jesuit named Jean Hardouin who said that a 14th Century Jesuit consp
 
 Isaac Newton’s wrote a book called The Chronology Of Ancient Kingdoms Amended where he analysed the eclipses recorded in ancient times and showed that 753 years (the exact number of years between the founding of Rome, or specifically the birth of the Roman deity Romulus and the birth of Jesus was added in to the first "millennium". This would line up with the gaps of time found across European and world history, oddities like the invention of paper taking 700 years to travel across the Silk Road, or the 1st century Mexican deity Quetzalcoatl being temporarily forgotten til the 8th,
 
-**11 Subversion of the Imperial Cult**
+**11 Repackaging of the Imperial Cult**
 
-Sometime after the Bar Kokhba Revolt (132--136 CE), a group of rabbis
-that were headed by a rabbi named Akiva who led the Talmudic Pharisees
+**11.1 The Cult of Antinous**
+
+Two years before the Bar Kokhba Revolt (132--136 CE) emperor Hadrian created a
+religion to deify his underage gay lover as the son of god
+(Osiris-Antinous) called 'The Cult of Antinous'. The name "Antinous" is an obvious indication of descent from the Antonii line and that he was a descendant of Mark Antony himself, not a random adoption by Hadrian. The use of "-ninus" is really the Greek "nini", which is "baby" or infant (i.e., "baby Jesus"). Historian Cassius
+Dio claims that Antinous was offered as a human sacrifice to Hadrian (Cassius Dio Cocceianus, Historiae Romanae, book 69, chapter 11) and later was "resurrected". Antinous was likely Emperor Titus Aelius Hadrianus Antoninus Pius, who was adopted by Hadrian and was his successor, and the cult of Antinous was his imperial cult. One of the scribes for The Cult of Antinous was Aquila of Sinope aka
+Onkelos who was a kinsman of the Roman emperor Hadrian. The midrash
+(Tanhuma. 41a, Mishpatim 3) claims that Onkelos was a nephew of Hadrian
+and other jewish sources list him as a nephew of emperor Titus (Tractate Gittin (56b)). Emperor
+Hadrian also employed Aquilla of Sinope to rebuild Jerusalem as Aelia
+Capitolina after the Bar Kokhba revolt (the city was named after Hadrian's family name (Aelia) and the Roman god Jupiter (Capitolina)). In Acts 18:2-3 and Romans 16:3 NASB, it is claimed
+that Aquila of Sinope and his wife Prisca or Priscilla lived with Paul
+the Apostle and Paul called them "my fellow workers in Christ Jesus"
+
+![Fig.1.21](/images/Antinous.jpg){:width="400px"}
+
+Fig. 1.21. Steel relief that shows Antinous holding the grapes of Dionysus in one-hand and a cross in the other.
+
+**11.2 Subversion of the Imperial Cult by Rabbi Akiva and His Students**
+
+Aquila of Sinope aka Onkelos was a student of a rabbi named Akiva who led the Talmudic Pharisees
 and is responsible for large parts of the Talmud, Sefer Yetzirah (book
 of creation), the Mishna and the Midrash Halakha, and modern judaism,
 and who was a student of Gamaliel (Paul the Apostle claimed that he was
 brought up in Jerusalem "at the feet of Gamaliel" (Acts 22:3)), and who
-was the one that came up with the idea that "Rome was Edom", realized
+was the one that came up with the idea that "Rome was Edom". It was likely after the Bar Kokhba Revolt when he realized
 that subversion was the only way to defeat the Romans. So, rabbi Akiva
-and his students Aquila of Sinope aka Onkelos, Markianos of Alexandria
+and his students Aquila of Sinope aka Onkelos (his connection to the Roman elite), Markianos of Alexandria
 aka Marcion (Greek Markion) of Sinope, Shimon bar Yohai aka Simon Peter
 (Shimon bar Yonah) (Simon's mythology was stolen from the Roman deity
 Janus who was the keeper of keys/gatekeeper role. Eusebius reported that
@@ -1059,9 +1094,9 @@ as a leader from the land of Magog in the north, who will gather a
 coalition of nations to attack Israel, but will be defeated by God in a
 great battle.
 
-**11.1 Islam**
+**11.3 Islam**
 
-At the same time these rabbi's created Christianity they created Islam.
+At the same time these rabbis created Christianity they created Islam.
 
 In the book 'Hagarism: The Making of the Islamic World' (1977) by Patricia Crone and Michael Cook they trace the origins of Islam to 'The Secrets of Shimon bar Yochai' [^15] which is a record of the "divine visions" of the 2nd-century rabbi, Simon ben Yohai aka Simon Peter (Shimon bar Yonah) who was a student of rabbi Akiva, to his students. They theorize that Islam was started as a psy-op to weaponize the Arabs to attack the Byzantine empire (eastern Rome) to free judea. 
 
