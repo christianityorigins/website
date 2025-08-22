@@ -32,29 +32,21 @@ Part 1: Foundations of the Dragon Cult\
 Chapter 3: The Sarmatian Dragon Cult\
 Part 2: The Alexandrian Synthesis\
 Chapter 4: The Alexandrian School\
-Chapter 4.1: Judaism\
+Chapter 4.1: The Blueprint Deities: Pre-existing Saviors (Horus, Dionysus, Mithras, etc.)\
+Chapter 4.2: Judaism\
 Part 3: The Bosphoran Connection\
 Chapter 5: Julius Caesar aka Asander of Bosphorus\
 Chapter 6: Julius Caesar was a Title\
 Chapter 7: Rome on the Bosphorus?\
 Part 4: From Imperial Cult to Christianity\
 Chapter 8: Flavian Dynasty\
-Part 5. The Archetypal Savior: Blueprints for a Christ\
-Chapter 9: The Jesus Archtype\
-Chapter 9.1: Romulus the Roman Deity\
-Chapter 9.2: Serapis the Greco-Egyptian Deity\
-Chapter 9.3: Mithras\
-Chapter 9.4: Horus the Egyptian Deity\
-Chapter 9.5: Dionysus\
-Chapter 9.6: Attis\
-Chapter 9.7: Esus the Celtic Deity\
-Part 6: Rewriting History\
-Chapter 10: Who Forged History?\
-Part 7. Repackaging of the Imperial Cult\
-Chapter 11: Repackaging of the Imperial Cult\
-Chapter 11.1: The Cult of Antinous\
-Chapter 11.2: Subversion of the Imperial Cult by Rabbi Akiva and His Students\
-Chapter 11.3: Islam\
+Part 5: Rewriting History\
+Chapter 9: Who Forged History?\
+Part 6. Repackaging of the Imperial Cult\
+Chapter 10: Repackaging of the Imperial Cult\
+Chapter 10.1: The Cult of Antinous\
+Chapter 10.2: Subversion of the Imperial Cult by Rabbi Akiva and His Students\
+Chapter 10.3: Islam\
 Conclusion\
 Appendix A: Alexander the Great\
 Appendix B: Scythians in China\
@@ -146,7 +138,7 @@ end of the book.
     Julio-Claudian dynasty were Pisos, including Nero who was nearly
     deposed by a Piso. Appius is also cognate with Arrius (through
     rhotacization in ancient Latin the /p/ and /r/ could be swapped).
--   Sar root:  Sar is the Scythian word for "king". Sarpa in Sanskrit means "serpent". Sarmatian, Akkadian Sarrum (king), Hurrian Šarri, Sargon, Sarlagab, Serapis (Sar-Apis = "Serpent Bull"), Zarathustra (Sar + Ustra = "serpent-lord"), Saracen (Roman designation for Middle Eastern peoples), Caesar, Asar (Osiris), Tsar (Slavic monarch), etc. Sar means king, or serpent king, across the empires that the Scythians used to rule over.
+-   Sar root:  Sar is the Scythian word for "king". Sarpa in Sanskrit means "serpent". Sarmatian, Akkadian Sarrum (king), Hurrian Šarri, Sargon, Sarlagab, Serapis (Sar-Apis = "Serpent Bull"), Zarathustra (Sar + Ustra = "serpent-lord"), Saracen (Roman designation for Middle Eastern peoples), Saragurs (Scythian tribe in China)), Caesar, Asar (Osiris), Tsar (Slavic monarch), etc. Sar means king, or serpent king, across the empires that the Scythians used to rule over.
 
 **2 Ancient Alias Names List (Chronologically Organized by Era and Dynasty)**
 
@@ -208,15 +200,14 @@ IV. Speculative
 -   Alexander the Great: Scythian prince who was the son of Ateas the Scythian aka Artaxerxes
     II Memnon ("Kai Bahman") and half-brother of Darius III ("Darab").
     In India he took the regional aliases of Chandragupta Maurya
-    ("Chandragupta" = "Sander-Gupta" (Scythian "Sander" = Alexander. "Aleks" = Greekization of "Alakh" which means "not seen" or "unseen" in Sanskrit/Hindi. "Gupta" = Hidden)). "Aži-ander": Aži
+    ("Chandragupta" = "Sander-Gupta" (Scythian "Sander" = Alexander. "Aleks" = Greekization of "Alakh" which means "not seen" or "unseen" in Sanskrit/Hindi. "Gupta" = Hidden). The Mourya name is a cognate of "Mithra".). "Aži-ander": Aži
     (Avestan "dragon") + Andros (Greek "man") = "Dragon-Man". Alaksandu
     of Wilusa, a Hittie king of Wilusa (Troy) (Alaksandu = Alak-San-Du
     (Hurrian: "Ruler-Dragon-Son")), who predates Alexander by 800 years,
     proves that the name Alexander was a Scythian title for kings.
-    Aži-Sandar also = "Dragon King" in Mittani and Old Persian.
-    Alexander's mother Olympias (Ol or ophis + Pias = "serpent queen"), who was a Scythian princess of the
+    Aži-Sandar also = "Dragon King" in Mittani and Old Persian. He did not die in Babylon. He "became a god" by undergoing a ritual transformation in the ziggurat. He then re-emerged in the East with a new identity. Alexander's mother Olympias (Ol or ophis + Pias = "serpent queen"), who was a Scythian princess of the
     Molossian tribe, claimed to have been impregnated by the god Zeus
-    Ammon disguised as a dragon. Alexander also married the Scythian princess Roxana.
+    Ammon disguised as a dragon. Alexander's fathers name Philip was a title. It is Greek for "lover of horses" which is a direct translation of a Scythian title. Alexander also married the Scythian princess Roxana. Alxanders campaign was not a conquest. It was a religious reconquest and administrative reorganization of a fracturing empire.
 -   Gautama Buddha (Egyptian: "Ba-Djehuti", or "Soul of Thoth"): Gaumata
     Bardya (Cyrus the Great's son).
 -   Marcion of Sinope: Markianos of Alexandria. The association with Sinope came from Aquila of Sinope who was a disciple of Rabbi Akiva. Are the two the same? Probably.
@@ -354,7 +345,74 @@ Fig. 1.3 Copper statuette of the god Sarapis Amun Agathodaemon depicted as half-
 
 The Sarapis Cult eventually evolved into Christianity, which was repackaged Serapis cult and targeted at local populations (the Christogram symbolizing Jesus Christ (IHS) = "Isis-Horus-Serapis"). Religion was the technology that the empire used to subjugate the people they ruled.
 
-**4.1 Judaism** 
+**4.1 The Blueprint Deities: Pre-existing Saviors (Horus, Dionysus, Mithras, etc.)**
+
+The Jesus archetype, as presented in Christianity, and characterized as a divine birth, a role as a savior or king, betrayal, sacrifice (often by crucifixion or a similar act), and resurrection is not a unique historical phenomenon but a syncretic construct, drawing from a recurring pattern of divine or semi-divine figures across ancient Indo-European, Scythian, and Near Eastern mythologies. 
+
+Romulus the Roman Deity
+
+According to Plutarch’s Life of Romulus (circa 75 CE) the Roman deity of Quirinus aka Romulus was born to a virgin, Rhea Silvia, impregnated by the god Mars, establishing his divine lineage. Hailed as a king and revered as the son of a god, Romulus founded Rome after a fratricidal conflict with his brother Remus, a narrative echoing the biblical Cain and Abel, crucified by a conniving elite and rose from the dead.
+
+![Fig.1.4](/images/Denarius_C._Memmius_C._F._Romulus.jpg){:width="400px"}
+
+Fig. 1.4. Romulus. 
+
+The Jesus archetype is not a unique historical phenomenon but a syncretic construct, a recurring pattern of divine or semi-divine figures across ancient mythologies. The Alexandrian School did not invent these tropes; they identified and weaponized them. This section examines the 'blueprint deities'—Horus, Dionysus, Mithras, and others—whose myths provided the raw material for the School's religious engineering.
+
+Serapis the Greco-Egyptian Deity
+
+Serapis, crafted under Ptolemy I at the Alexandrian School, fused Osiris’ resurrection with Apis’ strength, embodying the Jesus archetype through divine creation, salvation, and rebirth. Declared a god, Serapis mirrors Jesus’ divine sonship (Matthew 1:18–25), with his name (“Ser” = son) tying to “Aesar” (divine) and Scythian dragon-kings (Chapter 3). As a savior, he offered healing and afterlife promises, like Jesus (John 3:16), with serpent imagery (Fig. 1.3) reflecting Aži Dahāka. Osiris’ death-rebirth cycle parallels Jesus’ crucifixion-resurrection (Mark 15–16), and the Serapis cult’s destruction by Theophilus I (391 CE) echoes Judas’ betrayal. The “Letter of Hadrian” (Vindobonensis) links Serapis worshippers to Christians, suggesting Christianity rebranded Serapis to unify civilians under imperial monotheism.
+
+Mithras
+
+Mithras, a solar god shaped by the Alexandrian School for Roman military elites, parallels the Jesus archetype through divine birth, cosmic salvation, and sacrificial renewal. Born from a rock, Mithras mirrors Jesus’ virgin birth, while his tauroctony (bull-slaying) symbolizes redemption, akin to Jesus’ crucifixion (Mark 15:24). His cult’s suppression by Christian emperors reflects Jesus’ betrayal, and serpent imagery in Mithraic reliefs (CIMRM 593) ties to Scythian sun-god motifs (Chapter 3). Offering salvation through rituals like communal meals, Mithras prefigures Christian sacraments, supporting the manuscript’s claim that Christianity adapted Mithraism’s framework, redirecting its appeal from soldiers to slaves under a monotheistic imperial cult.
+
+Horus the Egyptian Deity
+
+Horus, the Egyptian god of kingship and son of Osiris, embodies the Jesus archetype through miraculous birth, divine victory, and resurrection, shaped by Alexandrian syncretism. Born to Isis after Osiris’ death, Horus parallels Jesus’ virgin birth (Matthew 1:18–25). As a savior, he defeated Set, akin to Jesus’ triumph over evil, with the Uraeus serpent linking to Scythian motifs (Fig. 1.6). His eye, torn out and restored, mirrors Jesus’ sacrificial death and resurrection (Mark 15–16), while Set’s betrayal of Osiris echoes Judas’ role. Tied to Cleopatra as Isis (Chapter 5), Horus’ royal-divine status supports Christianity’s adaptation of Egyptian theology for imperial unity.
+
+Dionysus
+
+Dionysus, the Greek god of wine and resurrection, syncretized with Osiris by the Alexandrian School, mirrors the Jesus archetype through divine birth, liberation, and rebirth. Born to Zeus and a mortal, Dionysus parallels Jesus’ divine-human parentage (Matthew 1:18–25). His ecstatic rites and wine symbolism, akin to Jesus’ sacraments (John 2:1–11), offered spiritual freedom, while his death by Titans and resurrection echo Jesus’ crucifixion-resurrection. Betrayed by Pentheus (Bacchae), Dionysus ties to Mark Antony as Neos-Dionysos (Chapter 5), with serpent imagery (Orphic Hymns) linking to Aži Dahāka. His cult’s universal appeal prefigures Christianity’s monotheistic framework.
+
+Attis
+
+Attis, the Phrygian god of vegetation tied to Cybele, reflects the Jesus archetype through virgin birth, sacrificial death, and resurrection, adapted by Hellenistic cults. Born to virgin Nana on December 25 (Ovid, Fasti 4), Attis mirrors Jesus’ nativity (Matthew 1:18–25). His self-castration under a pine tree, a crucifixion-like act, and resurrection after three days (Pausanias 7.17) parallel Jesus’ sacrifice and rebirth (Mark 15–16). Betrayed by Cybele’s jealousy, Attis’ cult, linked to Sabazios (Chapter 5), features serpent motifs, aligning with Scythian dragon symbolism. Attis’ rites, emphasizing renewal, prefigure Christianity’s imperial adaptation for mass devotion.
+
+Esus the Celtic Deity
+
+The Celts in classical Galatia worshiped a deity called
+Aesus/Esus/Iesus. The Celtic name Esus is believed to be related to the
+Proto-Celtic word "aisu", which means "lord" or "master". The letter "J"
+was invented in the 17th century, so the name "Jesus" would have been
+"Esus" in the classical sense.
+
+![Fig.
+1.5](/images/Esus.jpg){:width="400px"}
+
+Fig. 1.5. Statue from classical Anatolia that is dedicated to "Esumopas
+Cnusticus". Esumopas means "Slave to Esus", and Esus means lord in
+Proto-Celtic. If you combine the Etruscan word "cnus" with the suffix
+"-ticus" or "-tic-" you get a word that translates to "anointed one" or
+"consecrated one", ie. a "Christ". So, that inscription translates to:
+"Slave to Lord (Esus) Christ". The "VSLM" inscription is an abbreviation
+for the Latin phrase "Votum Solvit Libens Merito" which translates to
+"He pays his vow willingly and with merit" or "He fulfills his vow with
+pleasure and deserving", which is often found on Roman coins and other
+artifacts. Esus was crucified in mythology and his symbol was an axe, so
+he was associated with woodcutting, forestry, carpentry. Esus was also
+part of a "trinity" of Gaulish gods that included Taranis, Teutates and
+Esus.
+
+The Esus cult was probably created to subvert the Druid Celts in
+Galatia. It has all the fingerprints of the Alexandrian School:
+year-zero (calendar starts at the deities birth), crucified diety
+(self-sacrifice/self-annihilation as the highest virtue), afterlife
+submission, etc. The fact it resembles Christianity is because it
+follows the same framework that all the other Alexandrian School
+religions do.
+
+**4.2 Judaism** 
 
 Ptolemy I Soter was also responsible for inventing Judaism. His aim was to subvert Canaanite identity once and for all, destroying the only contestant to Greco-Egyptian power in the world up to that point, and gradually forcing jews to accept the Serapis cult. 
 
@@ -397,27 +455,27 @@ Latin Caesar. Cleopatra used the regional alias of Dynamis Ourania [^6]
 Bosporus approximates to modern-day Crimea in southern Ukraine (see
 also: Jesus Christ Was Born in Crimea by Anatoly Fomenko).
 
-![Fig.1.4](/images/caesarstar.jpg){:width="400px"}
+![Fig.1.6](/images/caesarstar.jpg){:width="400px"}
 
-Fig. 1.4. Julius Caesar. One side of the coin shows a crescent and the
+Fig. 1.6. Julius Caesar. One side of the coin shows a crescent and the
 other side shows a Nike which was the Greek goddess of victory and a
 close companion to Zeus.
 
-![Fig.1.5](/images/asandernike.jpg){:width="400px"}
+![Fig.1.7](/images/asandernike.jpg){:width="400px"}
 
-Fig. 1.5. Coin of Asander, King of Bosphorus depicting a Nike
+Fig. 1.7. Coin of Asander, King of Bosphorus depicting a Nike
 
-![Fig.1.6](/images/Polemon.jpg){:width="400px"}
+![Fig.1.8](/images/Polemon.jpg){:width="400px"}
 
-Fig. 1.6. Coin of Polemon I of Pontus who was an alias of Asander (both were married to Dynamis, queen of Bosphorus. You can usually find their aliases through marriages) depicting a Uraeus (the Egyptian cobra) and also Zeus-Ammon. Other depictions of Asander show the star and cresent
+Fig. 1.8. Coin of Polemon I of Pontus who was an alias of Asander (both were married to Dynamis, queen of Bosphorus. You can usually find their aliases through marriages) depicting a Uraeus (the Egyptian cobra) and also Zeus-Ammon. Other depictions of Asander show the star and cresent
 that is visible in the Julius Caesar coin above. The crescent moon and
 star symbol has Mithraic symbolism, and another coin of Asander depicts a
 Phrygian cap which is closely associated with the Roman god Mithras:
 <https://silver.kbr.be/3628_-_Panticapaeum%3F_(Asander)_(AE_Apollo/prow)_over_Pontic_type_(Perseus/Pegasus)_(Oxford,_AM>).
 
-![Fig.1.7](/images/Cleopatra%20VIIDynamis.png){:width="400px"}
+![Fig.1.9](/images/Cleopatra%20VIIDynamis.png){:width="400px"}
 
-Fig. 1.7. (L) Dynamis, Queen of Bosphorus, (R) Cleopatra VII. There were
+Fig. 1.9. (L) Dynamis, Queen of Bosphorus, (R) Cleopatra VII. There were
 obviously many years between the ages at which she was depicted,
 however, even in the elder Dynamis bust you can see her lazy eye and
 abnormally large eyes which she was reported to have had, possibly as a
@@ -425,9 +483,9 @@ consequence of inbreeding. The hat she is wearing is a Phrygian cap, a
 distinctivehat that is closely associated with the Roman god Mithras.
 Dynamis was recorded as being of "Sarmatian" ancestry.
 
-![Fig.1.8](/images/cleopatra.png){:width="400px"}
+![Fig.1.10](/images/cleopatra.png){:width="400px"}
 
-Fig. 1.8. (L) Julia Mamaea, Queen of Pontus (wife of Polemon II), (R)
+Fig. 1.10. (L) Julia Mamaea, Queen of Pontus (wife of Polemon II), (R)
 Cleopatra VII. Polemon Pythodoros, King of Pontus was a regional alias
 of Julius Caesar/Asander (as Asander and Polemon were both married to
 Dynamis), and if he also played the religious role of Gaius Julius
@@ -481,26 +539,26 @@ of Bosphorus. After Mithridates Chrestus's loss to Asander he was
 imprisoned and executed by his elder brother, Mithridates VI Eupator,
 who had previously beat him in war.
 
-![Fig.1.9](/images/PtolemyXAlexanderII.jpg){:width="400px"}
+![Fig.1.11](/images/PtolemyXAlexanderII.jpg){:width="400px"}
 
-Fig. 1.9. Coin depicting Ptolemy XI Alexander II aka Asander, king of
+Fig. 1.11. Coin depicting Ptolemy XI Alexander II aka Asander, king of
 Bosphorus aka Pharnaces II, etc.
 
-![Fig.1.10](/images/PharnacesII.jpg){:width="400px"}
+![Fig.1.12](/images/PharnacesII.jpg){:width="400px"}
 
-Fig. 1.10. Coin depicting Pharnaces II. Pharnaces II "dies" in 47 BCE
+Fig. 1.12. Coin depicting Pharnaces II. Pharnaces II "dies" in 47 BCE
 just as Asander appears in 47 BCE as King of Bosphorus. Pharnaces II
 called himself "King of Kings" on coinsas Asander did.
 
-![Fig.1.11](/images/AriarathesIX.jpg){:width="400px"}
+![Fig.1.13](/images/AriarathesIX.jpg){:width="400px"}
 
-Fig. 1.11. Coin depicting Ariarathes IX Eusebes Philopator, King of
+Fig. 1.13. Coin depicting Ariarathes IX Eusebes Philopator, King of
 Cappadocia. Notice the resemblance to Asander and Pharnaces II? They
 were all born on the same day as well.
 
-![Fig.1.12](/images/MithridatesVIEupator.png){:width="400px"}
+![Fig.1.14](/images/MithridatesVIEupator.png){:width="400px"}
 
-Fig. 1.12. Coin depicting Mithridates VI Eupator, father of Pharnaces II
+Fig. 1.14. Coin depicting Mithridates VI Eupator, father of Pharnaces II
 and Dynamis. Brother of Mithridates Chrestus. Notice the star and
 crescent that is visible in the Julius Caesar coin above and the winged
 Pegasus within a Dionysiac wreath of ivy and fruit that is seen in the
@@ -580,9 +638,9 @@ Theophilos in Greek. Around 26% of the New Testament was written to
 Theophilus in Luke and Acts of the Apostles).
 
 ![Fig.
-1.13](/images/AlexanderPhilo.jpg){:width="400px"}
+1.15](/images/AlexanderPhilo.jpg){:width="400px"}
 
-Fig. 1.13. (L) Alexander (grandson of King Herod) aka Gaius Julius
+Fig. 1.15. (L) Alexander (grandson of King Herod) aka Gaius Julius
 Alexander, Herodian Prince of Judaea aka Alexander the Alabarch aka
 (King/Tetrarch) Ptolemy (Alexander) bar Menneus aka Ptolemy of
 Mauretania aka "Jesus" in the bible. (R) Cleopatra (Thea Philopator) of
@@ -600,9 +658,9 @@ Adiabene/Edessa aka Ptolemy aka Yakov Zu Tolomoy aka Izates aka Jesus
 Emmanuel aka Monobazus of Adiabene [^10]
 
 ![Fig.
-1.14](/images/Josephus.jpg){:width="400px"}
+1.16](/images/Josephus.jpg){:width="400px"}
 
-Fig. 1.14. 'Josephus' bust which I identify as Tiberius Julius
+Fig. 1.16. 'Josephus' bust which I identify as Tiberius Julius
 Alexander. Compare it to Nerva's depictions. So, 'Josephus' was Philo of
 Alexandria's son. Tiberius Julius Alexander's son was named
 'Philopappos' and one of his mother's aliases was 'Alexandria bat
@@ -610,9 +668,9 @@ Matthias' which is where the pseudonym 'Joseph bar Matthias' comes from.
 Also, drop the initial b and final s in the name "Bar Mathias" and you
 get (Joseph of) Arimathea.
 
-![Fig. 1.15](/images/coin-abgar-phraates.png){:width="400px"}
+![Fig. 1.17](/images/coin-abgar-phraates.png){:width="400px"}
 
-Fig. 1.15. (L) and (R) show King Izates Monobazus of Edessa (known in
+Fig. 1.17. (L) and (R) show King Izates Monobazus of Edessa (known in
 Greek as the "Kingdom of Ourania" or in English as the "Kingdom of
 Heaven") wearing a crown of thorns. Izates or Izas is his title which is
 an ancient Greek translation of the Avestan word Yazatas (Persian:
@@ -621,9 +679,9 @@ and Sultan Ezid in the Yazadi ('Iza'di) religion. He was the uncle of
 Tiberius Julius Sauromates II, King of Bosphorus. The middle image
 source: The Alexander Mosaic, Huqoq, Israel.
 
-![Fig.1.16](/images/SauromatesII2.jpg){:width="400px"}
+![Fig.1.18](/images/SauromatesII2.jpg){:width="400px"}
 
-Fig. 1.16. Tiberius Julius Sauromates II, King of Bosphorus, who was the
+Fig. 1.18. Tiberius Julius Sauromates II, King of Bosphorus, who was the
 son of Tiberius Julius Cotys (aka Tiberius Julius Alexander aka Arrius
 Calpernius Piso aka Arrius Varus aka Emperor Nerva), great-grandson of
 Dynamis aka Cleopatra and Mark Antony.
@@ -666,9 +724,9 @@ Boethus was another of Cleopatra's regional aliases?  If you identify
 King Herod as Mark Antony aka Tiberius Claudius Nero aka Phraates IV of
 Parthia's regional alias then the picture becomes clearer.
 
-![Fig.1.17](/images/PtolemyXII.jpeg){:width="400px"}
+![Fig.1.19](/images/PtolemyXII.jpeg){:width="400px"}
 
-Fig. 1.17. Ptolemy XII Auletes, king of Egypt, who was also Mithridates
+Fig. 1.19. Ptolemy XII Auletes, king of Egypt, who was also Mithridates
 VI Eupator, Ariarathes VII of Cappadocia, Simon Boethus/Magus/Ptolemy
 (Alexander) bar Menneus, et.al. Mithridates VI married his sister
 Laodice---just as Ptolemy XII married his sister Cleopatra V. Both had
@@ -804,6 +862,11 @@ substantial part of Byzantine coinage from two millennia ago boasts
 inscriptions in Latin and not in Greek, including the Asander of
 Bosphorus coin above.
 
+This is why the Ottomans called themselves "Rum" (Rome). They knew exactly what they were the heirs to.
+
+Rome in Italy was real, but it was a province, a frontier military district of the true Empire based on the Bosphorus. It was never the center of power it was made out to be. Its "fall" was the loss of central control from the East and the rise of local Gothic/Sarmatian warlords (Theodoric, etc.) who still tried to cloak themselves in the legitimacy of the Eastern Koryllis.
+
+Also, Carthage was not a Semitic power. The name "Carthage" comes from "Kar-Thaga" - "City of the Thagians" (a Scythian tribe). Hannibal's family name, Barca, means "Lightning" and is a title of the Dragon King. Rome vs. Carthage was not a clash of civilizations. It was a bloody civil war between two Scythian-descended factions for control of the Western Mediterranean. The winner, Rome, wrote the history and painted the losers as monstrous foreigners.
 
 Endnotes (Chapter 7)
 
@@ -849,9 +912,9 @@ King, and Pasius = Peace. 'Vespasian' = 'King Peace') [^14]. He was also
 'Flavius Scaevinus' the conspirator involved in Nero's assassination.
 
 ![Fig.
-1.18](/images/Vespasian.jpg){:width="400px"}
+1.20](/images/Vespasian.jpg){:width="400px"}
 
-Fig. 1.18. Compare Vespasian's depiction to Herod Agrippa I
+Fig. 1.20. Compare Vespasian's depiction to Herod Agrippa I
 
 'Antonia Caenis' was Vespassian's mistress who was his first cousin who
 was Cleopatra (Thea Philopator) of Mauretania aka Cleopatra IX aka
@@ -910,74 +973,7 @@ Endnotes (Chapter 8)
 (c) Hebrew Wordplay: Vespasian -> V'Esav Pan (ועשו פן) -> "And Esau's
     Face" (Talmudic insult linking him to Edom).
 
-**9 The Jesus Archtype**
-
-The Jesus archetype, as presented in Christianity, and characterized as a divine birth, a role as a savior or king, betrayal, sacrifice (often by crucifixion or a similar act), and resurrection is not a unique historical phenomenon but a syncretic construct, drawing from a recurring pattern of divine or semi-divine figures across ancient Indo-European, Scythian, and Near Eastern mythologies. 
-
-**9.1 Romulus the Roman Deity**
-
-According to Plutarch’s Life of Romulus (circa 75 CE) the Roman deity of Quirinus aka Romulus was born to a virgin, Rhea Silvia, impregnated by the god Mars, establishing his divine lineage. Hailed as a king and revered as the son of a god, Romulus founded Rome after a fratricidal conflict with his brother Remus, a narrative echoing the biblical Cain and Abel, crucified by a conniving elite and rose from the dead.
-
-![Fig.1.19](/images/Denarius_C._Memmius_C._F._Romulus.jpg){:width="400px"}
-
-Fig. 1.19. Romulus. 
-
-The Alexandrian School likely adapted the Romulus myth to serve as a prototype for later imperial cults, including Christianity. The narrative of a divine founder who sacrifices and ascends was a powerful tool for legitimizing Roman authority, much as the Jesus story would later unify disparate populations under a monotheistic framework.
-
-**9.2 Serapis the Greco-Egyptian Deity**
-
-Serapis, crafted under Ptolemy I at the Alexandrian School, fused Osiris’ resurrection with Apis’ strength, embodying the Jesus archetype through divine creation, salvation, and rebirth. Declared a god, Serapis mirrors Jesus’ divine sonship (Matthew 1:18–25), with his name (“Ser” = son) tying to “Aesar” (divine) and Scythian dragon-kings (Chapter 3). As a savior, he offered healing and afterlife promises, like Jesus (John 3:16), with serpent imagery (Fig. 1.3) reflecting Aži Dahāka. Osiris’ death-rebirth cycle parallels Jesus’ crucifixion-resurrection (Mark 15–16), and the Serapis cult’s destruction by Theophilus I (391 CE) echoes Judas’ betrayal. The “Letter of Hadrian” (Vindobonensis) links Serapis worshippers to Christians, suggesting Christianity rebranded Serapis to unify civilians under imperial monotheism.
-
-**9.3 Mithras**
-
-Mithras, a solar god shaped by the Alexandrian School for Roman military elites, parallels the Jesus archetype through divine birth, cosmic salvation, and sacrificial renewal. Born from a rock, Mithras mirrors Jesus’ virgin birth, while his tauroctony (bull-slaying) symbolizes redemption, akin to Jesus’ crucifixion (Mark 15:24). His cult’s suppression by Christian emperors reflects Jesus’ betrayal, and serpent imagery in Mithraic reliefs (CIMRM 593) ties to Scythian sun-god motifs (Chapter 3). Offering salvation through rituals like communal meals, Mithras prefigures Christian sacraments, supporting the manuscript’s claim that Christianity adapted Mithraism’s framework, redirecting its appeal from soldiers to slaves under a monotheistic imperial cult.
-
-**9.4 Horus the Egyptian Deity**
-
-Horus, the Egyptian god of kingship and son of Osiris, embodies the Jesus archetype through miraculous birth, divine victory, and resurrection, shaped by Alexandrian syncretism. Born to Isis after Osiris’ death, Horus parallels Jesus’ virgin birth (Matthew 1:18–25). As a savior, he defeated Set, akin to Jesus’ triumph over evil, with the Uraeus serpent linking to Scythian motifs (Fig. 1.6). His eye, torn out and restored, mirrors Jesus’ sacrificial death and resurrection (Mark 15–16), while Set’s betrayal of Osiris echoes Judas’ role. Tied to Cleopatra as Isis (Chapter 5), Horus’ royal-divine status supports Christianity’s adaptation of Egyptian theology for imperial unity.
-
-**9.5 Dionysus**
-
-Dionysus, the Greek god of wine and resurrection, syncretized with Osiris by the Alexandrian School, mirrors the Jesus archetype through divine birth, liberation, and rebirth. Born to Zeus and a mortal, Dionysus parallels Jesus’ divine-human parentage (Matthew 1:18–25). His ecstatic rites and wine symbolism, akin to Jesus’ sacraments (John 2:1–11), offered spiritual freedom, while his death by Titans and resurrection echo Jesus’ crucifixion-resurrection. Betrayed by Pentheus (Bacchae), Dionysus ties to Mark Antony as Neos-Dionysos (Chapter 5), with serpent imagery (Orphic Hymns) linking to Aži Dahāka. His cult’s universal appeal prefigures Christianity’s monotheistic framework.
-
-**9.6 Attis**
-
-Attis, the Phrygian god of vegetation tied to Cybele, reflects the Jesus archetype through virgin birth, sacrificial death, and resurrection, adapted by Hellenistic cults. Born to virgin Nana on December 25 (Ovid, Fasti 4), Attis mirrors Jesus’ nativity (Matthew 1:18–25). His self-castration under a pine tree, a crucifixion-like act, and resurrection after three days (Pausanias 7.17) parallel Jesus’ sacrifice and rebirth (Mark 15–16). Betrayed by Cybele’s jealousy, Attis’ cult, linked to Sabazios (Chapter 5), features serpent motifs, aligning with Scythian dragon symbolism. Attis’ rites, emphasizing renewal, prefigure Christianity’s imperial adaptation for mass devotion.
-
-**9.7 Esus the Celtic Deity**
-
-The Celts in classical Galatia worshiped a deity called
-Aesus/Esus/Iesus. The Celtic name Esus is believed to be related to the
-Proto-Celtic word "aisu", which means "lord" or "master". The letter "J"
-was invented in the 17th century, so the name "Jesus" would have been
-"Esus" in the classical sense.
-
-![Fig.
-1.20](/images/Esus.jpg){:width="400px"}
-
-Fig. 1.20. Statue from classical Anatolia that is dedicated to "Esumopas
-Cnusticus". Esumopas means "Slave to Esus", and Esus means lord in
-Proto-Celtic. If you combine the Etruscan word "cnus" with the suffix
-"-ticus" or "-tic-" you get a word that translates to "anointed one" or
-"consecrated one", ie. a "Christ". So, that inscription translates to:
-"Slave to Lord (Esus) Christ". The "VSLM" inscription is an abbreviation
-for the Latin phrase "Votum Solvit Libens Merito" which translates to
-"He pays his vow willingly and with merit" or "He fulfills his vow with
-pleasure and deserving", which is often found on Roman coins and other
-artifacts. Esus was crucified in mythology and his symbol was an axe, so
-he was associated with woodcutting, forestry, carpentry. Esus was also
-part of a "trinity" of Gaulish gods that included Taranis, Teutates and
-Esus.
-
-The Esus cult was probably created to subvert the Druid Celts in
-Galatia. It has all the fingerprints of the Alexandrian School:
-year-zero (calendar starts at the deities birth), crucified diety
-(self-sacrifice/self-annihilation as the highest virtue), afterlife
-submission, etc. The fact it resembles Christianity is because it
-follows the same framework that all the other Alexandrian School
-religions do.
-
-**10: Who Forged History?**
+**9: Who Forged History?**
 
 The creation of the Papacy during the elevation of Charlemagne was likely when the myth of a "Roman empire" began. The renaissance finished the fabrication of history. This was all to secretly make Rome into a Carian empire. It was an Aryan and Thracian proxy state of the Scythins who were based out of the Boshorus. The Bosphorus was always its capital. Latin was the original language of the Dacians and it was high-noble Aryan; German mixed the middle language (proto Latin) with degenerated old Gothic.
 
@@ -995,9 +991,9 @@ There was a Jesuit named Jean Hardouin who said that a 14th Century Jesuit consp
 
 Isaac Newton’s wrote a book called The Chronology Of Ancient Kingdoms Amended where he analysed the eclipses recorded in ancient times and showed that 753 years (the exact number of years between the founding of Rome, or specifically the birth of the Roman deity Romulus and the birth of Jesus was added in to the first "millennium". This would line up with the gaps of time found across European and world history, oddities like the invention of paper taking 700 years to travel across the Silk Road, or the 1st century Mexican deity Quetzalcoatl being temporarily forgotten til the 8th,
 
-**11 Repackaging of the Imperial Cult**
+**10 Repackaging of the Imperial Cult**
 
-**11.1 The Cult of Antinous**
+**10.1 The Cult of Antinous**
 
 Two years before the Bar Kokhba Revolt (132--136 CE) emperor Hadrian created a
 religion to deify his underage gay lover as the son of god
@@ -1015,7 +1011,7 @@ the Apostle and Paul called them "my fellow workers in Christ Jesus"
 
 Fig. 1.21. Steel relief that shows Antinous holding the grapes of Dionysus in one-hand and a cross in the other.
 
-**11.2 Subversion of the Imperial Cult by Rabbi Akiva and His Students**
+**10.2 Subversion of the Imperial Cult by Rabbi Akiva and His Students**
 
 Aquila of Sinope aka Onkelos was a student of a rabbi named Akiva who led the Talmudic Pharisees
 and is responsible for large parts of the Talmud, Sefer Yetzirah (book
@@ -1101,7 +1097,7 @@ as a leader from the land of Magog in the north, who will gather a
 coalition of nations to attack Israel, but will be defeated by God in a
 great battle.
 
-**11.3 Islam**
+**10.3 Islam**
 
 At the same time these rabbis created Christianity they created Islam.
 
