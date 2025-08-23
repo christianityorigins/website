@@ -143,13 +143,13 @@ end of the book.
 **2 Ancient Alias Names List (Chronologically Organized by Era and Dynasty)**
 
 Note on aliases: I believe that the Ptolemaic elites in antiquity employed an incredible number of regional aliases, locations, fictional stories, faked adoptions, and fabricated deaths for themselves and their family members as a way to control the
-population. They role-played as deities, religious figures, and various characters as if they were actors in a play. For example, the governor of Roman Egypt from 33 CE to 38, Aulus Avillius Flaccus, was also Polemon II of Pontus, who was
+population. They role-played as deities, religious figures, and various characters as if they were actors in a play. This was done partially for obscuration, but also because people wouldn't accept foreign kings or kings with foreign names, and also, for theological requirements: a god-king had to manifest in different regions according to local religious expectations. For example, the governor of Roman Egypt from 33 CE to 38, Aulus Avillius Flaccus, was also Polemon II of Pontus, who was
 the prince of the Bosporan, Pontus, Cilicia, and Cappadocia, which was
 the regional alias of Emperor Titus. The character of Aulus Avillius
 Flaccus dies at the same time Polemon II of Pontus takes power, and then
 Polemon II of Pontus dies around the same time Titus becomes emperor.
 The way to connect them is through the fact that they were all married
-to the same woman, Berenice, granddaughter of King Herod. Also note that all these kings/emperors had philosopher or religious figure aliasas, probably derived Sumeria, which required kings to also be priests or from Plato's "Philospher Kings" concept (Asander of Bosphours aka Julius Caesar was Gaius Julius Sohaemus the Priest-King of Emesa, Tiberius Julius Alexander was Josephus, Juba II was Apollonius of Tyana, King Izates was Jesus Ben Gamala, Cleopatra (Thea Philopator) of Mauretania was Philo of Alexandria, etc.).
+to the same woman, Berenice, granddaughter of King Herod.
 
 I. Ptolemaic & Bosphoran Dynasty 
 
@@ -166,8 +166,7 @@ Asar(Osiris)/Aesar/Aeser/Aisar/Ais/Is), Brogitarix. Other suspected aliases: Akr
 mother of Horus): Dynamis Ourania (Aphrodite Urania), Pythodorida
 Philometor.
 -   Mark Antony (Marcus Antonius = Mar (Phoenician "lord") +
-Anton (from Antaeus, giant son of Gaia)): King Herod, Tiberius Claudius
-Nero, Phraates IV, Polemon I.
+Anton (from Antaeus, giant son of Gaia)): King Herod (Heru (Horus) + Ud (divine) = Herud -> Herod. "The Divine Horus". The "Slaughter of the Innocents" is a mythological trope attached to the birth of every Horus-figure, who must overcome a threat. It is not history; it is theological propaganda asserting Herod's/Mark Antony's legitimacy as the living god-king against the resurrected one), Tiberius Claudius Nero, Phraates IV, Polemon I.
 
 II. Herodian & Flavian Dynasty
 
@@ -207,7 +206,7 @@ IV. Speculative
     proves that the name Alexander was a Scythian title for kings.
     Aži-Sandar also = "Dragon King" in Mittani and Old Persian. He did not die in Babylon. He "became a god" by undergoing a ritual transformation in the ziggurat. He then re-emerged in the East with a new identity. Alexander's mother Olympias (Ol or ophis + Pias = "serpent queen"), who was a Scythian princess of the
     Molossian tribe, claimed to have been impregnated by the god Zeus
-    Ammon disguised as a dragon. Alexander's fathers name Philip was a title. It is Greek for "lover of horses" which is a direct translation of a Scythian title. Alexander also married the Scythian princess Roxana. Alxanders campaign was not a conquest. It was a religious reconquest and administrative reorganization of a fracturing empire.
+    Ammon disguised as a serpent. Alexander's fathers name Philip was a title. It is Greek for "lover of horses" which is a direct translation of a Scythian royal title. Alexander also married the Scythian princess Roxana. Alxanders campaign was not a conquest. It was a religious reconquest and administrative reorganization of a fracturing empire.
 -   Gautama Buddha (Egyptian: "Ba-Djehuti", or "Soul of Thoth"): Gaumata
     Bardya (Cyrus the Great's son).
 -   Marcion of Sinope: Markianos of Alexandria. The association with Sinope came from Aquila of Sinope who was a disciple of Rabbi Akiva. Are the two the same? Probably.
@@ -319,8 +318,7 @@ The Ptolemaic Egyptians (Ptolemaios - the root "ptol" resembling the
 Indo-Iranian term for warrior-kings (e.g., Parthian pat, "lord"), or
 Scythian Patala (horse lords), were the continuation of this bloodline.
 
-The "Chi-Rho" (☧) symbol of Constantine was not Christian---it was the
-Sarmatian Draco coiled around a solar cross.
+The cross was not made of wood. It was a T-shaped standard, the Tau (Τ), the ancient symbol of the Mesopotamian god Tammuz of Ezekiel 8:14 who was associated with snakes. This was the crux commissa or Tau cross.
 
 In Sarmatian, "Ruma" (Rome) = "Place of the Dragon" (Rhu-Ma, from Aži
 Dahāka, the Iranian dragon).
