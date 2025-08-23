@@ -138,7 +138,7 @@ end of the book.
     Julio-Claudian dynasty were Pisos, including Nero who was nearly
     deposed by a Piso. Appius is also cognate with Arrius (through
     rhotacization in ancient Latin the /p/ and /r/ could be swapped).
--   Sar root:  Sar is the Scythian word for "king". Sarpa in Sanskrit means "serpent". Sarmatian, Akkadian Sarrum (king), Hurrian Šarri, Sargon, Sarlagab, Serapis (Sar-Apis = "Serpent Bull"), Zarathustra (Sar + Ustra = "serpent-lord"), Saracen (Roman designation for Middle Eastern peoples), Saragurs (Scythian tribe in China)), Caesar, Asar (Osiris), Tsar (Slavic monarch), etc. Sar means king, or serpent king, across the empires that the Scythians used to rule over.
+-   Sar root:  Sar is the Scythian word for "king". Sarpa in Sanskrit means "serpent". Sarmatian, Akkadian Sarrum (king), Hurrian Šarri, Sargon, Sarlagab, Serapis (Sar-Apis = "Serpent Bull"), Zarathustra (Sar + Ustra = "serpent-lord"), Saracen (Roman designation for Middle Eastern peoples), Saragurs (Scythian tribe in China), Caesar, Asar (Osiris), Tsar (Slavic monarch), etc. Sar means king, or serpent king, across the empires that the Scythians used to rule over.
 
 **2 Ancient Alias Names List (Chronologically Organized by Era and Dynasty)**
 
@@ -214,7 +214,7 @@ IV. Speculative
 -    Moses = Manes/Mannu-Kuras = Manu (Scythian Sage-King) = Menes (Egypt’s legendary founder). Also appears in "Monobazus" → “Manu Bazus” → Sarmatian-Mythological Sage King. The Iranian Manu is a legendary civilizer, and in India he becomes the first Lawgiver (the Manu Smriti = Scythian governance code). The biblical Moses defeats Pharaoh (actually Mitanni elite), parts waters with a serpent-staff—obvious encoding of dragon-kingship (Aži Dahāka). Moses takes on different masks: M enes – the first official Pharaoh (not real, a compilation of conquerors). Menes – the semi-mythical Median king, founder of the priest-class. Mannu-kuras – Proto-Mede, whose name becomes Cyrus. The name Kur-Ash = "Sun Man". The Exodus is not Judaic memory: it's a political memory of Mitanni-Scythian expulsion from Egypt after the religious revolution of Thutmose III → Horemheb wiped them out with a new priest-kingship in Amarna.
  -   Paul the Apostle = likely a composite character or an avatar/cipher. Two suspects for having taken on the character are: 1) Saulus ben Antipater who was the
     son of Antipater/Herod Antipas the Tetrarch, grandson of King Herod
-    (Josephus, Antiquities of the Jews, Chapter 9, section 211), and 2) Rabbi Akiva (whose students included: Aquila of Sinope aka Onkelos, Markianos of Alexandria aka Marcion (Greek Markion) of Sinope, Shimon bar Yohai aka Simon Peter (Shimon bar Yonah)). The character
+    (Josephus, Antiquities of the Jews, Chapter 9, section 211), and 2) Rabbi Akiva (whose students included: Aquila of Sinope aka Onkelos, Markianos of Alexandria aka Marcion (Greek Markion) of Sinope, Shimon bar Yohai aka Simon Peter (Shimon bar Yonah). The character
     Paul/Saul's life story was stolen from the ancient Egyptian story
     "Tale of the Shipwrecked Sailor". Josephus in Antiquities of the
     Jews, Book XX (Ch 9.4) refers to Paul (Saulus) as related to Herod
@@ -347,7 +347,7 @@ The Sarapis Cult eventually evolved into Christianity, which was repackaged Sera
 
 **4.1 The Blueprint Deities: Pre-existing Saviors (Horus, Dionysus, Mithras, etc.)**
 
-The Jesus archetype, as presented in Christianity, and characterized as a divine birth, a role as a savior or king, betrayal, sacrifice (often by crucifixion or a similar act), and resurrection is not a unique historical phenomenon but a syncretic construct, drawing from a recurring pattern of divine or semi-divine figures across ancient Indo-European, Scythian, and Near Eastern mythologies. 
+The Jesus archetype, as presented in Christianity, and characterized as a divine birth, a role as a savior or king, betrayal, sacrifice (often by crucifixion or a similar act), and resurrection is not a unique historical phenomenon but a syncretic construct, drawing from a recurring pattern of divine or semi-divine figures across ancient Indo-European, Scythian, and Near Eastern mythologies. The Alexandrian School did not invent these tropes; they identified and weaponized them. This section examines the 'blueprint deities'—Horus, Dionysus, Mithras, and others—whose myths provided the raw material for the School's religious engineering.
 
 Romulus the Roman Deity
 
@@ -356,8 +356,6 @@ According to Plutarch’s Life of Romulus (circa 75 CE) the Roman deity of Quiri
 ![Fig.1.4](/images/Denarius_C._Memmius_C._F._Romulus.jpg){:width="400px"}
 
 Fig. 1.4. Romulus. 
-
-The Jesus archetype is not a unique historical phenomenon but a syncretic construct, a recurring pattern of divine or semi-divine figures across ancient mythologies. The Alexandrian School did not invent these tropes; they identified and weaponized them. This section examines the 'blueprint deities'—Horus, Dionysus, Mithras, and others—whose myths provided the raw material for the School's religious engineering.
 
 Serapis the Greco-Egyptian Deity
 
