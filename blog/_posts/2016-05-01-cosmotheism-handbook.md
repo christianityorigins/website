@@ -11,7 +11,9 @@ CONTENTS
 2 Types of Cosmotheism \
 3 Scientific Basis \
 4 Beliefs \
-5 Rituals
+5 Rituals\
+Addendum\
+Footnotes
 
 1 Cosmotheism
 
@@ -21,7 +23,7 @@ Cosmotheism is the philosophical and spiritual view that the universe itself is 
 
 There are different interpretations of cosmotheism:
 
--Naturalistic cosmotheism: This view sees the universe as a natural phenomenon, emphasizing the interconnectedness of all things without invoking supernatural elements. It aligns closely with scientific naturalism and can resonate with atheistic perspectives.
+-Naturalistic cosmotheism: This view sees the universe as a natural phenomenon, emphasizing the interconnectedness of all things without invoking supernatural elements. It aligns closely with scientific naturalism and can resonate with atheistic perspectives. Many modern secular Pagans (1) are inspired by Carl Jung who combined psychoanalysis with Heathenry. The universe is an expression of the collective unconscious (2) with archetypes (3) manifesting as symbolic or divine personifications/symbolic representations within it
   
 -Spiritual cosmotheism: This interpretation embraces a more mystical view, suggesting that the universe is imbued with a spiritual dimension, or a divine consciousness. It emphasizes the spiritual dimensions of existence and the idea that the cosmos is a manifestation of a greater divine reality.
 
@@ -39,9 +41,19 @@ Core Idea: You’re a piece of the cosmic puzzle, not a stranger to it. The divi
 
 In cosmotheist religions, rituals are about bringing someone to self-realization. For example, rituals like yoga, meditation, self-inquiry, and mantra recitation are used to help the individual realize their true nature as a manifestation of the divine. The goal is to awaken the individual's inner divinity and is aimed at helping the individual realize their true nature as the ultimate reality.
 
+To secular Pagans who are inspired by Carl Jung, rituals are ways of inducing 'active imagination' (4) or a part of the process of 'individuation' (5).
+
 Addendum
 
 This is just a simple explanatory framework of this religion. In a collective sense, traditions, shared identity, and group strategy/goals are built over this core. You can read more about this here:
 
 https://en.metapedia.org/wiki/Cosmotheism <a href="https://en.metapedia.org/wiki/Cosmotheism" target="_blank">[link]</a> \
 https://en.metapedia.org/wiki/Category:Cosmotheist_lectures <a href="https://en.metapedia.org/wiki/Category:Cosmotheist_lectures" target="_blank">[link]</a>
+
+Footnotes
+
+1\. https://en.wikipedia.org/wiki/Secular_paganism [link] \
+2\. https://en.wikipedia.org/wiki/Jungian_archetypes [link] \
+3\. https://en.wikipedia.org/wiki/Collective_unconscious [link] \
+4\. https://en.wikipedia.org/wiki/Active_imagination#Carl_Gustav_Jung [link] \
+5\. https://en.wikipedia.org/wiki/Individuation#Carl_Jung [link] \
