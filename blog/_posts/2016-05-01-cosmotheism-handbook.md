@@ -23,7 +23,7 @@ Cosmotheism is the philosophical and spiritual view that the universe itself is 
 
 There are different interpretations of cosmotheism:
 
--Naturalistic cosmotheism: This view sees the universe as a natural phenomenon, emphasizing the interconnectedness of all things without invoking supernatural elements. It aligns closely with scientific naturalism and can resonate with atheistic perspectives. Many modern secular Pagans (1) are inspired by Carl Jung who combined psychoanalysis with Heathenry. The universe is an expression of the collective unconscious (2) with archetypes (3) manifesting as symbolic or divine personifications/symbolic representations within it
+-Naturalistic cosmotheism: This view sees the universe as a natural phenomenon, emphasizing the interconnectedness of all things without invoking supernatural elements. It aligns closely with scientific naturalism and can resonate with atheistic perspectives. Many modern secular Pagans (1) are inspired by Carl Jung who combined psychoanalysis with Paganism. Jungian philosophy applies to cosmotheism as the universe becomes an expression of the collective unconscious (2) with archetypes (3) manifesting as symbolic or divine personifications/symbolic representations within it.
   
 -Spiritual cosmotheism: This interpretation embraces a more mystical view, suggesting that the universe is imbued with a spiritual dimension, or a divine consciousness. It emphasizes the spiritual dimensions of existence and the idea that the cosmos is a manifestation of a greater divine reality.
 
