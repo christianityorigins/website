@@ -25,32 +25,36 @@ Published by Heretical Books
 
 **Table of Contents**
 
-Introduction\
-Chapter 1: Name and Title Meanings\
-Chapter 2: Ancient Alias Names List\
+_Introduction_
+
+1\. Name and Title Meanings\
+2\. Ancient Alias Names List\
 Part 1: Foundations of the Dragon Cult\
-Chapter 3: The Sarmatian Dragon Cult\
+3\. The Sarmatian Dragon Cult\
 Part 2: The Alexandrian Synthesis\
-Chapter 4: The Alexandrian School\
-Chapter 4.1: The Blueprint Deities: Pre-existing Saviors (Horus, Dionysus, Mithras, etc.)\
-Chapter 4.2: Judaism\
+4. The Alexandrian School\
+4.1. The Blueprint Deities: Pre-existing Saviors (Horus, Dionysus, Mithras, etc.)\
+4.2. Judaism\
 Part 3: The Bosphoran Connection\
-Chapter 5: Julius Caesar aka Asander of Bosphorus\
-Chapter 6: Julius Caesar was a Title\
-Chapter 7: Rome on the Bosphorus?\
+5. Julius Caesar aka Asander of Bosphorus\
+6. Julius Caesar was a Title\
+7. Rome on the Bosphorus?\
 Part 4: From Imperial Cult to Christianity\
-Chapter 8: Flavian Dynasty\
+8. Flavian Dynasty\
 Part 5: Rewriting History\
-Chapter 9: Who Forged History?\
+9. Who Forged History?\
 Part 6. Repackaging of the Imperial Cult\
-Chapter 10: Repackaging of the Imperial Cult\
-Chapter 10.1: The Cult of Antinous\
-Chapter 10.2: Subversion of the Imperial Cult by Rabbi Akiva and His Students\
-Chapter 10.3: Islam\
-Conclusion\
-Appendix A: Alexander the Great\
-Appendix B: Scythians in China\
-Bibliography
+10. Repackaging of the Imperial Cult\
+10.1. The Cult of Antinous\
+10.2. Subversion of the Imperial Cult by Rabbi Akiva and His Students\
+10.3. Islam\
+Conclusion
+
+_Appendix_\
+&nbsp;&nbsp; &nbsp;&nbsp;&nbsp;&nbsp;    Alexander the Great\
+ &nbsp;&nbsp; &nbsp;&nbsp;&nbsp;&nbsp;   Scythians in China\
+_Selected Bibliography_\
+_Footnotes_
 
 **Introduction**
  
@@ -1161,7 +1165,7 @@ Endnotes (Chapter 10)
     *Pilate might also = "Pileatus" (Latin for "wearing a felt cap," a
     Pontic priestly garb).
 
-**Appendix A: Alexander the Great**
+**Alexander the Great**
 
 Alaksandu of Wilusa, a Hittie king of Wilusa (Troy) (Alaksandu = Alak-San-Du (Hurrian: "Ruler-Dragon-Son")), who predates Alexander by 800 years,
     proves that the name Alexander was a Scythian title for kings.
@@ -1240,7 +1244,7 @@ identity. Amyntas (son of Bubares) (born around 350 BCE) =
 Heracles/Helios (born around 350 BCE) = Mithridates I Ctistes (born
 around 350 BCE)?
 
-**Appendix B: Scythians in China**
+**Scythians in China**
 
 The Scythains ruled a Eurasian empire that stretched into China. 
 
