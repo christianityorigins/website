@@ -32,22 +32,22 @@ _Introduction_
 Part 1: Foundations of the Dragon Cult\
 3\. The Sarmatian Dragon Cult\
 Part 2: The Alexandrian Synthesis\
-4. The Alexandrian School\
-&nbsp; &nbsp;&nbsp;&nbsp;&nbsp; 4.1. The Blueprint Deities: Pre-existing Saviors (Horus, Dionysus, Mithras, etc.)\
-&nbsp; &nbsp;&nbsp;&nbsp;&nbsp; 4.2. Judaism\
+4\. The Alexandrian School\
+&nbsp;&nbsp;&nbsp;&nbsp; 4.1. The Blueprint Deities: Pre-existing Saviors (Horus, Dionysus, Mithras, etc.)\
+&nbsp;&nbsp;&nbsp;&nbsp; 4.2. Judaism\
 Part 3: The Bosphoran Connection\
-5. Julius Caesar aka Asander of Bosphorus\
-6. Julius Caesar was a Title\
-7. Rome on the Bosphorus?\
+5\. Julius Caesar aka Asander of Bosphorus\
+6\. Julius Caesar was a Title\
+7\. Rome on the Bosphorus?\
 Part 4: From Imperial Cult to Christianity\
-8. Flavian Dynasty\
+8\. Flavian Dynasty\
 Part 5: Rewriting History\
-9. Who Forged History?\
+9\. Who Forged History?\
 Part 6. Repackaging of the Imperial Cult\
-10. Repackaging of the Imperial Cult\
-&nbsp; &nbsp;&nbsp;&nbsp;&nbsp; 10.1. The Cult of Antinous\
-&nbsp; &nbsp;&nbsp;&nbsp;&nbsp; 10.2. Subversion of the Imperial Cult by Rabbi Akiva and His Students\
-&nbsp; &nbsp;&nbsp;&nbsp;&nbsp; 10.3. Islam\
+10\. Repackaging of the Imperial Cult\
+&nbsp;&nbsp;&nbsp;&nbsp; 10.1. The Cult of Antinous\
+&nbsp;&nbsp;&nbsp;&nbsp; 10.2. Subversion of the Imperial Cult by Rabbi Akiva and His Students\
+&nbsp;&nbsp;&nbsp;&nbsp; 10.3. Islam\
 Conclusion
 
 _Appendix_\
