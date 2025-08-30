@@ -35,11 +35,11 @@ The scientific basis for cosmotheism lies in the concept of unity and interconne
 
 In cosmotheist religions, cosmotheist cosmology posits that the universe is imbued with a spiritual dimension. This means that the divine is not a separate and transcendent entity but rather an inherent aspect of the universe, and humans are not separate from the divine but rather an unfolding or manifestation of it. Therefore, in cosmotheist cosmologies, self-realization or self-actualization is often seen as the process of recognizing and embodying one's true nature as an expression of the divine. This can be seen as a form of self-deification.
 
-Core Idea: You’re a piece of the cosmic puzzle, not a stranger to it. The divine is in everything; self-awareness is key.  
+Core Idea: You’re a piece of the cosmic puzzle, not a stranger to it. The divine is in everything; self-awareness is key. Self-realization in cosmotheism is not just personal growth but an alignment with the universe’s evolutionary drive toward greater complexity and consciousness.
 
 5 Rituals
 
-In cosmotheist religions, rituals are about bringing someone to self-realization. For example, rituals like yoga, meditation, self-inquiry, and mantra recitation are used to help the individual realize their true nature as a manifestation of the divine. The goal is to awaken the individual's inner divinity and is aimed at helping the individual realize their true nature as the ultimate reality.
+In cosmotheist religions, rituals are about bringing someone to self-realization. For example, rituals like yoga, meditation, self-inquiry, stargazing to reflect on cosmic unity, and engaging in scientific inquiry to deepen understanding are all ways to help the individual realize their true nature as a manifestation of the divine. The goal is to awaken the individual's inner divinity and is aimed at helping the individual realize their true nature as the ultimate reality, fostering a sense of unity with the universe.
 
 Addendum
 
@@ -48,7 +48,7 @@ Addendum
 https://en.metapedia.org/wiki/Cosmotheism <a href="https://en.metapedia.org/wiki/Cosmotheism" target="_blank">[link]</a> \
 https://en.metapedia.org/wiki/Category:Cosmotheist_lectures <a href="https://en.metapedia.org/wiki/Category:Cosmotheist_lectures" target="_blank">[link]</a>
 
-2 Many modern secular Pagans (1) are inspired by Carl Jung who combined psychoanalysis with Paganism. Jungian philosophy applies to cosmotheism as the universe becomes an expression of the collective unconscious (2) with archetypes (3) manifesting as symbolic or divine personifications/symbolic representations within it. To to these Pagans, rituals are ways of inducing 'active imagination' (4) or a part of the process of 'individuation' (5).
+2 Many modern secular Pagans (1) are inspired by Carl Jung who combined psychoanalysis with Paganism. Jungian philosophy applies to cosmotheism as the universe becomes an expression of the collective unconscious (a shared reservoir of human experience inherited across generations, analogous to Cosmotheism’s view of a universal consciousness) (2) with archetypes (3) manifesting as symbolic or divine personifications/symbolic representations within it. To to these Pagans, rituals are ways of inducing 'active imagination' (4) or a part of the process of 'individuation' (5).
 
 Footnotes
 
