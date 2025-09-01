@@ -25,16 +25,15 @@ Published by Heretical Books
 
 **Table of Contents**
 
-_Introduction_
-
+Introduction\
 1\. Name and Title Meanings\
 2\. Ancient Alias Names List\
 Part 1: Foundations of the Dragon Cult\
 3\. The Sarmatian Dragon Cult\
 Part 2: The Alexandrian Synthesis\
 4\. The Alexandrian School\
-&nbsp;&nbsp;&nbsp;&nbsp; 4.1. The Blueprint Deities: Pre-existing Saviors (Horus, Dionysus, Mithras, etc.)\
-&nbsp;&nbsp;&nbsp;&nbsp; 4.2. Judaism\
+4.1. The Blueprint Deities: Pre-existing Saviors (Horus, Dionysus, Mithras, etc.)\
+4.2. Judaism\
 Part 3: The Bosphoran Connection\
 5\. Julius Caesar aka Asander of Bosphorus\
 6\. Julius Caesar was a Title\
@@ -45,16 +44,14 @@ Part 5: Rewriting History\
 9\. Who Forged History?\
 Part 6. Repackaging of the Imperial Cult\
 10\. Repackaging of the Imperial Cult\
-&nbsp;&nbsp;&nbsp;&nbsp; 10.1. The Cult of Antinous\
-&nbsp;&nbsp;&nbsp;&nbsp; 10.2. Subversion of the Imperial Cult by Rabbi Akiva and His Students\
-&nbsp;&nbsp;&nbsp;&nbsp; 10.3. Islam\
-Conclusion
-
-_Appendix_\
-&nbsp; &nbsp;&nbsp;&nbsp;&nbsp;    Alexander the Great\
- &nbsp; &nbsp;&nbsp;&nbsp;&nbsp;   Scythians in China\
-_Selected Bibliography_\
-_Footnotes_
+10.1. The Cult of Antinous\
+10.2. Subversion of the Imperial Cult by Rabbi Akiva and His Students\
+10.3. Islam\
+Conclusion\
+Appendix A: Alexander the Great\
+Appendix B: Scythians in China\
+Selected Bibliography\
+Footnotes
 
 **Introduction**
  
@@ -426,7 +423,7 @@ As for the term 'Hebrew", it comes from the Celts who called themselves Iberi. T
 
 'Ashkenazi', or 'Ashkuza', was the name given to the Scythians by the ancient Akkadians. The Assyrians called the Scythians "Asguzaya" and the ancient Persians called the Scythians 'Saka'. In Biblical Hebrew, the Ashkuz (Ashkenaz) are considered to be a direct offshoot from the Gimirri, known as the Cimmerians to the ancient Greeks. Cimmerians were a Middle Eastern offshoot of the Celtic Cimbri tribe. 
 
-These Celtic males mixed with Neolithic Anatolian women before their descendants moved into Egypt (Apiru or Habiru) and Caanan and then mixed with indigenous people in those places. Celtic Jews (Iudii) then disappeared after the Bar Kokhba Revolt when Emperor Hadrian decimated their population. Modern Ashkenazi Jews are a hodgepodge of Neolithic (proto-Sicilian who originated in Anatolia), native Canaanites (who were literal human-neanderthal hybrids [^2]), proto-Arab Natufians (Natufians had ~20% higher Basal Eurasian -- Basal means with SSA, North Africa was green/fertile so sub-Saharin Africans could cross the Sahara), and Celtic Cimbri and Celtic Galatian from Anatolia.
+These Celtic males mixed with Neolithic Anatolian women before their descendants moved into Egypt (Apiru or Habiru) and Caanan and then mixed with indigenous people in those places. Celtic Jews (Iudii) then disappeared after the Bar Kokhba Revolt when Emperor Hadrian decimated their population. Modern Ashkenazi Jews are a hodgepodge of Neolithic (proto-Sicilian who originated in Anatolia), native Canaanites (who were literal human-neanderthal hybrids [^2]), proto-Arab Natufians (Natufians had ~20% higher Basal Eurasian -- Basal means with sub-Saharin African, North Africa was green/fertile so Africans could cross the Sahara), and Celtic Cimbri and Celtic Galatian from Anatolia.
 
 The rest of the jewish religion and identity came from later incarnations of this imperial cult: I(J)upiter was also called Jove or Iove to the Romans. The Latin pronunciation of Iove would have been Yoh-Way, i.e Yahweh/Yhwh, so Yahweh Saboath, the god of the Hebrew bible, is I(J)ove (Roman Zeus) Sabazios (Thracian Zeus).
 
