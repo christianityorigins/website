@@ -123,7 +123,7 @@ You can prove that Christianity is a slave morality system that is designed to s
 *   Jews: the Torah contains over 100 mitzvot concerning business and money-making. Christians: "usury" and money lending is one of the worst sins.
 *   Jews: master race/"God's chosen people", outbreeding or conversion is forbidden. Christians: Universalist/"all are one in Jesus", "love thy brother". Having "pride" is one of the worst sins.
 *   Jews: multiple mitzvots that command them to be fruitful and have as many kids as possible. Christians: the bible preaches celibacy \[too many verses to quote, so go here: link\], antinatalism (Ecclesiastes 4:3, Job 3:16, Matthew 26:24), sex is a sin and virginity is exhaulted, and moreover, "jesus" even says that men should castrate themselves to gain entry into the kingdom of heaven! (Matthew 19:11-12 \[link\])
-*   The “New Testament” was built on Judaism, which unconsciously ties Christians to Jewish masters.
+*   Jews follow the Torah. Christians follow the Noahide Laws.
 *   Judaism is tribal. Christianity is universal.
 *   Judaism is an ethnocentric religion that does not accept converts. Christians actively seek converts of all races because Christian Universalism considers everyone equal.
 *   The Old Testament is filled with hatred, violence, killing, and war. The New Testament is filled with love, unconditional tolerance, and anti-rebellion: "for all who draw the sword will die by the sword".
