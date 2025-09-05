@@ -1,4 +1,4 @@
-tre---
+---
 layout: default
 open_links_in_new_tab: true
 title: "On the Origins of Christianity: Aži Dahāka as the Proto-Christ"
