@@ -1,4 +1,4 @@
----
+tre---
 layout: default
 open_links_in_new_tab: true
 title: "On the Origins of Christianity: Aži Dahāka as the Proto-Christ"
@@ -332,7 +332,7 @@ Footnotes (Chapter 3)
     cannabis cult that stripped them of their martial spirit
     (https://en.wikipedia.org/wiki/Enaree). Marijuanna turned them from
     fearless warriors into potheads who were led by transgender priests.\
-(b) Azhdahak, which is the Armenian form of the name of the Avestan Azhi Dahaka, was associated with the Median king Astyages (r. 564–550 BC) https://en.wikipedia.org/wiki/Azhdahak_(mythology)   
+(b) Azhdahak, which is the Armenian form of the name of the Avestan Azhi Dahaka, was associated with the Median king Astyages (r. 564–550 BC) who was the grandfather of Cyrus the Great. https://en.wikipedia.org/wiki/Azhdahak_(mythology)   
 (c) Quetzalcōātl, the Mesoamerican serpent deity, shares uncanny similarities to Aži Dahāka which suggests a transoceanic exchange of religious ideas long before Columbus (the Jade Mask of Calakmul (7th century CE) also depicts a Caucasian-featured ruler with a serpent headdress—resembling Scythian dragon crowns).
 
 **4 The Alexandrian School**
