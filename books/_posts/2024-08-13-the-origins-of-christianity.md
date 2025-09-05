@@ -223,18 +223,19 @@ IV. Speculative
 
 **3 The Sarmatian Dragon Cult**
 
-The Hyperboreans were a real Bronze Age civilization in the Ural-Volga region of modern Russia who spread their culture southward via the Kurgan hypothesis (c. 4000 BCE). Their descendants, the Scythians, then spread their Draco (dragon/serpent) cult across Eurasia, encoded in snake-worshiping myths. The domestication
-of the horse and invention of the chariot allowed them to travel vast
-distances. They were a priesthood of dragon/serpent-worshipping kings
-[^1]
-
-The Scythian tribe called the Sarmatians (also called Sauromatians
+The Hyperboreans were a real Bronze Age civilization in the Ural-Volga region of modern Russia who spread their culture southward via the Kurgan hypothesis (c. 4000 BCE). Their descendants were the Scythians. One offshot of the Scythians were a tribe called the Sarmatians (also called Sauromatians
 ("Saur" = "Lizard/Dragon" + "Matae" = "Men/Warriors" - where the
-Sumerian "sar" (king) comes from) were a nomadic Indo-Iranian warrior
-elite from the Pontic steppe (modern Ukraine/Russia). 
+Sumerian "sar" (king) comes from) who were a nomadic Indo-Iranian warrior
+elite from the Pontic steppe (modern Ukraine/Russia). The domestication
+of the horse and invention of the chariot allowed them to travel vast
+distances and they spread their Draco (dragon/serpent) cult across Eurasia, encoded in snake-worshiping myths [^1] 
+
+The Sarmatian/Saka's were the Egyptian-Persian-Indian-Greek-Roman elite. Egypt, Persia, India, Greece, Rome, etc., were all under the suzerainty of these Aryan Iranian-Scythian-Sarmatian elites since at least the 17th century BC and their base of operation was on the Bosphorus river.
+
+In the elite burial chambers from the Scythian Kurgans in Ukraine to the Etruscan tombs in Italy to the burial sites of Roman Patricians a specific non-local skull type appears: Dolichocephalic (long-headed) and high-vaulted with a pronounced occipital bun—a bulge at the back of the skull—a feature most commonly associated with Neanderthal admixture.
 
 All ancient Mediterranean religions derive from the
-repackaging of Sythian serpent-dragon worshiping religions. See: Papaios and the Snake-Legged Goddess (Scythian) = Nehebkau, Uraeus, and Apep/Apophis (Egypt) = Ningishzida (Sumerian) = Tiamat and Mušḫuššu who was associated with Marduk (Babylonian) = Aži Dahāka (Zoroastrianism) later syncretized with Mithra = Ophion, Agathodaemon, Typhon, and Delphi's Pythoness priestess (Greek) = Nāgendra and Nāga (Vedic), Nehushtan/serpent staff of Moses, the Dacian and Roman Draco standards, the serpent-worshipping Essenes and Gnostics, Sebazi (Phrygian/Bulgarian), Jörmungandr (Norse), Ouroboros serpent in Freemasonry, etc. The Knights Templar knew the truth. The Templars worshipped Baphomet—a Sarmatian dragon deity (Aži Dahāka).
+Sarmatian serpent-dragon cult. See: Papaios and the Snake-Legged Goddess (Scythian) = Nehebkau, Uraeus, and Apep/Apophis (Egypt) = Ningishzida (Sumerian) = Tiamat and Mušḫuššu who was associated with Marduk (Babylonian) = Aži Dahāka (Zoroastrianism) later syncretized with Mithra = Ophion, Agathodaemon, Typhon, and Delphi's Pythoness priestess (Greek) = Nāgendra and Nāga (Vedic), Nehushtan/serpent staff of Moses, the Dacian and Roman Draco standards, the serpent-worshipping Essenes and Gnostics, Sebazi (Phrygian/Bulgarian), Jörmungandr (Norse), Ouroboros serpent in Freemasonry, etc. The Knights Templar knew the truth. The Templars worshipped Baphomet—a Sarmatian dragon deity (Aži Dahāka).
 
 Kings who took on the snake/dragon/serpent/Azhi Dahaka title: Scorpion I, Pharaoh of Egypt, Azhdahak, which is the Armenian form of the name of the Avestan Azhi Dahaka, was associated with the Median king Astyages (564–550 BC) who was the grandfather of Cyrus the Great. Tigranes II/the Great, King of Armenia (140–55 BC) was also called Azhdahak. Izates II, king of Adiabene's title Iza" = Avestan root for "serpent" (cognate with Scythian Aži), Tiberius Julius Sauromates II, King of Bosphorus ('Saur'
 means 'lizard' or 'reptile', and 'mates' means 'man' or 'warrior'). The roots of the snake titles were: Aži-, Azhd-, -zates, Sauro-, Draco-.
@@ -419,11 +420,11 @@ Moses = Manes/Mannu-Kuras = Manu (Scythian Sage-King) = Menes (Egypt’s legenda
 
 The original redhead clan of Druids that ended up becoming Israelites were Celtic Scythians who migrated southward during the early Aryan invasion of 4000 BC. Scythian --> Saka --> Isaac. This migration coincides with the development of early Bronze Age civilization. They went to Anatolia first (Galatia), then Babylon, then Canaan ('Gaulinitis' = Golan Heights). In Canaan, the natives then came under the suzerainty of these Celts and their entire identity, language, and religion derives from this. The evidence for this is paternal DNA assays (Galatian Celts carried the Celtic R1b haplotype (10% of Ashkenazi jews), but also R1a, G2a, J2a, which are other paternal lineages that make up the bulk of jews paternal haplotypes), the fact that the Celtic languages are surprisingly Semitic with a verb-subject-object word order and a shocking amount of vocabulary overlap, and the name of Irish deities, Balor and his holiday Beltaine are cognate to Bal and Elatha the Irish Uranus is cognate to Hebrew El. King David (DWD) = King Druid. 1 Samuel 16:12 claims that King David had red hair. As for the name 'jew', the descriptive name Judaism was never used by the Hebrews or Israelites; it appears only with Christianity. It comes from Yahud or Auda which comes from Iodh or Ioux. Iodh and Ioux are associated with the yew tree in Druidism and are sometimes linked to the concept of rebirth and regeneration. The ancient Celtic prefixes 'Rab' or 'Rhab' mean 'wise one' or 'seer', and a Druid equates to a Rabbi.
 
-As for the term 'Hebrew", it comes from the Celts who called themselves Iberi. The name of Abaris the Hyperborean, a Druid priest who was Pythagoras's teacher, who was the son of Seuthes (Seth), shows this. The term Abaris was inspired by the Semitic Iber. Iber was sometimes rendered as Aber or Heber and is pronounced as Hebrew in the Hebrew language. Hyperborea, which just like Atlantis, was another name for Ireland. The word Atlantis means ‘The Island of Atlas’. The titan Atlas was a key figure in Greek mythology and is depicted as being the  bearer of the heavens. According to early Greek mythology, Atlas lived on the island of Hyperborea. Over time Hyperborea became Hybernia or Hibernia, the Roman name for Ireland. Iber is an ethnonym that shows up in areas where the Celtic people settled (Ebro river, Iberia, Hibernia, etc.). Dionysius of Alexandria in Egypt (ca. 190-264 CE) also referred to the inhabitants of Britain as Iberi.
+As for the term 'Hebrew", it comes from the Celts as well who called themselves Iberi. The name of Abaris the Hyperborean, a Druid priest who was Pythagoras's teacher, who was the son of Seuthes (Seth), shows this. The term Abaris was inspired by the Semitic Iber. Iber was sometimes rendered as Aber or Heber and is pronounced as Hebrew in the Hebrew language. Hyperborea, which just like Atlantis, was another name for Ireland. The word Atlantis means ‘The Island of Atlas’. The titan Atlas was a key figure in Greek mythology and is depicted as being the  bearer of the heavens. According to early Greek mythology, Atlas lived on the island of Hyperborea. Over time Hyperborea became Hybernia or Hibernia, the Roman name for Ireland. Iber is an ethnonym that shows up in areas where the Celtic people settled (Ebro river, Iberia, Hibernia, etc.). Dionysius of Alexandria in Egypt (ca. 190-264 CE) also referred to the inhabitants of Britain as Iberi.
 
 'Ashkenazi', or 'Ashkuza', was the name given to the Scythians by the ancient Akkadians. The Assyrians called the Scythians "Asguzaya" and the ancient Persians called the Scythians 'Saka'. In Biblical Hebrew, the Ashkuz (Ashkenaz) are considered to be a direct offshoot from the Gimirri, known as the Cimmerians to the ancient Greeks. Cimmerians were a Middle Eastern offshoot of the Celtic Cimbri tribe. 
 
-These Celtic males mixed with Neolithic Anatolian women before their descendants moved into Egypt (Apiru or Habiru) and Caanan and then mixed with indigenous people in those places. Celtic Jews (Iudii) then disappeared after the Bar Kokhba Revolt when Emperor Hadrian decimated their population. Modern Ashkenazi Jews are a hodgepodge of Neolithic (proto-Sicilian who originated in Anatolia), native Canaanites (who were literal human-neanderthal hybrids [^2]), proto-Arab Natufians (Natufians had ~20% higher Basal Eurasian -- Basal means with sub-Saharin African, North Africa was green/fertile so Africans could cross the Sahara), and Celtic Cimbri and Celtic Galatian from Anatolia.
+These Celtic males mixed with Neolithic Anatolian women before their descendants moved into Egypt (Apiru or Habiru) and Caanan and then mixed with indigenous people in those places. Celtic Jews (Iudii) then disappeared after the Bar Kokhba Revolt when Emperor Hadrian decimated their population. Modern Ashkenazi Jews are a hodgepodge of native Canaanites, Neolithic (proto-Sicilians who originated in Anatolia) [^2], proto-Arab Natufians (Natufians had ~20% higher Basal Eurasian -- Basal means with sub-Saharin African, North Africa was green/fertile so Africans could cross the Sahara), and Celtic Cimbri and Celtic Galatian from Anatolia.
 
 The rest of the jewish religion and identity came from later incarnations of this imperial cult: I(J)upiter was also called Jove or Iove to the Romans. The Latin pronunciation of Iove would have been Yoh-Way, i.e Yahweh/Yhwh, so Yahweh Saboath, the god of the Hebrew bible, is I(J)ove (Roman Zeus) Sabazios (Thracian Zeus).
 
@@ -1335,39 +1336,7 @@ https://unz.com/article/how-fake-is-church-history by Laurent Guyénot
     Dracula (Son of the Dragon) is an example of this bloodline in
     Wallachia.
     
-[^2]:You can read more about the Jew-Neanderthal connection here: (Humans
-    and Neanderthals likely interbred in the Middle East. Science
-    Magazine,
-    https://www.sciencemag.org/news/2015/01/humans-and-neandertals-likely-interbred-middle-east),
-    (Remains of hybrid Neanderthal-Sapiens population found in Israel.
-    Haaretz,
-    https://www.haaretz.com/israel-news/2019-11-08/ty-article-magazine/.premium/remains-of-hybrid-neanderthal-sapiens-population-found-in-israel/0000017f-dbcf-db5a-a57f-dbef18940000),
-    (Evidence of human-Neanderthal hybrids found in Israeli cave.
-    Forward,
-    https://forward.com/culture/434525/evidence-of-human-neanderthal-hybrids-found-in-israeli-cave),
-    (The Chosen People: Caucasus, Deceptions, and Historical. Amazon,
-    https://www.amazon.com/Chosen-People-Caucasus-Deceptions-Historical/dp/0883781476),
-    (Genetic studies of Jews. National Center for Biotechnology
-    Information, https://www.ncbi.nlm.nih.gov/pmc/articles/PMC6309227),
-    (Genetic studies of Jews. Wikipedia,
-    https://en.wikipedia.org/wiki/Genetic_studies_of_Jews),
-    (Ashkenazi Jewish population history revealed by ancient DNA
-    analysis. GenomeWeb,
-    https://www.genomeweb.com/sequencing/ashkenazi-jewish-population-history-revealed-ancient-dna-analysis),
-    (Ashkenazi gene increases schizophrenia. Haaretz,
-    https://www.haaretz.com/2013-11-26/ty-article/.premium/ashkenazi-gene-increases-schizophrenia/0000017f-e04b-d75c-a7ff-fccfa3e10000),
-    (Genetic studies of Jews. National Center for Biotechnology
-    Information, https://www.ncbi.nlm.nih.gov/pmc/articles/PMC7465115/),
-    (So, are the Neanderthals still Jews? Slate,
-    https://slate.com/news-and-politics/1997/08/so-are-the-neanderthals-still-jews.html),
-    (Did modern humans and Neanderthals really meet in the Negev?
-    Haaretz,
-    https://www.haaretz.com/archaeology/2021-06-21/ty-article/.premium/did-modern-humans-and-neanderthals-really-meet-in-the-negev/),
-    (BBC News, https://www.bbc.co.uk/news/science-environment-57586315),
-    (New America Government,
-    https://archive.ph/2024.02.24-211636/https://newamericangovernment.org/ailink/802/),
-    (Blogger,
-    https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiyDzxbNmb6Oj5aDWOknO84-hwkdkoi) \
+[^2]: https://genoplot.com/discussions/topic/12414/jewish-roots-with-italian-ashkenazi-levantine-and-middle-eastern-ancestry \
 
 [^3]: See: "History: Fiction or Science? Russia. Britain. Byzantium.
     Rome. New Chronology Vol.IV" (2008) by Anatoly T. Fomenko, "Jesus
