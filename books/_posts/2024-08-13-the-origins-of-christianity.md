@@ -75,9 +75,7 @@ Egyptian-Persian-Indian-Greek-Roman elite were Sarmatian/Saka warlords
 who ruled through proxy dynasties. Egypt, Persia, India, Greece, Rome,
 etc., were all under the suzerainty of Aryan Iranian-Scythian elites
 since at least the 17th century BC and their base of operation was on the Bosphorus river.
-
 -   Western Rome in Italy is a phantom empire that was invented by the Vatican. Western Rome was built during the Renaissance period. The original Rome (in Sarmatian, "Ruma" (Rome) = "Place of the Dragon" (Rhu-Ma, from Aži Dahāka, the Iranian dragon)) was located on the Bosphorus.
-
 -   Asander, king of Bosphorus aka Julius Caesar was also Ptolemy XI Alexander II, Cleopatra's uncle, but he took on numerous
 other regional aliases. Cleopatra was also Dynamis, queen of Bosphorus. Mark
 Antony the Neos-Dionysos was either Ptolemy of Cyprus, a brother of
@@ -232,7 +230,7 @@ distances and they spread their Draco (dragon/serpent) cult across Eurasia, enco
 
 The Sarmatian/Saka's were the Egyptian-Persian-Indian-Greek-Roman elite. Egypt, Persia, India, Greece, Rome, etc., were all under the suzerainty of these Aryan Iranian-Scythian-Sarmatian elites since at least the 17th century BC and their base of operation was on the Bosphorus river.
 
-In the elite burial chambers from the Scythian Kurgans in Ukraine to the Etruscan tombs in Italy to the burial sites of Roman Patricians a specific non-local skull type appears: Dolichocephalic (long-headed) and high-vaulted with a pronounced occipital bun—a bulge at the back of the skull—a feature most commonly associated with Neanderthal admixture.
+In the elite burial chambers from the Scythian Kurgans in Ukraine to the Etruscan tombs in Italy to the burial sites of Roman Patricians a specific non-local skull type appears: Dolichocephalic (long-headed) and high-vaulted with a pronounced occipital bun—a bulge at the back of the skull—a feature most commonly associated with Neanderthal admixture. This was no mere coincidence; it was the osteological signature of the Dragon Bloodline, a physiological marker distinguishing the ruling elite from the general population they governed.
 
 All ancient Mediterranean religions derive from the
 Sarmatian serpent-dragon cult. See: Papaios and the Snake-Legged Goddess (Scythian) = Nehebkau, Uraeus, and Apep/Apophis (Egypt) = Ningishzida (Sumerian) = Tiamat and Mušḫuššu who was associated with Marduk (Babylonian) = Aži Dahāka (Zoroastrianism) later syncretized with Mithra = Ophion, Agathodaemon, Typhon, and Delphi's Pythoness priestess (Greek) = Nāgendra and Nāga (Vedic), Nehushtan/serpent staff of Moses, the Dacian and Roman Draco standards, the serpent-worshipping Essenes and Gnostics, Sebazi (Phrygian/Bulgarian), Jörmungandr (Norse), Ouroboros serpent in Freemasonry, etc. The Knights Templar knew the truth. The Templars worshipped Baphomet—a Sarmatian dragon deity (Aži Dahāka).
