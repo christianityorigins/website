@@ -12,7 +12,6 @@ CONTENTS
 3 Scientific Basis \
 4 Beliefs \
 5 Rituals\
-Addendum
 
 1 Cosmotheism
 
@@ -39,13 +38,3 @@ Core Idea: You’re a piece of the cosmic puzzle, not a stranger to it. The divi
 5 Rituals
 
 In cosmotheist religions, rituals are about bringing someone to self-realization. For example, rituals like yoga, meditation, self-inquiry, stargazing to reflect on cosmic unity, and engaging in scientific inquiry to deepen understanding are all ways to help the individual realize their true nature as a manifestation of the divine. The goal is to awaken the individual's inner divinity and is aimed at helping the individual realize their true nature as the ultimate reality, fostering a sense of unity with the universe.
-
-Addendum
-
-This is just a simple explanatory framework of this religion. In a collective sense, traditions, shared identity, and group strategy/goals are built over this core. You can read more about this here:
-
-https://en.metapedia.org/wiki/Cosmotheism <a href="https://en.metapedia.org/wiki/Cosmotheism" target="_blank">[link]</a> 
-
-https://en.metapedia.org/wiki/Category:Cosmotheist_lectures <a href="https://en.metapedia.org/wiki/Category:Cosmotheist_lectures" target="_blank">[link]</a>
-
-https://odysee.com/@WaltherMauser:b/Cosmotheism-_-Divine-Aryan-Consciousness-_-From-Man-to-Super-Man---William-Luther-Pierce:1 <a href="https://odysee.com/@WaltherMauser:b/Cosmotheism-_-Divine-Aryan-Consciousness-_-From-Man-to-Super-Man---William-Luther-Pierce:1" target="_blank">[link]</a>
