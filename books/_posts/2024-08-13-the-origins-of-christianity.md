@@ -12,7 +12,7 @@ category: books
 
 
 Copyright © 2025 Ralph Perrier\
-All rights reserved. No part of this publication may be reproduced or transmitted in any form without written permission from the publisher, except for brief quotations in reviews or scholarly works.
+All rights reserved. No part o6f this publication may be reproduced or transmitted in any form without written permission from the publisher, except for brief quotations in reviews or scholarly works.
 For permissions, contact: hereticalbooks.com\
 First Edition: 2025\
 ISBN: 978-1-0696862-0-6 \
@@ -42,8 +42,8 @@ Part 4: From Imperial Cult to Christianity\
 8\. Flavian Dynasty\
 Part 5: Rewriting History\
 9\. Who Forged History?\
-Part 6. Repackaging of the Imperial Cult\
-10\. Repackaging of the Imperial Cult\
+Part 6. Sects of the Imperial Cult\
+10\. Sects of the Imperial Cult\
 10.1. The Cult of Antinous\
 10.2. Subversion of the Imperial Cult by Rabbi Akiva and His Students\
 10.3. Islam\
@@ -422,7 +422,7 @@ As for the term 'Hebrew", it comes from the Celts as well who called themselves 
 
 'Ashkenazi', or 'Ashkuza', was the name given to the Scythians by the ancient Akkadians. The Assyrians called the Scythians "Asguzaya" and the ancient Persians called the Scythians 'Saka'. In Biblical Hebrew, the Ashkuz (Ashkenaz) are considered to be a direct offshoot from the Gimirri, known as the Cimmerians to the ancient Greeks. Cimmerians were a Middle Eastern offshoot of the Celtic Cimbri tribe. 
 
-These Celtic males mixed with Neolithic Anatolian women before their descendants moved into Egypt (Apiru or Habiru) and Caanan and then mixed with indigenous people in those places. Celtic Jews (Iudii) then disappeared after the Bar Kokhba Revolt when Emperor Hadrian decimated their population. Modern Ashkenazi Jews are a hodgepodge of native Canaanites, Neolithic (proto-Sicilians who originated in Anatolia) [^4], proto-Arab Natufians (Natufians had ~20% higher Basal Eurasian -- Basal means with sub-Saharin African, North Africa was green/fertile so Africans could cross the Sahara), and Celtic Cimbri and Celtic Galatian from Anatolia.
+These Sarmatian-Celtic (Galatian) males mixed with Neolithic Anatolian women before their descendants moved into Egypt (Apiru or Habiru) and Caanan and then mixed with indigenous people in those places. Celtic Jews (Iudii) then disappeared after the Bar Kokhba Revolt when Emperor Hadrian decimated their population. Modern Ashkenazi Jews are a hodgepodge of native Canaanites (a mix of Canaanites, Edomites, and other Levantine peoples, as well as, proto-Arab Natufians (Natufians had ~20% higher Basal Eurasian -- Basal means with sub-Saharin African, North Africa was green/fertile so Africans could cross the Sahara)) and Neolithic proto-Sicilians who originated in Anatolia [^4] with minor Celtic Cimbri and Celtic Galatian from Anatolia.
 
 The rest of the jewish religion and identity came from later incarnations of this imperial cult: I(J)upiter was also called Jove or Iove to the Romans. The Latin pronunciation of Iove would have been Yoh-Way, i.e Yahweh/Yhwh, so Yahweh Saboath, the god of the Hebrew bible, is I(J)ove (Roman Zeus) Sabazios (Thracian Zeus).
 
@@ -904,7 +904,7 @@ Vespasian was also a great-grandson of Cleopatra and Mark Antony (King
 Herod). He was Herod Pollio aka Herod Agrippa I, grandson of King
 Herod's son Aristobulus IV. Vespasian was his title, not his name
 (Vas/Bas was the royal abbreviation for the Greek word Basilius which =
-King, and Pasius = Peace. 'Vespasian' = 'King Peace') [^15]. He was also
+King, and Pas means "all" as in Pan. "Vespasian" = "King of All", of "King of Everything" which is a claim to the title "King of Kings") [^15]. He was also
 'Flavius Scaevinus' the conspirator involved in Nero's assassination.
 
 ![Fig.
@@ -971,7 +971,9 @@ Endnotes (Chapter 8)
 
 **9: Who Forged History?**
 
-The creation of the Papacy during the elevation of Charlemagne was likely when the myth of a "Roman empire" began. The renaissance finished the fabrication of history. This was all to secretly make Rome into a Carian empire. It was an Aryan and Thracian proxy state of the Scythins who were based out of the Boshorus. The Bosphorus was always its capital. Latin was the original language of the Dacians and it was high-noble Aryan; German mixed the middle language (proto Latin) with degenerated old Gothic.
+The primary architects were the Flavian dynasty (Vespasian, Titus, Domitian) and their court historians (Josephus, Pliny, Tacitus). They began the process of creating a "Roman" history to legitimize their new dynasty and obscure their Bosphoran/Herodian origins.
+ 
+Then the creation of the Papacy during the elevation of Charlemagne was likely when the myth of a "Roman empire" became codified. The renaissance finished the fabrication of history. This was all to secretly make Rome into a Carian empire. It was an Aryan and Thracian proxy state of the Scythins who were based out of the Boshorus. The Bosphorus was always its capital. Latin was the original language of the Dacians and it was high-noble Aryan; German mixed the middle language (proto Latin) with degenerated old Gothic.
 
 Emperor Theodosius, Pope Theophilus I of Alexandria, and Jerome also played a big role in the deception. The mainstream claim is that the Library of Alexandria was destroyed by Julius Caesar (48 BC) or Muslim conquest (642 AD). The truth is that the final and most devastating burn was ordered by Emperor Theodosius and Pope Theophilus I of Alexandria in 391 AD to erase Serapis cult texts that exposed Christianity’s origins. Proof: The Nag Hammadi Library (1945) contained Gnostic texts that matched Serapis theology—proving a cover-up, and the "Letter of Hadrian to Servianus" (found in Vindobonensis manuscript) admits: "Those who worship Serapis are Christians… devotees of Serapis call themselves bishops of Christ."
 
@@ -985,9 +987,9 @@ Two other men are responsible for most of what we know about the rest of Europea
 
 There was a Jesuit named Jean Hardouin who said that a 14th Century Jesuit conspiracy forged practically all literature traditionally believed to have been written before that era. He was the official librarian to the King of France. He published a book called the Prolegomena and it caused such controversy that the Pope and the King had him come before them and explain himself. He defended his work, and refused to retract it, so they threw him in prison.
 
-Isaac Newton’s wrote a book called The Chronology Of Ancient Kingdoms Amended where he analysed the eclipses recorded in ancient times and showed that 753 years (the exact number of years between the founding of Rome, or specifically the birth of the Roman deity Romulus and the birth of Jesus was added in to the first "millennium". This would line up with the gaps of time found across European and world history, oddities like the invention of paper taking 700 years to travel across the Silk Road, or the 1st century Mexican deity Quetzalcoatl being temporarily forgotten til the 8th century.
+Isaac Newton wrote a book called "The Chronology Of Ancient Kingdoms Amended" where he analysed the eclipses recorded in ancient times and showed that 753 years (the exact number of years between the founding of Rome, or specifically the birth of the Roman deity Romulus and the birth of Jesus, was added in to the first "millennium". This would line up with the gaps of time found across European and world history, oddities like the invention of paper taking 700 years to travel across the Silk Road, or the 1st century Mexican deity Quetzalcoatl being temporarily forgotten til the 8th century.
 
-**10 Repackaging of the Imperial Cult**
+**10 Sects of the Imperial Cult**
 
 **10.1 The Cult of Antinous**
 
@@ -1057,7 +1059,7 @@ Baal-Zebul -> Baal-Zebub ("Lord of the Flies") in 2 Kings 1:2-3.Jesus
 calls Satan "Beelzebul" (Matthew 12:24)---a deliberate mockery of
 Zeus-Baal. Scythian Sar (king) became Esau (Edom) the progenitor of the
 Edomites in the bible, a metaphor for the forces of oppression and
-injustice. Saka (scythian tribe) became Satan (adversary). The Jewish
+injustice. Saka (Scythian tribe) is a near-perfect homophone for the name of Satan (adversary). The Jewish
 version of Antichrist (Armilus) is based on Romulus (Armilus is a Hebrew
 corruption or adaptation of the Latin name Romulus). Lucifer, or "lucem
 ferre", which means "light-bearer" or "morning star", is Venus who was
