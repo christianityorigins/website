@@ -70,7 +70,7 @@ This book traces Christianity back to its foundations — from the mythemes of S
 
 A few things you need to know before you read my book:
 
--   Much of what we know of ancient history is fabricated by the Jesuits and Vatican. The
+-   Much of what we know of ancient history is fabricated by the Favian emperors, Jesuits, and the Vatican. The
 Egyptian-Persian-Indian-Greek-Roman elite were Sarmatian/Saka warlords
 who ruled through proxy dynasties. Egypt, Persia, India, Greece, Rome,
 etc., were all under the suzerainty of Aryan Iranian-Scythian elites
