@@ -5,7 +5,7 @@ title:  "Cosmotheism Handbook"
 date:   2016-05-01 09:00:00 +0200
 category: blog
 ---
-CONTENTS
+Contents
 
 1 Cosmotheism\
 2 Types of Cosmotheism \
