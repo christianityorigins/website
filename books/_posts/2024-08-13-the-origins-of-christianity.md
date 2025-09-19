@@ -75,7 +75,7 @@ Egyptian-Persian-Indian-Greek-Roman elite were Sarmatian/Saka warlords
 who ruled through proxy dynasties. Egypt, Persia, India, Greece, Rome,
 etc., were all under the suzerainty of Aryan Iranian-Scythian elites
 since at least the 17th century BC and their base of operation was on the Bosphorus river.
--   Western Rome in Italy is a phantom empire that was invented by the Vatican. Western Rome was built during the Renaissance period. The original Rome (in Sarmatian, "Ruma" (Rome) = "Place of the Dragon" (Rhu-Ma, from Aži Dahāka, the Iranian dragon)) was located on the Bosphorus.
+-   Western Rome in Italy is a phantom empire that was invented by the Vatican. Western Rome was built during the Renaissance period. The original Rome (in Sarmatian, "Ruma" (Rome) = "Place of the Dragon" (Rhu-Ma, from Aži Dahāka, the Iranian dragon)) was located on the Bosphorus river which approximates to modern-day Crimea in southern Ukraine before moving their capital to the Bosphorus River in Anatolia or modern day Turkey.
 -   Asander, king of Bosphorus aka Julius Caesar was also Ptolemy XI Alexander II, Cleopatra's uncle, but he took on numerous
 other regional aliases. Cleopatra was also Dynamis, queen of Bosphorus. Mark
 Antony the Neos-Dionysos was either Ptolemy of Cyprus, a brother of
