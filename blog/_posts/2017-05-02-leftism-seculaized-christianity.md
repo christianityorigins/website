@@ -18,7 +18,7 @@ Contents\
 2 Marxism is Secularized Christianity\
 3 Marxist Denominations and the Frankfurt School\
 4 Modern Manifestations: Wokeness as Christian Heirloom\
-Conclusion\
+5 Conclusion\
 Addendum\
 Footnotes
 
@@ -65,6 +65,8 @@ Marxism, Critical Theory, Critical Race Theory, Leftism/Wokeism all incorporate 
 *   Cancel culture = witch-hunts/excommunicated for heresy.
 *   Adopting labels and slogans (pronouns, BLM, trans ally, etc.) = bearing the mark, or taking up the cross. This is equivalent to wearing a cross or crucifix as a visible sign of one's faith and signaling to others that they are a member of the community. They gain social capital in progressive circles through this. 
 *   Government = God. An omnipresent entitlement and benefactor giver.
+
+5 Conclusion
 
 What is the end goal of these divide-and-conquer slave-morality systems? (Christianity/Marxism/Cultural Marxism/Race Marxism/Gender Marxism). "Progress" (deconstruction/abolition) is the weaponizing the poor, outcastes, racial groups and women to get them to overthrow the dominant group in society and then create a slave class controlled by a tiny elite. Why? Friedrich Nietzsche claimed that all these slave-moralities were the manifestations of a Jewish group strategy/essentialist racial instincts operating below the level of real consciousness \[[link](https://en.wikipedia.org/wiki/Philosophy_of_Friedrich_Nietzsche#Jews,_nationalism_and_European_identity)\].
 
