@@ -106,7 +106,7 @@ end of the book.
     word "Aesar" (also spelled "Aeser" or "Aisar"), meaning god or
     divine, likely derives from the Egyptian Asar. The Greek language
     adds a "K" to foreign words, so Aesar -> Greek Kaesar -> Latin
-    Caesar. This title also resembles the the Scythian/Hurrian "Kur-Sar" (Sun King), the Phoenician "Kosar" (sun god), Assyrian "Aššur" (god), Germanic Æsir (the Norse gods, like Odin), Scythian "As" (lord) and Scythian Sar (king), Kšar (from the Old Persian Xšaya = king), and also Cyrus the Great's title (Kuruš (Cyrus) = Khur (Sun) + -uš (lord)).
+    Caesar. This title also resembles the Scythian/Hurrian "Kur-Sar" (Sun King), the Phoenician "Kosar" (sun god), Assyrian "Aššur" (god), Germanic Æsir (the Norse gods, like Odin), Scythian "As" (lord) and Scythian Sar (king), Kšar (from the Old Persian Xšaya = king), and also Cyrus the Great's title (Kuruš (Cyrus) = Khur (Sun) + -uš (lord)).
 -   Christ: Karast, a person who is anointed as a Heru (Hero/Horus) during their lifetime. When they are deceased they receive great honor as a KRST or Ausar (Osiris). Egyptian Karast (“Anointed One”) = Greek Christos (“Anointed One”) = Vedic "Krishna" = Hyksos "Khasut", linking India, Egypt, and Judea to a Scythian elite. Christ is identical to the title Soter. Several historical figures were
     Christs/Soters. In Isaiah 45:1 the jews called Cyrus the Great "The
     Anointed One". Alexander the Great was also a Chréstos/Soter
