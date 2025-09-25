@@ -20,11 +20,14 @@ Contents
 
 Preface\
 Introduction\
+Part 1: The Theoretical Framework	\
 1 Foundations of Christian Slave Morality and Nietzschean Critique\
 2 Monotheism and Universalism as Tools of Control\
 3 Nietzsche’s Triad: Slave Morality, Transvaluation of Values, and Ressentiment\
+Part 2: Christianity as the Engine of Domestication	\
 4 Survival of the Weakest: Inverting Natural Selection \
 5 Tools of Herd Domestication\
+Part 3: The Secular Legacy\
 6 Secularization of Christianity\
 7 Marxism is Secularized Christianity\
 8 Marxist Denominations and the Frankfurt School\
