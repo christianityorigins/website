@@ -107,7 +107,7 @@ end of the book.
     divine, likely derives from the Egyptian Asar. The Greek language
     adds a "K" to foreign words, so Aesar -> Greek Kaesar -> Latin
     Caesar. This title also resembles the Scythian/Hurrian "Kur-Sar" (Sun King), the Phoenician "Kosar" (sun god), Assyrian "Aššur" (god), Germanic Æsir (the Norse gods, like Odin), Scythian "As" (lord) and Scythian Sar (king), Kšar (from the Old Persian Xšaya = king), and also Cyrus the Great's title (Kuruš (Cyrus) = Khur (Sun) + -uš (lord)).
--   Christ: Karast, a person who is anointed as a Heru (Hero/Horus) during their lifetime. When they are deceased they receive great honor as a KRST or Ausar (Osiris). Egyptian Karast (“Anointed One”) = Greek Christos (“Anointed One”) = Vedic "Krishna" = Hyksos "Khasut", linking India, Egypt, and Judea to a Scythian elite. Christ is identical to the title Soter. Several historical figures were
+-   Christ: Karast, a person who is anointed as a Heru (Hero/Horus) during their lifetime. When they are deceased they receive great honor as a KRST or Ausar (Osiris). Egyptian Karast (“Anointed One”) = Greek Christos (“Anointed One”) = Scythian Xšaθra (Power, Dominion, Kingdom which becomes "Kšatrapati" (Satrap, Governor) in Persian, and "Kshatriya" (Warrior-King) in Sanskrit, which also = Vedic "Krishna" = Hyksos "Khasut", linking India, Egypt, and Judea to a Scythian elite. Christ is identical to the title Soter. Several historical figures were
     Christs/Soters. In Isaiah 45:1 the jews called Cyrus the Great "The
     Anointed One". Alexander the Great was also a Chréstos/Soter
     (Josephus. Antiquities, XI. 8. Talmud, Yoma 67b). Up until the First
@@ -137,7 +137,7 @@ end of the book.
     Julio-Claudian dynasty were Pisos, including Nero who was nearly
     deposed by a Piso. Appius is also cognate with Arrius (through
     rhotacization in ancient Latin the /p/ and /r/ could be swapped).
--   Sar root:  Sar is the Scythian word for "king". Sarpa in Sanskrit means "serpent". Sarmatian, Akkadian Sarrum (which becomes Persian Xšaya-/Xšayathiya), Hurrian Šarri, Sargon, Sarlagab, Serapis (Sar-Apis = "Serpent Bull"), Zarathustra (Sar + Ustra = "serpent-lord"), Saracen (Roman designation for Middle Eastern peoples), Saragurs (Scythian tribe in China), Caesar, Asar (Osiris), Tsar (Slavic monarch), etc. Sar means king, or serpent king, across the empires that the Scythians used to rule over.
+-   Sar root:  Sar is the Scythian word for "king". Sarpa in Sanskrit means "serpent". Sarmatian, Akkadian Sarrum (which becomes Persian Xšaya-/Xšayathiya), Hurrian Šarri, Sargon, Sarlagab, Serapis (Sar-Apis = "Serpent Bull"), Zarathustra (Sar + Ustra = "serpent-lord"), Saracen (Roman designation for Middle Eastern peoples), Šaruma (Mitanni deity), Saragurs (Scythian tribe in China), Caesar, Asar (Osiris), Tsar (Slavic monarch), etc. Sar means king, or serpent king, across the empires that the Scythians used to rule over.
 
 **2 Ancient Alias Names List (Chronologically Organized by Era and Dynasty)**
 
@@ -164,9 +164,9 @@ Asar(Osiris)/Aesar/Aeser/Aisar/Ais/Is), Brogitarix. Other suspected aliases: Mit
 -   Cleopatra VII (Isis who in mythology was the wife of Osiris and the
 mother of Horus): Dynamis Ourania (Aphrodite Urania), Pythodorida
 Philometor.
--   Mark Antony (Marcus Antonius = Mar (Phoenician "lord") +
+-   Ptolemy XII Auletes of Egypt: Mithridates VI Eupator of Pontus (his wives/sisters: Laodice (in Pontus) = Cleopatra V Tryphaena (in Egypt). The same woman), Mark Antony (Marcus Antonius = Mar (Phoenician "lord") +
 Anton (from Antaeus, giant son of Gaia)): King Herod (Heru (Horus) + Ud (divine) = Herud -> Herod. "The Divine Horus". The "Slaughter of the Innocents" is a mythological trope attached to the birth of every Horus-figure, who must overcome a threat. It is not history; it is theological propaganda asserting Herod's/Mark Antony's legitimacy as the living god-king against the resurrected one), Tiberius Claudius Nero, Phraates IV, Polemon I.
--    Emperor Tiberius Julius Caesar Augustus = Tiberius Julius Aspurgus, king of Bosphorus (Tiberius Julius Aspurgus and Emperor Tiberius Julius Caesar were born around the same time and their reigns are nearly perfectly co-terminus. Their sons were also born around the same time. Tiberius Julius Aspurgus Philoromaios's wife, known only through numismatic evidence, was Gepae-pyris. Tiberius and Gepaepyris had two sons; the eldest was "Tiberius Julius Mithridates Philo-Germanicus Philopatris" ("son of Mithra, lover of Germanicus, lover of father"). Their second son was "Tiberius Julius Cotys I Philocaesar Philoromaios Eusebes" ("lover of Caesar, lover of Rome who is the Pious One"). Tiberius Julius Aspurgus Philoromaios married to: Gepae-pyris. Children: Tiberius Julius Mithridates Philo-Germanicus Philopatris (eldest son) and Tiberius Julius Cotys I Philocaesar Philoromaios Eusebes (second son). Now, let's connect this family to the Roman Emperor's family: Emperor Tiberius Julius Caesar: Adopted son and heir: Germanicus. Biological son: Drusus)
+-    Emperor Tiberius Julius Caesar Augustus = Tiberius Julius Aspurgus, king of Bosphorus (Tiberius Julius Aspurgus, son of Asander and Dynamis, and Emperor Tiberius Julius Caesar were born around the same time and their reigns are nearly perfectly co-terminus. Their sons were also born around the same time. Tiberius Julius Aspurgus Philoromaios's wife, known only through numismatic evidence, was Gepae-pyris. Tiberius and Gepaepyris had two sons; the eldest was "Tiberius Julius Mithridates Philo-Germanicus Philopatris" ("son of Mithra, lover of Germanicus, lover of father"). Their second son was "Tiberius Julius Cotys I Philocaesar Philoromaios Eusebes" ("lover of Caesar, lover of Rome who is the Pious One"). Now, let's connect this family to the Roman Emperor's family: Emperor Tiberius Julius Caesar: Adopted son and heir: Germanicus. Biological son: Drusus)
 -    Emperor Claudius = Rhoemetalces II (Reigns are nearly perfectly co-terminus. Polemon Pythodoros (Julius Caesar/Asander) and Pythodorida of
 Pontus (Cleopatra/Dynamis) had a daughter Antonia Tryphaena. Her son was
 Rhoemetalces II whose reign coincided with emperor Claudius)
@@ -275,6 +275,8 @@ the Scythians, which is why they they were called Ashkenazi.
 
 The Sea Peoples were the revenge against Babylon, Hittites, and Egypt
 after the Mitanni were exiled.
+
+The Sea people considted of: The Sherden = The Sardinians = The Sauromatians (Sarmatians). The Peleset = The Philistines = The Pelasgians (pre-Greek people) = The Plataeans? This group represents Aegean Scythian remnants. The Denyen = The Danaoi (Homer's term for Greeks) = The Tribe of Dan (Israelites). The Israelite tribe of Dan was a seafaring tribe (see the Song of Deborah). They were not Semites; they were Scythian-Greek sailors who were later written into the Jewish narrative. Their migration from the coast to the north is a memory of their settlement after the Sea Peoples' campaigns.
 
 The Hyksos descendants then re-emerged in Persia and Anatolia, later
 reclaiming Egypt under the Achaemenid Period (525 BCE).
@@ -1225,14 +1227,15 @@ The Tarim basin mummies are Tocharians, and the Kizilgaha cave portraits deprict
 
 Alexander the Great = Qin Shi Huang (China’s First Emperor). Both “died” mysteriously at 33 (Alexander in 323 BC; Qin Shi Huang in 210 BC).
 Qin’s terracotta army has Caucasian features and Hellenistic armor. The word “Qin” (秦) may derive from “Scythian” (Saka-Sina).
-Alakshandra (Sanskrit) → Qin Shi Huang (Chinese): The “-shandra” morpheme appears in “Shi Huang,” meaning “First Guardian.”. Qin was founded by Alexander, it starts right exactly around the Greco-Bactrian city states era in Central Asia, it was started by people coming from the West right exactly bordering Central Asia during Greco-Bactrian rule, DA-QIN meaning BIG OR GREATER QIN as a word name term was used to refer to the Roman empire during the “Han dynasty” that came after Qin dynasty which means the QIN people had to have been Greco-Bactrian Seleucids since they equated with Roman type people and they came from the farthest West direction. Greek style coins and statues have been found from this time period, and the terracotta army was built by Greeks from Central Asia [^19], to this day the Chinese currency which came about formally during Qin dynasty era is called a YUAN which is another name for YON-IONIAN Greeks etc.
+Alakshandra (Sanskrit) → Qin Shi Huang (Chinese): The “-shandra” morpheme appears in “Shi Huang,” meaning “First Guardian.”. Qin was founded by Alexander, it starts right exactly around the Greco-Bactrian city states era in Central Asia, it was started by people coming from the West right exactly bordering Central Asia during Greco-Bactrian rule, DA-QIN meaning BIG OR GREATER QIN as a word name term was used to refer to the Roman empire during the "Han dynasty" that came after Qin dynasty which means the QIN people had to have been Greco-Bactrian Seleucids since they equated with Roman type people and they came from the farthest West direction. The character "Qin" (秦) is written with the radicals for "grain" and "man," but its Old Chinese pronunciation was Dzin. This is a direct phonetic match for the Latin Ianus (Janus) and the Sanskrit Yavana (Ionian Greek). The Qin were the Yavanas—the Greeks—from the West. Their sudden rise, standardization of weights/measures, and great wall-building are all hallmarks of an Alexandrian-style conquest state.
 
-China had no chronology until the Jesuits came to the Emperor’s court. Their oldest “ancient” records date from this period. Stone inscriptions and bronze engravings and a few bamboo slips survive from older times, but they were never arranged into a consistent chronology. If you read the Bellum Tartaricum, a pre-edit Jesuit source, it gives a very different chronology as well as info about the white Slav-like race known as the Tartarians, their rulers and their wars with China.
+Greek style coins and statues have been found from this time period, and the terracotta army was built by Greeks from Central Asia [^19], to this day the Chinese currency which came about formally during Qin dynasty era is called a YUAN which is another name for YON-IONIAN Greeks etc.
+
+China had no chronology until the Jesuits came to the Emperor’s court. Their oldest "ancient" records date from this period. Stone inscriptions and bronze engravings and a few bamboo slips survive from older times, but they were never arranged into a consistent chronology. If you read the Bellum Tartaricum, a pre-edit Jesuit source, it gives a very different chronology as well as info about the white Slav-like race known as the Tartarians, their rulers and their wars with China.
 
 Mateo Ricci invented Confucius and was the one who wrote the Art of War.
 
-The modern “Han Chinese” are not infact “Chinese” (“Chinese” is an identity fabricated and conjured up by Jesuits) but are infact Miao-Hmong people. 
-
+The modern "Han Chinese" are not infact “Chinese” ("Chinese" is an identity fabricated and conjured up by Jesuits) but are infact Miao-Hmong people. 
 
 Genetic studies show the Yangshao culture (5000 BC) had 90% European DNA (Haplogroup R1a). The modern Han are Miao who migrated from Vietnam after the Mongol invasions.
 
