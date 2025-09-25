@@ -12,7 +12,7 @@ category: books
 
 
 Copyright © 2025 Ralph Perrier\
-All rights reserved. No part o6f this publication may be reproduced or transmitted in any form without written permission from the publisher, except for brief quotations in reviews or scholarly works.
+All rights reserved. No part of this publication may be reproduced or transmitted in any form without written permission from the publisher, except for brief quotations in reviews or scholarly works.
 For permissions, contact: hereticalbooks.com\
 First Edition: 2025\
 ISBN: 978-1-0696862-0-6 \
@@ -21,7 +21,7 @@ Published by Heretical Books
 
 **Epigraph**  
 
-*And the Lord sent fiery serpents among the people, and they bit the people; and much people of Israel died … And the Lord said unto Moses, make thee a fiery serpent, and set it upon a pole: and it shall come to pass, that every one that is bitten, when he looketh upon it, shall live. And Moses made a serpent of brass, and put it upon a pole, and it came to pass, that if a serpent had bitten any man, when he beheld the serpent of brass, he lived.* - Numbers 21:9 (The "serpents" in this passage are identified as Scythians in later analysis.)
+*And the Lord sent fiery serpents among the people, and they bit the people; and much people of Israel died … And the Lord said unto Moses, make thee a fiery serpent, and set it upon a pole: and it shall come to pass, that every one that is bitten, when he looketh upon it, shall live. And Moses made a serpent of brass, and put it upon a pole, and it came to pass, that if a serpent had bitten any man, when he beheld the serpent of brass, he lived.* - Numbers 21:9 (The "fiery serpents" in this passage are identified as Scythians in later analysis.)
 
 **Table of Contents**
 
@@ -36,17 +36,17 @@ Part 2: The Alexandrian Synthesis\
 4.2. Judaism\
 Part 3: The Bosphoran Connection\
 5\. Julius Caesar aka Asander of Bosphorus\
-6\. Julius Caesar was a Title\
-7\. Rome on the Bosphorus?\
+5.1\. Julius Caesar was a Title\
+6\. Rome on the Bosphorus?\
 Part 4: From Imperial Cult to Christianity\
-8\. Flavian Dynasty\
+7\. Flavian Dynasty\
 Part 5: Rewriting History\
-9\. Who Forged History?\
+8\. Who Forged History?\
 Part 6. Sects of the Imperial Cult\
-10\. Sects of the Imperial Cult\
-10.1. The Cult of Antinous\
-10.2. Subversion of the Imperial Cult by Rabbi Akiva and His Students\
-10.3. Islam\
+9\. Sects of the Imperial Cult\
+9.1. The Cult of Antinous\
+9.2. Subversion of the Imperial Cult by Rabbi Akiva and His Students\
+9.3. Islam\
 Conclusion\
 Appendix A: Alexander the Great\
 Appendix B: Scythians in China\
@@ -59,7 +59,7 @@ Christianity is a derivative of one of the religions that were invented at the A
 
 All these religions were psychological and political tools that were created to target regional populations in the empire and were designed to subvert their regional religions in a syncretic manner, through the creation of centralized texts and priesthoods, embedding moral codes like submission, self-sacrifice, obedience, loyalty, and divine judgment, and aiming to lead the population toward monotheism and gradually toward a universal imperial cult. These religions were also likely designed to segment the populations by class, culture, and region to prevent unified resistance. For example, Mithraism was for military elites (requiring blood oaths, with a Mithraic initiate caste system and hierarchical structure). Serapism was for civilians (promising afterlife salvation). Christianity was for slaves ("turn the other cheek").
 
-Christianity was created in phases, the first phase as a synthesis of the Serapis Cult rebranded to serve one of the later Roman (Bosphoran) imperial cults, then reworked by the Flavians, and finally this imperial cult was subverted by a group of Rabbis who were headed by a rabbi named Akiva sometime after the Bar Kokhba Revolt. Jesus in the bible was an avatar, or an administrative title originally for members of the Bosphoran royal family. Asander, king of Bosphorus (Julius Caesars real identity) took on this role, so did his son Aspurgus, king of Bosphorus aka Amyntas ("Amon-Tas". "Hidden
+Christianity was created in phases, the first phase as a synthesis of the Serapis Cult rebranded to serve one of the later Roman (Bosphoran) imperial cults, then reworked by the Flavians, and finally this imperial cult was subverted by a group of Rabbis who were headed by a rabbi named Akiva sometime after the Bar Kokhba Revolt. Jesus in the bible was an avatar, or an administrative title originally for members of the Bosphoran royal family. Asander, king of Bosphorus (Julius Caesar's real identity) took on this role, so did his son Aspurgus, king of Bosphorus aka Amyntas ("Amon-Tas". "Hidden
 Lord", linking to Amun-Ra - with "Amen"(tas) at the root) Nikator aka
 Amyntas of Galatia aka Jesus ben Fabus aka Isa Amen (Jesus was named
 "Amen" in Rev. iii. 14) aka Caesarion, and his later descendants Izates II, king of Adiabene ("Iza" = Avestan root for "serpent" (cognate with Scythian Aži) + "-tes" = "given by," as in Mithradates = "Given by Mithra". This is cognate with the Scythian (and broader Iranian) mythological figure Aži Dahāka (Avestan) or Azhi Dahak (Middle Persian)), and Tiberius Julius Sauromates II, also took on the role. After Rabbi Akiva Jesus then became Simon Bar Kokhba.
@@ -120,7 +120,7 @@ end of the book.
     "cottius" means "chieftain".
 -   Izates or Izas: "Iza" (𐬌𐬰𐬀) = Avestan root for "serpent" (cognate with Scythian Aži). "-tes" = Greek suffix, but possibly from dāta ("given by," as in Mithradates = "Given by Mithra"). This is cognate with the Scythian (and broader Iranian) mythological figure Aži Dahāka (Avestan) or Azhi Dahak (Middle Persian), a monstrous serpent or dragon.
 -   Jesus [^1] : Yeshua derives from Aesus (Etruscan god) via Yazata (Divine Serpent-Lord), related to Izates (Yazata). In the name "Yeshua Ben Panthera" the Panthera is a Hellenized form of Ptolemaios (Ptolem->Ptol->Panther). "Jesus, son of Ptolemy". This directly connects the "Jesus" figure to the Ptolemaic-Bosphoran royal house.
--    Jew: Iudii (Celtic tribe) + Aži (serpent). The Iudii, a Galatian tribe, were Scythian-Celtic priests whose religious practices were rooted in Druidism who later became "Jews" under Alexandrian syncretism. Celtic Iudii then dissappeared after the Bar Kokhba revolt when emperor Hadrian decimated their population. The term "Ashkenazi" (Scythian: Ashkuza) confirms their steppe origins, later demonized by Rabbi Akiva to erase their Sarmatian roots. 
+-    Jew: Iudii (Celtic tribe) + Aži (serpent). The Iudii, a Galatian tribe, were Scythian-Celtic priests whose religious practices were rooted in Druidism who later became "Jews" under Alexandrian syncretism. Celtic Iudii then disappeared after the Bar Kokhba revolt when emperor Hadrian decimated their population. The term "Ashkenazi" (Scythian: Ashkuza) confirms their steppe origins, later demonized by Rabbi Akiva to erase their Sarmatian roots. 
   - Lord: The term Kavi in Avestan texts (e.g., Yasna 10.6) denotes a divine ruler associated with Aži (dragon/serpent). Translating Kavi to Greek yields Kyrios ("lord"), a title used for Jesus in the New Testament (e.g., Kyrios Iesous). The Scythian title Xšaya (king) appears in Old Persian as Xšayathiya, phonetically linked to Kshatriya (Sanskrit: warrior-king) and Caesar via the Greek Kaesar. A kurgan inscription from Issyk (Kazakhstan, 4th century BCE) mentions a ruler named Ašakavi ("dragon-priest"), combining Aša (truth/order) and Kavi. This title parallels Asander (Thracian: Asa = "lord") and suggests a pan-steppe naming convention for dragon-kings. 
 -   Monobazus: Sabazios is the Phrygian and Thracian version of Zeus.
     Ma'nu is likely a diminutive of Menneus ("son of man"), and then
@@ -165,7 +165,8 @@ Asar(Osiris)/Aesar/Aeser/Aisar/Ais/Is), Brogitarix. Other suspected aliases: Mit
 mother of Horus): Dynamis Ourania (Aphrodite Urania), Pythodorida
 Philometor.
 -   Ptolemy XII Auletes of Egypt: Mithridates VI Eupator of Pontus (his wives/sisters: Laodice (in Pontus) = Cleopatra V Tryphaena (in Egypt). The same woman), Mark Antony (Marcus Antonius = Mar (Phoenician "lord") +
-Anton (from Antaeus, giant son of Gaia)): King Herod (Heru (Horus) + Ud (divine) = Herud -> Herod. "The Divine Horus". The "Slaughter of the Innocents" is a mythological trope attached to the birth of every Horus-figure, who must overcome a threat. It is not history; it is theological propaganda asserting Herod's/Mark Antony's legitimacy as the living god-king against the resurrected one), Tiberius Claudius Nero, Phraates IV, Polemon I.
+Anton (from Antaeus, giant son of Gaia)), King Herod (Heru (Horus) + Ud (divine) = Herud -> Herod. "The Divine Horus". The "Slaughter of the Innocents" is a mythological trope attached to the birth of every Horus-figure, who must overcome a threat (against Set). It is not history; it is theological propaganda asserting Herod's/Mark Antony's legitimacy as the living god-king against the resurrected one. This is also attached to the Indian god Krishna (against Kamsa)), Polemon (Polemos ->
+Ptolemy) I of Pontus aka Pharnaces II ("Pharao-Nikes", or "Victorious Pharaoh"), Tiberius Claudius Nero, Phraates IV of Parthia (Per-aa or Per-Nesu is a corruption of Pharaoh). Was he also Ptolemy X Alexander I aka Simon Boethus aka Simon Magus?
 -    Emperor Tiberius Julius Caesar Augustus = Tiberius Julius Aspurgus, king of Bosphorus (Tiberius Julius Aspurgus, son of Asander and Dynamis, and Emperor Tiberius Julius Caesar were born around the same time and their reigns are nearly perfectly co-terminus. Their sons were also born around the same time. Tiberius Julius Aspurgus Philoromaios's wife, known only through numismatic evidence, was Gepae-pyris. Tiberius and Gepaepyris had two sons; the eldest was "Tiberius Julius Mithridates Philo-Germanicus Philopatris" ("son of Mithra, lover of Germanicus, lover of father"). Their second son was "Tiberius Julius Cotys I Philocaesar Philoromaios Eusebes" ("lover of Caesar, lover of Rome who is the Pious One"). Now, let's connect this family to the Roman Emperor's family: Emperor Tiberius Julius Caesar: Adopted son and heir: Germanicus. Biological son: Drusus)
 -    Emperor Claudius = Rhoemetalces II (Reigns are nearly perfectly co-terminus. Polemon Pythodoros (Julius Caesar/Asander) and Pythodorida of
 Pontus (Cleopatra/Dynamis) had a daughter Antonia Tryphaena. Her son was
@@ -183,7 +184,6 @@ II. Herodian & Flavian Dynasty
     Drusilla of Mauretania, Julia Ourania of Parthia, Philo of
     Alexandria. She was also Claudius and Nero's secretary "Pallas", and
     "Antonia Caenis" who was Vespasian's first cousin and mistress (the full name of Pallas was Marcus Antonius Pallas, with the Antonius part being an obvious sign of descent from Mark Antony and that Pallas wasn’t a random slave. Caenis was the Greek goddess who was transformed into a man, and she role-played as two men: Marcus Antonius Pallas and Philo).
--   Simon Boethus: Simon Magus, Ptolemy X Alexander I.
 -   Tiberius Julius Alexander: Emperor Nerva, Arrius Piso, Josephus.
 -   Marcus Julius Alexander: Izates Monobazus ("Jesus Emmanuel"), Yeshua
     Cleopatros.
@@ -231,7 +231,7 @@ elite from the Pontic steppe (modern Ukraine/Russia). The domestication
 of the horse and invention of the chariot allowed them to travel vast
 distances and they spread their Draco (dragon/serpent) cult across Eurasia, encoded in snake-worshiping myths [^2] 
 
-The Sarmatian/Saka's were the Egyptian-Persian-Indian-Greek-Roman elite. Egypt, Persia, India, Greece, Rome, etc., were all under the suzerainty of these Aryan Iranian-Scythian-Sarmatian elites since at least the 17th century BC and their base of operation was on the Bosphorus river.
+The Sarmatian/Sakas were the Egyptian-Persian-Indian-Greek-Roman elite. Egypt, Persia, India, Greece, Rome, etc., were all under the suzerainty of these Aryan Iranian-Scythian-Sarmatian elites since at least the 17th century BC and their base of operation was on the Bosphorus river.
 
 In the elite burial chambers from the Scythian Kurgans in Ukraine to the Etruscan tombs in Italy to the burial sites of Roman Patricians a specific non-local skull type appears: Dolichocephalic (long-headed) and high-vaulted with a pronounced occipital bun—a bulge at the back of the skull—a feature most commonly associated with Neanderthal admixture. This was no mere coincidence; it was the osteological signature of the Dragon Bloodline, a physiological marker distinguishing the ruling elite from the general population they governed.
 
@@ -276,7 +276,7 @@ the Scythians, which is why they they were called Ashkenazi.
 The Sea Peoples were the revenge against Babylon, Hittites, and Egypt
 after the Mitanni were exiled.
 
-The Sea people considted of: The Sherden = The Sardinians = The Sauromatians (Sarmatians). The Peleset = The Philistines = The Pelasgians (pre-Greek people) = The Plataeans? This group represents Aegean Scythian remnants. The Denyen = The Danaoi (Homer's term for Greeks) = The Tribe of Dan (Israelites). The Israelite tribe of Dan was a seafaring tribe (see the Song of Deborah). They were not Semites; they were Scythian-Greek sailors who were later written into the Jewish narrative. Their migration from the coast to the north is a memory of their settlement after the Sea Peoples' campaigns.
+The Sea people consisted of: The Sherden = The Sardinians = The Sauromatians (Sarmatians). The Peleset = The Philistines = The Pelasgians (pre-Greek people) = The Plataeans? This group represents Aegean Scythian remnants. The Denyen = The Danaoi (Homer's term for Greeks) = The Tribe of Dan (Israelites). The Israelite tribe of Dan was a seafaring tribe (see the Song of Deborah). They were not Semites; they were Scythian-Greek sailors who were later written into the Jewish narrative. Their migration from the coast to the north is a memory of their settlement after the Sea Peoples' campaigns.
 
 The Hyksos descendants then re-emerged in Persia and Anatolia, later
 reclaiming Egypt under the Achaemenid Period (525 BCE).
@@ -799,7 +799,7 @@ Augustus who was also Ptolemy XIII Theos Philopator, Cleopatra VII's brother?\
     design slave moralities to strip the will to power from the
     population to prevent rebellions.
 
-**6 Julius Caesar was a Title**
+**5.1 Julius Caesar was a Title**
 
 Identifying Julius Caesar as Asander of Bosphorus necessitates a
 re-examination of his name.
@@ -843,7 +843,7 @@ was an irrelevant slice of land in the desert, this makes this claim
 more credible. jews just adopted this imperial cult and they got their
 entire identity and history from here.
 
-**7 Rome on the Bosphorus?**
+**6 Rome on the Bosphorus?**
 
 My research on the origins of Christianity takes me to the Bosphorus
 river in classical Anatolia (Julius Caesar = Asander, King of Bosphorus,
@@ -873,7 +873,7 @@ Rome in Italy was real, but it was a province, a frontier military district of t
 
 Also, Carthage was not a Semitic power. The name "Carthage" comes from "Kar-Thaga" - "City of the Thagians" (a Scythian tribe). Hannibal's family name, Barca, means "Lightning" and is a title of the Dragon King. Rome vs. Carthage was not a clash of civilizations. It was a bloody civil war between two Scythian-descended factions for control of the Western Mediterranean. The winner, Rome, wrote the history and painted the losers as monstrous foreigners.
 
-**8 Flavian Dynasty**
+**7 Flavian Dynasty**
 
 Vespasian was also a great-grandson of Cleopatra and Mark Antony (King
 Herod). He was Herod Pollio aka Herod Agrippa I, grandson of King
@@ -918,7 +918,7 @@ Aristobulus IV was likely Vespasian and Vitellius's father, so like his
 cousin Alexander (grandson of King Herod), he was also married to his
 sister).
 
-Endnotes (Chapter 8)
+Endnotes (Chapter 7)
 
 (a) Theory: Alexander (grandson of King Herod) aka Gaius Julius
     Alexander, Herodian Prince of Judaea aka Alexander Lysimachus aka
@@ -944,11 +944,11 @@ Endnotes (Chapter 8)
 (c) Hebrew Wordplay: Vespasian -> V'Esav Pan (ועשו פן) -> "And Esau's
     Face" (Talmudic insult linking him to Edom).
 
-**9: Who Forged History?**
+**8: Who Forged History?**
 
 The primary architects were the Flavian dynasty (Vespasian, Titus, Domitian) and their court historians (Josephus, Pliny, Tacitus). They began the process of creating a "Roman" history to legitimize their new dynasty and obscure their Bosphoran/Herodian origins.
  
-Then the creation of the Papacy during the elevation of Charlemagne was likely when the myth of a "Roman empire" became codified. The renaissance finished the fabrication of history. This was all to secretly make Rome into a Carian empire. It was an Aryan and Thracian proxy state of the Scythins who were based out of the Boshorus. The Bosphorus was always its capital. Latin was the original language of the Dacians and it was high-noble Aryan; German mixed the middle language (proto Latin) with degenerated old Gothic.
+Then the creation of the Papacy during the elevation of Charlemagne was likely when the myth of a "Roman empire" became codified. The renaissance finished the fabrication of history. This was all to secretly make Rome into a Carian empire. It was an Aryan and Thracian proxy state of the Scythins who were based out of the Bosphorus. The Bosphorus was always its capital. Latin was the original language of the Dacians and it was high-noble Aryan; German mixed the middle language (proto Latin) with degenerated old Gothic.
 
 Emperor Theodosius, Pope Theophilus I of Alexandria, and Jerome also played a big role in the deception. The mainstream claim is that the Library of Alexandria was destroyed by Julius Caesar (48 BC) or Muslim conquest (642 AD). The truth is that the final and most devastating burn was ordered by Emperor Theodosius and Pope Theophilus I of Alexandria in 391 AD to erase Serapis cult texts that exposed Christianity’s origins. Proof: The Nag Hammadi Library (1945) contained Gnostic texts that matched Serapis theology—proving a cover-up, and the "Letter of Hadrian to Servianus" (found in Vindobonensis manuscript) admits: "Those who worship Serapis are Christians… devotees of Serapis call themselves bishops of Christ."
 
@@ -964,9 +964,9 @@ There was a Jesuit named Jean Hardouin who said that a 14th Century Jesuit consp
 
 Isaac Newton wrote a book called "The Chronology Of Ancient Kingdoms Amended" where he analysed the eclipses recorded in ancient times and showed that 753 years (the exact number of years between the founding of Rome, or specifically the birth of the Roman deity Romulus and the birth of Jesus, was added in to the first "millennium". This would line up with the gaps of time found across European and world history, oddities like the invention of paper taking 700 years to travel across the Silk Road, or the 1st century Mexican deity Quetzalcoatl being temporarily forgotten til the 8th century.
 
-**10 Sects of the Imperial Cult**
+**9 Sects of the Imperial Cult**
 
-**10.1 The Cult of Antinous**
+**9.1 The Cult of Antinous**
 
 Two years before the Bar Kokhba Revolt (132--136 CE) emperor Hadrian created a
 religion to deify his underage gay lover as the son of god
@@ -984,7 +984,7 @@ the Apostle and Paul called them "my fellow workers in Christ Jesus"
 
 Fig. 1.21. Steel relief that shows Antinous holding the grapes of Dionysus in one-hand and a cross in the other.
 
-**10.2 Subversion of the Imperial Cult by Rabbi Akiva and His Students**
+**9.2 Subversion of the Imperial Cult by Rabbi Akiva and His Students**
 
 Aquila of Sinope aka Onkelos was a student of a rabbi named Akiva who led the Talmudic Pharisees
 and is responsible for large parts of the Talmud, Sefer Yetzirah (book
@@ -1070,7 +1070,7 @@ as a leader from the land of Magog in the north, who will gather a
 coalition of nations to attack Israel, but will be defeated by God in a
 great battle.
 
-**10.3 Islam**
+**9.3 Islam**
 
 At the same time these rabbis created Christianity they created Islam.
 
@@ -1097,7 +1097,7 @@ propaganda) that was backdated to make christianity look legitimate in
 the same way that the 'Letter of Aristeas' was backdated to exaggerate
 the age of the Septuagint. 
 
-Endnotes (Chapter 10)
+Endnotes (Chapter 9)
 
 (a) Marcion of Sinope aka Markianos of Alexandria grew up in the
     Attis-Sabazios cult on Anatolia before traveling to Judea to study
