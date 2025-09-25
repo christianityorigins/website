@@ -119,8 +119,8 @@ end of the book.
     meaning "lord". In the Celtic languages the word "cottos" or
     "cottius" means "chieftain".
 -   Izates or Izas: "Iza" (𐬌𐬰𐬀) = Avestan root for "serpent" (cognate with Scythian Aži). "-tes" = Greek suffix, but possibly from dāta ("given by," as in Mithradates = "Given by Mithra"). This is cognate with the Scythian (and broader Iranian) mythological figure Aži Dahāka (Avestan) or Azhi Dahak (Middle Persian), a monstrous serpent or dragon.
- -   Jew: Iudii (Celtic tribe) + Aži (serpent). The Iudii, a Galatian tribe, were Scythian-Celtic priests whose religious practices were rooted in Druidism who later became "Jews" under Alexandrian syncretism. Celtic Iudii then dissappeared after the Bar Kokhba revolt when emperor Hadrian decimated their population. The term "Ashkenazi" (Scythian: Ashkuza) confirms their steppe origins, later demonized by Rabbi Akiva to erase their Sarmatian roots. 
 -   Jesus [^1] : Yeshua derives from Aesus (Etruscan god) via Yazata (Divine Serpent-Lord), related to Izates (Yazata). In the name "Yeshua Ben Panthera" the Panthera is a Hellenized form of Ptolemaios (Ptolem->Ptol->Panther). "Jesus, son of Ptolemy". This directly connects the "Jesus" figure to the Ptolemaic-Bosphoran royal house.
+-    Jew: Iudii (Celtic tribe) + Aži (serpent). The Iudii, a Galatian tribe, were Scythian-Celtic priests whose religious practices were rooted in Druidism who later became "Jews" under Alexandrian syncretism. Celtic Iudii then dissappeared after the Bar Kokhba revolt when emperor Hadrian decimated their population. The term "Ashkenazi" (Scythian: Ashkuza) confirms their steppe origins, later demonized by Rabbi Akiva to erase their Sarmatian roots. 
   - Lord: The term Kavi in Avestan texts (e.g., Yasna 10.6) denotes a divine ruler associated with Aži (dragon/serpent). Translating Kavi to Greek yields Kyrios ("lord"), a title used for Jesus in the New Testament (e.g., Kyrios Iesous). The Scythian title Xšaya (king) appears in Old Persian as Xšayathiya, phonetically linked to Kshatriya (Sanskrit: warrior-king) and Caesar via the Greek Kaesar. A kurgan inscription from Issyk (Kazakhstan, 4th century BCE) mentions a ruler named Ašakavi ("dragon-priest"), combining Aša (truth/order) and Kavi. This title parallels Asander (Thracian: Asa = "lord") and suggests a pan-steppe naming convention for dragon-kings. 
 -   Monobazus: Sabazios is the Phrygian and Thracian version of Zeus.
     Ma'nu is likely a diminutive of Menneus ("son of man"), and then
@@ -155,7 +155,7 @@ I. Ptolemaic & Bosphoran Dynasty
 -   Julius Caesar: Ptolemy XI Alexander.
 II, Asander, King of Bosphorus (Philocaesar Philoromaios, Soter, Great
 King of Kings, "As" in his name refers to
-Asar(Osiris)/Aesar/Aeser/Aisar/Ais/Is), Brogitarix. Other suspected aliases: Akrosandros II, King of Scythia, Idumean Antipater, Parthian Artavasdes (Greek Alex = Persian
+Asar(Osiris)/Aesar/Aeser/Aisar/Ais/Is), Brogitarix. Other suspected aliases: Mithridates II of the Bosporus, Akrosandros II, King of Scythia, Idumean Antipater, Parthian Artavasdes (Greek Alex = Persian
     Arta) who was the brother of Tigranes II (Tigranes II/the Great was called Azhdahak proving Aži Dahāka was a royal Scythian title), and the Hasmonean
     Alexander II (son of king Aristobulus II son of Jannaeus Alexander
     also the nephew and son-in-law of king/high-priest Hyrcanus II.
@@ -205,8 +205,8 @@ IV. Speculative
     proves that the name Alexander was a Scythian title for kings.
     Aži-Sandar also = "Dragon King" in Mittani and Old Persian. He did not die in Babylon. He "became a god" by undergoing a ritual transformation in the ziggurat. He then re-emerged in the East with a new identity. Alexander's mother Olympias (Ol or ophis + Pias = "serpent queen"), who was a Scythian princess of the
     Molossian tribe, claimed to have been impregnated by the god Zeus
-    Ammon disguised as a serpent. Alexander's fathers name Philip was a title (Philippos (Lover of Horses) is a direct Greek translation of the Scythian royal title Pharnavaz (Horse-Lord)). Alexander also married the Scythian princess Roxana. Alexanders campaign was not a conquest. It was a Scythian restoration. The Achaemenid Persians were a rival Scythian clan (the "Ariya" - Aryans). Alexander was re-establishing the older, purer Scythian hegemony of the Medes and the pre-Zoroastrian Mitanni.
--   Gautama Buddha (Egyptian: "Ba-Djehuti", or "Soul of Thoth"): Bardiya (Smerdis)/Gaumata (Cyrus the Great's son).
+    Ammon disguised as a serpent. Alexander's fathers name Philip was a title (Philippos (Lover of Horses) is a direct Greek translation of the Scythian royal title Pharnavaz (Horse-Lord)). Alexander also married the Scythian princess Roxana. Alexanders campaign was not a conquest, it was a Scythian restoration. The Achaemenid Persians were a rival Scythian clan (the "Ariya" - Aryans). Alexander was re-establishing the older, purer Scythian hegemony of the Medes and the pre-Zoroastrian Mitanni.
+-   Gautama Buddha (Egyptian: "Ba-Djehuti", or "Soul of Thoth"): Bardiya (Smerdis)/Gaumata (Cyrus the Great's son who was satrap (governor) of the Persian province of Bactria (modern day Afghanistan)).
 -   Marcion of Sinope: Markianos of Alexandria. The association with Sinope came from Aquila of Sinope who was a disciple of Rabbi Akiva. Are the two the same? Probably.
 -    Moses = Manes/Mannu-Kuras = Manu (Scythian Sage-King) = Menes (Egypt’s legendary founder). Also appears in "Monobazus" → “Manu Bazus” → Sarmatian-Mythological Sage King. The Iranian Manu is a legendary civilizer, and in India he becomes the first Lawgiver (the Manu Smriti = Scythian governance code). The biblical Moses defeats Pharaoh (actually Mitanni elite), parts waters with a serpent-staff—obvious encoding of dragon-kingship (Aži Dahāka). Moses takes on different masks: M enes – the first official Pharaoh (not real, a compilation of conquerors). Menes – the semi-mythical Median king, founder of the priest-class. Mannu-kuras – Proto-Mede, whose name becomes Cyrus. The name Kur-Ash = "Sun Man". The Exodus is not Judaic memory: it's a political memory of Mitanni-Scythian expulsion from Egypt after the religious revolution of Thutmose III → Horemheb wiped them out with a new priest-kingship in Amarna.
  -   Paul the Apostle = likely a composite character or an avatar/cipher. Two suspects for having taken on the character are: 1) Saulus ben Antipater who was the
@@ -421,6 +421,8 @@ As for the term 'Hebrew", it comes from the Celts as well who called themselves 
 
 'Ashkenazi', or 'Ashkuza', was the name given to the Scythians by the ancient Akkadians. The Assyrians called the Scythians "Asguzaya" and the ancient Persians called the Scythians 'Saka'. In Biblical Hebrew, the Ashkuz (Ashkenaz) are considered to be a direct offshoot from the Gimirri, known as the Cimmerians to the ancient Greeks. Cimmerians were a Middle Eastern offshoot of the Celtic Cimbri tribe. 
 
+Jerusalem = I(J)ERU-SAR-AM, meaning "The Holy City of the Scythian King". The SAR element (Scythian for king/royal) embedded in the name of the 'holy city' confirms the Judean state, like Rome, was nothing more than a military garrison run by the Bosphoran elite.
+
 These Sarmatian-Celtic (Galatian) males mixed with Neolithic Anatolian women before their descendants moved into Egypt (Apiru or Habiru) and Caanan and then mixed with indigenous people in those places. Celtic Jews (Iudii) then disappeared after the Bar Kokhba Revolt when Emperor Hadrian decimated their population. Modern Ashkenazi Jews are a hodgepodge of native Canaanites (a mix of Canaanites, Edomites, and other Levantine peoples, as well as, proto-Arab Natufians (Natufians had ~20% higher Basal Eurasian -- Basal means with sub-Saharin African, North Africa was green/fertile so Africans could cross the Sahara)) and Neolithic proto-Sicilians who originated in Anatolia [^4] with minor Celtic Cimbri and Celtic Galatian from Anatolia.
 
 The rest of the jewish religion and identity came from later incarnations of this imperial cult: I(J)upiter was also called Jove or Iove to the Romans. The Latin pronunciation of Iove would have been Yoh-Way, i.e Yahweh/Yhwh, so Yahweh Saboath, the god of the Hebrew bible, is I(J)ove (Roman Zeus) Sabazios (Thracian Zeus).
@@ -492,7 +494,9 @@ son) Polemon II, King of Pontus aka Ptolemy Philadelphus aka
 Sampsiceramus I? The Bosphorus Kingdom, also known as the Kingdom of the
 Cimmerian Bosphorus, was located next to the Pontus Kingdom
 
-Asander was born in 110 BCE, the same year as Julius Caesar. Dynamis was
+The star and crescent on the above coins was the symbol of the city of Byzantium/Constantinople long before the Ottomans used it. The legend was that Byzas, the founder, chose the site based on a vision of a crescent moon and a star. This symbol represented the fusion of the lunar goddess (Hecate/Artemis, who was associated with snakes) and the solar god (Apollo). By using this symbol, Asander and Caesar were not just using a "dragon symbol"; they were explicitly claiming lordship over the Bosphorus.
+ 
+ Asander was born in 110 BCE, the same year as Julius Caesar. Dynamis was
 born in 70/69 BCE, the same year as Cleopatra VII. Julius Caesar was 30
 years older than Cleopatra, and Asander was also 30 years older than
 Dynamis.
