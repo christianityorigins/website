@@ -1,14 +1,14 @@
 ---
 layout: default
 open_links_in_new_tab: true
-title:  "Christianity as a Slave Morality System and its Secular Legacy"
+title:  "Christianity as a Slave Morality System and Its Secular Legacy"
 date:   2016-08-11 09:00:00 +0200
 updated: 2024-08-11 19:46:50 +0200
 category: books
 ---
 
 
-Christianity as a Slave Morality System and ts Secular Legacy
+Christianity as a Slave Morality System and Its Secular Legacy
 
 By Ralph Perrier
 
