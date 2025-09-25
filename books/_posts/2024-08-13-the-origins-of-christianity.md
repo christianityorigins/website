@@ -150,7 +150,7 @@ Polemon II of Pontus dies around the same time Titus becomes emperor.
 The way to connect them is through the fact that they were all married
 to the same woman, Berenice, granddaughter of King Herod.
 
-I. Ptolemaic & Bosphoran Dynasty 
+I. Ptolemaic, Julio-Claudian & Bosphoran Dynasty 
 
 -   Julius Caesar: Ptolemy XI Alexander.
 II, Asander, King of Bosphorus (Philocaesar Philoromaios, Soter, Great
@@ -166,6 +166,10 @@ mother of Horus): Dynamis Ourania (Aphrodite Urania), Pythodorida
 Philometor.
 -   Mark Antony (Marcus Antonius = Mar (Phoenician "lord") +
 Anton (from Antaeus, giant son of Gaia)): King Herod (Heru (Horus) + Ud (divine) = Herud -> Herod. "The Divine Horus". The "Slaughter of the Innocents" is a mythological trope attached to the birth of every Horus-figure, who must overcome a threat. It is not history; it is theological propaganda asserting Herod's/Mark Antony's legitimacy as the living god-king against the resurrected one), Tiberius Claudius Nero, Phraates IV, Polemon I.
+-    Emperor Tiberius Julius Caesar Augustus = Tiberius Julius Aspurgus, king of Bosphorus (Tiberius Julius Aspurgus and Emperor Tiberius Julius Caesar were born around the same time and their reigns are nearly perfectly co-terminus. Their sons were also born around the same time. Tiberius Julius Aspurgus Philoromaios's wife, known only through numismatic evidence, was Gepae-pyris. Tiberius and Gepaepyris had two sons; the eldest was "Tiberius Julius Mithridates Philo-Germanicus Philopatris" ("son of Mithra, lover of Germanicus, lover of father"). Their second son was "Tiberius Julius Cotys I Philocaesar Philoromaios Eusebes" ("lover of Caesar, lover of Rome who is the Pious One"). Tiberius Julius Aspurgus Philoromaios married to: Gepae-pyris. Children: Tiberius Julius Mithridates Philo-Germanicus Philopatris (eldest son) and Tiberius Julius Cotys I Philocaesar Philoromaios Eusebes (second son). Now, let's connect this family to the Roman Emperor's family: Emperor Tiberius Julius Caesar: Adopted son and heir: Germanicus. Biological son: Drusus)
+-    Emperor Claudius = Rhoemetalces II (Reigns are nearly perfectly co-terminus. Polemon Pythodoros (Julius Caesar/Asander) and Pythodorida of
+Pontus (Cleopatra/Dynamis) had a daughter Antonia Tryphaena. Her son was
+Rhoemetalces II whose reign coincided with emperor Claudius)
 
 II. Herodian & Flavian Dynasty
 
@@ -866,40 +870,6 @@ This is why the Ottomans called themselves "Rum" (Rome). They knew exactly what 
 Rome in Italy was real, but it was a province, a frontier military district of the true Empire based on the Bosphorus. It was never the center of power it was made out to be. Its "fall" was the loss of central control from the East and the rise of local Gothic/Sarmatian warlords (Theodoric, etc.) who still tried to cloak themselves in the legitimacy of the Eastern Koryllis.
 
 Also, Carthage was not a Semitic power. The name "Carthage" comes from "Kar-Thaga" - "City of the Thagians" (a Scythian tribe). Hannibal's family name, Barca, means "Lightning" and is a title of the Dragon King. Rome vs. Carthage was not a clash of civilizations. It was a bloody civil war between two Scythian-descended factions for control of the Western Mediterranean. The winner, Rome, wrote the history and painted the losers as monstrous foreigners.
-
-Endnotes (Chapter 7)
-
-(a) Asander and Dynamis had one known son, Tiberius Julius Aspurgus
-    Philoromaios. He was born about the same time as "Caesarion" and
-    "Emperor Tiberius Julius Caesar". His wife, known only through
-    numismatic evidence, was Gepae-pyris. Tiberius and Gepaepyris had
-    two sons; the eldest was "Tiberius Julius Mithridates
-    Philo-Germanicus Philopatris" ("son of Mithra, lover of Germanicus,
-    lover of father"). Their second son was "Tiberius Julius Cotys I
-    Philocaesar Philoromaios Eusebes" ("lover of Caesar, lover of Rome
-    who is the Pious One").
-    
-Tiberius Julius Aspurgus Philoromaios (son). Married to: Gepae-pyris.
-Children:
-Tiberius Julius Mithridates Philo-Germanicus Philopatris (eldest son)
-Tiberius Julius Cotys I Philocaesar Philoromaios Eusebes (second son)
-
-Now, let's connect this family to the Roman Emperor's family:
-
-Emperor Tiberius Julius Caesar
-Adopted son and heir: Germanicus
-Biological son: Drusus
-
-Tiberius Julius Aspurgus Philoromaios and Emperor Tiberius Julius Caesar
-were born around the same time, and their sons were also born around the
-same time.
-
-Also, Polemon Pythodoros (Julius Caesar/Asander) and Pythodorida of
-Pontus (Cleopatra/Dynamis) had a daughter Antonia Tryphaena. Her son was
-Rhoemetalces II whose reign coincided with emperor Claudius.
-
-Emperor Titus = Polemon II of Pontus who was the prince of the Bosporan,
-Pontus, Cilicia, and Cappadocia.\
 
 **8 Flavian Dynasty**
 
