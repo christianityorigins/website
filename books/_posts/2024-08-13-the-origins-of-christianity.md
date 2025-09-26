@@ -135,7 +135,7 @@ end of the book.
     Julio-Claudian dynasty were Pisos, including Nero who was nearly
     deposed by a Piso. Appius is also cognate with Arrius (through
     rhotacization in ancient Latin the /p/ and /r/ could be swapped).
--   Sar root:  Sar is the Scythian word for "king". Sarpa in Sanskrit means "serpent". Sarmatian, Akkadian Sarrum (which becomes Persian Xšaya-/Xšayathiya), Hurrian Šarri, Sargon, Sarlagab, Serapis (Sar-Apis = "Serpent Bull"), Zarathustra (Sar + Ustra = "serpent-lord"), Saracen (Roman designation for Middle Eastern peoples), Šaruma (Mitanni deity), Saragurs (Scythian tribe in China), Caesar, Asar (Osiris), Tsar (Slavic monarch), Sargon of Akkad, etc. Sar means king, or serpent king, across the empires that the Scythians used to rule over.
+-   Sar root:  Sar is the Scythian word for "king". Sarpa in Sanskrit means "serpent". Sarmatian, Akkadian Sarrum (which becomes Persian Xšaya-/Xšayathiya), Hurrian Šarri, Sargon, Sarlagab, Serapis (Sar-Apis = "Serpent Bull"), Zarathustra (Sar + Ustra = "serpent-lord"), Saraswati (Hindi goddes of knowledge), Saracen (Roman designation for Middle Eastern peoples), Šaruma (Mitanni deity), Saragurs (Scythian tribe in China), Caesar, Asar (Osiris), Tsar (Slavic monarch), Sargon of Akkad, feminine Sarai (or "Sarah" meaning "princess" (Genesis 17:15)), etc. Sar means king, or serpent king, across the empires that the Scythians used to rule over.
 
 **2 Ancient Alias Names List (Chronologically Organized by Era and Dynasty)**
 
