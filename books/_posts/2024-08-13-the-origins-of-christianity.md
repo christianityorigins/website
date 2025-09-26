@@ -70,11 +70,8 @@ This book traces Christianity back to its foundations — from the mythemes of S
 
 A few things you need to know before you read my book:
 
--   Much of what we know of ancient history is fabricated by the Flavian emperors, Jesuits, and the Vatican. The
-Egyptian-Persian-Indian-Greek-Roman elite were Sarmatian/Saka warlords
-who ruled through proxy dynasties. Egypt, Persia, India, Greece, Rome,
-etc., were all under the suzerainty of Aryan Iranian-Scythian elites
-since at least the 17th century BC and their base of operation was on the Bosphorus river.
+-   Much of what we know of ancient history is fabricated by the Flavian emperors, Jesuits, and the Vatican. The Egyptian-Persian-Indian-Greek-Roman elite were a Proto-Indo-European (PIE) Elite (Kurgan Culture) who were the horse-riding, chariot-inventing pastoralists from the Pontic-Caspian Steppe who, beginning around 4500 BC, began a systematic conquest of Europe, Anatolia, and the Indus Valley, and who ruled through proxy dynasties. Egypt, Persia, India, Greece, Rome,
+etc., were all under the suzerainty of Aryan Iranian-Scythian elites and their base of operation was on the Bosphorus river.
 -   Western Rome in Italy is a phantom empire that was invented by the Vatican. Western Rome was built during the Renaissance period. The original Rome (in Sarmatian, "Ruma" (Rome) = "Place of the Dragon" (Rhu-Ma, from Aži Dahāka, the Iranian dragon)) was located on the Bosphorus river which approximates to modern-day Crimea in southern Ukraine before moving their capital to the Bosphorus river in Anatolia or modern day Turkey.
 -   Asander, king of Bosphorus aka Julius Caesar was also Ptolemy XI Alexander II, Cleopatra's uncle, but he took on numerous
 other regional aliases. Cleopatra was also Dynamis, queen of Bosphorus. Mark
@@ -98,7 +95,7 @@ end of the book.
 
 **1 Name and Title Meanings**
 
--   Azhi: Azhi = Až ("serpent") + Hi ("power, divine") in Avestan, meaning "mighty dragon". It extends Aži to signify divine authority across Indo-Iranian and Scythian cultures. Azhi = Asia (Azhi-A) = "land of the mighty dragon" (Aži is cognate with the Chinese Zhī (dragon)), a very similar name to Rome (Rhu-Ma) = "Place of the Dragon", Romania (Rhu-Ma + Na) = "dragon land", and Sarmatia (serpent) + ma (mother, land). Aži links to Aesir (Norse gods), Asar (Egyptian Osiris), and Ahura (Zoroastrian god). The phonetic root Az-/As- means "divine power" in Indo-European languages (Sanskrit asura, Hittite hasu = king). Aži Dahāka in Avestan = Aži (serpent) + Dahāka (man) which translates to "Serpent-Man". 
+-   Azhi: Azhi = Až ("serpent") + Hi ("power, divine") in Avestan, meaning "mighty dragon". It extends Aži to signify divine authority across Indo-Iranian and Scythian cultures. Azhi = Asia (Azhi-A) = "land of the mighty dragon" (Aži is cognate with the Chinese Zhī (dragon)), a very similar name to Rome (Rhu-Ma) = "Place of the Dragon", Romania (Rhu-Ma + Na) = "dragon land", and Sarmatia (serpent) + ma (mother, land). Aži links to Aesir (Norse gods), Asar (Egyptian Osiris), and Ahura (Zoroastrian god). The root Az-/As- means both "divine power" and "serpent" in Indo-European and Scythian languages (Sanskrit asura, Hittite hasu = king). Aži Dahāka in Avestan = Aži (serpent) + Dahāka (man) which translates to "Serpent-Man". 
 -   Caesar: The Egyptian name "Asar" was another name for Osiris. "Ra"
     was the Egyptian deity of the Sun (Asar-Ra). Sar means king in Scythian. This title very likely
     connects to "Asar-Hapi" (Osiris-Apis), another name for the
@@ -107,7 +104,7 @@ end of the book.
     divine, likely derives from the Egyptian Asar. The Greek language
     adds a "K" to foreign words, so Aesar -> Greek Kaesar -> Latin
     Caesar. This title also resembles the Scythian/Hurrian "Kur-Sar" (Sun King), the Phoenician "Kosar" (sun god), Assyrian "Aššur" (god), Germanic Æsir (the Norse gods, like Odin), Scythian "As" (lord) and Scythian Sar (king), Kšar (from the Old Persian Xšaya = king), and also Cyrus the Great's title (Kuruš (Cyrus) = Khur (Sun) + -uš (lord)).
--   Christ: Karast, a person who is anointed as a Heru (Hero/Horus) during their lifetime. When they are deceased they receive great honor as a KRST or Ausar (Osiris). Egyptian Karast (“Anointed One”) = Greek Christos (“Anointed One”) = Scythian Xšaθra (Power, Dominion, Kingdom which becomes "Kšatrapati" (Satrap, Governor) in Persian, and "Kshatriya" (Warrior-King) in Sanskrit, which also = Vedic "Krishna" = Hyksos "Khasut", linking India, Egypt, and Judea to a Scythian elite. Christ is identical to the title Soter. Several historical figures were
+-   Christ: (KRST) is a cipher for the ultimate Scythian ritual title, Kurush-Satrap ("Sun-Lord Governor"). The full title of the Proto-Christ was the Great Kšatrapati—the supreme military governor appointed by the Bosphoran elite to rule proxy states like Rome, Egypt, and Judea. The entire Christ myth is a theological justification for the imposition of Scythian war-lord rule. The Scythian root Xšaθra (Power, Dominion, Kingdom), from which Christos derives, becomes "Kšatrapati" (Satrap, Governor) in Persian, also, Xšaya ("ruler", "king") which gives us Xšayathiya ("King of Kings"), and "Kshatriya" (Warrior-King) in Sanskrit. The phonetic shift is Xšaya -> Ksha -> Kris -> Christ. The "-tos" is a Greek suffix.. Related to Vedic "Krishna" and Hyksos "Khasut" which links India, Egypt, and Judea to a Scythian elite. Christ is identical to the title Soter. Several historical figures were
     Christs/Soters. In Isaiah 45:1 the jews called Cyrus the Great "The
     Anointed One". Alexander the Great was also a Chréstos/Soter
     (Josephus. Antiquities, XI. 8. Talmud, Yoma 67b). Up until the First
@@ -118,6 +115,7 @@ end of the book.
 -   Cotys: In Thracian, "Cotys" is related to the word "kotys", a title
     meaning "lord". In the Celtic languages the word "cottos" or
     "cottius" means "chieftain".
+-   Flavius: Flavus = yellow/golden is a deliberate Latin mistranslation of the Scythian root Pālava or Palavi (Pahlavi), the term for the Parthian/Iranian aristocracy. The "Flavian" line was a Parthian/Sarmatian proxy dynasty installed by the Bosphoran center (Julius Caesar/Asander's line) to enforce the new Christianized Imperial Cult. They claimed a 'Golden Age' (Flavius) when they were truly the Pahlavi (Parthians) rewriting the Roman lie. 
 -   Izates or Izas: "Iza" (𐬌𐬰𐬀) = Avestan root for "serpent" (cognate with Scythian Aži). "-tes" = Greek suffix, but possibly from dāta ("given by," as in Mithradates = "Given by Mithra"). This is cognate with the Scythian (and broader Iranian) mythological figure Aži Dahāka (Avestan) or Azhi Dahak (Middle Persian), a monstrous serpent or dragon.
 -   Jesus [^1] : Yeshua derives from Aesus (Etruscan god) via Yazata (Divine Serpent-Lord), related to Izates (Yazata). In the name "Yeshua Ben Panthera" the Panthera is a Hellenized form of Ptolemaios (Ptolem->Ptol->Panther). "Jesus, son of Ptolemy". This directly connects the "Jesus" figure to the Ptolemaic-Bosphoran royal house.
 -    Jew: Iudii -> Ioudaioi -> Jew. The Iudii, a Galatian tribe, were Scythian-Celtic priests who later became "Jews" under Alexandrian syncretism. Iudii is cognate with Iove (Jove) or Jupiter. Celtic Iudii then disappeared after the Bar Kokhba revolt when emperor Hadrian decimated their population. The term "Ashkenazi" (Scythian: Ashkuza) confirms their steppe origins, later demonized by Rabbi Akiva to erase their Sarmatian roots. 
@@ -231,7 +229,7 @@ elite from the Pontic steppe (modern Ukraine/Russia). The domestication
 of the horse and invention of the chariot allowed them to travel vast
 distances and they spread their Draco (dragon/serpent) cult across Eurasia, encoded in snake-worshiping myths [^2] 
 
-The Sarmatian/Sakas were the Egyptian-Persian-Indian-Greek-Roman elite. Egypt, Persia, India, Greece, Rome, etc., were all under the suzerainty of these Aryan Iranian-Scythian-Sarmatian elites since at least the 17th century BC and their base of operation was on the Bosphorus river.
+The Aryan-Iranian-Scythians were the Egyptian-Persian-Indian-Greek-Roman elite. Egypt, Persia, India, Greece, Rome, etc., were all under the suzerainty of these elites since at least the 40th century BC and their base of operation was on the Bosphorus river.
 
 In the elite burial chambers from the Scythian Kurgans in Ukraine to the Etruscan tombs in Italy to the burial sites of Roman Patricians a specific non-local skull type appears: Dolichocephalic (long-headed) and high-vaulted with a pronounced occipital bun—a bulge at the back of the skull—a feature most commonly associated with Neanderthal admixture. This was no mere coincidence; it was the osteological signature of the Dragon Bloodline, a physiological marker distinguishing the ruling elite from the general population they governed.
 
@@ -254,7 +252,9 @@ Timeline:
 -"Sea Peoples" collapse Mediterranean empires (Scythian mercenaries) (1200 BC) \
 -The "Dorian Greeks" who destroyed Mycenae (c. 1200 BC) were steppe nomads and Scythian-Sarmatians.\
 -Persia’s Achaemenids (705–330 BC) - Saka (Scythian) clan.\
--The Etruscan Tarquin dynasty (616 BC) - Scythian rulers of Rome. Tarquin = Tarkhu (Scythian: "Ruler"). Servius Tullius = Tulli (Scythian: "Wolf Clan").
+-The Etruscan Tarquin dynasty (616 BC) - Scythian rulers of Rome. Tarquin = Tarkhu (Scythian: "Ruler"). Servius Tullius = Tulli (Scythian: "Wolf Clan").\
+-The Alani (100 BC - 450 AD) - the purest, highest-ranking Scythian tribe. They are the core of the Sarmatian confederation whose royal house ultimately produced the Julio-Claudians (Julius Caesar/Asander) (interesting fact: legendary King Arthur is a corrupted memory of an Alani Warlord (Artorius), one of the military Kšatrapatis sent from the Bosphorus to secure the lucrative tin and iron mines of Britain after the Flavian consolidation).\
+-The Khazars (600 AD to 950 AD) - "Ashkenaz" people who controlled the Eurasian trade routes. The Ashkenazi Jews are the Scythian managerial class who maintained the forged chronology and trade networks for the Bosphoran heirs. Their state conversion to Judaism was a geopolitical alignment with the Calami (Jewish) financial proxies to solidify control over Eurasian gold and slave routes.
 
 The Mitanni exercised hegemony over a pan-Eurasian empire. The Hittites,
 also known as the Neshians, were one enforcement arm for the Mitanni.
@@ -354,7 +354,9 @@ The Jesus archetype, as presented in Christianity, and characterized as a divine
 
 Romulus the Roman Deity
 
-According to Plutarch’s Life of Romulus (circa 75 CE) the Roman deity of Quirinus aka Romulus was born to a virgin, Rhea Silvia, impregnated by the god Mars, establishing his divine lineage. Hailed as a king and revered as the son of a god, Romulus founded Rome after a fratricidal conflict with his brother Remus, a narrative echoing the biblical Cain and Abel, crucified by a conniving elite and rose from the dead.
+Rhu/Ru: The Indo-European root for "Dragon/Serpent" (cognate with the Scythian Aži). Ma: The Scythian word for "Place/Land" (as in the true Rhu-Ma on the Bosphorus). Romulus is the Aži Dahāka (Dragon) King who founds the city, establishing the legal right to rule.
+
+According to Plutarch’s Life of Romulus (circa 75 CE) the Roman deity of Quirinus aka Romulus was born to a virgin, Rhea Silvia, impregnated by the god Mars, establishing his divine lineage. Hailed as a king and revered as the son of a god, Romulus founded Rome after a fratricidal conflict with his brother Remus, a narrative echoing the biblical Cain and Abel, crucified by a conniving elite and rose from the dead as the god Quirinus.
 
 ![Fig.1.4](/images/Denarius_C._Memmius_C._F._Romulus.jpg){:width="400px"}
 
@@ -374,7 +376,7 @@ Horus, the Egyptian god of kingship and son of Osiris, embodies the Jesus archet
 
 Dionysus
 
-Dionysus, the Greek god of wine and resurrection, syncretized with Osiris by the Alexandrian School, mirrors the Jesus archetype through divine birth, liberation, and rebirth. Born to Zeus and a mortal, Dionysus parallels Jesus’ divine-human parentage (Matthew 1:18–25). His ecstatic rites and wine symbolism, akin to Jesus’ sacraments (John 2:1–11), offered spiritual freedom, while his death by Titans and resurrection echo Jesus’ crucifixion-resurrection. Betrayed by Pentheus (Bacchae), Dionysus ties to Mark Antony as Neos-Dionysos (Chapter 5), with serpent imagery (Orphic Hymns) linking to Aži Dahāka. His cult’s universal appeal prefigures Christianity’s monotheistic framework.
+Dionysus, the Greek god of wine and resurrection, syncretized with Osiris by the Alexandrian School, mirrors the Jesus archetype through divine birth, liberation, and rebirth. Born to Zeus and a mortal, Dionysus parallels Jesus’ divine-human parentage (Matthew 1:18–25). His ecstatic rites and wine symbolism, akin to Jesus’ sacraments (John 2:1–11), offered spiritual freedom, while his death by Titans and resurrection echo Jesus’ crucifixion-resurrection. Betrayed by Pentheus (Bacchae), Dionysus ties to Mark Antony as Neos-Dionysos (Chapter 5), with serpent imagery (Orphic Hymns) linking to Aži Dahāka. His cult’s universal appeal prefigures Christianity’s monotheistic framework. The entire Jesus-as-Wine theme (turning water into wine, the Last Supper) is a direct usurpation and theological correction of the Dionysian cult by the Flavian chronographers. It established the Proto-Christ as the new, superior ecstatic wine-lord who demanded controlled, spiritual frenzy, not chaotic, physical frenzy.
 
 Attis
 
