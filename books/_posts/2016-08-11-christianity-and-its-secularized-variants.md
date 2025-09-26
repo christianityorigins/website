@@ -1,14 +1,14 @@
 ---
 layout: default
 open_links_in_new_tab: true
-title:  "Slave Morality in Context: Christianity's Influence on Secular Thought"
+title:  "The Legacy of Slave Morality: Christianity, Secular Ideologies, and Western Decline"
 date:   2016-08-11 09:00:00 +0200
 updated: 2024-08-11 19:46:50 +0200
 category: books
 ---
 
 
-Slave Morality in Context: Christianity's Influence on Secular Thought
+The Legacy of Slave Morality: Christianity, Secular Ideologies, and Western Decline
 
 By Ralph Perrier
 
@@ -39,9 +39,9 @@ Footnotes
 
 Preface
 
-This book argues that Christianity was not a revelation but a deliberate psychological weapon—a 'slave morality' system engineered to domesticate populations by destroying ethnic bonds, inverting natural hierarchies, and turning the weak against the strong. This program of ethnic and spiritual suicide did not end with secularization; it simply found new hosts. Marxism, Critical Theory, and the modern Woke creed are not opponents of Christianity—they are its heretical children, a secular reformation that has perfected the ancient art of mass domestication by replacing the cross with the rainbow flag and the priest with the Diversity Consultant.
+Christianity was not a revelation but a deliberate psychological weapon—a 'slave morality' system engineered to domesticate populations by destroying ethnic bonds, inverting natural hierarchies, and turning the weak against the strong. This program of ethnic and spiritual suicide did not end with secularization; it simply found new hosts. Marxism, Critical Theory, and the modern Woke creed are not opponents of Christianity—they are its heretical children, a secular reformation that has perfected the ancient art of mass domestication by replacing the cross with the rainbow flag and the priest with the Diversity Consultant.
 
-Christianity culminated from centuries of scribal work by imperial elites, who built on earlier slave morality religions, with one of these slave morality religions being codified at the Alexandrian School in Egypt under Ptolemy Soter. The goal was to spread a religion to the slaves that advanced monotheism, centralized texts and priesthoods, ethos like renoucing worldy possessions, asceticism, shame and guilt, you will be rewarded in the afterlife for your earthly suffering, etc. These imperial cults were by design slave moralities to strip the will to power from the population to prevent rebellions.
+Christianity culminated from centuries of scribal work by imperial elites, who built on earlier slave morality religions, with one of these slave morality religions being codified at the Alexandrian School in Egypt under Philo of Alexandria. The goal was to spread a religion to the slaves that advanced monotheism, centralized texts and priesthoods, ethos like renoucing worldy possessions, asceticism, shame and guilt, you will be rewarded in the afterlife for your earthly suffering, etc. These imperial cults were by design slave moralities to strip the will to power from the population to prevent rebellions.
 
 Introduction
 
@@ -49,7 +49,7 @@ Every single species on earth works towards the preservation and strengthening o
 
 This book is divided into three parts:
 
-1.   The System Exposed (how Christianity weaponizes the weak, debased, and the traitorous to become the nobility. Weaponizing the outcastes is how the system becomes self-replicating.).
+1.   The Theoretical Framework (how Christianity weaponizes the weak, debased, and the traitorous to become the nobility. Weaponizing the outcastes is how the system becomes self-replicating.).
 
 2.    The Tools of Domestication (applies Nietzsche’s concepts to reveal how these mechanisms act as domestication system that subverts the strong).
 
