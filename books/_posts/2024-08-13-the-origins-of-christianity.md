@@ -163,9 +163,9 @@ Asar(Osiris)/Aesar/Aeser/Aisar/Ais/Is), Brogitarix. Other suspected aliases: Mit
     name Gaius?).
 -   Cleopatra VII (Isis who in mythology was the wife of Osiris and the
 mother of Horus): Dynamis Ourania (Aphrodite Urania), Pythodorida
-Philometor.
+Philometor (Pytho- from python, and -doria from the Dorian tribe who were Scythian Greeks). Also, Amanirenas ("Amon is Lord"), Kandake of Kush?
 -   Ptolemy XII Auletes of Egypt: Mithridates VI Eupator of Pontus (his wives/sisters: Laodice (in Pontus) = Cleopatra V Tryphaena (in Egypt). The same woman), Mark Antony (Marcus Antonius = Mar (Phoenician "lord") +
-Anton (from Antaeus, giant son of Gaia)), King Herod (Heru (Horus) + Ud (divine) = Herud -> Herod. "The Divine Horus". The "Slaughter of the Innocents" is a mythological trope attached to the birth of every Horus-figure, who must overcome a threat (against Set). It is not history; it is theological propaganda asserting Herod's/Mark Antony's legitimacy as the living god-king against the resurrected one. This is also attached to the Indian god Krishna (against Kamsa)), Polemon (Polemos ->
+Anton (from Antaeus, giant son of Gaia)), King Herod (Heru (Horus) + Ud (divine) = Herud -> Herod. "The Divine Horus". The "Slaughter of the Innocents" is a mythological trope attached to the birth of every Horus-figure who must overcome a threat (against Set). It is not history; it is theological propaganda asserting Herod's/Mark Antony's legitimacy as the living god-king against the resurrected one. This is also attached to the Indian god Krishna (against Kamsa)), Polemon (Polemos ->
 Ptolemy) I of Pontus aka Pharnaces II ("Pharao-Nikes", or "Victorious Pharaoh"), Tiberius Claudius Nero, Phraates IV of Parthia (Per-aa or Per-Nesu is a corruption of Pharaoh). Was he also Ptolemy X Alexander I aka Simon Boethus aka Simon Magus?
 -    Emperor Tiberius Julius Caesar Augustus = Tiberius Julius Aspurgus, king of Bosphorus (Tiberius Julius Aspurgus, son of Asander and Dynamis, and Emperor Tiberius Julius Caesar were born around the same time and their reigns are nearly perfectly co-terminus. Their sons were also born around the same time. Emperor Tiberius was first married to Vipsania Agrippina. The name Vipsania is obscure, but Agrippina means "wild horse" (from agri- "wild" and -pina "mare"), and Tiberius Julius Aspurgus Philoromaios's wife, known only through numismatic evidence, was Gepae-pyris (Gepa- from hippos, "horse" in Greek, cf. Epona, Celtic horse goddess and -epyris (possibly "lady" or "queen"). Both names encode "Horse-Queen." This is a title for a Sarmatian noblewoman of the steppe horse-culture. Tiberius Julius Aspurgus and Gepaepyris had two sons; the eldest was "Tiberius Julius Mithridates Philo-Germanicus Philopatris" ("son of Mithra, lover of Germanicus, lover of father"). Their second son was "Tiberius Julius Cotys I Philocaesar Philoromaios Eusebes" ("lover of Caesar, lover of Rome who is the Pious One"). Now, let's connect this family to the Roman Emperor's family: Emperor Tiberius Julius Caesar: Adopted son and heir: Germanicus. Biological son: Drusus. The name "Tiberius" likely refers to the Tibara, a tribe of the Pontic steppe also known as the "Tibarenoi")
 -    Emperor Claudius = Rhoemetalces II (Reigns are nearly perfectly co-terminus. Polemon Pythodoros (Julius Caesar/Asander) and Pythodorida of
@@ -441,16 +441,16 @@ After the Serapis cult the Alexandrian School made an industry out of taking exi
 
 There was a Bosphoran [^5] imperial cult where Julius Caesar [^6] took
 on the role of Asander (also Asandros), King of Bosphorus [^7] ("Asa"
-means "lord" in Thracian and Celtic and likely derives from the Scythian Assaioi (As-saioi = As is Scythian for "Serpent Lord", and Sai refers to clan/tribe. Sar means king in Scythian), and "andros" means "man" or "son of
+means "lord" in Thracian and serpent in Scythian (Scythian Assaioi: As-saioi = As is Scythian for "Serpent Lord", and Sai refers to clan/tribe. Sar means king in Scythian), and "andros" means "man" or "son of
 man" in Greek. Jesus is referred to as "the son of man" 81 times in the
-four canonical gospels. Asandros can also be interpreted as "son of the
-lord" or "son of Asa, the lord". The Thracian version of Zeus was Asa,
+four canonical gospels. Asandros can also be interpreted as either "Dragon Man" (the same as Aži-ander, or Alexander), or "son of the
+lord", or "son of Asa, the lord". The Thracian version of Zeus was Asa,
 the Celtic was Esus/Hesus (Esus becomes Aesus, pronounced ah-soos. There
 was no J in ancient Latin, so Jesus was pronounced ah-soos as well). The
 Etruscan word "Aesar" (also spelled "Aeser" or "Aisar" which likely
 derives from the Egyptian "Asar" which was another name for Osiris),
 from which Asa may also derive, means "god" or "divine". Asandros can
-also translate to either "son of god", or "son of Lord Aesar/Asar
+also possibly translate to either "son of god", or "son of Lord Aesar/Asar
 (Osiris)". The Greek language often added the prefix "K" to words
 borrowed from other languages, so Aesar ("god") -> Greek Kaesar ->
 Latin Caesar. Cleopatra used the regional alias of Dynamis Ourania [^8]
@@ -809,7 +809,7 @@ the Bosphorus, and Julius Caesar/Asander was king of this region.
 "Gaius" then can refer to Asander's connection to the Gallian (Gauls
 (Galli = Celt in Latin)) people or his ancestry in the region.
 
-"Gaius" might also refer to "Dyaus" (Sky Father in Proto-Indo-European).
+"Gaius" might also refer to the Scythian Gaya (Clan).
 
 Ceasar's gentilice (surname) was Iulius. Iulius can refer to the ancient
 Celtic tribe known as the Iudii or Iudaei. "Ioulios" (ιούλιος) in Greek
