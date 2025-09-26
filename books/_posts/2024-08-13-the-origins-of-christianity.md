@@ -48,7 +48,7 @@ Part 6. Sects of the Imperial Cult\
 9.2. Subversion of the Imperial Cult by Rabbi Akiva and His Students\
 9.3. Islam\
 Conclusion\
-Appendix A: Alexander the Great\
+Appendix A: Scythians in India\
 Appendix B: Scythians in China\
 Selected Bibliography\
 Footnotes
@@ -1138,10 +1138,8 @@ Endnotes (Chapter 9)
     *Pilate might also = "Pileatus" (Latin for "wearing a felt cap," a
     Pontic priestly garb).
 
-**Alexander the Great**
+**Scythians in India**
 
-Alaksandu of Wilusa, a Hittie king of Wilusa (Troy) (Alaksandu = Alak-San-Du (Hurrian: "Ruler-Dragon-Son")), who predates Alexander by 800 years,
-    proves that the name Alexander was a Scythian title for kings.
 Alexander was a Sarmatian dragon-king who was the son of Ateas the Scythian aka Artaxerxes
     II Memnon ("Kai Bahman") and half-brother of Darius III ("Darab").
     In India he took the regional aliases of Chandragupta Maurya
@@ -1216,6 +1214,23 @@ classical Anatolia. Bubares, the Persian prince, was Alexander's Persian
 identity. Amyntas (son of Bubares) (born around 350 BCE) =
 Heracles/Helios (born around 350 BCE) = Mithridates I Ctistes (born
 around 350 BCE)?
+
+The name Abaris or Abharas, from Abaris the Hyperborian, the teacher of Pythagoras, derives from the Old Scthian word abhar, which means chief or noble. Abharas is also related to the Sanskrit word Bhārata, a legendary king in the Vedas. Bhārata is at the root of the word Bharatvarsha which is a term that is used to refer to the Indian subcontinent as a whole. 
+
+The Jewish scholar Flavius Josephus (37 – 100 AD) quotes from Clearchus’s fragment in his Contra Apionem [Against Apion], in which Aristotle says: “Jews are derived from the Indian philosophers; they are named by the Indians Calami, and by the Syrians Judaei, and took their name from the country they inhabit, which is called Judea.” (Book I:22.) Megasthenes (350 BC - 290 BC) recorded: "The Jews were an Indian tribe or sect called the Kalani" (also Kaldu).
+
+Calami is a village located in the Kannur district of Kerala,
+    southwest India. Kochi, also known as Cochin, is a major port city
+    in the state of Kerala. Cochin is obviously phonetically related to
+    the name Cohen 
+
+Lost in history is that the greatest slave trade wasn't the Trans-Atlanic one, but the jewish (Calami) ran transfer of Ethiopians into India during the spice and marble trade. Dravidians are Ethiopians who the jews imported into India via South India and Sri Lanka. There is a straight line route to Sri Lanka via boat. Also, during this slave trade the jews created a settlement in
+    Ethiopia for their slave trade business, hence Ethiopian Jews being
+    a thing, and Cochin Jews existing on the south west section of
+    India. "Habshi" is what Northern Indians called  Southern Indians
+    and Habesha comes from "Abyssinia" which refers to Ethiopia. These
+    Ethiopian slaves then mixed with indigenous Australoid/Denisovans
+    who were similar to Australian Aborigines.Eventually they mixed with the indigenous Scythians (likely by force and genocide run by the Calami)\
 
 **Scythians in China**
 
