@@ -71,8 +71,8 @@ This book traces Christianity back to its foundations — from the mythemes of S
 A few things you need to know before you read my book:
 
 -   Much of what we know of ancient history is fabricated by the Flavian emperors, Jesuits, and the Vatican. The Egyptian-Persian-Indian-Greek-Roman elite were a Proto-Indo-European (PIE) Elite (Kurgan Culture) who were the horse-riding, chariot-inventing pastoralists from the Pontic-Caspian Steppe who, beginning around 4500 BC, began a systematic conquest of Europe, Anatolia, and the Indus Valley, and who ruled through proxy dynasties. Egypt, Persia, India, Greece, Rome,
-etc., were all under the suzerainty of Aryan Iranian-Scythian elites and their base of operation was on the Bosphorus river.
--   Western Rome in Italy is a phantom empire that was invented by the Vatican. Western Rome was built during the Renaissance period. The original Rome (in Sarmatian, "Ruma" (Rome) = "Place of the Dragon" (Rhu-Ma, from Aži Dahāka, the Iranian dragon)) was located on the Bosphorus river which approximates to modern-day Crimea in southern Ukraine before moving their capital to the Bosphorus river in Anatolia or modern day Turkey.
+etc., were all at one point under the suzerainty of Aryan Iranian-Scythian elites and their base of operation was on the Bosphorus river.
+-   Western Rome in Italy is a phantom empire that was invented by the Vatican. Western Rome was built during the Renaissance period. The original Rome (in Sarmatian, "Ruma" (Rome) = "Place of the Dragon" (Rhu-Ma, from Aži Dahāka, the Iranian dragon)) was located on the Bosphorus river which approximates to modern-day Crimea in southern Ukraine.
 -   Asander, king of Bosphorus aka Julius Caesar was also Ptolemy XI Alexander II, Cleopatra's uncle, but he took on numerous
 other regional aliases. Cleopatra was also Dynamis, queen of Bosphorus. Mark
 Antony the Neos-Dionysos was either Ptolemy of Cyprus, a brother of
@@ -136,6 +136,7 @@ end of the book.
     deposed by a Piso. Appius is also cognate with Arrius (through
     rhotacization in ancient Latin the /p/ and /r/ could be swapped).
 -   Sar root:  Sar is the Scythian word for "king". Sarpa in Sanskrit means "serpent". Sarmatian, Akkadian Sarrum (which becomes Persian Xšaya-/Xšayathiya), Hurrian Šarri, Sargon, Sarlagab, Serapis (Sar-Apis = "Serpent Bull"), Zarathustra (Sar + Ustra = "serpent-lord"), Saraswati (Hindi goddes of knowledge), Saracen (Roman designation for Middle Eastern peoples), Šaruma (Mitanni deity), Saragurs (Scythian tribe in China), Caesar, Asar (Osiris), Tsar (Slavic monarch), Sargon of Akkad, feminine Sarai (or "Sarah" meaning "princess" (Genesis 17:15)), etc. Sar means king, or serpent king, across the empires that the Scythians used to rule over.
+-   Vespasian: Vas/Bas was the royal abbreviation for the Greek word Basilius which = King, and Pas means "all" as in Pan. "Vespasian" = "King of All", or "King of Everything" which is a claim to the title "King of Kings"). Another option: Vas/Bas = King, and Pasian = Pisonian (a member of the key conspiratorial Piso family). King Piso
 
 **2 Ancient Alias Names List (Chronologically Organized by Era and Dynasty)**
 
@@ -885,7 +886,7 @@ Vespasian was also a great-grandson of Cleopatra and Mark Antony (King
 Herod). He was Herod Pollio aka Herod Agrippa I, grandson of King
 Herod's son Aristobulus IV. Vespasian was his title, not his name
 (Vas/Bas was the royal abbreviation for the Greek word Basilius which =
-King, and Pas means "all" as in Pan. "Vespasian" = "King of All", of "King of Everything" which is a claim to the title "King of Kings") [^15]. He was also
+King, and Pas means "all" as in Pan. "Vespasian" = "King of All", or "King of Everything" which is a claim to the title "King of Kings") [^15]. Another option: Vas/Bas = King, and Pasian = Pisonian (a member of the key conspiratorial Piso family). King Piso. He was also
 'Flavius Scaevinus' the conspirator involved in Nero's assassination.
 
 ![Fig.
