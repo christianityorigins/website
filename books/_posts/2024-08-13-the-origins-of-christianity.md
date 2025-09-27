@@ -773,49 +773,6 @@ even has a story about a 'spurious Alexander' that showed up in Rome
 claiming to be the son of Herod who faked his death [^14], so he was
 'resurrected' as Juba II, king of Numidia and Mauretania. 
 
-Endnotes (Chapter 5)
-
-(a) The throne name of Ptolemy Philometer was Ir-maat-en-amun-re. This
-    would strengthen the word play between the names Philo-meter,
-    Mithra-dates, and Matthath-ius. (The Egyptian Maat-en transliterates
-    to the Hebrew Mattan/Mattath and the name "metor" transliterates
-    into Parthian Mithra). Philometer then corresponds to Mithradates of
-    Parthia and Mattathius the Hasmonean. (Mattath is the Hebrew
-    feminine form of Mattan).\
-(b) Speculative: Mark Antony's son with Livia Drusilla = Emperor Tiberius Julius Caesar
-Augustus who was also Ptolemy XIII Theos Philopator, Cleopatra VII's brother?\
-(c) Apollonius of Tyre was married to the daughter of a king of Libya
-    ("Historia Apollonii Regis Tyri" or "The Story of Apollonius, King
-    of Tyre"), who was Cleopatra Selene aka Drusilla (aka Cleopatra
-    (Thea Philopator) of Mauretania aka Cleopatra IX aka Helene aka
-    Julia Ourania of Parthia aka Philo of Alexandria. Drusilla was the
-    wife of Azizus who was her brother Juba II (Alexander Helios aka
-    Alexander (son of King Herod)) aka Gaius Julius Alexander, Herodian
-    Prince of Judaea aka Alexander Lysimachus aka Alexander the Alabarch
-    aka Tiberius Julius Alexander Major aka (King/Tetrarch) Ptolemy
-    (Alexander) bar Menneus aka Ptolemy of Mauretania aka Phraates V
-    (the "King of Kings") aka Monobazus I King of Adiabene).
-    https://en.wikipedia.org/wiki/Apollonius_of_Tyre_(philosopher)
-    https://en.wikipedia.org/wiki/Apollonius_of_Tyre
-    So, Alexander aka Juba II was also Apollonius of Tyre. Juba II
-    carried the title "Rex Literatissimus" which can be translated as
-    "Most Learned King" or "The Most Scholarly King". He was known as a
-    philosopher. These members of this royal family liked to role-play as philosopher kings. Is Apollonius of Tyre the same person as Apollonius of
-    Tyana? This would make Apollonius of Tyana the brother-husband of
-    Philo of Alexandria and the father of Josephus. These three created
-    the core of Christianity.\
-(d) Gautama Buddha was Gaumata Bardya, the son of Cyrus the Great.
-    Ptolemy I Soter and his successors were closely associated with
-    Serapis. "Jesus" was an avatar for the Bosphioran royal family.
-    Apollonius of Tyana was king Juba II, the grandson of Julius
-    Caesar/Asander and Cleopatra/Dynamis. All these aristocrats/kings
-    took on religious personas and preached syncretic versions of
-    Greco-Buddhism to the public: monotheism, renounce worldy
-    possessions, asceticism, shame and guilt, you will be rewarded in
-    the afterlife for your earthly suffering, etc. These cults were by
-    design slave moralities to strip the will to power from the
-    population to prevent rebellions.
-
 **5.1 Julius Caesar was a Title**
 
 Identifying Julius Caesar as Asander of Bosphorus necessitates a
@@ -859,6 +816,49 @@ Aryan Sarmatians, role played as jews, an irrelevant tribe, and israel
 was an irrelevant slice of land in the desert, this makes this claim
 more credible. jews just adopted this imperial cult and they got their
 entire identity and history from here.
+
+Endnotes (Chapter 5)
+
+(a) The throne name of Ptolemy Philometer was Ir-maat-en-amun-re. This
+    would strengthen the word play between the names Philo-meter,
+    Mithra-dates, and Matthath-ius. (The Egyptian Maat-en transliterates
+    to the Hebrew Mattan/Mattath and the name "metor" transliterates
+    into Parthian Mithra). Philometer then corresponds to Mithradates of
+    Parthia and Mattathius the Hasmonean. (Mattath is the Hebrew
+    feminine form of Mattan).\
+(b) Speculative: Mark Antony's son with Livia Drusilla = Emperor Tiberius Julius Caesar
+Augustus who was also Ptolemy XIII Theos Philopator, Cleopatra VII's brother?\
+(c) Apollonius of Tyre was married to the daughter of a king of Libya
+    ("Historia Apollonii Regis Tyri" or "The Story of Apollonius, King
+    of Tyre"), who was Cleopatra Selene aka Drusilla (aka Cleopatra
+    (Thea Philopator) of Mauretania aka Cleopatra IX aka Helene aka
+    Julia Ourania of Parthia aka Philo of Alexandria. Drusilla was the
+    wife of Azizus who was her brother Juba II (Alexander Helios aka
+    Alexander (son of King Herod)) aka Gaius Julius Alexander, Herodian
+    Prince of Judaea aka Alexander Lysimachus aka Alexander the Alabarch
+    aka Tiberius Julius Alexander Major aka (King/Tetrarch) Ptolemy
+    (Alexander) bar Menneus aka Ptolemy of Mauretania aka Phraates V
+    (the "King of Kings") aka Monobazus I King of Adiabene).
+    https://en.wikipedia.org/wiki/Apollonius_of_Tyre_(philosopher)
+    https://en.wikipedia.org/wiki/Apollonius_of_Tyre
+    So, Alexander aka Juba II was also Apollonius of Tyre. Juba II
+    carried the title "Rex Literatissimus" which can be translated as
+    "Most Learned King" or "The Most Scholarly King". He was known as a
+    philosopher. These members of this royal family liked to role-play as philosopher kings. Is Apollonius of Tyre the same person as Apollonius of
+    Tyana? This would make Apollonius of Tyana the brother-husband of
+    Philo of Alexandria and the father of Josephus. These three created
+    the core of Christianity.\
+(d) Gautama Buddha was Gaumata Bardya, the son of Cyrus the Great.
+    Ptolemy I Soter and his successors were closely associated with
+    Serapis. "Jesus" was an avatar for the Bosphioran royal family.
+    Apollonius of Tyana was king Juba II, the grandson of Julius
+    Caesar/Asander and Cleopatra/Dynamis. All these aristocrats/kings
+    took on religious personas and preached syncretic versions of
+    Greco-Buddhism to the public: monotheism, renounce worldy
+    possessions, asceticism, shame and guilt, you will be rewarded in
+    the afterlife for your earthly suffering, etc. These cults were by
+    design slave moralities to strip the will to power from the
+    population to prevent rebellions.
 
 **6 Rome on the Bosphorus?**
 
