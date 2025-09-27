@@ -377,7 +377,7 @@ Serapis, crafted under Ptolemy I at the Alexandrian School, fused Osiris’ resu
 
 Up until the First Council of Nicaea the title "Christ", or "Christian", referred to the Serapis Cult ("those who worship Serapis are, in fact, Christians, and those who call themselves bishops of Christ are, in fact, devotees of Serapis.". Source: The Letter of Hadrian to Servianus).
 
-Mithras
+Mithras the Iranian Deity
 
 Mithras, a solar god shaped by the Alexandrian School for Roman military elites, parallels the Jesus archetype through divine birth, cosmic salvation, and sacrificial renewal. Born from a rock, Mithras mirrors Jesus’ virgin birth, while his tauroctony (bull-slaying) symbolizes redemption, akin to Jesus’ crucifixion (Mark 15:24). His cult’s suppression by Christian emperors reflects Jesus’ betrayal, and serpent imagery in Mithraic reliefs (CIMRM 593) ties to Scythian sun-god motifs (Chapter 3). Offering salvation through rituals like communal meals, Mithras prefigures Christian sacraments, supporting the manuscript’s claim that Christianity adapted Mithraism’s framework, redirecting its appeal from soldiers to slaves under a monotheistic imperial cult.
 
@@ -385,11 +385,11 @@ Horus the Egyptian Deity
 
 Horus, the Egyptian god of kingship and son of Osiris, embodies the Jesus archetype through miraculous birth, divine victory, and resurrection, shaped by Alexandrian syncretism. Born to Isis after Osiris’ death, Horus parallels Jesus’ virgin birth (Matthew 1:18–25). As a savior, he defeated Set, akin to Jesus’ triumph over evil, with the Uraeus serpent linking to Scythian motifs (Fig. 1.6). His eye, torn out and restored, mirrors Jesus’ sacrificial death and resurrection (Mark 15–16), while Set’s betrayal of Osiris echoes Judas’ role. Tied to Cleopatra as Isis (Chapter 5), Horus’ royal-divine status supports Christianity’s adaptation of Egyptian theology for imperial unity.
 
-Dionysus
+Dionysus the Greek Deity
 
 Dionysus, the Greek god of wine and resurrection, syncretized with Osiris by the Alexandrian School, mirrors the Jesus archetype through divine birth, liberation, and rebirth. Born to Zeus and a mortal, Dionysus parallels Jesus’ divine-human parentage (Matthew 1:18–25). His ecstatic rites and wine symbolism, akin to Jesus’ sacraments (John 2:1–11), offered spiritual freedom, while his death by Titans and resurrection echo Jesus’ crucifixion-resurrection. Betrayed by Pentheus (Bacchae), Dionysus ties to Mark Antony as Neos-Dionysos (Chapter 5), with serpent imagery (Orphic Hymns) linking to Aži Dahāka. His cult’s universal appeal prefigures Christianity’s monotheistic framework. The entire Jesus-as-Wine theme (turning water into wine, the Last Supper) is a direct usurpation and theological correction of the Dionysian cult by the Flavian chronographers. It established the Proto-Christ as the new, superior ecstatic wine-lord who demanded controlled, spiritual frenzy, not chaotic, physical frenzy.
 
-Attis
+Attis the Phrygian Deity
 
 Attis, the Phrygian god of vegetation tied to Cybele, reflects the Jesus archetype through virgin birth, sacrificial death, and resurrection, adapted by Hellenistic cults. Born to virgin Nana on December 25 (Ovid, Fasti 4), Attis mirrors Jesus’ nativity (Matthew 1:18–25). His self-castration under a pine tree, a crucifixion-like act, and resurrection after three days (Pausanias 7.17) parallel Jesus’ sacrifice and rebirth (Mark 15–16). Betrayed by Cybele’s jealousy, Attis’ cult, linked to Sabazios (Chapter 5), features serpent motifs, aligning with Scythian dragon symbolism. Attis’ rites, emphasizing renewal, prefigure Christianity’s imperial adaptation for mass devotion.
 
