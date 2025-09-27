@@ -12,6 +12,7 @@ Contents
 3 Scientific Basis \
 4 Beliefs \
 5 Rituals\
+6 Footnotes
 
 1 Cosmotheism
 
@@ -19,11 +20,13 @@ Cosmotheism is the philosophical and spiritual view that the universe itself is 
 
 2 Types of Cosmotheism
 
-There are different interpretations of cosmotheism:
+There are different interpretations of the cosmotheist cosmology, but here are three:
 
 -   Naturalistic cosmotheism: This view sees the universe as a natural phenomenon, emphasizing the interconnectedness of all things without invoking supernatural elements. It aligns closely with scientific naturalism and can resonate with atheistic perspectives. 
   
 -   Spiritual cosmotheism: This interpretation embraces a more mystical view, suggesting that the universe is imbued with a spiritual dimension, or a divine consciousness. It emphasizes the spiritual dimensions of existence and the idea that the cosmos is a manifestation of a greater divine reality.
+
+-   Nietzschean Cosmotheism [1]: This view sees the universe as a dynamic, self-creating system driven by the 'will to power'—the fundamental force of life and existence that propels all things to assert, overcome, and create. The cosmos is divine not as a static entity but as a ceaseless process of becoming, where every star, organism, and consciousness strives toward self-overcoming. Nietzschean cosmotheism aligns with the concept of the Übermensch, where individuals transcend conventional morality to embody the universe’s creative potential, becoming co-creators in its evolution. This perspective rejects external deities and traditional moralities, instead celebrating the cosmos as a field for self-realization and life-affirming creation.
 
 3 Scientific Basis
 
@@ -38,3 +41,14 @@ Core Idea: You’re a piece of the cosmic puzzle, not a stranger to it. The divi
 5 Rituals
 
 In cosmotheist religions, rituals are about bringing someone to self-realization. For example, rituals like yoga, meditation, self-inquiry, stargazing to reflect on cosmic unity, and engaging in scientific inquiry to deepen understanding are all ways to help the individual realize their true nature as a manifestation of the divine. The goal is to awaken the individual's inner divinity and is aimed at helping the individual realize their true nature as the ultimate reality, fostering a sense of unity with the universe.
+
+
+The Nietzschean Synthesis: The Cosmotheistic Self-Overcoming
+Nietzsche's philosophy acts as a bridge, grounding the spiritual aspiration in human effort and affirmation. This synthesis holds that the divinity of the cosmos is realized not through passive worship, but through the active, life-affirming effort of humanity. The cosmic divine expresses itself most profoundly in the individual who embraces their own power and overcomes conventional limitations. This view transforms the divine from a passive substance into an evolutionary, dynamic drive.
+
+6 Footnotes
+
+1. This is basically the interpretation of William Luther Pierce's Cosmotheism\
+--https://nationalvanguard.org/2023/04/cosmotheism-a-nietzschean-doctrine-of-power/\
+--https://en.metapedia.org/wiki/Cosmotheism\
+--https://en.metapedia.org/wiki/Category:Cosmotheist_lectures
