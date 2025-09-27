@@ -104,7 +104,7 @@ end of the book.
     divine, likely derives from the Egyptian Asar. The Greek language
     adds a "K" to foreign words, so Aesar -> Greek Kaesar -> Latin
     Caesar. This title also resembles the Scythian/Hurrian "Kur-Sar" (Sun King), the Phoenician "Kosar" (sun god), Assyrian "Aššur" (god), Germanic Æsir (the Norse gods, like Odin), Scythian "As" (lord) and Scythian Sar (king), Kšar (from the Old Persian Xšaya = king), and also Cyrus the Great's title (Kuruš (Cyrus) = Khur (Sun) + -uš (lord)).
--   Christ: (KRST) is a cipher for the ultimate Scythian ritual title, Kurush-Satrap ("Sun-Lord Governor"). The full title of the Proto-Christ was the Great Kšatrapati—the supreme military governor appointed by the Bosphoran elite to rule proxy states like Rome, Egypt, and Judea. The entire Christ myth is a theological justification for the imposition of Scythian war-lord rule. The Scythian root Xšaθra (Power, Dominion, Kingdom), from which Christos derives, becomes "Kšatrapati" (Satrap, Governor) in Persian, also, Xšaya ("ruler", "king") which gives us Xšayathiya ("King of Kings"), and "Kshatriya" (Warrior-King) in Sanskrit. The phonetic shift is Xšaya -> Ksha -> Kris -> Christ. The "-tos" is a Greek suffix.. Related to Vedic "Krishna" and Hyksos "Khasut" which links India, Egypt, and Judea to a Scythian elite. Christ is identical to the title Soter. Several historical figures were
+-   Christ: Karast, a person who is anointed as a Heru (Hero/Horus) during their lifetime. When they are deceased they receive great honor as a KRST or Ausar (Osiris). Egyptian Karast (“Anointed One”) = Greek Christos (“Anointed One”) = Scythian Xšaθra (Power, Dominion, Kingdom which becomes "Kšatrapati" (Satrap, Governor) in Persian, and "Kshatriya" (Warrior-King) in Sanskrit, which also = Vedic "Krishna" = Hyksos "Khasut", linking India, Egypt, and Judea to a Scythian elite. Christ is identical to the title Soter. Several historical figures were
     Christs/Soters. In Isaiah 45:1 the jews called Cyrus the Great "The
     Anointed One". Alexander the Great was also a Chréstos/Soter
     (Josephus. Antiquities, XI. 8. Talmud, Yoma 67b). Up until the First
@@ -363,9 +363,19 @@ According to Plutarch’s Life of Romulus (circa 75 CE) the Roman deity of Quiri
 
 Fig. 1.4. Romulus. 
 
+Osiris the Egyptian Deity
+
+Osiris's Egyptian Name is Asar or Wsir. The name "Asar" is the root. When the Greeks encountered him, they Hellenized it to Osiris. Osiris's Asar -> (Greek addition of the sacred 'I' prefix, I-Asar) -> Iasar -> Iēsous. His title: Neb-er-djer (Nb-ꜥr-ḏr) is often translated as "Lord of the Entire Universe." The key element is Neb (Lord).
+
+After being betrayed and murdered by his brother Set, Isis and Nephthys ressurect Osirus.
+
+Osirus was also a Christ. In Egyptian mythology a Karast is a person who is anointed as a Heru (Hero/Horus) during their lifetime. When they are deceased they receive great honor as a KRST or Ausar (Osiris). Egyptian Karast (“Anointed One”) = Greek Christos ("Anointed One").
+
 Serapis the Greco-Egyptian Deity
 
-Serapis, crafted under Ptolemy I at the Alexandrian School, fused Osiris’ resurrection with Apis’ strength, embodying the Jesus archetype through divine creation, salvation, and rebirth. Declared a god, Serapis mirrors Jesus’ divine sonship (Matthew 1:18–25), with his name (“Ser” = son) tying to “Aesar” (divine) and Scythian dragon-kings (Chapter 3). As a savior, he offered healing and afterlife promises, like Jesus (John 3:16), with serpent imagery (Fig. 1.3) reflecting Aži Dahāka. Osiris’ death-rebirth cycle parallels Jesus’ crucifixion-resurrection (Mark 15–16), and the Serapis cult’s destruction by Theophilus I (391 CE) echoes Judas’ betrayal. The “Letter of Hadrian” (Vindobonensis) links Serapis worshippers to Christians, suggesting Christianity rebranded Serapis to unify civilians under imperial monotheism.
+Serapis, crafted under Ptolemy I at the Alexandrian School, fused Osiris’ resurrection with Apis’ strength, embodying the Jesus archetype through divine creation, salvation, and rebirth. Declared a god, Serapis mirrors Jesus’ divine sonship (Matthew 1:18–25), with his name (“Ser” = son) tying to “Aesar” (divine) and Scythian dragon-kings (Chapter 3). As a savior, he offered healing and afterlife promises, like Jesus (John 3:16), with serpent imagery (Fig. 1.3) reflecting Aži Dahāka. Osiris’ death-rebirth cycle parallels Jesus’ crucifixion-resurrection (Mark 15–16), and the Serapis cult’s destruction by Theophilus I (391 CE) echoes Judas’ betrayal. 
+
+Up until the First Council of Nicaea the title "Christ", or "Christian", referred to the Serapis Cult ("those who worship Serapis are, in fact, Christians, and those who call themselves bishops of Christ are, in fact, devotees of Serapis.". Source: The Letter of Hadrian to Servianus).
 
 Mithras
 
