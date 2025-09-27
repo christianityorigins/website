@@ -1143,7 +1143,7 @@ Endnotes (Chapter 9)
     from there. Pilate means the temperament of a warrior I.e., famously
     temperamental. That's where the name Pontius Pilate comes from.
     *Pilate might also = "Pileatus" (Latin for "wearing a felt cap," a
-    Pontic priestly garb).
+    Pontic priestly garb associated with Mithraism).
 
 **Scythians in India**
 
@@ -1231,7 +1231,7 @@ Calami is a village located in the Kannur district of Kerala,
     in the state of Kerala. Cochin is obviously phonetically related to
     the name Cohen 
 
-Lost in history is that the greatest slave trade wasn't the Trans-Atlanic one, but the jewish (Calami) ran transfer of Ethiopians into India during the spice and marble trade. Dravidians are Ethiopians who the jews imported into India via South India and Sri Lanka. There is a straight line route to Sri Lanka via boat. Also, during this slave trade the jews created a settlement in
+Lost in history is that the greatest slave trade wasn't the Trans-Atlanic one, but the jewish (Calami) ran transfer of Ethiopians into India during the spice and marble trade. Dravidians are Ethiopians who the jews imported into India via South India and Sri Lanka. There is a straight line route from Ethiopia to Sri Lanka via boat. Also, during this slave trade the jews created a settlement in
     Ethiopia for their slave trade business, hence Ethiopian Jews being
     a thing, and Cochin Jews existing on the south west section of
     India. "Habshi" is what Northern Indians called  Southern Indians
