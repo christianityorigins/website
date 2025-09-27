@@ -478,7 +478,7 @@ Fig. 1.7. Coin of Asander, King of Bosphorus depicting a Nike
 ![Fig.1.8](/images/Polemon.jpg){:width="400px"}
 
 Fig. 1.8. Coin of Polemon I of Pontus who was an alias of Asander (both were married to Dynamis, queen of Bosphorus. You can usually find their aliases through marriages) depicting a Uraeus (the Egyptian cobra) and also Zeus-Ammon. Other depictions of Asander show the star and cresent
-that is visible in the Julius Caesar coin above. The crescent moon and
+that is visible in the Julius Caesar coin above (https://rpc.ashmus.ox.ac.uk/coins/1/1845). The crescent moon and
 star symbol has Mithraic symbolism, and another coin of Asander depicts a
 Phrygian cap which is closely associated with the Roman god Mithras:
 <https://silver.kbr.be/3628_-_Panticapaeum%3F_(Asander)_(AE_Apollo/prow)_over_Pontic_type_(Perseus/Pegasus)_(Oxford,_AM>).
