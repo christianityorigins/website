@@ -244,6 +244,8 @@ The snake was revered by the Scythians for several reasons: apart from symbolism
 
 Timeline:
 
+-Kurgan culture (Scythian ancestors) begin expansions (4500 BC)
+-Scythian elites establish proxy rule in Sumer (Sargon of Akkad) and Egypt (Scorpion I) (3000 BC)
 -Gutian Dynasty (2150 BC) – First Scythian rulers of Mesopotamia.\
 -The Hyksos (1650–1550 BC) – Scythian Pharaohs of Egypt (Heka-Khasut means "Rulers of Foreign Lands" and Khasut is a cognate of Scythian/Saka, Scyth, Scoloti).\
 -The Hittites (1600–1200 BC) – Scythians in Anatolia.\
@@ -1009,7 +1011,7 @@ of creation), the Mishna and the Midrash Halakha, and modern judaism,
 and who was a student of Gamaliel (Paul the Apostle claimed that he was
 brought up in Jerusalem "at the feet of Gamaliel" (Acts 22:3)), and who
 was the one that came up with the idea that "Rome was Edom". It was likely after the Bar Kokhba Revolt when he realized
-that subversion was the only way to defeat the Romans. So, rabbi Akiva
+that subversion was the only way to defeat the Romans (at the Council of Jamnia https://en.wikipedia.org/wiki/Council_of_Jamnia). So, rabbi Akiva
 and his students Aquila of Sinope aka Onkelos (his connection to the Roman elite), Markianos of Alexandria
 aka Marcion (Greek Markion) of Sinope, Shimon bar Yohai aka Simon Peter
 (Shimon bar Yonah) (Simon's mythology was stolen from the Roman deity
