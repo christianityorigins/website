@@ -8,28 +8,20 @@ Welcome to the homepage of Ralph Perrier (B.A. Philosophy). I am an independent 
 
 Follow and chat with me on <a href="https://twitter.com/hereticalbooks" target="_blank">Twitter</a>.
 
-{% assign books = site.categories["books"] %}
-{% assign blog = site.categories["blog"] %}
+{% comment %} 1. Combine the two lists {% endcomment %}
+{% assign all_posts = site.categories["books"] | concat: site.categories["blog"] %}
 
-<div class="section books">
-  <h3>Books</h3>
-  <ul>
-  {% for post in books %}
-    {% unless post.draft %}
-      <li><a href="{{ post.url }}">{{ post.title }}</a></li>
-    {% endunless %}
-  {% endfor %}
-  </ul>
-</div>
+{% comment %} 2. Sort the combined list by date (newest first) {% endcomment %}
+{% assign sorted_posts = all_posts | sort: 'date' | reverse %}
 
-<div class="section blog">
-  <h3>Blog</h3>
-  <ul>
-  {% for post in blog %}
-    {% unless post.draft %}
-      <li><a href="{{ post.url }}">{{ post.title }}</a></li>
-    {% endunless %}
-  {% endfor %}
-  </ul>
-</div>
-
+<h3>Recent Updates</h3>
+<ul>
+{% for post in sorted_posts %}
+  {% unless post.draft %}
+    <li>
+      <a href="{{ post.url }}">{{ post.title }}</a>
+      {# The differentiation will go here #}
+    </li>
+  {% endunless %}
+{% endfor %}
+</ul>
