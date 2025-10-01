@@ -26,9 +26,9 @@ Follow and chat with me on <a href="https://twitter.com/hereticalbooks" target="
       
       {% comment %} THIS IS WHERE THE DIFFERENTIATION GOES {% endcomment %}
       {% if post.categories contains "books" %}
-        (<span style="color: darkred;">Book Draft</span>)
+        (<span style="color: inherit;">Book Draft</span>)
       {% else %}
-        (<span style="color: darkblue;">Blog Post</span>)
+        (<span style="color: inherit;">Blog Post</span>)
       {% endif %}
       
       - {{ post.date | date: "%b %d, %Y" }}
