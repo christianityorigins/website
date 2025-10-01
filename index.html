@@ -8,8 +8,11 @@ Welcome to the homepage of Ralph Perrier (B.A. Philosophy). I am an independent 
 
 Follow and chat with me on <a href="https://twitter.com/hereticalbooks" target="_blank">Twitter</a>.
 
+{% assign books = site.categories["books"] %}
+{% assign blog = site.categories["blog"] %}
+
 {% comment %} 1. Combine the two lists {% endcomment %}
-{% assign all_posts = site.categories["books"] | concat: site.categories["blog"] %}
+{% assign all_posts = books | concat: blog %}
 
 {% comment %} 2. Sort the combined list by date (newest first) {% endcomment %}
 {% assign sorted_posts = all_posts | sort: 'date' | reverse %}
@@ -20,7 +23,15 @@ Follow and chat with me on <a href="https://twitter.com/hereticalbooks" target="
   {% unless post.draft %}
     <li>
       <a href="{{ post.url }}">{{ post.title }}</a>
-      {# The differentiation will go here #}
+      
+      {% comment %} THIS IS WHERE THE DIFFERENTIATION GOES {% endcomment %}
+      {% if post.categories contains "books" %}
+        (<strong style="color: darkred;">Book Draft</strong>)
+      {% else %}
+        (<span style="color: darkblue;">Blog Post</span>)
+      {% endif %}
+      
+      - {{ post.date | date: "%b %d, %Y" }}
     </li>
   {% endunless %}
 {% endfor %}
