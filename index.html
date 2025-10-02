@@ -4,35 +4,45 @@ title: Home
 updated: 2018-11-22 16:01:26 +0100
 ---
 
-Welcome to the homepage of Ralph Perrier (B.A. Philosophy). I am an independent researcher who has a general interest in heterodox ideas, oddities, and mysteries. Recently, I have developed a particular focus on religion and its influence on Western civilization. On this website, you will find working drafts of my first two books, research articles, and various resources.<br><br>
+<header>
+    <h1>Ralph Perrier</h1>
+    <p>Independent Researcher</p>
+    <p><em>B.A. Philosophy</em></p>
+    <hr> <!-- A simple, classic horizontal rule -->
+</header>
 
-Follow and chat with me on <a href="https://twitter.com/hereticalbooks" target="_blank">Twitter</a>.
+<section>
+    <h2>Research Focus</h2>
+    <p>My work centers on religion and its influence on Western civilization. I maintain a general interest in heterodox ideas, oddities, and mysteries.</p>
+</section>
 
-{% assign books = site.categories["books"] %}
-{% assign blog = site.categories["blog"] %}
+<section>
+    <h2>Publications & Works in Progress</h2>
+    <h3>Book Drafts</h3>
+    <ul>
+        {% for post in site.categories["books"] %}
+            {% unless post.draft %}
+            <li><a href="{{ post.url }}">{{ post.title }}</a> (Working Draft, {{ post.date | date: "%Y" }})</li>
+            {% endunless %}
+        {% endfor %}
+    </ul>
 
-{% comment %} 1. Combine the two lists {% endcomment %}
-{% assign all_posts = books | concat: blog %}
+    <h3>Articles & Essays</h3>
+    <ul>
+        {% for post in site.categories["blog"] %}
+            {% unless post.draft %}
+            <li><a href="{{ post.url }}">{{ post.title }}</a> ({{ post.date | date: "%b %d, %Y" }})</li>
+            {% endunless %}
+        {% endfor %}
+    </ul>
+</section>
 
-{% comment %} 2. Sort the combined list by date (newest first) {% endcomment %}
-{% assign sorted_posts = all_posts | sort: 'date' | reverse %}
+<section>
+    <h2>Contact & Discourse</h2>
+    <p>I can be reached for academic correspondence via <a href="https://twitter.com/hereticalbooks" target="_blank">Twitter</a>.</p>
+</section>
 
-<h3>Recent Updates</h3>
-<ul>
-{% for post in sorted_posts %}
-  {% unless post.draft %}
-    <li>
-      <a href="{{ post.url }}">{{ post.title }}</a>
-      
-      {% comment %} THIS IS WHERE THE DIFFERENTIATION GOES {% endcomment %}
-      {% if post.categories contains "books" %}
-        (<span style="color: inherit;">Book Draft</span>)
-      {% else %}
-        (<span style="color: inherit;">Blog Post</span>)
-      {% endif %}
-      
-      - {{ post.date | date: "%b %d, %Y" }}
-    </li>
-  {% endunless %}
-{% endfor %}
-</ul>
+<footer>
+    <hr>
+    <p><small>Last updated: {{ page.updated | date: "%B %d, %Y" }}</small></p>
+</footer>
