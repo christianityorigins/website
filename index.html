@@ -1,38 +1,30 @@
 ---
 layout: default
 title: Home
+permalink: /
 updated: 2018-11-22 16:01:26 +0100
 ---
 
-Welcome to the homepage of Ralph Perrier (B.A. Philosophy). I am an independent researcher who has a general interest in heterodox ideas, oddities, and mysteries. Recently, I have developed a particular focus on religion and its influence on Western civilization. On this website, you will find working drafts of my first two books, research articles, and various resources.<br><br>
+# Ralph Perrier  
+### B.A. Philosophy · Independent Researcher  
+<small>Last updated: {{ page.updated | date: "%b %d, %Y" }}</small>  
+<hr>
 
-Follow and chat with me on <a href="https://twitter.com/hereticalbooks" target="_blank">Twitter</a>.
+Welcome to the homepage of Ralph Perrier (B.A. Philosophy).  
+I am an independent researcher with a general interest in heterodox ideas, oddities, and mysteries.  
+My current focus is on religion and its influence on Western civilization.  
 
-{% assign books = site.categories["books"] %}
-{% assign blog = site.categories["blog"] %}
+On this site you’ll find working drafts of my first two books, research articles, and various resources.  
 
-{% comment %} 1. Combine the two lists {% endcomment %}
-{% assign all_posts = books | concat: blog %}
+<hr>
 
-{% comment %} 2. Sort the combined list by date (newest first) {% endcomment %}
-{% assign sorted_posts = all_posts | sort: 'date' | reverse %}
+### Recent Updates
 
-<h3>Recent Updates</h3>
-<ul>
-{% for post in sorted_posts %}
+| Title                                          | Type         | Date       |
+|------------------------------------------------|--------------|------------|
+{% assign all = site.categories.books | concat: site.categories.blog | sort: 'date' | reverse %}
+{% for post in all %}
   {% unless post.draft %}
-    <li>
-      <a href="{{ post.url }}">{{ post.title }}</a>
-      
-      {% comment %} THIS IS WHERE THE DIFFERENTIATION GOES {% endcomment %}
-      {% if post.categories contains "books" %}
-        (<span style="color: inherit;">Book Draft</span>)
-      {% else %}
-        (<span style="color: inherit;">Blog Post</span>)
-      {% endif %}
-      
-      - {{ post.date | date: "%b %d, %Y" }}
-    </li>
+| [{{ post.title }}]({{ post.url }}) | {% if post.categories contains "books" %}Book Draft{% else %}Blog Post{% endif %} | {{ post.date | date: "%b %d, %Y" }} |
   {% endunless %}
 {% endfor %}
-</ul>
