@@ -4,9 +4,9 @@ title: Home
 updated: 2018-11-22 16:01:26 +0100
 ---
 
-Welcome to the homepage of Ralph Perrier (B.A. Philosophy). I am an independent researcher who has a general interest in heterodox ideas, oddities, and mysteries. Recently, I have developed a particular focus on religion and its influence on Western civilization. On this website, you will find working drafts of my first two books, research articles, and various resources.<br><br>
+Welcome to the homepage of Ralph Perrier, B.A. Philosophy. I am an independent researcher who has a general interest in heterodox ideas, oddities, and mysteries. Recently, I have developed a particular focus on religion and its influence on Western civilization. On this website, you will find working drafts of my first two books, research articles, and various resources.<br><br>
 
-Contact and Follow: <a href="mailto:christianityexposed@yandex.com">Email</a> | <a href="https://twitter.com/hereticalbooks" target="_blank">Twitter</a>.
+For inquiries or academic correspondence, please email me directly at <a href="mailto:christianityexposed@yandex.com">christianityexposed@yandex.com</a>. You can also follow me on <a href="https://twitter.com/hereticalbooks" target="_blank">Twitter</a>.
 
 {% assign books = site.categories["books"] %}
 {% assign blog = site.categories["blog"] %}
@@ -17,22 +17,24 @@ Contact and Follow: <a href="mailto:christianityexposed@yandex.com">Email</a> | 
 {% comment %} 2. Sort the combined list by date (newest first) {% endcomment %}
 {% assign sorted_posts = all_posts | sort: 'date' | reverse %}
 
-<h3>Recent Updates</h3>
+<h3>Recent Book Drafts</h3>
 <ul>
 {% for post in sorted_posts %}
-  {% unless post.draft %}
+  {% if post.categories contains "books" and not post.draft %}
     <li>
-      <a href="{{ post.url }}">{{ post.title }}</a>
-      
-      {% comment %} THIS IS WHERE THE DIFFERENTIATION GOES {% endcomment %}
-      {% if post.categories contains "books" %}
-        (<span style="color: inherit;">Book Draft</span>)
-      {% else %}
-        (<span style="color: inherit;">Blog Post</span>)
-      {% endif %}
-      
-      - {{ post.date | date: "%b %d, %Y" }}
+      <a href="{{ post.url }}">{{ post.title }}</a> - {{ post.date | date: "%b %d, %Y" }}
     </li>
-  {% endunless %}
+  {% endif %}
+{% endfor %}
+</ul>
+
+<h3>Recent Blog Posts</h3>
+<ul>
+{% for post in sorted_posts %}
+  {% if post.categories contains "blog" and not post.draft %}
+    <li>
+      <a href="{{ post.url }}">{{ post.title }}</a> - {{ post.date | date: "%b %d, %Y" }}
+    </li>
+  {% endif %}
 {% endfor %}
 </ul>
