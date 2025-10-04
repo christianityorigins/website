@@ -71,7 +71,7 @@ This book traces Christianity back to its foundations — from the mythemes of S
 A few things you need to know before you read my book:
 
 -   Much of what we know of ancient history is fabricated by the Flavian emperors, Jesuits, and the Vatican. The Egyptian-Persian-Indian-Greek-Roman elite were a Proto-Indo-European (PIE) Elite (Kurgan Culture) who were the horse-riding, chariot-inventing pastoralists from the Pontic-Caspian Steppe who, beginning around 4500 BC, began a systematic conquest of Europe, Anatolia, and the Indus Valley, and who ruled through proxy dynasties. Egypt, Persia, India, Greece, Rome,
-etc., were all at one point under the suzerainty of Aryan Iranian-Scythian elites and their base of operation was on the Bosphorus river.
+etc., were all at one point under the suzerainty of Aryan Iranian-Scythian elites and their base of operation was on the Bosphorus river. The Persian system of Satraps (Old Persian xšaçapāvan, "protector of the dominion") is the administrative blueprint of this hegemony. The title derives from Xšaya (to rule), which links to Caesar and Kshatriya. Every Satrap was a regional "dragon-king" enforcing the center's will.
 -   Western Rome in Italy is a phantom empire that was invented by the Vatican. Western Rome was built during the Renaissance period. The original Rome (in Sarmatian, "Ruma" (Rome) = "Place of the Dragon" (Rhu-Ma, from Aži Dahāka, the Iranian dragon)) was located on the Bosphorus river which approximates to modern-day Crimea in southern Ukraine.
 -   Asander, king of Bosphorus aka Julius Caesar was also Ptolemy XI Alexander II, Cleopatra's uncle, but he took on numerous
 other regional aliases. Cleopatra was also Dynamis, queen of Bosphorus. Mark
@@ -1011,7 +1011,7 @@ of creation), the Mishna and the Midrash Halakha, and modern judaism,
 and who was a student of Gamaliel (Paul the Apostle claimed that he was
 brought up in Jerusalem "at the feet of Gamaliel" (Acts 22:3)), and who
 was the one that came up with the idea that "Rome was Edom". It was likely after the Bar Kokhba Revolt when he realized
-that subversion was the only way to defeat the Romans (at the Council of Jamnia https://en.wikipedia.org/wiki/Council_of_Jamnia). So, rabbi Akiva
+that subversion was the only way to defeat the Romans. So, likely at the Council of Jamnia https://en.wikipedia.org/wiki/Council_of_Jamnia, rabbi Akiva
 and his students Aquila of Sinope aka Onkelos (his connection to the Roman elite), Markianos of Alexandria
 aka Marcion (Greek Markion) of Sinope, Shimon bar Yohai aka Simon Peter
 (Shimon bar Yonah) (Simon's mythology was stolen from the Roman deity
