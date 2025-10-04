@@ -117,7 +117,7 @@ end of the book.
     "cottius" means "chieftain".
 -   Flavius: Flavus = yellow/golden is a deliberate Latin mistranslation of the Scythian root Pālava or Palavi (Pahlavi), the term for the Parthian/Iranian aristocracy. The "Flavian" line was a Parthian/Sarmatian proxy dynasty installed by the Bosphoran center (Julius Caesar/Asander's line) to enforce the new Christianized Imperial Cult. They claimed a 'Golden Age' (Flavius) when they were truly the Pahlavi (Parthians) rewriting the Roman lie. 
 -   Izates or Izas: "Iza" (𐬌𐬰𐬀) = Avestan root for "serpent" (cognate with Scythian Aži). "-tes" = Greek suffix, but possibly from dāta ("given by," as in Mithradates = "Given by Mithra"). This is cognate with the Scythian (and broader Iranian) mythological figure Aži Dahāka (Avestan) or Azhi Dahak (Middle Persian), a monstrous serpent or dragon.
--   Jesus [^1] : Yeshua derives from Aesus (Etruscan god) via Yazata (Divine Serpent-Lord), related to Izates (Yazata). In the name "Yeshua Ben Panthera" the Panthera is a Hellenized form of Ptolemaios (Ptolem->Ptol->Panther). "Jesus, son of Ptolemy". This directly connects the "Jesus" figure to the Ptolemaic-Bosphoran royal house.
+-   Jesus [^1] : Yeshua derives from Aesus (Etruscan god) via Yazata (Divine Serpent-Lord), related to Izates (Yazata). In the name "Yeshua Ben Panthera" the Panthera is a Hellenized form of Ptolemaios (Ptolem->Ptol->Panther). "Jesus, son of Ptolemy". This directly connects the "Jesus" figure to the Ptolemaic-Bosphoran royal house. Similar to "Iasus", a Greek figure associated with the Argonauts, and the Greek deity Zeus (Zas or Dyas is a cognate of Izas).
 -    Jew: Iudii -> Ioudaioi -> Jew. The Iudii, a Galatian tribe, were Scythian-Celtic priests who later became "Jews" under Alexandrian syncretism. 
 Iudii is the tribal corruption of Dyeus Pter (PIE Sky Father). The name Zeus comes from the pronunciation of "Dyeus", and (I)Jupiter comes from the pronunciation of "Dyeus Pter" (Diespiter -> Iupiter). (J)upiter was also called Jove or Iove to the Romans. The Latin pronunciation of Iove would have been Yoh-Way, i.e Yahweh/Yhwh, so Yahweh Saboath, the god of the Hebrew bible, is I(J)ove (Roman Zeus) Sabazios (Thracian Zeus). Scythian-Celtic Iudii then disappeared after the Bar Kokhba revolt when emperor Hadrian decimated their population. The term "Ashkenazi" (Scythian: Ashkuza) confirms their steppe origins, later demonized by Rabbi Akiva to erase their Sarmatian roots. 
   - Lord: The term Kavi in Avestan texts (e.g., Yasna 10.6) denotes a divine ruler associated with Aži (dragon/serpent). Translating Kavi to Greek yields Kyrios ("lord"), a title used for Jesus in the New Testament (e.g., Kyrios Iesous). The Scythian title Xšaya (king) appears in Old Persian as Xšayathiya, phonetically linked to Kshatriya (Sanskrit: warrior-king) and Caesar via the Greek Kaesar. A kurgan inscription from Issyk (Kazakhstan, 4th century BCE) mentions a ruler named Ašakavi ("dragon-priest"), combining Aša (truth/order) and Kavi. This title parallels Asander (Thracian: Asa = "lord") and suggests a pan-steppe naming convention for dragon-kings. 
@@ -246,8 +246,8 @@ The snake was revered by the Scythians for several reasons: apart from symbolism
 
 Timeline:
 
--Kurgan culture (Scythian ancestors) begin expansions (4500 BC)
--Scythian elites establish proxy rule in Sumer (Sargon of Akkad) and Egypt (Scorpion I) (3000 BC)
+-Kurgan culture (Scythian ancestors) begin expansions (4500 BC)\
+-Scythian elites establish proxy rule in Sumer (Sargon of Akkad) and Egypt (Scorpion I) (3000 BC)\
 -Gutian Dynasty (2150 BC) – First Scythian rulers of Mesopotamia.\
 -The Hyksos (1650–1550 BC) – Scythian Pharaohs of Egypt (Heka-Khasut means "Rulers of Foreign Lands" and Khasut is a cognate of Scythian/Saka, Scyth, Scoloti).\
 -The Hittites (1600–1200 BC) – Scythians in Anatolia.\
@@ -258,7 +258,7 @@ Timeline:
 -The "Dorian Greeks" who destroyed Mycenae (c. 1200 BC) were steppe nomads and Scythian-Sarmatians.\
 -Persia’s Achaemenids (705–330 BC) - Saka (Scythian) clan.\
 -The Etruscan Tarquin dynasty (616 BC) - Scythian rulers of Rome. Tarquin = Tarkhu (Scythian: "Ruler"). Servius Tullius = Tulli (Scythian: "Wolf Clan").\
--The Alani (100 BC - 450 AD) - the purest, highest-ranking Scythian tribe. They are the core of the Sarmatian confederation whose royal house ultimately produced the Julio-Claudians (Julius Caesar/Asander) (interesting fact: legendary King Arthur is a corrupted memory of an Alani Warlord (Artorius), one of the military Kšatrapatis sent from the Bosphorus to secure the lucrative tin and iron mines of Britain after the Flavian consolidation).\
+-The Alani (100 BC - 450 AD) - Alan = Aryan. They were the purest, highest-ranking Scythian tribe. They are the core of the Sarmatian confederation whose royal house ultimately produced the Julio-Claudians (Julius Caesar/Asander) (interesting fact: legendary King Arthur is a corrupted memory of an Alani Warlord (Artorius), one of the military Kšatrapatis sent from the Bosphorus to secure the lucrative tin and iron mines of Britain after the Flavian consolidation).\
 -The Khazars (600 AD to 950 AD) - "Ashkenaz" people who controlled the Eurasian trade routes. The Ashkenazi Jews are the Scythian managerial class who maintained the forged chronology and trade networks for the Bosphoran heirs. Their state conversion to Judaism was a geopolitical alignment with the Calami (Jewish) financial proxies to solidify control over Eurasian gold and slave routes.
 
 The Mitanni exercised hegemony over a pan-Eurasian empire. The Hittites,
@@ -888,7 +888,7 @@ Bosphorus coin above.
 
 This is why the Ottomans called themselves "Rum" (Rome). They knew exactly what they were the heirs to.
 
-Rome in Italy was real, but it was a province, a frontier military district of the true Empire based on the Bosphorus. It was never the center of power it was made out to be. Its "fall" was the loss of central control from the East and the rise of local Gothic/Sarmatian warlords (Theodoric, etc.) who still tried to cloak themselves in the legitimacy of the Eastern Koryllis.
+Rome in Italy was real, but it was a province, a frontier military district (Limes) of the true Empire based on the Bosphorus. It was never the center of power it was made out to be. Its "fall" was the loss of central control from the East and the rise of local Gothic/Sarmatian warlords (Theodoric, etc.) who still tried to cloak themselves in the legitimacy of the Eastern Koryllis.
 
 Also, Carthage was not a Semitic power. The name "Carthage" comes from "Kar-Thaga" - "City of the Thagians" (a Scythian tribe). Hannibal's family name, Barca, means "Lightning" and is a title of the Dragon King. Rome vs. Carthage was not a clash of civilizations. It was a bloody civil war between two Scythian-descended factions for control of the Western Mediterranean. The winner, Rome, wrote the history and painted the losers as monstrous foreigners.
 
