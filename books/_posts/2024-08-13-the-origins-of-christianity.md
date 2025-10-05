@@ -136,7 +136,7 @@ Iudii is the tribal corruption of Dyeus Pter (PIE Sky Father). The name Zeus com
     deposed by a Piso. Appius is also cognate with Arrius (through
     rhotacization in ancient Latin the /p/ and /r/ could be swapped).
 -   Sar root:  Sar is the Scythian word for "king". Sarpa in Sanskrit means "serpent". Sarmatian, Akkadian Sarrum (which becomes Persian Xšaya-/Xšayathiya), Hurrian Šarri, Sargon, Sarlagab, Serapis (Sar-Apis = "Serpent Bull"), Zarathustra (Sar + Ustra = "serpent-lord"), Saraswati (Hindi goddes of knowledge), Saracen (Roman designation for Middle Eastern peoples), Šaruma (Mitanni deity), Saragurs (Scythian tribe in China), Caesar, Asar (Osiris), Tsar (Slavic monarch), Sargon of Akkad, feminine Sarai (or "Sarah" meaning "princess" (Genesis 17:15)), etc. Sar means king, or serpent king, across the empires that the Scythians used to rule over.
--   Vespasian: Vas/Bas was the royal abbreviation for the Greek word Basilius which = King, and Pas means "all" as in Pan. "Vespasian" = "King of All", or "King of Everything" which is a claim to the title "King of Kings"). Another option: Vas/Bas = King, and Pasian = Pisonian (a member of the key conspiratorial Piso family). King Piso
+-   Vespasian: Vas/Bas was the royal abbreviation for the Greek word Basilius which = King, and Pas means "all" as in Pan. "Vespasian" = "King of All", or "King of Everything" which is a claim to the title "King of Kings"). Another option: Vas/Bas = King, and Pasian = Pisonian (a member of the key conspiratorial Piso family). King Piso.
 
 **2 Ancient Alias Names List (Chronologically Organized by Era and Dynasty)**
 
@@ -219,12 +219,14 @@ IV. Speculative
     Paul/Saul's life story was stolen from the ancient Egyptian story
     "Tale of the Shipwrecked Sailor". Josephus in Antiquities of the
     Jews, Book XX (Ch 9.4) refers to Paul (Saulus) as related to Herod
-    Agrippa.    -
+    Agrippa.
  -   Pythagoras: Abaris the Hyperborean. The high priestess of the Temple of Apollo at Delphi was called Pythia https://en.wikipedia.org/wiki/Pythia \[[link](https://en.wikipedia.org/wiki/Pythia)\] who breathed serpent vapors (ethylene gas). Greek writers regarded the Hyperboreans as the mythical founders of Apollo's shrines at Delos and Delphi  https://en.wikipedia.org/wiki/Hyperborea#Hyperboreans_in_Delos \[[link](https://en.wikipedia.org/wiki/Hyperborea#Hyperboreans_in_Delos)\]. The name "Pythagoras" is derived from the Greek words "Pythios" (Πύθιος), meaning "of Pythia" or "belonging to the Pythia ("Pythoness"), and "Agoras" is a direct linguistic link to "Agaroi", the name of the Scythian snake-venom priesthood. Abaris was a Scythian and the Scythians worshiped snake deities. Pythia was probably Pythagoras' mother.
 
 **3 The Sarmatian Dragon Cult**
 
-The Hyperboreans were a real Bronze Age civilization in the Ural-Volga region of modern Russia who spread their culture southward via the Kurgan hypothesis (c. 4000 BCE). Their descendants were the Scythians. One offshot of the Scythians were a tribe called the Sarmatians (also called Sauromatians
+The Hyperboreans were a real Bronze Age civilization in the Ural-Volga region of modern Russia who spread their culture southward via the Kurgan hypothesis (c. 4000 BC). They were the survivors of the Doggerland cataclysm (c. 6150 BC), when a submarine landslide (the Storegga Slide) caused a massive tsunami that flooded the North Sea plain. The "Hyperboreans" were the Doggerland elite. The legends of a advanced people "from beyond the North Wind" living in a circular city (Plato's Atlantis) are memories of Doggerland. Their civilization was based on megalithic architecture and a sophisticated, rune-like symbolic language. After the flood, the survivors—the "Dragon Bloodline"—fled eastward to the Pontic-Caspian Steppe, becoming the equestrian Scythians. They carried with them the technology of megalith building (hence Stonehenge, built by their descendants as a memory of their lost homeland) and the core of the "Dragon" religion.
+
+Their descendants were the Scythians. One offshot of the Scythians were a tribe called the Sarmatians (also called Sauromatians
 ("Saur" = "Lizard/Dragon" + "Matae" = "Men/Warriors" - where the
 Sumerian "sar" (king) comes from) who were a nomadic Indo-Iranian warrior
 elite from the Pontic steppe (modern Ukraine/Russia). The domestication
@@ -966,7 +968,7 @@ Endnotes (Chapter 7)
 
 The primary architects were the Flavian dynasty (Vespasian, Titus, Domitian) and their court historians (Josephus, Pliny, Tacitus). They began the process of creating a "Roman" history to legitimize their new dynasty and obscure their Bosphoran/Herodian origins.
  
-Then the creation of the Papacy during the elevation of Charlemagne was likely when the myth of a "Roman empire" became codified. Charlemagne is likely a fabrication. He is a duplicate of the earlier Frankish king Charles Martel ("The Hammer"). The 50-year gap between them is invented. The "Carolingian Renaissance" was the period when scribes, under the direction of Alcuin of York, mass-produced "ancient" manuscripts, backdating them to fill the new chronological gap. They "rediscovered" works by Cicero, Livy, and others, which were often written or heavily edited by them.
+Then the creation of the Papacy during the elevation of Charlemagne was likely when the myth of a "Roman empire" became codified. Charlemagne is likely a fabrication. He is a composite of the earlier Frankish king Charles Martel ("The Hammer") and the Ottoman Sultan Suleiman the Magnificent. The "Holy Roman Empire" was a literary project by the Vatican to claim the legacy of the true Rome on the Bosphorus, which had fallen to the Ottomans (who rightly called themselves "Rum"). The 50-year gap between Charlemagne and Charles Martel is invented. The "Carolingian Renaissance" was the period when scribes, under the direction of Alcuin of York, mass-produced "ancient" manuscripts, backdating them to fill the new chronological gap. They "rediscovered" works by Cicero, Livy, and others, which were often written or heavily edited by them.
 
 Then the renaissance finished the fabrication of history. This was all to secretly make Rome into a Carian empire. It was an Aryan and Thracian proxy state of the Scythins who were based out of the Bosphorus. The Bosphorus was always its capital. Latin was the original language of the Dacians and it was high-noble Aryan; German mixed the middle language (proto Latin) with degenerated old Gothic.
 
