@@ -116,7 +116,7 @@ end of the book.
     meaning "lord". In the Celtic languages the word "cottos" or
     "cottius" means "chieftain".
 -   Flavius: Flavus = yellow/golden is a deliberate Latin mistranslation of the Scythian root Pālava or Palavi (Pahlavi), the term for the Parthian/Iranian aristocracy. The "Flavian" line was a Parthian/Sarmatian proxy dynasty installed by the Bosphoran center (Julius Caesar/Asander's line) to enforce the new Christianized Imperial Cult. They claimed a 'Golden Age' (Flavius) when they were truly the Pahlavi (Parthians) rewriting the Roman lie. 
--   Izates or Izas: Ie- is a prefix denoting divinity (as in I-em-hotep). -sous is a variant of Zeus (Zas or Dyas is a cognate of Izas). Iesous = "Divine Zeus." This connects directly to Iulius (from Jupiter/Zeus). This becomes Jesus [^1], Aesus (Etruscan god), and the Avestan word Yazatas (Persian: izad), meaning 'lord'. In the name "Yeshua Ben Panthera" the Panthera is a Hellenized form of Ptolemaios (Ptolem->Ptol->Panther). "Jesus, son of Ptolemy". This directly connects the "Jesus" figure to the Ptolemaic-Bosphoran royal house. Similar to "Iasus", a Greek figure associated with the Argonauts and "Iaso" the healing Greek goddess.
+-   Izates or Izas: Ie- is a prefix denoting divinity (as in I-em-hotep in Egyptianm and IE in Indo-European is a divine prefix (as in Ie-ove/Jove)). -sous is a variant of Zeus (Zas or Dyas is a cognate of Izas). Iesous = "Divine Zeus." This connects directly to Iulius (from Jupiter/Zeus). This becomes Jesus [^1], Aesus (Etruscan god), and the Avestan word Yazatas (Persian: izad), meaning 'lord'. In the name "Yeshua Ben Panthera" the Panthera is a Hellenized form of Ptolemaios (Ptolem->Ptol->Panther). "Jesus, son of Ptolemy". This directly connects the "Jesus" figure to the Ptolemaic-Bosphoran royal house. Similar to "Iasus", a Greek figure associated with the Argonauts and "Iaso" the healing Greek goddess.
 -    Jew: Iudii -> Ioudaioi -> Jew. The Iudii, a Galatian tribe, were Scythian-Celtic priests who later became "Jews" under Alexandrian syncretism. 
 Iudii is the tribal corruption of Dyeus Pter (PIE Sky Father). The name Zeus comes from the pronunciation of "Dyeus", and (I)Jupiter comes from the pronunciation of "Dyeus Pter" (Diespiter -> Iupiter). (J)upiter was also called Jove or Iove to the Romans. The Latin pronunciation of Iove would have been Yoh-Way, i.e Yahweh/Yhwh, so Yahweh Saboath, the god of the Hebrew bible, is I(J)ove (Roman Zeus) Sabazios (Thracian Zeus). Scythian-Celtic Iudii then disappeared after the Bar Kokhba revolt when emperor Hadrian decimated their population. The term "Ashkenazi" (Scythian: Ashkuza) confirms their steppe origins, later demonized by Rabbi Akiva to erase their Sarmatian roots. 
   - Lord: The term Kavi in Avestan texts (e.g., Yasna 10.6) denotes a divine ruler associated with Aži (dragon/serpent). Translating Kavi to Greek yields Kyrios ("lord"), a title used for Jesus in the New Testament (e.g., Kyrios Iesous). The Scythian title Xšaya (king) appears in Old Persian as Xšayathiya, phonetically linked to Kshatriya (Sanskrit: warrior-king) and Caesar via the Greek Kaesar. A kurgan inscription from Issyk (Kazakhstan, 4th century BCE) mentions a ruler named Ašakavi ("dragon-priest"), combining Aša (truth/order) and Kavi. This title parallels Asander (Thracian: Asa = "lord") and suggests a pan-steppe naming convention for dragon-kings. 
@@ -358,45 +358,13 @@ The Sarapis Cult eventually evolved into Christianity, which was repackaged Sera
 
 The Jesus archetype, as presented in Christianity, and characterized as a divine birth, a role as a savior or king, betrayal, sacrifice (often by crucifixion or a similar act), and resurrection is not a unique historical phenomenon but a syncretic construct, drawing from a recurring pattern of divine or semi-divine figures across ancient Indo-European, Scythian, and Near Eastern mythologies. The Alexandrian School did not invent these tropes; they identified and weaponized them. This section examines the 'blueprint deities'—Horus, Dionysus, Mithras, and others—whose myths provided the raw material for the School's religious engineering.
 
-Romulus the Roman Deity
+Attis the Phrygian Deity
 
-Rhu/Ru: The Indo-European root for "Dragon/Serpent" (cognate with the Scythian Aži). Ma: The Scythian word for "Place/Land" (as in the true Rhu-Ma on the Bosphorus). Romulus is the Aži Dahāka (Dragon) King who founds the city, establishing the legal right to rule.
-
-According to Plutarch’s Life of Romulus (circa 75 CE) the Roman deity of Quirinus aka Romulus was born to a virgin, Rhea Silvia, impregnated by the god Mars, establishing his divine lineage. Hailed as a king and revered as the son of a god, Romulus founded Rome after a fratricidal conflict with his brother Remus, a narrative echoing the biblical Cain and Abel, crucified by a conniving elite and rose from the dead as the god Quirinus.
-
-![Fig.1.4](/images/Denarius_C._Memmius_C._F._Romulus.jpg){:width="400px"}
-
-Fig. 1.4. Romulus. 
-
-Osiris the Egyptian Deity
-
-Osiris's Egyptian Name is Asar or Wsir. The name "Asar" is the root. When the Greeks encountered him, they Hellenized it to Osiris. Osiris's Asar -> (Greek addition of the sacred 'I' prefix, I-Asar) -> Iasar -> Iēsous. His title: Neb-er-djer (Nb-ꜥr-ḏr) is often translated as "Lord of the Entire Universe." The key element is Neb (Lord).
-
-After being betrayed and murdered by his brother Set, Isis and Nephthys ressurect Osirus.
-
-Osirus was also a Christ. In Egyptian mythology a Karast is a person who is anointed as a Heru (Hero/Horus) during their lifetime. When they are deceased they receive great honor as a KRST or Ausar (Osiris). Egyptian Karast (“Anointed One”) = Greek Christos ("Anointed One").
-
-Serapis the Greco-Egyptian Deity
-
-Serapis, crafted under Ptolemy I at the Alexandrian School, fused Osiris’ resurrection with Apis’ strength, embodying the Jesus archetype through divine creation, salvation, and rebirth. Declared a god, Serapis mirrors Jesus’ divine sonship (Matthew 1:18–25), with his name (“Ser” = son) tying to “Aesar” (divine) and Scythian dragon-kings (Chapter 3). As a savior, he offered healing and afterlife promises, like Jesus (John 3:16), with serpent imagery (Fig. 1.3) reflecting Aži Dahāka. Osiris’ death-rebirth cycle parallels Jesus’ crucifixion-resurrection (Mark 15–16), and the Serapis cult’s destruction by Theophilus I (391 CE) echoes Judas’ betrayal. 
-
-Up until the First Council of Nicaea the title "Christ", or "Christian", referred to the Serapis Cult ("those who worship Serapis are, in fact, Christians, and those who call themselves bishops of Christ are, in fact, devotees of Serapis.". Source: The Letter of Hadrian to Servianus).
-
-Mithras the Iranian Deity
-
-Mithras, a solar god shaped by the Alexandrian School for Roman military elites, parallels the Jesus archetype through divine birth, cosmic salvation, and sacrificial renewal. Born from a rock, Mithras mirrors Jesus’ virgin birth, while his tauroctony (bull-slaying) symbolizes redemption, akin to Jesus’ crucifixion (Mark 15:24). His cult’s suppression by Christian emperors reflects Jesus’ betrayal, and serpent imagery in Mithraic reliefs (CIMRM 593) ties to Scythian sun-god motifs (Chapter 3). Offering salvation through rituals like communal meals, Mithras prefigures Christian sacraments, supporting the manuscript’s claim that Christianity adapted Mithraism’s framework, redirecting its appeal from soldiers to slaves under a monotheistic imperial cult.
-
-Horus the Egyptian Deity
-
-Horus, the Egyptian god of kingship and son of Osiris, embodies the Jesus archetype through miraculous birth, divine victory, and resurrection, shaped by Alexandrian syncretism. Born to Isis after Osiris’ death, Horus parallels Jesus’ virgin birth (Matthew 1:18–25). As a savior, he defeated Set, akin to Jesus’ triumph over evil, with the Uraeus serpent linking to Scythian motifs (Fig. 1.6). His eye, torn out and restored, mirrors Jesus’ sacrificial death and resurrection (Mark 15–16), while Set’s betrayal of Osiris echoes Judas’ role. Tied to Cleopatra as Isis (Chapter 5), Horus’ royal-divine status supports Christianity’s adaptation of Egyptian theology for imperial unity.
+Attis, the Phrygian god of vegetation tied to Cybele, reflects the Jesus archetype through virgin birth, sacrificial death, and resurrection, adapted by Hellenistic cults. Born to virgin Nana on December 25 (Ovid, Fasti 4), Attis mirrors Jesus’ nativity (Matthew 1:18–25). His self-castration under a pine tree, a crucifixion-like act, and resurrection after three days (Pausanias 7.17) parallel Jesus’ sacrifice and rebirth (Mark 15–16). Betrayed by Cybele’s jealousy, Attis’ cult, linked to Sabazios (Chapter 5), features serpent motifs, aligning with Scythian dragon symbolism. Attis’ rites, emphasizing renewal, prefigure Christianity’s imperial adaptation for mass devotion.
 
 Dionysus the Greek Deity
 
 Dionysus, the Greek god of wine and resurrection, syncretized with Osiris by the Alexandrian School, mirrors the Jesus archetype through divine birth, liberation, and rebirth. Born to Zeus and a mortal, Dionysus parallels Jesus’ divine-human parentage (Matthew 1:18–25). His ecstatic rites and wine symbolism, akin to Jesus’ sacraments (John 2:1–11), offered spiritual freedom, while his death by Titans and resurrection echo Jesus’ crucifixion-resurrection. Betrayed by Pentheus (Bacchae), Dionysus ties to Mark Antony as Neos-Dionysos (Chapter 5), with serpent imagery (Orphic Hymns) linking to Aži Dahāka. His cult’s universal appeal prefigures Christianity’s monotheistic framework. The entire Jesus-as-Wine theme (turning water into wine, the Last Supper) is a direct usurpation and theological correction of the Dionysian cult by the Flavian chronographers. It established the Proto-Christ as the new, superior ecstatic wine-lord who demanded controlled, spiritual frenzy, not chaotic, physical frenzy.
-
-Attis the Phrygian Deity
-
-Attis, the Phrygian god of vegetation tied to Cybele, reflects the Jesus archetype through virgin birth, sacrificial death, and resurrection, adapted by Hellenistic cults. Born to virgin Nana on December 25 (Ovid, Fasti 4), Attis mirrors Jesus’ nativity (Matthew 1:18–25). His self-castration under a pine tree, a crucifixion-like act, and resurrection after three days (Pausanias 7.17) parallel Jesus’ sacrifice and rebirth (Mark 15–16). Betrayed by Cybele’s jealousy, Attis’ cult, linked to Sabazios (Chapter 5), features serpent motifs, aligning with Scythian dragon symbolism. Attis’ rites, emphasizing renewal, prefigure Christianity’s imperial adaptation for mass devotion.
 
 Esus the Celtic Deity
 
@@ -430,6 +398,42 @@ year-zero (calendar starts at the deities birth), crucified diety
 submission, etc. The fact it resembles Christianity is because it
 follows the same framework that all the other Alexandrian School
 religions do.
+
+Horus the Egyptian Deity
+
+Horus, the Egyptian god of kingship and son of Osiris, embodies the Jesus archetype through miraculous birth, divine victory, and resurrection, shaped by Alexandrian syncretism. Born to Isis after Osiris’ death, Horus parallels Jesus’ virgin birth (Matthew 1:18–25). As a savior, he defeated Set, akin to Jesus’ triumph over evil, with the Uraeus serpent linking to Scythian motifs (Fig. 1.6). His eye, torn out and restored, mirrors Jesus’ sacrificial death and resurrection (Mark 15–16), while Set’s betrayal of Osiris echoes Judas’ role. Tied to Cleopatra as Isis (Chapter 5), Horus’ royal-divine status supports Christianity’s adaptation of Egyptian theology for imperial unity.
+
+Mithras the Persian Deity
+
+Mithras, a solar god shaped by the Alexandrian School for Roman military elites, parallels the Jesus archetype through divine birth, cosmic salvation, and sacrificial renewal. Born from a rock, Mithras mirrors Jesus’ virgin birth, while his tauroctony (bull-slaying) symbolizes redemption, akin to Jesus’ crucifixion (Mark 15:24). His cult’s suppression by Christian emperors reflects Jesus’ betrayal, and serpent imagery in Mithraic reliefs (CIMRM 593) ties to Scythian sun-god motifs (Chapter 3). Offering salvation through rituals like communal meals, Mithras prefigures Christian sacraments, supporting the manuscript’s claim that Christianity adapted Mithraism’s framework, redirecting its appeal from soldiers to slaves under a monotheistic imperial cult.
+
+Osiris the Egyptian Deity
+
+Osiris's Egyptian Name is Asar or Wsir. The name "Asar" is the root. When the Greeks encountered him, they Hellenized it to Osiris. Osiris's Asar -> (Greek addition of the sacred 'I' prefix, I-Asar) -> Iasar -> Iēsous. His title: Neb-er-djer (Nb-ꜥr-ḏr) is often translated as "Lord of the Entire Universe." The key element is Neb (Lord).
+
+After being betrayed and murdered by his brother Set, Isis and Nephthys ressurect Osirus.
+
+Osirus was also a Christ. In Egyptian mythology a Karast is a person who is anointed as a Heru (Hero/Horus) during their lifetime. When they are deceased they receive great honor as a KRST or Ausar (Osiris). Egyptian Karast (“Anointed One”) = Greek Christos ("Anointed One").
+
+Romulus the Roman Deity
+
+Rhu/Ru: The Indo-European root for "Dragon/Serpent" (cognate with the Scythian Aži). Ma: The Scythian word for "Place/Land" (as in the true Rhu-Ma on the Bosphorus). Romulus is the Aži Dahāka (Dragon) King who founds the city, establishing the legal right to rule.
+
+According to Plutarch’s Life of Romulus (circa 75 CE) the Roman deity of Quirinus aka Romulus was born to a virgin, Rhea Silvia, impregnated by the god Mars, establishing his divine lineage. Hailed as a king and revered as the son of a god, Romulus founded Rome after a fratricidal conflict with his brother Remus, a narrative echoing the biblical Cain and Abel, crucified by a conniving elite and rose from the dead as the god Quirinus.
+
+![Fig.1.4](/images/Denarius_C._Memmius_C._F._Romulus.jpg){:width="400px"}
+
+Fig. 1.4. Romulus. 
+
+Serapis the Greco-Egyptian Deity
+
+Serapis, crafted under Ptolemy I at the Alexandrian School, fused Osiris’ resurrection with Apis’ strength, embodying the Jesus archetype through divine creation, salvation, and rebirth. Declared a god, Serapis mirrors Jesus’ divine sonship (Matthew 1:18–25), with his name (“Ser” = son) tying to “Aesar” (divine) and Scythian dragon-kings (Chapter 3). As a savior, he offered healing and afterlife promises, like Jesus (John 3:16), with serpent imagery (Fig. 1.3) reflecting Aži Dahāka. Osiris’ death-rebirth cycle parallels Jesus’ crucifixion-resurrection (Mark 15–16), and the Serapis cult’s destruction by Theophilus I (391 CE) echoes Judas’ betrayal. 
+
+Up until the First Council of Nicaea the title "Christ", or "Christian", referred to the Serapis Cult ("those who worship Serapis are, in fact, Christians, and those who call themselves bishops of Christ are, in fact, devotees of Serapis.". Source: The Letter of Hadrian to Servianus).
+
+Zoroaster the Persian Deity
+
+Miraculous birth (His glory (xvarenah) entered his mother at birth). Temptation in wilderness (resisted the demon Buiti for 40 days). Transfiguration (experienced visions of Ahura Mazda), crucifixion symbolism (tradition says he was murdered at altar while praying). Resurrection belief (Zoroastrianism has strong resurrection theology).
 
 **4.2 Judaism** 
 
@@ -786,11 +790,9 @@ the Bosphorus, and Julius Caesar/Asander was king of this region.
 "Gaius" then can refer to Asander's connection to the Gallian (Gauls
 (Galli = Celt in Latin)) people or his ancestry in the region.
 
-"Gaius" might also refer to the Scythian Gaya (Clan).
-
-Ceasar's gentilice (surname) was Iulius. Iulius can refer to the ancient
-Celtic tribe known as the Iudii or Iudaei. "Ioulios" (ιούλιος) in Greek
-also means "descended from Jupiter" or "son of Jupiter". So, it is
+Ceasar's gentilice (surname) was Iulius. Iulius comes from Dyaus (the sky god, same as Zeus, Jupiter - the name Zeus comes from the pronunciation of "Dyeus", and (I)Jupiter comes from the pronunciation of "Dyeus Pter" (Diespiter -> Iupiter)). So Iulius = Dyaus -> Iou -> Jupiter. "Iulius" (Julius) is related to "Iove" (Jove) which is the Roman equivalent of Zeus, and would have been pronouced Yahweh in the Latin language. The ancient
+Celtic tribe known as the Iudii, Iudaei. or "Ioulios" (ιούλιος) in Greek,
+also means "descended from Jupiter" or "son of Jupiter". So, they got their name from Jupiter as well. It is
 possible that the word "jew" comes from the Iudii or Iudaei.
 
 The Egyptian name "Asar" was another name for Osiris. "Ra"
@@ -960,7 +962,7 @@ Endnotes (Chapter 7)
     the Persians/Parthians, but Mithras is the same as Sabazios. It's a
     solar son deity, a Jupiter.\
 (b) Coin of Vespasian depicitng "Zeus-Sarapis":
-    https://www.coinarchives.com/a/lotviewer.php?LotID=2528933&AucID=6356&Lot=485&Val=e5e4db7aa704d656893926a33a970991\
+    https://www.coinarchives.com/a/lotviewer.php?LotID=2528933&AucID=6356&Lot=485&Val=e5e4db7aa704d656893926a33a970991 \
 (c) Hebrew Wordplay: Vespasian -> V'Esav Pan (ועשו פן) -> "And Esau's
     Face" (Talmudic insult linking him to Edom).
 
