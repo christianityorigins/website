@@ -159,7 +159,7 @@ Asar(Osiris)/Aesar/Aeser/Aisar/Ais/Is), Brogitarix. Other suspected aliases: Mit
     Alexander II (son of king Aristobulus II son of Jannaeus Alexander
     also the nephew and son-in-law of king/high-priest Hyrcanus II.
     Also, Julius = Janneus? Or Janneus (Yannai) is related to the Roman
-    name Gaius?).
+    name Gaius?). Also, was he the legendary Chinese emperor Yu the Great (original name "Aži" or "Yazhi" (亞茲))? Julius, from Ioulius, related to Iove (Jove). Iove is linguistically linked to the Scythian tribal name Yuehzi (Yuezhi). He is "The Jove/Yuezhi King".
 -   Cleopatra VII (Isis who in mythology was the wife of Osiris and the
 mother of Horus): Dynamis Ourania (Aphrodite Urania), Pythodorida
 Philometor (Pytho- from python, and -doria from the Dorian tribe who were Scythian Greeks). Also, Amanirenas ("Amon is Lord"), Kandake of Kush?
@@ -1264,6 +1264,8 @@ The Tarim basin mummies are Tocharians, and the Kizilgaha cave portraits deprict
 
 Alexander the Great = Qin Shi Huang (China’s First Emperor). Both “died” mysteriously at 33 (Alexander in 323 BC; Qin Shi Huang in 210 BC). Alakshandra (Sanskrit) → Qin Shi Huang (Chinese): The “-shandra” morpheme appears in “Shi Huang,” meaning "First Guardian". Qin was founded by Alexander, it starts right exactly around the Greco-Bactrian city states era in Central Asia, it was started by people coming from the West right exactly bordering Central Asia during Greco-Bactrian rule, DA-QIN meaning BIG OR GREATER QIN as a word name term was used to refer to the Roman empire during the "Han dynasty" that came after Qin dynasty which means the QIN people had to have been Greco-Bactrian Seleucids since they equated with Roman type people and they came from the farthest West direction. 
 Qin’s terracotta army has Caucasian features and Hellenistic armor. The character "Qin" (秦) is written with the radicals for "grain" and "man," but its Old Chinese pronunciation was Dzin. This is a direct phonetic match for the Latin Ianus (Janus) and the Sanskrit Yavana (Ionian Greek). The Qin were the Yavanas—the Greeks—from the West. Their sudden rise, standardization of weights/measures, and great wall-building are all hallmarks of an Alexandrian-style conquest state. Greek style coins and statues have been found from this time period, and the terracotta army was built by Greeks from Central Asia [^19], to this day the Chinese currency which came about formally during Qin dynasty era is called a YUAN which is another name for YON-IONIAN Greeks etc.
+
+Julius Caesar aka Asander, king of Bosphorus was the Chinese emperor Yu the Great (original name "Aži" or "Yazhi" (亞茲)). Julius, from Ioulius, related to Iove (Jove). Iove is linguistically linked to the Scythian tribal name Yuehzi (Yuezhi). He is "The Jove/Yuezhi King".
 
 China had no chronology until the Jesuits came to the Emperor’s court. Their oldest "ancient" records date from this period. Stone inscriptions and bronze engravings and a few bamboo slips survive from older times, but they were never arranged into a consistent chronology. If you read the Bellum Tartaricum, a pre-edit Jesuit source, it gives a very different chronology as well as info about the white Slav-like race known as the Tartarians, their rulers and their wars with China. The Jesuits essentially wrote early Chinese history for them. They "reconstructed" the Xia and Shang dynasties based on fragmentary records, arranging them to fit the Biblical timeline. Mateo Ricci invented Confucius and was the one who wrote the Art of War.
 
