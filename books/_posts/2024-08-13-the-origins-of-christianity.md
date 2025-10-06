@@ -168,9 +168,10 @@ Anton (from Antaeus, giant son of Gaia)), King Herod (Heru (Horus) + Ud (divine)
 Ptolemy) I of Pontus aka Pharnaces II ("Pharao-Nikes", or "Victorious Pharaoh"), Tiberius Claudius Nero, Phraates IV of Parthia (Per-aa or Per-Nesu is a corruption of Pharaoh). Was he also Ptolemy X Alexander I aka Simon Boethus aka Simon Magus?
 -    Ptolemy XIII Theos Philopator (Cleopatra VII's brother) = Emperor Gaius Octavius (Augustus).
 -    Emperor Tiberius Julius Caesar Augustus = Tiberius Julius Aspurgus, king of Bosphorus (Tiberius Julius Aspurgus, son of Asander and Dynamis, and Emperor Tiberius Julius Caesar were born around the same time and their reigns are nearly perfectly co-terminus. Their sons were also born around the same time. Emperor Tiberius was first married to Vipsania Agrippina. The name Vipsania is obscure, but Agrippina means "wild horse" (from agri- "wild" and -pina "mare"), and Tiberius Julius Aspurgus Philoromaios's wife, known only through numismatic evidence, was Gepae-pyris (Gepa- from hippos, "horse" in Greek, cf. Epona, Celtic horse goddess and -epyris (possibly "lady" or "queen"). Both names encode "Horse-Queen." This is a title for a Sarmatian noblewoman of the steppe horse-culture. Tiberius Julius Aspurgus and Gepaepyris had two sons; the eldest was "Tiberius Julius Mithridates Philo-Germanicus Philopatris" ("son of Mithra, lover of Germanicus, lover of father"). Their second son was "Tiberius Julius Cotys I Philocaesar Philoromaios Eusebes" ("lover of Caesar, lover of Rome who is the Pious One"). Now, let's connect this family to the Roman Emperor's family: Emperor Tiberius Julius Caesar: Adopted son and heir: Germanicus. Biological son: Drusus. The name "Tiberius" likely refers to the Tibara, a tribe of the Pontic steppe also known as the "Tibarenoi")
--    Emperor Claudius = Rhoemetalces II (Reigns are nearly perfectly co-terminus. Polemon Pythodoros (Julius Caesar/Asander) and Pythodorida of
+-    Emperor Claudius = Rhoemetalces II, king of Bosphorus (Reigns are nearly perfectly co-terminus. Polemon Pythodoros (Julius Caesar/Asander) and Pythodorida of
 Pontus (Cleopatra/Dynamis) had a daughter Antonia Tryphaena. Her son was
 Rhoemetalces II whose reign coincided with emperor Claudius)
+-    Emperor Caligula = Tiberius Julius Cotys I, king of Bosphorus?
 
 II. Herodian & Flavian Dynasty
 
@@ -465,14 +466,13 @@ Footnotes (Chapter 4)
 
 There was a Bosphoran [^5] imperial cult where Julius Caesar [^6] took
 on the role of Asander (also Asandros), King of Bosphorus [^7] ("Asa"
-means "lord" in Thracian and serpent in Scythian (Scythian Assaioi: As-saioi = As is Scythian for "Serpent Lord", and Sai refers to clan/tribe. Sar means king in Scythian), and "andros" means "man" or "son of
+means "lord" in Scythian/Thracian and serpent in Scythian (Scythian Assaioi: As-saioi = As is Scythian for "Serpent Lord", and Sai refers to clan/tribe. Sar means king in Scythian), and "andros" means "man" or "son of
 man" in Greek. Jesus is referred to as "the son of man" 81 times in the
 four canonical gospels. Asandros can also be interpreted as either "Dragon Man" (the same as Aži-ander, or Alexander), or "son of the
-lord", or "son of Asa, the lord". The Thracian version of Zeus was Asa,
-the Celtic was Esus/Hesus (Esus becomes Aesus, pronounced ah-soos. There
-was no J in ancient Latin, so Jesus was pronounced ah-soos as well). The
+lord", or "son of Asa, the lord". The Thracian version of Zeus was Asa. The
 Etruscan word "Aesar" (also spelled "Aeser" or "Aisar" which likely
-derives from the Egyptian "Asar" which was another name for Osiris),
+derives from the Egyptian "Asar" which was another name for Osiris - there
+was no J in ancient Latin, so it was pronounced ah-soos)
 from which Asa may also derive, means "god" or "divine". Asandros can
 also possibly translate to either "son of god", or "son of Lord Aesar/Asar
 (Osiris)". The Greek language often added the prefix "K" to words
@@ -1269,9 +1269,7 @@ Julius Caesar aka Asander, king of Bosphorus was the Chinese emperor Yu the Grea
 
 China had no chronology until the Jesuits came to the Emperor’s court. Their oldest "ancient" records date from this period. Stone inscriptions and bronze engravings and a few bamboo slips survive from older times, but they were never arranged into a consistent chronology. If you read the Bellum Tartaricum, a pre-edit Jesuit source, it gives a very different chronology as well as info about the white Slav-like race known as the Tartarians, their rulers and their wars with China. The Jesuits essentially wrote early Chinese history for them. They "reconstructed" the Xia and Shang dynasties based on fragmentary records, arranging them to fit the Biblical timeline. Mateo Ricci invented Confucius and was the one who wrote the Art of War.
 
-The modern "Han Chinese" are not infact “Chinese” ("Chinese" is an identity fabricated and conjured up by Jesuits) but are infact Miao-Hmong people. 
-
-Genetic studies show the Yangshao culture (5000 BC) had 90% European DNA (Haplogroup R1a). The modern Han are Miao who migrated from Vietnam after the Mongol invasions.
+The modern "Han Chinese" are not infact "Han" or "Chinese" ("Chinese" is an identity fabricated and conjured up by Jesuits) but are infact Miao-Hmong people. The real Han = Yangshao R1a (90% steppe, 5000 BC), purged in An Lushan (Caucasoid genocide). Genetic studies show the Yangshao culture (5000 BC) had 90% European DNA (Haplogroup R1a). The modern Han are Miao who migrated from Vietnam after the Mongol invasions.
 
 The An Lushan rebellion was an ethnic war, mongoloids vs caucasoids which resulted the slaughter of millions of caucasians [^20]. The Xianbei were mongoloids and helped rape and sexually enslave Indo Europeans in China in the An Lushan rebellion. Goguryeo Korean general Gao Juren in the Tang dynasty committed genocide and rape against An Lushan’s community after defeating An Lushan at his headquarters in Fanyang (Beijing).
 
