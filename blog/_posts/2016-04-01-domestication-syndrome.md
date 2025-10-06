@@ -1,7 +1,7 @@
 ---
 layout: post
 open_links_in_new_tab: true
-title:  "Christianity is a Domestication System"
+title:  "Did Christianity Cause Domestication System"
 date:   2016-04-01 09:00:00 +0200
 updated: 2018-11-23 21:40:58 +0100
 category: blog
@@ -15,13 +15,13 @@ Did Christianity Cause Domestication Syndrome \[[link](https://en.wikipedia.org/
 <img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgHWOQYKN1dT7B0H6x8Sx2WLDtHViTUdyDCkLIh0XC71lNNAnmbToY6zUUapq9bKu-LLidHY0NwLejEaLSC0DDDq1HgO8aereBZk3mWs4OcbxiUUIcEJqX6BCktLNA7XGehlrMAt9C2InwTKN3BmOHs-MCyfxaTICSg-dOHMeMvsUniH3MH5zQWOya8NKY/s4000/collage.jpg" width="400">
 </p>
 
-<p align="center">Fig. 1. A quick image search for "prominent liberals" yields this result. Note the brachycephalic skulls and the pig look?</p>
+<p align="center">Fig. 1. A quick image search for "prominent liberals" yields this result. Note the brachycephalic skulls, retro pig face, and pink pig skin?</p>
 
 <p align="center">
 <img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhw2IoARHgwRqdW_9gSUq7rjWooQ50BQSz8M_whq8JPy4A8TIH_syTMF2farHTuutiioVa4n057YLwn807BH80NNq0-D89gSslz4zvqvvtRZbq1RWCsPDHbbEXNIypbJBqjFA4gh9I8t2RSg8PJGFFiNxTB7KOqGP2tYEwSWlwa2U2A_JSeIkgTHhB2hAA/s1080/collage.png" width="400">
 </p>
 
-<p align="center">Fig. 2. A quick image search for "prominent Europeans" yields this result. Note the dolicephalic skulls and robust facial features?</p>
+<p align="center">Fig. 2. A quick image search for "prominent Europeans" yields this result. Note the dolicephalic skulls, higher melanin content, and robust facial features?</p>
 
 Traits of domestication syndrome:
 
@@ -49,11 +49,10 @@ Behavioral:
 *   Poor maternal instincts ([ref](https://www.ncbi.nlm.nih.gov/pmc/articles/PMC5857534/))
 *   Dichotomous thinking/predictability (expressed binary thinking: black vs white, good vs evil, us vs them). Top-down controls leads to this.
 
-In the elite burial chambers from the Scythian Kurgans in Ukraine to the Etruscan tombs in Italy to the burial sites of Roman Patricians a specific non-local skull type appears: Dolichocephalic (long-headed) and high-vaulted with a pronounced occipital bun—a bulge at the back of the skull—a feature most commonly associated with Neanderthal admixture. Yet, in the masses of European people you see brachycephalic skulls and pig faces.
 
 It is important to note that feudalism was invented simultaneously as institutional Christianity. Both by Constantine, one to enforce the other and vice versa.
 
- It seems that over the past two thousand years the aristocracy, elites, and catholic church domesticated the masses of Europeans in the same way that they domesticated livestock. 
+It seems that over the past two thousand years the aristocracy, elites, and catholic church domesticated the masses of Europeans in the same way that they domesticated livestock. 
 This is why phenotype is such a good indicator of class and intelligence amongst the European population.
 
 1\. There's a theory that supports the "autistic brain" (as of the extreme male brain theory) is a brain with a tendency to be undomesticated or "failed domestication" [[link](https://www.psychologytoday.com/gb/blog/the-imprinted-brain/201608/autism-and-domestication-syndrome-in-humans)\]. Undomesticated people are socialized to a lesser degree therefore fall less for propaganda. Schizophrenia is the opposite of this and is a form of hyper-domestication syndrome [[link](https://www.psychologytoday.com/us/blog/the-imprinted-brain/201609/schizophrenics-hyper-domesticated-humans)] (see also: testosterone supplementation reverses symptoms of schizophrenia [[link](https://pubmed.ncbi.nlm.nih.gov/18626263/)\]), so is Down's Syndrome (see: Down's Syndrome is treated with testosterone supplementation [[link](https://www.theguardian.com/society/2022/sep/01/hormone-therapy-may-boost-brain-function-for-people-with-downs-syndrome-study-finds)]).  \
