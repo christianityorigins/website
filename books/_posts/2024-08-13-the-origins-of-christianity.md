@@ -482,7 +482,7 @@ from which Asa may also derive, means "god" or "divine". Asandros can
 also possibly translate to either "son of god", or "son of Lord Aesar/Asar
 (Osiris)". The Greek language often added the prefix "K" to words
 borrowed from other languages, so Aesar ("god") -> Greek Kaesar ->
-Latin Caesar. So, both Asander and Caesar are titles meaning "Lord King" in their respective languages (Scythian and Latin) but deriving from the same Indo-European root for king.
+Latin Caesar. Both Asander and Caesar are titles meaning "Lord King" in their respective languages (Scythian and Latin) but deriving from the same Indo-European root for king.
 
 Cleopatra used the regional alias of Dynamis Ourania [^8]
 (translating to 'heavenly power'), queen of the Bosporus. Cimmerian
