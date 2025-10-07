@@ -302,6 +302,11 @@ lizard people", or "king of the dragon people".
 
 Fig. 1.2 The royal Tamga (symbol/signature) of Tiberius Julius Sauromates II contains a cross and a Chi Rho.
 
+![Fig.1.3](/images/SauromatesCross.jpg){:width="400px"}
+
+Fig. 1.3 Coin of Tiberius Julius Sauromates II that displays a cross in the right corner.
+
+
 Ramesses II = "Ra-Mesu" (Scythian for "Born of the Sun Stallion"). "Ra"
 = Egyptian sun god (syncretized with Scythian Mithra). "Mesu" = "Mares"
 (horse in Scythian, symbol of kingship). Full meaning: "Sun Stallion's
@@ -349,9 +354,9 @@ Footnotes (Chapter 3)
 
 In Egypt, Ptolemy I Soter, who was a Scythian continuation of the Sarmatian snake/serpent kings line, used religion to subjugate the vast and disparate peoples he ruled. This was likely inspired by Plato's noble lie which is a concept from his work "The Republic" where he suggests that a myth or falsehood can be used by rulers to maintain social order and promote the common good. The Alexandrian School (Mouseion of Alexandria) then became his religion making factory. He was in the process of creating a universal religion and this was being achieved by gradual syncretism using local identities and blending local deities into syncretic universal savior archetypes (Interpretatio Graecae) as a transitional phase toward a universal monotheism. The Ptolemaic elites were conditioning the disparate populations they ruled into accepting the Serapis cult (sarp- is a Proto-Indo-European root meaning "serpent" as seen in Sanskrit sarpa, "snake". "Sar-Ap" translates to "Serpent-Lord" in Scythian).
 
-![Fig.1.3](/images/SarapisAmunAgathodaemon.jpg){:width="400px"}
+![Fig.1.4](/images/SarapisAmunAgathodaemon.jpg){:width="400px"}
 
-Fig. 1.3 Copper statuette of the god Sarapis Amun Agathodaemon depicted as half-deity. half-snake (Egypt late Hellenistic/early Roman period 1st century BC - 1st century AD).
+Fig. 1.4 Copper statuette of the god Sarapis Amun Agathodaemon depicted as half-deity. half-snake (Egypt late Hellenistic/early Roman period 1st century BC - 1st century AD).
 
 The Sarapis Cult eventually evolved into Christianity, which was repackaged Serapis cult and targeted at local populations (the Christogram symbolizing Jesus Christ (IHS) = "Isis-Horus-Serapis"). Religion was the technology that the empire used to subjugate the people they ruled.
 
@@ -422,9 +427,9 @@ Rhu/Ru: The Indo-European root for "Dragon/Serpent" (cognate with the Scythian A
 
 According to Plutarch’s Life of Romulus (circa 75 CE) the Roman deity of Quirinus aka Romulus was born to a virgin, Rhea Silvia, impregnated by the god Mars, establishing his divine lineage. Hailed as a king and revered as the son of a god, Romulus founded Rome after a fratricidal conflict with his brother Remus, a narrative echoing the biblical Cain and Abel, crucified by a conniving elite and rose from the dead as the god Quirinus.
 
-![Fig.1.4](/images/Denarius_C._Memmius_C._F._Romulus.jpg){:width="400px"}
+![Fig.1.6](/images/Denarius_C._Memmius_C._F._Romulus.jpg){:width="400px"}
 
-Fig. 1.4. Romulus. 
+Fig. 1.6. Romulus. 
 
 Serapis the Greco-Egyptian Deity
 
@@ -469,7 +474,7 @@ on the role of Asander (also Asandros), King of Bosphorus [^7] ("Asa"
 means "lord" in Scythian/Thracian and serpent in Scythian (Scythian Assaioi: As-saioi = As is Scythian for "Serpent Lord", and Sai refers to clan/tribe. Sar means king in Scythian), and "andros" means "man" or "son of
 man" in Greek. Jesus is referred to as "the son of man" 81 times in the
 four canonical gospels. Asandros can also be interpreted as either "Dragon Man" (the same as Aži-ander, or Alexander), or "son of the
-lord", or "son of Asa, the lord". The Thracian version of Zeus was Asa. The
+lord", or "son of Asa, the lord", or "Lord King". The Thracian version of Zeus was Asa. The
 Etruscan word "Aesar" (also spelled "Aeser" or "Aisar" which likely
 derives from the Egyptian "Asar" which was another name for Osiris - there
 was no J in ancient Latin, so it was pronounced ah-soos)
@@ -477,32 +482,34 @@ from which Asa may also derive, means "god" or "divine". Asandros can
 also possibly translate to either "son of god", or "son of Lord Aesar/Asar
 (Osiris)". The Greek language often added the prefix "K" to words
 borrowed from other languages, so Aesar ("god") -> Greek Kaesar ->
-Latin Caesar. Cleopatra used the regional alias of Dynamis Ourania [^8]
+Latin Caesar. So, both Asander and Caesar are titles meaning "Lord King" in their respective languages (Scythian and Latin) but deriving from the same Indo-European root for king.
+
+Cleopatra used the regional alias of Dynamis Ourania [^8]
 (translating to 'heavenly power'), queen of the Bosporus. Cimmerian
 Bosporus approximates to modern-day Crimea in southern Ukraine (see
 also: Jesus Christ Was Born in Crimea by Anatoly Fomenko).
 
-![Fig.1.6](/images/caesarstar.jpg){:width="400px"}
+![Fig.1.7](/images/caesarstar.jpg){:width="400px"}
 
-Fig. 1.6. Julius Caesar. One side of the coin shows a crescent and the
+Fig. 1.7. Julius Caesar. One side of the coin shows a crescent and the
 other side shows a Nike which was the Greek goddess of victory and a
 close companion to Zeus.
 
-![Fig.1.7](/images/asandernike.jpg){:width="400px"}
+![Fig.1.8](/images/asandernike.jpg){:width="400px"}
 
-Fig. 1.7. Coin of Asander, King of Bosphorus depicting a Nike
+Fig. 1.8. Coin of Asander, King of Bosphorus depicting a Nike
 
-![Fig.1.8](/images/Polemon.jpg){:width="400px"}
+![Fig.1.9](/images/Polemon.jpg){:width="400px"}
 
-Fig. 1.8. Coin of Polemon I of Pontus who was an alias of Asander (both were married to Dynamis, queen of Bosphorus. You can usually find their aliases through marriages) depicting a Uraeus (the Egyptian cobra) and also Zeus-Ammon. Other depictions of Asander show the star and cresent
+Fig. 1.9. Coin of Polemon I of Pontus who was an alias of Asander (both were married to Dynamis, queen of Bosphorus. You can usually find their aliases through marriages) depicting a Uraeus (the Egyptian cobra) and also Zeus-Ammon. Other depictions of Asander show the star and cresent
 that is visible in the Julius Caesar coin above (https://rpc.ashmus.ox.ac.uk/coins/1/1845). The crescent moon and
 star symbol has Mithraic symbolism, and another coin of Asander depicts a
 Phrygian cap which is closely associated with the Roman god Mithras:
 <https://silver.kbr.be/3628_-_Panticapaeum%3F_(Asander)_(AE_Apollo/prow)_over_Pontic_type_(Perseus/Pegasus)_(Oxford,_AM>).
 
-![Fig.1.9](/images/Cleopatra%20VIIDynamis.png){:width="400px"}
+![Fig.1.10](/images/Cleopatra%20VIIDynamis.png){:width="400px"}
 
-Fig. 1.9. (L) Dynamis, Queen of Bosphorus, (R) Cleopatra VII. There were
+Fig. 1.10. (L) Dynamis, Queen of Bosphorus, (R) Cleopatra VII. There were
 obviously many years between the ages at which she was depicted,
 however, even in the elder Dynamis bust you can see her lazy eye and
 abnormally large eyes which she was reported to have had, possibly as a
@@ -510,9 +517,9 @@ consequence of inbreeding. The hat she is wearing is a Phrygian cap, a
 distinctivehat that is closely associated with the Roman god Mithras.
 Dynamis was recorded as being of "Sarmatian" ancestry.
 
-![Fig.1.10](/images/cleopatra.png){:width="400px"}
+![Fig.1.11](/images/cleopatra.png){:width="400px"}
 
-Fig. 1.10. (L) Julia Mamaea, Queen of Pontus (wife of Polemon II), (R)
+Fig. 1.11. (L) Julia Mamaea, Queen of Pontus (wife of Polemon II), (R)
 Cleopatra VII. Polemon Pythodoros, King of Pontus was a regional alias
 of Julius Caesar/Asander (as Asander and Polemon were both married to
 Dynamis), and if he also played the religious role of Gaius Julius
@@ -568,26 +575,26 @@ of Bosphorus. After Mithridates Chrestus's loss to Asander he was
 imprisoned and executed by his elder brother, Mithridates VI Eupator,
 who had previously beat him in war.
 
-![Fig.1.11](/images/PtolemyXAlexanderII.jpg){:width="400px"}
+![Fig.1.12](/images/PtolemyXAlexanderII.jpg){:width="400px"}
 
-Fig. 1.11. Coin depicting Ptolemy XI Alexander II aka Asander, king of
+Fig. 1.12. Coin depicting Ptolemy XI Alexander II aka Asander, king of
 Bosphorus aka Pharnaces II, etc.
 
-![Fig.1.12](/images/PharnacesII.jpg){:width="400px"}
+![Fig.1.13](/images/PharnacesII.jpg){:width="400px"}
 
-Fig. 1.12. Coin depicting Pharnaces II. Pharnaces II "dies" in 47 BCE
+Fig. 1.13. Coin depicting Pharnaces II. Pharnaces II "dies" in 47 BCE
 just as Asander appears in 47 BCE as King of Bosphorus. Pharnaces II
 called himself "King of Kings" on coinsas Asander did.
 
-![Fig.1.13](/images/AriarathesIX.jpg){:width="400px"}
+![Fig.1.14](/images/AriarathesIX.jpg){:width="400px"}
 
-Fig. 1.13. Coin depicting Ariarathes IX Eusebes Philopator, King of
+Fig. 1.14. Coin depicting Ariarathes IX Eusebes Philopator, King of
 Cappadocia. Notice the resemblance to Asander and Pharnaces II? They
 were all born on the same day as well.
 
-![Fig.1.14](/images/MithridatesVIEupator.png){:width="400px"}
+![Fig.1.15](/images/MithridatesVIEupator.png){:width="400px"}
 
-Fig. 1.14. Coin depicting Mithridates VI Eupator, father of Pharnaces II
+Fig. 1.15. Coin depicting Mithridates VI Eupator, father of Pharnaces II
 and Dynamis. Brother of Mithridates Chrestus. Notice the star and
 crescent that is visible in the Julius Caesar coin above and the winged
 Pegasus within a Dionysiac wreath of ivy and fruit that is seen in the
@@ -667,9 +674,9 @@ Theophilos in Greek. Around 26% of the New Testament was written to
 Theophilus in Luke and Acts of the Apostles).
 
 ![Fig.
-1.15](/images/AlexanderPhilo.jpg){:width="400px"}
+1.16](/images/AlexanderPhilo.jpg){:width="400px"}
 
-Fig. 1.15. (L) Alexander (grandson of King Herod) aka Gaius Julius
+Fig. 1.16. (L) Alexander (grandson of King Herod) aka Gaius Julius
 Alexander, Herodian Prince of Judaea aka Alexander the Alabarch aka
 (King/Tetrarch) Ptolemy (Alexander) bar Menneus aka Ptolemy of
 Mauretania aka "Jesus" in the bible. (R) Cleopatra (Thea Philopator) of
@@ -687,9 +694,9 @@ Adiabene/Edessa aka Ptolemy aka Yakov Zu Tolomoy aka Izates aka Jesus
 Emmanuel aka Monobazus of Adiabene [^12]
 
 ![Fig.
-1.16](/images/Josephus.jpg){:width="400px"}
+1.17](/images/Josephus.jpg){:width="400px"}
 
-Fig. 1.16. 'Josephus' bust which I identify as Tiberius Julius
+Fig. 1.17. 'Josephus' bust which I identify as Tiberius Julius
 Alexander. Compare it to Nerva's depictions. So, 'Josephus' was Philo of
 Alexandria's son. Tiberius Julius Alexander's son was named
 'Philopappos' and one of his mother's aliases was 'Alexandria bat
@@ -697,9 +704,9 @@ Matthias' which is where the pseudonym 'Joseph bar Matthias' comes from.
 Also, drop the initial b and final s in the name "Bar Mathias" and you
 get (Joseph of) Arimathea.
 
-![Fig. 1.17](/images/coin-abgar-phraates.png){:width="400px"}
+![Fig. 1.18](/images/coin-abgar-phraates.png){:width="400px"}
 
-Fig. 1.17. (L) and (R) show King Izates Monobazus of Edessa (known in
+Fig. 1.18. (L) and (R) show King Izates Monobazus of Edessa (known in
 Greek as the "Kingdom of Ourania" or in English as the "Kingdom of
 Heaven") wearing a crown of thorns. Izates or Izas is his title which is
 an ancient Greek translation of the Avestan word Yazatas (Persian:
@@ -708,9 +715,9 @@ and Sultan Ezid in the Yazadi ('Iza'di) religion. He was the uncle of
 Tiberius Julius Sauromates II, King of Bosphorus. The middle image
 source: The Alexander Mosaic, Huqoq, Israel.
 
-![Fig.1.18](/images/SauromatesII2.jpg){:width="400px"}
+![Fig.1.19](/images/SauromatesII2.jpg){:width="400px"}
 
-Fig. 1.18. Tiberius Julius Sauromates II, King of Bosphorus, who was the
+Fig. 1.19. Tiberius Julius Sauromates II, King of Bosphorus, who was the
 son of Tiberius Julius Cotys (aka Tiberius Julius Alexander aka Arrius
 Calpernius Piso aka Arrius Varus aka Emperor Nerva), great-grandson of
 Dynamis aka Cleopatra and Mark Antony.
@@ -753,9 +760,9 @@ Boethus was another of Cleopatra's regional aliases?  If you identify
 King Herod as Mark Antony aka Tiberius Claudius Nero aka Phraates IV of
 Parthia's regional alias then the picture becomes clearer.
 
-![Fig.1.19](/images/PtolemyXII.jpeg){:width="400px"}
+![Fig.1.20](/images/PtolemyXII.jpeg){:width="400px"}
 
-Fig. 1.19. Ptolemy XII Auletes, king of Egypt, who was also Mithridates
+Fig. 1.20. Ptolemy XII Auletes, king of Egypt, who was also Mithridates
 VI Eupator, Ariarathes VII of Cappadocia, Simon Boethus/Magus/Ptolemy
 (Alexander) bar Menneus, et.al. Mithridates VI married his sister
 Laodice---just as Ptolemy XII married his sister Cleopatra V. Both had
@@ -905,9 +912,9 @@ King, and Pas means "all" as in Pan. "Vespasian" = "King of All", or "King of Ev
 'Flavius Scaevinus' the conspirator involved in Nero's assassination.
 
 ![Fig.
-1.20](/images/Vespasian.jpg){:width="400px"}
+1.21](/images/Vespasian.jpg){:width="400px"}
 
-Fig. 1.20. Compare Vespasian's depiction to Herod Agrippa I
+Fig. 1.21. Compare Vespasian's depiction to Herod Agrippa I
 
 'Antonia Caenis' was Vespassian's mistress who was his first cousin who
 was Cleopatra (Thea Philopator) of Mauretania aka Cleopatra IX aka
@@ -1002,9 +1009,9 @@ Capitolina after the Bar Kokhba revolt (the city was named after Hadrian's famil
 that Aquila of Sinope and his wife Prisca or Priscilla lived with Paul
 the Apostle and Paul called them "my fellow workers in Christ Jesus"
 
-![Fig.1.21](/images/Antinous.jpg){:width="400px"}
+![Fig.1.22](/images/Antinous.jpg){:width="400px"}
 
-Fig. 1.21. Steel relief that shows Antinous holding the grapes of Dionysus in one-hand and a cross in the other.
+Fig. 1.22. Steel relief that shows Antinous holding the grapes of Dionysus in one-hand and a cross in the other.
 
 **9.2 Subversion of the Imperial Cult by Rabbi Akiva and His Students**
 
