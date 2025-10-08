@@ -62,7 +62,7 @@ All these religions were psychological and political tools that were created to 
 Christianity was created in phases, the first phase as a synthesis of the Serapis Cult rebranded to serve one of the later Roman (Bosphoran) imperial cults, then reworked by the Flavians, and finally this imperial cult was subverted by a group of Rabbis who were headed by a rabbi named Akiva sometime after the Bar Kokhba Revolt. Jesus in the bible was an avatar, or an administrative title originally for members of the Bosphoran royal family. Asander, king of Bosphorus (Julius Caesar's real identity) took on this role, so did his son Aspurgus, king of Bosphorus aka Amyntas ("Amon-Tas". "Hidden
 Lord", linking to Amun-Ra - with "Amen"(tas) at the root) Nikator aka
 Amyntas of Galatia aka Jesus ben Fabus aka Isa Amen (Jesus was named
-"Amen" in Rev. iii. 14) aka Caesarion, and his later descendants Izates II, king of Adiabene, and Tiberius Julius Sauromates II, also took on the role. After Rabbi Akiva Jesus then became Simon Bar Kokhba.
+"Amen" in Rev. iii. 14), and his later descendants Izates II, king of Adiabene, and Tiberius Julius Sauromates II, also took on the role. After Rabbi Akiva Jesus then became Simon Bar Kokhba.
 
 It was necessary for these rabbis to cut and paste from an imperial cult, just as it was necessary for the Alexandrian School religions to be packaged as sects of local religions, because getting people to abandon their religions for a new one is an impossible task. However, there are thousands of sects of major religions today, many with different prophets.(The Alexandrian School and Library of Alexandria were founded soon after the Ptolemaic cult of Alexander the Great failed to catch on, so it was likely at this at point when they began focusing on subverting established religions instead of forcing a new one on the population.)
 
@@ -151,8 +151,14 @@ to the same woman, Berenice, granddaughter of King Herod.
 
 I. Ptolemaic, Julio-Claudian & Bosphoran Dynasty 
 
--   Julius Caesar: Ptolemy XI Alexander.
-II, Asander, King of Bosphorus (Philocaesar Philoromaios, Soter, Great
+Mithridates VI Eupator of Pontus = Ptolemy XII Auletes of Egypt. Aliases: Mark Antony (Marcus Antonius = Mar (Phoenician "lord") +
+Anton (from Antaeus, giant son of Gaia)), King Herod (Heru (Horus) + Ud (divine) = Herud -> Herod. "The Divine Horus". The "Slaughter of the Innocents" is a mythological trope attached to the birth of every Horus-figure who must overcome a threat (against Set). It is not history; it is theological propaganda asserting Herod's/Mark Antony's legitimacy as the living god-king against the resurrected one. This is also attached to the Indian god Krishna (against Kamsa)), Polemon (Polemos ->
+Ptolemy) I of Pontus aka Pharnaces II ("Pharao-Nikes", or "Victorious Pharaoh"), Tiberius Claudius Nero, Phraates IV of Parthia (Per-aa or Per-Nesu is a corruption of Pharaoh). Was he also Ptolemy X Alexander I aka Simon Boethus aka Simon Magus?
+-    Spouse: his wives/sisters: Laodice (in Pontus) = Cleopatra V Tryphaena (in Egypt).
+
+Children: Cleopatra VII Thea Philopator aka Dynamis, queen of Bosphorus.
+
+Julius Caesar = Asander, King of Bosporus. Aliases: Ptolemy XI Alexander II, Asander, King of Bosphorus (Philocaesar Philoromaios, Soter, Great
 King of Kings, "As" in his name refers to
 Asar(Osiris)/Aesar/Aeser/Aisar/Ais/Is), Brogitarix. Other suspected aliases: Mithridates II of the Bosporus, Akrosandros II, King of Scythia, Idumean Antipater, Parthian Artavasdes (Greek Alex = Persian
     Arta) who was the brother of Tigranes II (Tigranes II/the Great was called Azhdahak proving Aži Dahāka was a royal Scythian title), and the Hasmonean
@@ -160,47 +166,61 @@ Asar(Osiris)/Aesar/Aeser/Aisar/Ais/Is), Brogitarix. Other suspected aliases: Mit
     also the nephew and son-in-law of king/high-priest Hyrcanus II.
     Also, Julius = Janneus? Or Janneus (Yannai) is related to the Roman
     name Gaius?). Also, was he the legendary Chinese emperor Yu the Great (original name "Aži" or "Yazhi" (亞茲))? Julius, from Ioulius, related to Iove (Jove). Iove is linguistically linked to the Scythian tribal name Yuehzi (Yuezhi). He is "The Jove/Yuezhi King".
--   Cleopatra VII (Isis who in mythology was the wife of Osiris and the
-mother of Horus): Dynamis Ourania (Aphrodite Urania), Pythodorida
+- Spouse: Cleopatra VII (Isis who in mythology was the wife of Osiris and the
+mother of Horus): Dynamis Ourania (Aphrodite Urania). Aliases: Pythodorida
 Philometor (Pytho- from python, and -doria from the Dorian tribe who were Scythian Greeks). Also, Amanirenas ("Amon is Lord"), Kandake of Kush?
--   Ptolemy XII Auletes of Egypt: Mithridates VI Eupator of Pontus (his wives/sisters: Laodice (in Pontus) = Cleopatra V Tryphaena (in Egypt). The same woman), Mark Antony (Marcus Antonius = Mar (Phoenician "lord") +
-Anton (from Antaeus, giant son of Gaia)), King Herod (Heru (Horus) + Ud (divine) = Herud -> Herod. "The Divine Horus". The "Slaughter of the Innocents" is a mythological trope attached to the birth of every Horus-figure who must overcome a threat (against Set). It is not history; it is theological propaganda asserting Herod's/Mark Antony's legitimacy as the living god-king against the resurrected one. This is also attached to the Indian god Krishna (against Kamsa)), Polemon (Polemos ->
-Ptolemy) I of Pontus aka Pharnaces II ("Pharao-Nikes", or "Victorious Pharaoh"), Tiberius Claudius Nero, Phraates IV of Parthia (Per-aa or Per-Nesu is a corruption of Pharaoh). Was he also Ptolemy X Alexander I aka Simon Boethus aka Simon Magus?
--    Ptolemy XIII Theos Philopator (Cleopatra VII's brother) = Emperor Gaius Octavius (Augustus).
--    Emperor Tiberius Julius Caesar Augustus = Tiberius Julius Aspurgus, king of Bosphorus (Tiberius Julius Aspurgus, son of Asander and Dynamis, and Emperor Tiberius Julius Caesar were born around the same time and their reigns are nearly perfectly co-terminus. Their sons were also born around the same time. Emperor Tiberius was first married to Vipsania Agrippina. The name Vipsania is obscure, but Agrippina means "wild horse" (from agri- "wild" and -pina "mare"), and Tiberius Julius Aspurgus Philoromaios's wife, known only through numismatic evidence, was Gepae-pyris (Gepa- from hippos, "horse" in Greek, cf. Epona, Celtic horse goddess and -epyris (possibly "lady" or "queen"). Both names encode "Horse-Queen." This is a title for a Sarmatian noblewoman of the steppe horse-culture. Tiberius Julius Aspurgus and Gepaepyris had two sons; the eldest was "Tiberius Julius Mithridates Philo-Germanicus Philopatris" ("son of Mithra, lover of Germanicus, lover of father"). Their second son was "Tiberius Julius Cotys I Philocaesar Philoromaios Eusebes" ("lover of Caesar, lover of Rome who is the Pious One"). Now, let's connect this family to the Roman Emperor's family: Emperor Tiberius Julius Caesar: Adopted son and heir: Germanicus. Biological son: Drusus. The name "Tiberius" likely refers to the Tibara, a tribe of the Pontic steppe also known as the "Tibarenoi")
--    Emperor Claudius = Rhoemetalces II, king of Bosphorus (Reigns are nearly perfectly co-terminus. Polemon Pythodoros (Julius Caesar/Asander) and Pythodorida of
+
+Children of Caesar/Asander & Cleopatra/Dynamis:
+
+Emperor Tiberius Julius Caesar Augustus. Alias: Tiberius Julius Aspurgus, king of Bosphorus.
+- Spouse: Emperor Tiberius was first married to Vipsania Agrippina. The name Vipsania is obscure, but Agrippina means "wild horse" (from agri- "wild" and -pina "mare"), and Tiberius Julius Aspurgus Philoromaios's wife, known only through numismatic evidence, was Gepae-pyris (Gepa- from hippos, "horse" in Greek, cf. Epona, Celtic horse goddess and -epyris (possibly "lady" or "queen"). Both names encode "Horse-Queen." This is a title for a Sarmatian noblewoman of the steppe horse-culture.
+
+Children of Emperor Tiberius/Aspurgus & Gepaepyris:
+
+Tiberius Julius Mithridates III (Italian Avatar: Emperor Caligula)
+
+Tiberius Julius Cotys I. Italian Avatar: Emperor Claudius = Rhoemetalces II of Bosporus (Reigns are nearly perfectly co-terminus. Polemon Pythodoros (Julius Caesar/Asander) and Pythodorida of
 Pontus (Cleopatra/Dynamis) had a daughter Antonia Tryphaena. Her son was
 Rhoemetalces II whose reign coincided with emperor Claudius)
--    Emperor Caligula = Tiberius Julius Cotys I, king of Bosphorus?
 
-II. Herodian & Flavian Dynasty
+Child of Antony/Herod & Dynamis/Cleopatra:
 
--   Alexander (son of Herod): Juba II.
--   Alexander (grandson of King Herod): (King/Tetrarch) Ptolemy
+Alexander (son of King Herod). aliases: Alexander Helios, Juba II of Mauretania 
+- Spouse: Cleopatra Selene II (twin sister)
+
+Son of Juba II and his sister-wife Cleopatra Selene:
+
+Alexander (grandson of King Herod). Aliases: (King/Tetrarch) Ptolemy
     (Alexander) bar Menneus, Ptolemy of Mauretania (aka Joseph Panthera,
     the name for jesus's father in the Talmud; Panthera is a corruption
     of Cantheras, or Cleopatros. Also, Panthera = Ptolemy in Hebrew),
     Tiberius Julius Alexander Major, Alexander the Alabarch.
--   Cleopatra (Thea Philopator) of Mauretania: Cleopatra IX, Helene,
+
+-    Spouse: Sister: Cleopatra (Thea Philopator) of Mauretania. Aliases: Cleopatra IX, Helene,
     Drusilla of Mauretania, Julia Ourania of Parthia, Philo of
     Alexandria. She was also Claudius and Nero's secretary "Pallas", and
     "Antonia Caenis" who was Vespasian's first cousin and mistress (the full name of Pallas was Marcus Antonius Pallas, with the Antonius part being an obvious sign of descent from Mark Antony and that Pallas wasn’t a random slave. Caenis was the Greek goddess who was transformed into a man, and she role-played as two men: Marcus Antonius Pallas and Philo).
--   Tiberius Julius Alexander: Emperor Nerva, Arrius Piso, Josephus.
--   Marcus Julius Alexander: Izates Monobazus ("Jesus Emmanuel"), Yeshua
+
+Sons of Alexander (grandson of King Herod) and his sister-wife Cleopatra Selene:
+
+Tiberius Julius Alexander: Emperor Nerva, Arrius Piso, Josephus.
+
+Marcus Julius Alexander: Izates Monobazus ("Jesus Emmanuel"), Yeshua
     Cleopatros.
 
-III. Flavian Emperors
+II. Flavian Emperors
 
--   Vespasian: Herod Agrippa I (See: The Royal Ancestry of Emperor
+Vespasian. Aliases: Herod Agrippa I (See: The Royal Ancestry of Emperor
     Vespasian. Henry Davis,
     https://www.henryhdavis.com/theroyalancestryofemperorvespasian
     [[link](https://henrydavis-cc.medium.com/the-royal-ancestry-of-the-roman-emperor-vespasian-72e144335299)]),
     Flavius Scaevinus.
--   Titus: Polemon II, Aulus Avillius Flaccus, Marcus Julius Agrippa I(?).
+    
+Titus: Polemon II, Aulus Avillius Flaccus, Marcus Julius Agrippa I(?).
 
-IV. Speculative
+III. Speculative
 
--   Alexander the Great: Scythian prince who was the son of Ateas the Scythian aka Artaxerxes
+Alexander the Great: Scythian prince who was the son of Ateas the Scythian aka Artaxerxes
     II Memnon ("Kai Bahman") and half-brother of Darius III ("Darab").
     In India he took the regional aliases of Chandragupta Maurya
     ("Chandragupta" = "Sander-Gupta" (Scythian "Sander" = Alexander. "Aleks" = Greekization of "Alakh" which means "not seen" or "unseen" in Sanskrit/Hindi. "Gupta" = Hidden). Greek sources (Megasthenes) refer to Chandragupta Maurya as "Sandrokottos" with the Sandro- deriving from Alexandros. "Aži-ander": Aži
@@ -211,17 +231,24 @@ IV. Speculative
     Aži-Sandar also = "Dragon King" in Mittani and Old Persian. He did not die in Babylon. He "became a god" by undergoing a ritual transformation in the ziggurat. He then re-emerged in the East with a new identity. Alexander's mother Olympias (Ol or ophis + Pias = "serpent queen"), who was a Scythian princess of the
     Molossian tribe, claimed to have been impregnated by the god Zeus
     Ammon disguised as a serpent. Alexander's fathers name Philip was a title (Philippos (Lover of Horses) is a direct Greek translation of the Scythian royal title Pharnavaz (Horse-Lord)). Alexander also married the Scythian princess Roxana. Alexanders campaign was not a conquest, it was a Scythian restoration. The Achaemenid Persians (Achaemenes is likely Akh-Manesh or "Spirit of Manu", linking to the Vedic sage-king) were a rival Scythian clan (the "Ariya" - Aryans). Alexander was re-establishing the older, purer Scythian hegemony of the Medes and the pre-Zoroastrian Mitanni.
--   Gautama Buddha (Egyptian: "Ba-Djehuti", or "Soul of Thoth"): Bardiya (Smerdis)/Gaumata (Cyrus the Great's son who was satrap (governor) of the Persian province of Bactria (modern day Afghanistan)).
--   Marcion of Sinope: Markianos of Alexandria. The association with Sinope came from Aquila of Sinope who was a disciple of Rabbi Akiva. Are the two the same? Probably.
--    Moses = Manes/Mannu-Kuras = Manu (Scythian Sage-King) = Menes (Egypt’s legendary founder). Also appears in "Monobazus" → “Manu Bazus” → Sarmatian-Mythological Sage King. The Iranian Manu is a legendary civilizer, and in India he becomes the first Lawgiver (the Manu Smriti = Scythian governance code). The biblical Moses defeats Pharaoh (actually Mitanni elite), parts waters with a serpent-staff—obvious encoding of dragon-kingship (Aži Dahāka). Moses takes on different masks: M enes – the first official Pharaoh (not real, a compilation of conquerors). Menes – the semi-mythical Median king, founder of the priest-class. Mannu-kuras – Proto-Mede, whose name becomes Cyrus. The name Kur-Ash = "Sun Man". The Exodus is not Judaic memory: it's a political memory of Mitanni-Scythian expulsion from Egypt after the religious revolution of Thutmose III → Horemheb wiped them out with a new priest-kingship in Amarna.
- -   Paul the Apostle = likely a composite character or an avatar/cipher. Two suspects for having taken on the character are: 1) Saulus ben Antipater who was the
+
+Gaius Octavius (Augustus) - Cadet branch manager in Italy: Gaius Julius Sohaemus of Emesa.
+
+Gautama Buddha (Egyptian: "Ba-Djehuti", or "Soul of Thoth"): Bardiya (Smerdis)/Gaumata (Cyrus the Great's son who was satrap (governor) of the Persian province of Bactria (modern day Afghanistan)).
+
+Marcion of Sinope: Markianos of Alexandria. The association with Sinope came from Aquila of Sinope who was a disciple of Rabbi Akiva. Are the two the same? Probably.
+
+Moses = Manes/Mannu-Kuras = Manu (Scythian Sage-King) = Menes (Egypt’s legendary founder). Also appears in "Monobazus" → “Manu Bazus” → Sarmatian-Mythological Sage King. The Iranian Manu is a legendary civilizer, and in India he becomes the first Lawgiver (the Manu Smriti = Scythian governance code). The biblical Moses defeats Pharaoh (actually Mitanni elite), parts waters with a serpent-staff—obvious encoding of dragon-kingship (Aži Dahāka). Moses takes on different masks: M enes – the first official Pharaoh (not real, a compilation of conquerors). Menes – the semi-mythical Median king, founder of the priest-class. Mannu-kuras – Proto-Mede, whose name becomes Cyrus. The name Kur-Ash = "Sun Man". The Exodus is not Judaic memory: it's a political memory of Mitanni-Scythian expulsion from Egypt after the religious revolution of Thutmose III → Horemheb wiped them out with a new priest-kingship in Amarna.
+
+Paul the Apostle = likely a composite character or an avatar/cipher. Two suspects for having taken on the character are: 1) Saulus ben Antipater who was the
     son of Antipater/Herod Antipas the Tetrarch, grandson of King Herod
     (Josephus, Antiquities of the Jews, Chapter 9, section 211), and 2) Rabbi Akiva (whose students included: Aquila of Sinope aka Onkelos, Markianos of Alexandria aka Marcion (Greek Markion) of Sinope, Shimon bar Yohai aka Simon Peter (Shimon bar Yonah). The character
     Paul/Saul's life story was stolen from the ancient Egyptian story
     "Tale of the Shipwrecked Sailor". Josephus in Antiquities of the
     Jews, Book XX (Ch 9.4) refers to Paul (Saulus) as related to Herod
     Agrippa.
- -   Pythagoras: Abaris the Hyperborean. The high priestess of the Temple of Apollo at Delphi was called Pythia https://en.wikipedia.org/wiki/Pythia \[[link](https://en.wikipedia.org/wiki/Pythia)\] who breathed serpent vapors (ethylene gas). Greek writers regarded the Hyperboreans as the mythical founders of Apollo's shrines at Delos and Delphi  https://en.wikipedia.org/wiki/Hyperborea#Hyperboreans_in_Delos \[[link](https://en.wikipedia.org/wiki/Hyperborea#Hyperboreans_in_Delos)\]. The name "Pythagoras" is derived from the Greek words "Pythios" (Πύθιος), meaning "of Pythia" or "belonging to the Pythia ("Pythoness"), and "Agoras" is a direct linguistic link to "Agaroi", the name of the Scythian snake-venom priesthood. Abaris was a Scythian and the Scythians worshiped snake deities. Pythia was probably Pythagoras' mother.
+
+Pythagoras: Abaris the Hyperborean. The high priestess of the Temple of Apollo at Delphi was called Pythia https://en.wikipedia.org/wiki/Pythia \[[link](https://en.wikipedia.org/wiki/Pythia)\] who breathed serpent vapors (ethylene gas). Greek writers regarded the Hyperboreans as the mythical founders of Apollo's shrines at Delos and Delphi  https://en.wikipedia.org/wiki/Hyperborea#Hyperboreans_in_Delos \[[link](https://en.wikipedia.org/wiki/Hyperborea#Hyperboreans_in_Delos)\]. The name "Pythagoras" is derived from the Greek words "Pythios" (Πύθιος), meaning "of Pythia" or "belonging to the Pythia ("Pythoness"), and "Agoras" is a direct linguistic link to "Agaroi", the name of the Scythian snake-venom priesthood. Abaris was a Scythian and the Scythians worshiped snake deities. Pythia was probably Pythagoras' mother.
 
 **3 The Sarmatian Dragon Cult**
 
@@ -244,7 +271,7 @@ Sarmatian serpent-dragon cult. See: Papaios and the Snake-Legged Goddess (Scythi
 Kings who took on the snake/dragon/serpent/Azhi Dahaka title: Scorpion I, Pharaoh of Egypt, Azhdahak, which is the Armenian form of the name of the Avestan Azhi Dahaka, was associated with the Median king Astyages (564–550 BC) who was the grandfather of Cyrus the Great. Tigranes II/the Great, King of Armenia (140–55 BC) was also called Azhdahak. Tiberius Julius Sauromates II, King of Bosphorus ('Saur'
 means 'lizard' or 'reptile', and 'mates' means 'man' or 'warrior'). The roots of the snake titles were: Aži-, Azhd-, -zates, Sauro-, Draco-.
 
-The snake was revered by the Scythians for several reasons: apart from symbolism, the Sarmatians used armor that resembled snake skin, the Scythian priesthood called the Agaroi created poisons called "scythicon" from snake venom that they used on their arrows, and snake venom was used as painkillers and stimulants before war. Snake venom was also used to stop battlefield wounds from bleeding, as well as, they were used as anecdotes, as later emulated by figures such as Mithridates of Pontus who daily consumed a potion called "Mithridatium" which was claimed to make people invincible. Also, the foundation myth of the Scythians is that they were created from the Snake-Legged Goddess who was impregnated by Hercules (Targiatos).
+The snake was revered by the Scythians for several reasons: apart from symbolism, the Sarmatians used armor that resembled snake skin, the Scythian priesthood called the Agaroi created poisons called "scythicon" from snake venom that they used on their arrows, and snake venom was used as painkillers and stimulants before war. Snake venom was also used to stop battlefield wounds from bleeding, as well as, they were used as anecdotes, as later emulated by figures such as Mithridates of Pontus who daily consumed a potion called "Mithridatium" which was claimed to make people invincible. Also, the foundation myth of the Scythians is that they were created from the Snake-Legged Goddess who was impregnated by Hercules (Targiatos). The name "Scythian" itself decodes as "Scyth" = "Sak" = "Saka" which is related to the word for "serpent" in many Indo-European languages. The Scythians were known as the "Saka" to the Persians, and this term is linked to the Sanskrit "Sarp" (serpent). Thus, the Scythians were the "Serpent People".
 
 Timeline:
 
@@ -618,7 +645,7 @@ modern-day Turkey through India. His palace at Isauria refers to Isis
 identified herself with the Greco-Egyptian goddess Isis. So, her son
 would have been Isa, son of Isis. The son of Isis in mythology was
 Horus, and that is why Caesarion's iconography has a Horus falcon on
-it). He was likely Caesarion.
+it).
 
 Cleopatra aka Dynamis's son with Julius Caesar aka Asander = Tiberius
 Julius Aspurgus Philoromaios (Aspurgus translates to "horseman-lord" in
