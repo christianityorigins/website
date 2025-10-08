@@ -158,9 +158,9 @@ Ptolemy) I of Pontus aka Pharnaces II ("Pharao-Nikes", or "Victorious Pharaoh"),
 
 Children: Cleopatra VII Thea Philopator aka Dynamis, queen of Bosphorus.
 
-Julius Caesar = Asander, King of Bosporus. Aliases: Ptolemy XI Alexander II, Asander, King of Bosphorus (Philocaesar Philoromaios, Soter, Great
+Julius Caesar = Asander, King of Bosporus. Aliases: Ptolemy XI Alexander II, (titles: Philocaesar Philoromaios, Soter, Great
 King of Kings, "As" in his name refers to
-Asar(Osiris)/Aesar/Aeser/Aisar/Ais/Is), Brogitarix. Other suspected aliases: Mithridates II of the Bosporus, Akrosandros II, King of Scythia, Idumean Antipater, Parthian Artavasdes (Greek Alex = Persian
+Asar(Osiris)/Aesar/Aeser/Aisar/Ais/Is). Other suspected aliases: Mithridates II of the Bosporus, Akrosandros II, King of Scythia, Brogitarix, Idumean Antipater, Parthian Artavasdes (Greek Alex = Persian
     Arta) who was the brother of Tigranes II (Tigranes II/the Great was called Azhdahak proving Aži Dahāka was a royal Scythian title), and the Hasmonean
     Alexander II (son of king Aristobulus II son of Jannaeus Alexander
     also the nephew and son-in-law of king/high-priest Hyrcanus II.
