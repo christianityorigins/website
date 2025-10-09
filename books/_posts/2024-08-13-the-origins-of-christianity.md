@@ -167,10 +167,19 @@ I. Ptolemaic, Julio-Claudian & Bosphoran Dynasty
         - Tiberius Julius Mithridates III (Italian Avatar: Emperor Caligula)
         - Tiberius Julius Cotys I. Italian Avatar: Emperor Claudius = Rhoemetalces II of Bosporus (Reigns are nearly perfectly co-terminus. Polemon Pythodoros (Julius Caesar/Asander) and Pythodorida of Pontus (Cleopatra/Dynamis) had a daughter Antonia Tryphaena. Her son was Rhoemetalces II whose reign coincided with emperor Claudius)
 
-  - Spouse/Consort 2: Through Julius Caesar/Asandar's Brogitarx alias: Amyntas of Galatia (The "Jesus ben Fabus" Avatar).
+  - Spouse/Consort 2: Through Julius Caesar/Asandar's Brogitarx alias:  Amyntas ("Amon-Tas". "Hidden
+Lord", linking to Amun-Ra - with "Amen"(tas) at the root) Nikator aka
+Amyntas of Galatia aka Jesus ben Fabus aka Isa Amen (Jesus was named
+"Amen" in Rev. iii. 14). He ruled an empire that stretched from
+modern-day Turkey through India. His palace at Isauria refers to Isis
+(also known as Isa or Aset) who was the mother of Horus (Cleopatra
+identified herself with the Greco-Egyptian goddess Isis. So, her son
+would have been Isa, son of Isis. The son of Isis in mythology was
+Horus, and that is why Caesarion's iconography has a Horus falcon on
+it). Was this Caesarion's avatar and his pareents Julius Caesar/Asander and Cleopatra/Dynamis through regional avatars?
     
 - Child of Antony/Herod & Dynamis/Cleopatra:
-  - Alexander (son of King Herod). Aliases: Alexander Helios, Juba II of Mauretania
+  - Alexander (son of King Herod). Aliases: Alexander Helios, Juba II of Mauretania. Also, Apollonius of Tyana?
     - Spouse: Cleopatra Selene II (twin sister)
     - Children:
       - Alexander (grandson of King Herod). Aliases: (King/Tetrarch) Ptolemy (Alexander) bar Menneus, Ptolemy of Mauretania (aka Joseph Panthera, the name for jesus's father in the Talmud; Panthera is a corruption of Cantheras, or Cleopatros. Also, Panthera = Ptolemy in Hebrew), Tiberius Julius Alexander Major, Alexander the Alabarch
@@ -327,6 +336,8 @@ The cross was not made of wood. It was a T-shaped standard, the Tau (Τ), the an
 
 In Sarmatian, "Ruma" (Rome) = "Place of the Dragon" (Rhu-Ma, from Aži
 Dahāka, the Iranian dragon).
+
+Mainstream history presents the Ptolemies, Seleucids, Attalids, and Romans as separate, often warring entities. This is a Flavian-Vatican fabrication. In reality, they were four branches of a single Scythian-Sarmatian dynasty, a "Tetrarchy", administering different sectors of the empire from the Bosphoran center.
 
 Footnotes (Chapter 3)
 
@@ -873,9 +884,13 @@ Church Fathers, Jesuits, Joseph Justus Scaliger, and medieval forgers,
 either to retrofit history to align with the Bible, due to conflicts
 between the Vatican and the Eastern Byzantine Church, or for profit.
 
-![Fig.1.21](/images/RhoemetalcesOctavian.jpeg){:width="400px"}
+![Fig.1.21](/images/RhoemetalcesOctavian.jpg){:width="400px"}
 
-Fig. 1.21. L. "Rhoemetalces I, king of Bosphorus. R. Emperor Augustus (Octavian)
+Fig. 1.21. L. Rhoemetalces I, king of Bosphorus. R. Emperor Augustus (Octavian)
+
+![Fig.1.22](/images/MithridatesIIICaligula.jpg){:width="400px"}
+
+Fig. 1.22. L. MithridatescIII, king of Bosphorus. R. Emperor Caligula
 
 The area of modern-day Istanbul was once called 'Basileía tôn Rhômaíôn'
 ('Kingdom of the Romans') and the people of that region called
@@ -904,9 +919,9 @@ King, and Pas means "all" as in Pan. "Vespasian" = "King of All", or "King of Ev
 'Flavius Scaevinus' the conspirator involved in Nero's assassination.
 
 ![Fig.
-1.22](/images/Vespasian.jpg){:width="400px"}
+1.23](/images/Vespasian.jpg){:width="400px"}
 
-Fig. 1.22. Compare Vespasian's depiction to Herod Agrippa I
+Fig. 1.23. L. Vespasian. R. Herod Agrippa I
 
 'Antonia Caenis' was Vespassian's mistress who was his first cousin who
 was Cleopatra (Thea Philopator) of Mauretania aka Cleopatra IX aka
@@ -1001,9 +1016,9 @@ Capitolina after the Bar Kokhba revolt (the city was named after Hadrian's famil
 that Aquila of Sinope and his wife Prisca or Priscilla lived with Paul
 the Apostle and Paul called them "my fellow workers in Christ Jesus"
 
-![Fig.1.23](/images/Antinous.jpg){:width="400px"}
+![Fig.1.24](/images/Antinous.jpg){:width="400px"}
 
-Fig. 1.23. Steel relief that shows Antinous holding the grapes of Dionysus in one-hand and a cross in the other.
+Fig. 1.24. Steel relief that shows Antinous holding the grapes of Dionysus in one-hand and a cross in the other.
 
 **9.2 Subversion of the Imperial Cult by Rabbi Akiva and His Students**
 
