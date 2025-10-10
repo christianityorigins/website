@@ -904,7 +904,10 @@ Fig. 1.24. L. Cotys I, king of Bosphorus R. Emperor Claudius
 
 Fig. 1.25. L. Polemon II, king of Bosphorus R. Emperor Titus
 
-PolemonIITitus.jpg
+![Fig.1.26](/images/RhescuporisIVespasian.jpg){:width="400px"}
+
+Fig. 1.26. L. Rhescuporis I, king of Bosphorus. R. Emperor Vespasian
+
 The area of modern-day Istanbul was once called 'Basileía tôn Rhômaíôn'
 ('Kingdom of the Romans') and the people of that region called
 themselves Rhōmaîoi (Romans). Historians assume that region got it's
@@ -932,9 +935,9 @@ King, and Pas means "all" as in Pan. "Vespasian" = "King of All", or "King of Ev
 'Flavius Scaevinus' the conspirator involved in Nero's assassination.
 
 ![Fig.
-1.26](/images/Vespasian.jpg){:width="400px"}
+1.27](/images/Vespasian.jpg){:width="400px"}
 
-Fig. 1.26. L. Vespasian. R. Herod Agrippa I
+Fig. 1.27. L. Vespasian. R. Herod Agrippa I
 
 'Antonia Caenis' was Vespassian's mistress who was his first cousin who
 was Cleopatra (Thea Philopator) of Mauretania aka Cleopatra IX aka
@@ -1029,9 +1032,9 @@ Capitolina after the Bar Kokhba revolt (the city was named after Hadrian's famil
 that Aquila of Sinope and his wife Prisca or Priscilla lived with Paul
 the Apostle and Paul called them "my fellow workers in Christ Jesus"
 
-![Fig.1.27](/images/Antinous.jpg){:width="400px"}
+![Fig.1.28](/images/Antinous.jpg){:width="400px"}
 
-Fig. 1.27. Steel relief that shows Antinous holding the grapes of Dionysus in one-hand and a cross in the other.
+Fig. 1.28. Steel relief that shows Antinous holding the grapes of Dionysus in one-hand and a cross in the other.
 
 **9.2 Subversion of the Imperial Cult by Rabbi Akiva and His Students**
 
