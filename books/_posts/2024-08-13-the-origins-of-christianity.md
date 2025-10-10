@@ -619,7 +619,7 @@ were all born on the same day as well.
 
 ![Fig.1.15](/images/Atrebates.jpg){:width="400px"}
 
-Fig. 1.15. Coin depicting Atrebates, king of Briton who Julius Caesar was recorded to have defeated in battle.
+Fig. 1.15. Coin depicting Atrebates, king of Britton who Julius Caesar was recorded to have defeated in battle.
 
 ![Fig.1.16](/images/MithridatesVIEupator.png){:width="400px"}
 
