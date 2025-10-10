@@ -602,7 +602,7 @@ who had previously beat him in war.
 ![Fig.1.12](/images/PtolemyXAlexanderII.png){:width="400px"}
 
 Fig. 1.12. Coin depicting Ptolemy XI Alexander II aka Asander, king of
-Bosphorus aka Pharnaces II, etc.
+Bosphorus, etc.
 
 ![Fig.1.13](/images/PharnacesII.jpg){:width="400px"}
 
