@@ -35,18 +35,18 @@ Part 2: The Alexandrian Synthesis\
 4.1. The Blueprint Deities: Pre-existing Saviors (Horus, Dionysus, Mithras, etc.)\
 4.2. Judaism\
 Part 3: The Bosphoran Connection\
-5\. Julius Caesar aka Asander of Bosphorus\
-5.1\. Julius Caesar was a Title\
-6\. Rome on the Bosphorus?\
+5\. Rome Was Located On the Bosphorus River in Crimea\
+5.1\. Julius Caesar aka Asander of Bosphorus\
+5.2\. Julius Caesar was a Title\
 Part 4: From Imperial Cult to Christianity\
-7\. Flavian Dynasty\
+6\. Flavian Dynasty\
 Part 5: Rewriting History\
-8\. Who Forged History?\
+7\. Who Forged History?\
 Part 6. Sects of the Imperial Cult\
-9\. Sects of the Imperial Cult\
-9.1. The Cult of Antinous\
-9.2. Subversion of the Imperial Cult by Rabbi Akiva and His Students\
-9.3. Islam\
+8\. Sects of the Imperial Cult\
+8.1. The Cult of Antinous\
+8.2. Subversion of the Imperial Cult by Rabbi Akiva and His Students\
+8.3. Islam\
 Conclusion\
 Appendix A: Scythians in India\
 Appendix B: Scythians in China\
@@ -466,7 +466,31 @@ Footnotes (Chapter 4)
 
 (a) The director of the Mouseion and the chief architect of the synthetic religions was not a man. It was a succession of Ptolemaic princesses who held the title The Muse Ourania (The Heavenly Muse). The Mouseion was named after her office. Arsinoë II Philadelphus (c. 316 BC – 270 BC), daughter of Ptolmy Soter, was refered to as "the tenth Muse" and she had a cult dedicated to her as Arsinoë Aphrodite Ourania.
 
-**5 Julius Caesar aka Asander of Bosphorus**
+**5 Rome Was Located On the Bosphorus River in Crimea**
+
+Much of the history of the Western Roman Empire was conjured up by the
+Church Fathers, Jesuits, Joseph Justus Scaliger, and medieval forgers,
+either to retrofit history to align with the Bible, due to conflicts
+between the Vatican and the Eastern Byzantine Church, or for profit.
+
+The area of modern-day Istanbul was once called 'Basileía tôn Rhômaíôn'
+('Kingdom of the Romans') and the people of that region called
+themselves Rhōmaîoi (Romans). Historians assume that region got it's
+name after Roman colonization, but why? Every romance language based on
+Latin underwent a linguistic evolution except Romanian, which is the
+closest language to classical Latin. Could it be that the original
+Romans hailed from Romania and then moved south to Anatolia? A
+substantial part of Byzantine coinage from two millennia ago boasts
+inscriptions in Latin and not in Greek, including the Asander of
+Bosphorus coin above.
+
+This is why the Ottomans called themselves "Rum" (Rome). They knew exactly what they were the heirs to.
+
+Rome in Italy was real, but it was a province, a frontier military district (Limes) of the true Empire based on the Bosphorus. It was never the center of power it was made out to be. Its "fall" was the loss of central control from the East and the rise of local Gothic/Sarmatian warlords (Theodoric, etc.) who still tried to cloak themselves in the legitimacy of the Eastern Koryllis.
+
+Also, Carthage was not a Semitic power. The name "Carthage" comes from "Kar-Thaga" - "City of the Thagians" (a Scythian tribe). Hannibal's family name, Barca, means "Lightning" and is a title of the Dragon King. Rome vs. Carthage was not a clash of civilizations. It was a bloody civil war between two Scythian-descended factions for control of the Western Mediterranean. The winner, Rome, wrote the history and painted the losers as monstrous foreigners.
+
+**5.1 Julius Caesar aka Asander of Bosphorus**
 
 There was a Bosphoran [^5] imperial cult where Julius Caesar [^6] took
 on the role of Asander (also Asandros), King of Bosphorus [^7] ("Asa"
@@ -786,7 +810,7 @@ even has a story about a 'spurious Alexander' that showed up in Rome
 claiming to be the son of Herod who faked his death [^14], so he was
 'resurrected' as Juba II, king of Numidia and Mauretania. 
 
-**5.1 Julius Caesar was a Title**
+**5.1.1 Julius Caesar was a Title**
 
 Identifying Julius Caesar as Asander of Bosphorus necessitates a
 re-examination of his name.
@@ -827,6 +851,32 @@ Aryan Sarmatians, role played as jews, an irrelevant tribe, and israel
 was an irrelevant slice of land in the desert, this makes this claim
 more credible. jews just adopted this imperial cult and they got their
 entire identity and history from here.
+
+**5.2 Numismatic Proof**
+
+![Fig.1.21](/images/RhoemetalcesOctavian.jpg){:width="400px"}
+
+Fig. 1.21. L. Rhoemetalces I, king of Bosphorus. R. Emperor Augustus (Octavian)
+
+![Fig.1.22](/images/AspurgusTiberius.jpg){:width="400px"}
+
+Fig. 1.22. L. Tiberius Julius Aspurgus I, king of Bosphorus. R. Emperor Tiberius Caesar Augustus
+
+![Fig.1.23](/images/MithridatesIIICaligula.jpg){:width="400px"}
+
+Fig. 1.23. L. Mithridates III, king of Bosphorus. R. Emperor Caligula
+
+![Fig.1.24](/images/CotysIClaudius.jpg){:width="400px"}
+
+Fig. 1.24. L. Cotys I, king of Bosphorus R. Emperor Claudius
+
+![Fig.1.25](/images/RhescuporisIVespasian.jpg){:width="400px"}
+
+Fig. 1.25. L. Rhescuporis I, king of Bosphorus. R. Emperor Vespasian
+
+![Fig.1.26](/images/PolemonIITitus.jpg){:width="400px"}
+
+Fig. 1.26. L. Polemon II, king of Bosphorus R. Emperor Titus
 
 Endnotes (Chapter 5)
 
@@ -871,61 +921,7 @@ Augustus who was also Ptolemy XIII Theos Philopator, Cleopatra VII's brother?\
     design slave moralities to strip the will to power from the
     population to prevent rebellions.
 
-**6 Rome on the Bosphorus?**
-
-My research on the origins of Christianity takes me to the Bosphorus
-river in classical Anatolia (Julius Caesar = Asander, King of Bosphorus,
-and Cleopatra = Dynamis). This is incongruent with mainstream history.
-However, there are a few revisionist authors such as Anatoly Fomenko and
-Gunnar Heinsohn who make the claim that the Western Roman Empire is a
-duplicate of the Eastern Roman Empire not the other way around and that
-much of the history of the Western Roman Empire was conjured up by the
-Church Fathers, Jesuits, Joseph Justus Scaliger, and medieval forgers,
-either to retrofit history to align with the Bible, due to conflicts
-between the Vatican and the Eastern Byzantine Church, or for profit.
-
-![Fig.1.21](/images/RhoemetalcesOctavian.jpg){:width="400px"}
-
-Fig. 1.21. L. Rhoemetalces I, king of Bosphorus. R. Emperor Augustus (Octavian)
-
-![Fig.1.22](/images/AspurgusTiberius.jpg){:width="400px"}
-
-Fig. 1.22. L. Tiberius Julius Aspurgus I, king of Bosphorus. R. Emperor Tiberius Caesar Augustus
-
-![Fig.1.23](/images/MithridatesIIICaligula.jpg){:width="400px"}
-
-Fig. 1.23. L. Mithridates III, king of Bosphorus. R. Emperor Caligula
-
-![Fig.1.24](/images/CotysIClaudius.jpg){:width="400px"}
-
-Fig. 1.24. L. Cotys I, king of Bosphorus R. Emperor Claudius
-
-![Fig.1.25](/images/PolemonIITitus.jpg){:width="400px"}
-
-Fig. 1.25. L. Polemon II, king of Bosphorus R. Emperor Titus
-
-![Fig.1.26](/images/RhescuporisIVespasian.jpg){:width="400px"}
-
-Fig. 1.26. L. Rhescuporis I, king of Bosphorus. R. Emperor Vespasian
-
-The area of modern-day Istanbul was once called 'Basileía tôn Rhômaíôn'
-('Kingdom of the Romans') and the people of that region called
-themselves Rhōmaîoi (Romans). Historians assume that region got it's
-name after Roman colonization, but why? Every romance language based on
-Latin underwent a linguistic evolution except Romanian, which is the
-closest language to classical Latin. Could it be that the original
-Romans hailed from Romania and then moved south to Anatolia? A
-substantial part of Byzantine coinage from two millennia ago boasts
-inscriptions in Latin and not in Greek, including the Asander of
-Bosphorus coin above.
-
-This is why the Ottomans called themselves "Rum" (Rome). They knew exactly what they were the heirs to.
-
-Rome in Italy was real, but it was a province, a frontier military district (Limes) of the true Empire based on the Bosphorus. It was never the center of power it was made out to be. Its "fall" was the loss of central control from the East and the rise of local Gothic/Sarmatian warlords (Theodoric, etc.) who still tried to cloak themselves in the legitimacy of the Eastern Koryllis.
-
-Also, Carthage was not a Semitic power. The name "Carthage" comes from "Kar-Thaga" - "City of the Thagians" (a Scythian tribe). Hannibal's family name, Barca, means "Lightning" and is a title of the Dragon King. Rome vs. Carthage was not a clash of civilizations. It was a bloody civil war between two Scythian-descended factions for control of the Western Mediterranean. The winner, Rome, wrote the history and painted the losers as monstrous foreigners.
-
-**7 Flavian Dynasty**
+**6 Flavian Dynasty**
 
 Vespasian was also a great-grandson of Cleopatra and Mark Antony (King
 Herod). He was Herod Pollio aka Herod Agrippa I, grandson of King
@@ -970,7 +966,7 @@ Aristobulus IV was likely Vespasian and Vitellius's father, so like his
 cousin Alexander (grandson of King Herod), he was also married to his
 sister).
 
-Endnotes (Chapter 7)
+Endnotes (Chapter 6)
 
 (a) Theory: Alexander (grandson of King Herod) aka Gaius Julius
     Alexander, Herodian Prince of Judaea aka Alexander Lysimachus aka
@@ -996,7 +992,7 @@ Endnotes (Chapter 7)
 (c) Hebrew Wordplay: Vespasian -> V'Esav Pan (ועשו פן) -> "And Esau's
     Face" (Talmudic insult linking him to Edom).
 
-**8: Who Forged History?**
+**7: Who Forged History?**
 
 The primary architects were the Flavian dynasty (Vespasian, Titus, Domitian) and their court historians (Josephus, Pliny, Tacitus). They began the process of creating a "Roman" history to legitimize their new dynasty and obscure their Bosphoran/Herodian origins.
  
@@ -1016,9 +1012,9 @@ There was a Jesuit named Jean Hardouin who said that a 14th Century Jesuit consp
 
 Isaac Newton wrote a book called "The Chronology Of Ancient Kingdoms Amended" where he analysed the eclipses recorded in ancient times and showed that 753 years (the exact number of years between the founding of Rome, or specifically the birth of the Roman deity Romulus and the birth of Jesus), was added in to the first "millennium". This would line up with the gaps of time found across European and world history, oddities like the invention of paper taking 700 years to travel across the Silk Road, or the 1st century Mexican deity Quetzalcoatl being temporarily forgotten til the 8th century.
 
-**9 Sects of the Imperial Cult**
+**8 Sects of the Imperial Cult**
 
-**9.1 The Cult of Antinous**
+**8.1 The Cult of Antinous**
 
 Two years before the Bar Kokhba Revolt (132--136 CE) emperor Hadrian created a
 religion to deify his underage gay lover as the son of god
@@ -1036,7 +1032,7 @@ the Apostle and Paul called them "my fellow workers in Christ Jesus"
 
 Fig. 1.28. Steel relief that shows Antinous holding the grapes of Dionysus in one-hand and a cross in the other.
 
-**9.2 Subversion of the Imperial Cult by Rabbi Akiva and His Students**
+**8.2 Subversion of the Imperial Cult by Rabbi Akiva and His Students**
 
 Aquila of Sinope aka Onkelos was a student of a rabbi named Akiva who led the Talmudic Pharisees
 and is responsible for large parts of the Talmud, Sefer Yetzirah (book
@@ -1122,7 +1118,7 @@ as a leader from the land of Magog in the north, who will gather a
 coalition of nations to attack Israel, but will be defeated by God in a
 great battle.
 
-**9.3 Islam**
+**8.3 Islam**
 
 At the same time these rabbis created Christianity they created Islam.
 
@@ -1149,7 +1145,7 @@ propaganda) that was backdated to make christianity look legitimate in
 the same way that the 'Letter of Aristeas' was backdated to exaggerate
 the age of the Septuagint. 
 
-Endnotes (Chapter 9)
+Endnotes (Chapter 8)
 
 (a) Marcion of Sinope aka Markianos of Alexandria grew up in the
     Attis-Sabazios cult on Anatolia before traveling to Judea to study
