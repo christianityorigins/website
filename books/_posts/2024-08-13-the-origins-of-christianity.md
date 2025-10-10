@@ -879,10 +879,16 @@ Fig. 1.25. L. Rhescuporis I, king of Bosphorus. R. Emperor Vespasian
 
 Fig. 1.26. L. Polemon II, king of Bosphorus R. Emperor Titus
 
-The split between Rome in the East and Rome in the West happened sometime after Vespasian. Coins completley change. Roman emperor faces no longer appear on Bosphoran coins.  
+The split between Rome in the East and Rome in the West happened sometime after Vespasian. Roman emperor faces no longer appear on Bosphoran coins after the Flavians.  
 
 Jesus ben Gamala/Gamaliel who led the First Jewish–Roman War (66-70 AD) against Rome was also Jesus ben Sapphias and was likely Izas Ma'nu (Jesus Emmanuel) Monobazus of Adiabene aka Yeshua Cleopatros (Cantheras/Panthera) ben Josephus bar Menneus aka Ptolemy aka Yakov Zu Tolomoy. (See: Jesus, King of Edessa (2012) by Ralph  Ellis
-    [[link](https://x.com/ralfellis/status/1809520320077803525)]). King Izates of Monobazus was a descendant of the dragon bloodline and was married to the sister of Dynamis's mother. Tiberius Julius Sauromates II could have also been Simon bar Kokhba who led the Bar Kokhba revolt (132-136 AD against Rome). Either of these two, as heirs to the Scythian Dragon throne, led a revolt against western Rome. The Flavians or Hadrian then erased the Bosphoran connection after putting down these revolts.
+    [[link](https://web.archive.org/web/20240728150536/https://x.com/ralfellis/status/1809520320077803525)]). King Izates of Monobazus was a descendant of the dragon bloodline and was married to the sister of Dynamis's mother. Tiberius Julius Sauromates II could have also been Simon bar Kokhba who led the Bar Kokhba revolt (132-136 AD against Rome). Either of these two, as heirs to the Scythian Dragon throne, led a revolt against western Rome. The Flavians or Hadrian then erased the Bosphoran connection after putting down these revolts.
+
+Roman emperors also stopped looking "Aryan"/Nordic after the Flavian empire
+
+![Fig.1.27](/images/emperors.jpg){:width="400px"}
+
+Fig. 1.27. Notice how the emperor phenotype changes after the Flavians?
 
 Endnotes (Chapter 5)
 
@@ -937,9 +943,9 @@ King, and Pas means "all" as in Pan. "Vespasian" = "King of All", or "King of Ev
 'Flavius Scaevinus' the conspirator involved in Nero's assassination.
 
 ![Fig.
-1.27](/images/Vespasian.jpg){:width="400px"}
+1.28](/images/Vespasian.jpg){:width="400px"}
 
-Fig. 1.27. L. Vespasian. R. Herod Agrippa I
+Fig. 1.28. L. Vespasian. R. Herod Agrippa I
 
 'Antonia Caenis' was Vespassian's mistress who was his first cousin who
 was Cleopatra (Thea Philopator) of Mauretania aka Cleopatra IX aka
@@ -1034,9 +1040,9 @@ Capitolina after the Bar Kokhba revolt (the city was named after Hadrian's famil
 that Aquila of Sinope and his wife Prisca or Priscilla lived with Paul
 the Apostle and Paul called them "my fellow workers in Christ Jesus"
 
-![Fig.1.28](/images/Antinous.jpg){:width="400px"}
+![Fig.1.29](/images/Antinous.jpg){:width="400px"}
 
-Fig. 1.28. Steel relief that shows Antinous holding the grapes of Dionysus in one-hand and a cross in the other.
+Fig. 1.29. Steel relief that shows Antinous holding the grapes of Dionysus in one-hand and a cross in the other.
 
 **8.2 Subversion of the Imperial Cult by Rabbi Akiva and His Students**
 
