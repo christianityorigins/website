@@ -625,7 +625,7 @@ Asander coin?
 ![Fig.1.16](/images/AriarathesIX.jpg){:width="400px"}
 
 Fig. 1.16. Coin depicting Ariarathes IX Eusebes Philopator, King of
-Cappadocia. Notice the resemblance to Mithridates VI Eupator of Pontus aka Ptolemy XII Auletes of Egypt and Pharnaces II?
+Cappadocia. Notice the resemblance to Mithridates VI Eupator of Pontus?
 
 Julius Caesar aka Asander of Bosphorus aka Pharnaces II was also Brogitarix, king
 of Galatia (Full name: Brogitaris (Brigatos) van (de) Celtes
