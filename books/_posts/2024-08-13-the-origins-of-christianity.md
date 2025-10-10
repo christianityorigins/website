@@ -153,7 +153,7 @@ to the same woman, Berenice, granddaughter of King Herod.
 I. Ptolemaic, Julio-Claudian & Bosphoran Dynasty
 
 - Mithridates VI Eupator of Pontus = Ptolemy XII Auletes of Egypt
-  Aliases: Mark Antony (Marcus Antonius = Mar (Phoenician "lord") + Anton (from Antaeus, giant son of Gaia)), King Herod (Heru (Horus) + Ud (divine) = Herud -> Herod. "The Divine Horus". The "Slaughter of the Innocents" is a mythological trope attached to the birth of every Horus-figure who must overcome a threat (against Set). It is not history; it is theological propaganda asserting Herod's/Mark Antony's legitimacy as the living god-king against the resurrected one. This is also attached to the Indian god Krishna (against Kamsa)), Polemon (Polemos -> Ptolemy) I of Pontus aka Pharnaces II ("Pharao-Nikes", or "Victorious Pharaoh"), Tiberius Claudius Nero, Phraates IV of Parthia (Per-aa or Per-Nesu is a corruption of Pharaoh). Was he also Ptolemy X Alexander I aka Simon Boethus aka Simon Magus?
+  Aliases: Mark Antony (Marcus Antonius = Mar (Phoenician "lord") + Anton (from Antaeus, giant son of Gaia)), King Herod (Heru (Horus) + Ud (divine) = Herud -> Herod. "The Divine Horus". The "Slaughter of the Innocents" is a mythological trope attached to the birth of every Horus-figure who must overcome a threat (against Set). It is not history; it is theological propaganda asserting Herod's/Mark Antony's legitimacy as the living god-king against the resurrected one. This is also attached to the Indian god Krishna (against Kamsa)), Polemon (Polemos -> Ptolemy) I of Pontus aka Pharnaces II ("Pharao-Nikes", or "Victorious Pharaoh"), Tiberius Claudius Nero, Phraates IV of Parthia (Per-aa or Per-Nesu is a corruption of Pharaoh). Ariarathes IX (Arya-Ratha". Sanskrit:"Noble Charioteer") Eusebes Philopator, King of Cappadocia. Was he also Ptolemy X Alexander I aka Simon Boethus aka Simon Magus?
   - Spouse: Wife/sister: Laodice (in Pontus) = Cleopatra V Tryphaena (in Egypt)
   - Children:
     - Cleopatra VII Thea Philopator aka Dynamis, queen of Bosphorus
@@ -610,27 +610,24 @@ Fig. 1.13. Coin depicting Pharnaces II. Pharnaces II "dies" in 47 BCE
 just as Asander appears in 47 BCE as King of Bosphorus. Pharnaces II
 called himself "King of Kings" on coinsas Asander did.
 
-![Fig.1.14](/images/AriarathesIX.jpg){:width="400px"}
+![Fig.1.14](/images/Atrebates.jpg){:width="400px"}
 
-Fig. 1.14. Coin depicting Ariarathes IX Eusebes Philopator, King of
-Cappadocia. Notice the resemblance to Asander and Pharnaces II? They
-were all born on the same day as well.
+Fig. 1.14. Coin depicting Atrebates, king of Britton who Julius Caesar was recorded to have defeated in battle.
 
+![Fig.1.15](/images/MithridatesVIEupator.png){:width="400px"}
 
-![Fig.1.15](/images/Atrebates.jpg){:width="400px"}
-
-Fig. 1.15. Coin depicting Atrebates, king of Britton who Julius Caesar was recorded to have defeated in battle.
-
-![Fig.1.16](/images/MithridatesVIEupator.png){:width="400px"}
-
-Fig. 1.16. Coin depicting Mithridates VI Eupator, father of Pharnaces II
+Fig. 1.15. Coin depicting Mithridates VI Eupator, father of Pharnaces II
 and Dynamis. Brother of Mithridates Chrestus. Notice the star and
 crescent that is visible in the Julius Caesar coin above and the winged
 Pegasus within a Dionysiac wreath of ivy and fruit that is seen in the
 Asander coin?
 
-Julius Caesar aka Asander of Bosphorus aka Pharnaces II aka Ariarathes
-IX (Arya-Ratha". Sanskrit:"Noble Charioteer") was also Brogitarix, king
+![Fig.1.16](/images/AriarathesIX.jpg){:width="400px"}
+
+Fig. 1.16. Coin depicting Ariarathes IX Eusebes Philopator, King of
+Cappadocia. Notice the resemblance to Mithridates VI Eupator of Pontus aka Ptolemy XII Auletes of Egypt and Pharnaces II?
+
+Julius Caesar aka Asander of Bosphorus aka Pharnaces II was also Brogitarix, king
 of Galatia (Full name: Brogitaris (Brigatos) van (de) Celtes
 Trocmii:"Bogo-" is related to the Proto-Celtic word "bog-", which means
 "god" or "divine". "-diatarus" could be connected to the Latin word
@@ -792,7 +789,7 @@ Parthia's regional alias then the picture becomes clearer.
 ![Fig.1.21](/images/PtolemyXII.jpeg){:width="400px"}
 
 Fig. 1.21. Ptolemy XII Auletes, king of Egypt, who was also Mithridates
-VI Eupator, Ariarathes VII of Cappadocia, Simon Boethus/Magus/Ptolemy
+VI Eupator, Ariarathes IX of Cappadocia, Simon Boethus/Magus/Ptolemy
 (Alexander) bar Menneus, et.al. Mithridates VI married his sister
 Laodice---just as Ptolemy XII married his sister Cleopatra V. Both had
 daughters named Cleopatra who ruled (Cleopatra VII and Dynamis).
@@ -884,12 +881,11 @@ Fig. 1.26. L. Rhescuporis I, king of Bosphorus. R. Emperor Vespasian
 
 Fig. 1.27. L. Polemon II, king of Bosphorus R. Emperor Titus
 
-The split between Rome in the East and Rome in the West happened sometime after Vespasian. Roman emperor faces no longer appear on Bosphoran coins after the Flavians.  
+The split between Rome in the East and Rome in the West happened sometime during the Flavian period. Roman emperor faces no longer appear on Bosphoran coins after emperor Titus.  
 
-Jesus ben Gamala/Gamaliel who led the First Jewish–Roman War (66-70 AD) against Rome was also Jesus ben Sapphias and was likely Izas Ma'nu (Jesus Emmanuel) Monobazus of Adiabene aka Yeshua Cleopatros (Cantheras/Panthera) ben Josephus bar Menneus aka Ptolemy aka Yakov Zu Tolomoy. (See: Jesus, King of Edessa (2012) by Ralph  Ellis
-    [[link](https://web.archive.org/web/20240728150536/https://x.com/ralfellis/status/1809520320077803525)]). King Izates of Monobazus was a descendant of the dragon bloodline and was married to the sister of Dynamis's mother. Tiberius Julius Sauromates II could have also been Simon bar Kokhba who led the Bar Kokhba revolt (132-136 AD against Rome). Either of these two, as heirs to the Scythian Dragon throne, led a revolt against western Rome. The Flavians or Hadrian then erased the Bosphoran connection after putting down these revolts.
+According to the book 'Jesus, King of Edessa' (2012) by Ralph  Ellis [[link](https://web.archive.org/web/20240728150536/https://x.com/ralfellis/status/1809520320077803525)] Jesus ben Gamala/Gamaliel who led the First Jewish–Roman War (66-70 AD) against Rome was also Jesus ben Sapphias and Izas Ma'nu (Jesus Emmanuel) Monobazus of Adiabene aka Yeshua Cleopatros (Cantheras/Panthera) ben Josephus bar Menneus aka Ptolemy aka Yakov Zu Tolomoy. King Izates of Monobazus was a descendant of the dragon bloodline and was married to the sister of Dynamis's mother. Tiberius Julius Sauromates II could have also been Simon bar Kokhba who led the Bar Kokhba revolt (132-136 AD against Rome). Either of these two, as heirs to the Scythian Dragon throne, led a revolt against western Rome. The Flavians or Hadrian then erased the Bosphoran connection after putting down these revolts.
 
-Roman emperors also stopped looking "Aryan"/Nordic after the Flavian empire
+Roman emperors also stopped looking "Aryan"/Nordic after the Flavian empire.
 
 Endnotes (Chapter 5)
 
