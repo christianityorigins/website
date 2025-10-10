@@ -37,7 +37,8 @@ Part 2: The Alexandrian Synthesis\
 Part 3: The Bosphoran Connection\
 5\. Rome Was Located On the Bosphorus River in Crimea\
 5.1\. Julius Caesar aka Asander of Bosphorus\
-5.2\. Julius Caesar was a Title\
+5.1.1\. Julius Caesar was a Title\
+5.2\. Numismatic Proof\
 Part 4: From Imperial Cult to Christianity\
 6\. Flavian Dynasty\
 Part 5: Rewriting History\
@@ -877,6 +878,11 @@ Fig. 1.25. L. Rhescuporis I, king of Bosphorus. R. Emperor Vespasian
 ![Fig.1.26](/images/PolemonIITitus.jpg){:width="400px"}
 
 Fig. 1.26. L. Polemon II, king of Bosphorus R. Emperor Titus
+
+The split between Rome in the East and Rome in the West happened sometime after Vespasian. Coins completley change. Roman emperor faces no longer appear on Bosphoran coins.  
+
+Jesus ben Gamala/Gamaliel who led the First Jewish–Roman War (66-70 AD) against Rome was also Jesus ben Sapphias and was likely Izas Ma'nu (Jesus Emmanuel) Monobazus of Adiabene aka Yeshua Cleopatros (Cantheras/Panthera) ben Josephus bar Menneus aka Ptolemy aka Yakov Zu Tolomoy. (See: Jesus, King of Edessa (2012) by Ralph  Ellis
+    [[link](https://x.com/ralfellis/status/1809520320077803525)]). King Izates of Monobazus was a descendant of the dragon bloodline and was married to the sister of Dynamis's mother. Tiberius Julius Sauromates II could have also been Simon bar Kokhba who led the Bar Kokhba revolt (132-136 AD against Rome). Either of these two, as heirs to the Scythian Dragon throne, led a revolt against western Rome. The Flavians or Hadrian then erased the Bosphoran connection after putting down these revolts.
 
 Endnotes (Chapter 5)
 
