@@ -599,7 +599,7 @@ of Bosphorus. After Mithridates Chrestus's loss to Asander he was
 imprisoned and executed by his elder brother, Mithridates VI Eupator,
 who had previously beat him in war.
 
-![Fig.1.12](/images/PtolemyXAlexanderII.jpg){:width="400px"}
+![Fig.1.12](/images/PtolemyXAlexanderII.png){:width="400px"}
 
 Fig. 1.12. Coin depicting Ptolemy XI Alexander II aka Asander, king of
 Bosphorus aka Pharnaces II, etc.
