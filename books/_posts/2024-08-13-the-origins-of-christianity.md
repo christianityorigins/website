@@ -616,9 +616,14 @@ Fig. 1.14. Coin depicting Ariarathes IX Eusebes Philopator, King of
 Cappadocia. Notice the resemblance to Asander and Pharnaces II? They
 were all born on the same day as well.
 
-![Fig.1.15](/images/MithridatesVIEupator.png){:width="400px"}
 
-Fig. 1.15. Coin depicting Mithridates VI Eupator, father of Pharnaces II
+![Fig.1.15](/images/Atrebates.jpg){:width="400px"}
+
+Fig. 1.15. Coin depicting Atrebates, king of Briton who Julius Caesar was recorded to have defeated in battle.
+
+![Fig.1.16](/images/MithridatesVIEupator.png){:width="400px"}
+
+Fig. 1.16. Coin depicting Mithridates VI Eupator, father of Pharnaces II
 and Dynamis. Brother of Mithridates Chrestus. Notice the star and
 crescent that is visible in the Julius Caesar coin above and the winged
 Pegasus within a Dionysiac wreath of ivy and fruit that is seen in the
@@ -698,9 +703,9 @@ Theophilos in Greek. Around 26% of the New Testament was written to
 Theophilus in Luke and Acts of the Apostles).
 
 ![Fig.
-1.16](/images/AlexanderPhilo.jpg){:width="400px"}
+1.17](/images/AlexanderPhilo.jpg){:width="400px"}
 
-Fig. 1.16. (L) Alexander (grandson of King Herod) aka Gaius Julius
+Fig. 1.17. (L) Alexander (grandson of King Herod) aka Gaius Julius
 Alexander, Herodian Prince of Judaea aka Alexander the Alabarch aka
 (King/Tetrarch) Ptolemy (Alexander) bar Menneus aka Ptolemy of
 Mauretania aka "Jesus" in the bible. (R) Cleopatra (Thea Philopator) of
@@ -718,9 +723,9 @@ Adiabene/Edessa aka Ptolemy aka Yakov Zu Tolomoy aka Izates aka Jesus
 Emmanuel aka Monobazus of Adiabene [^12]
 
 ![Fig.
-1.17](/images/Josephus.jpg){:width="400px"}
+1.18](/images/Josephus.jpg){:width="400px"}
 
-Fig. 1.17. 'Josephus' bust which I identify as Tiberius Julius
+Fig. 1.18. 'Josephus' bust which I identify as Tiberius Julius
 Alexander. Compare it to Nerva's depictions. So, 'Josephus' was Philo of
 Alexandria's son. Tiberius Julius Alexander's son was named
 'Philopappos' and one of his mother's aliases was 'Alexandria bat
@@ -728,9 +733,9 @@ Matthias' which is where the pseudonym 'Joseph bar Matthias' comes from.
 Also, drop the initial b and final s in the name "Bar Mathias" and you
 get (Joseph of) Arimathea.
 
-![Fig. 1.18](/images/coin-abgar-phraates.png){:width="400px"}
+![Fig. 1.19](/images/coin-abgar-phraates.png){:width="400px"}
 
-Fig. 1.18. (L) and (R) show King Izates Monobazus of Edessa (known in
+Fig. 1.19. (L) and (R) show King Izates Monobazus of Edessa (known in
 Greek as the "Kingdom of Ourania" or in English as the "Kingdom of
 Heaven") wearing a crown of thorns. Izates or Izas is his title which is
 an ancient Greek translation of the Avestan word Yazatas (Persian:
@@ -739,9 +744,9 @@ and Sultan Ezid in the Yazadi ('Iza'di) religion. He was the uncle of
 Tiberius Julius Sauromates II, King of Bosphorus. The middle image
 source: The Alexander Mosaic, Huqoq, Israel.
 
-![Fig.1.19](/images/SauromatesII2.jpg){:width="400px"}
+![Fig.1.20](/images/SauromatesII2.jpg){:width="400px"}
 
-Fig. 1.19. Tiberius Julius Sauromates II, King of Bosphorus, who was the
+Fig. 1.20. Tiberius Julius Sauromates II, King of Bosphorus, who was the
 son of Tiberius Julius Cotys (aka Tiberius Julius Alexander aka Arrius
 Calpernius Piso aka Arrius Varus aka Emperor Nerva), great-grandson of
 Dynamis aka Cleopatra and Mark Antony.
@@ -784,9 +789,9 @@ Boethus was another of Cleopatra's regional aliases?  If you identify
 King Herod as Mark Antony aka Tiberius Claudius Nero aka Phraates IV of
 Parthia's regional alias then the picture becomes clearer.
 
-![Fig.1.20](/images/PtolemyXII.jpeg){:width="400px"}
+![Fig.1.21](/images/PtolemyXII.jpeg){:width="400px"}
 
-Fig. 1.20. Ptolemy XII Auletes, king of Egypt, who was also Mithridates
+Fig. 1.21. Ptolemy XII Auletes, king of Egypt, who was also Mithridates
 VI Eupator, Ariarathes VII of Cappadocia, Simon Boethus/Magus/Ptolemy
 (Alexander) bar Menneus, et.al. Mithridates VI married his sister
 Laodice---just as Ptolemy XII married his sister Cleopatra V. Both had
@@ -855,29 +860,29 @@ entire identity and history from here.
 
 **5.2 Numismatic Proof**
 
-![Fig.1.21](/images/RhoemetalcesOctavian.jpg){:width="400px"}
+![Fig.1.22](/images/RhoemetalcesOctavian.jpg){:width="400px"}
 
-Fig. 1.21. L. Rhoemetalces I, king of Bosphorus. R. Emperor Augustus (Octavian)
+Fig. 1.22. L. Rhoemetalces I, king of Bosphorus. R. Emperor Augustus (Octavian)
 
-![Fig.1.22](/images/AspurgusTiberius.jpg){:width="400px"}
+![Fig.1.23](/images/AspurgusTiberius.jpg){:width="400px"}
 
-Fig. 1.22. L. Tiberius Julius Aspurgus I, king of Bosphorus. R. Emperor Tiberius Caesar Augustus
+Fig. 1.23. L. Tiberius Julius Aspurgus I, king of Bosphorus. R. Emperor Tiberius Caesar Augustus
 
-![Fig.1.23](/images/MithridatesIIICaligula.jpg){:width="400px"}
+![Fig.1.24](/images/MithridatesIIICaligula.jpg){:width="400px"}
 
-Fig. 1.23. L. Mithridates III, king of Bosphorus. R. Emperor Caligula
+Fig. 1.24. L. Mithridates III, king of Bosphorus. R. Emperor Caligula
 
-![Fig.1.24](/images/CotysIClaudius.jpg){:width="400px"}
+![Fig.1.25](/images/CotysIClaudius.jpg){:width="400px"}
 
-Fig. 1.24. L. Cotys I, king of Bosphorus R. Emperor Claudius
+Fig. 1.25. L. Cotys I, king of Bosphorus R. Emperor Claudius
 
-![Fig.1.25](/images/RhescuporisIVespasian.jpg){:width="400px"}
+![Fig.1.26](/images/RhescuporisIVespasian.jpg){:width="400px"}
 
-Fig. 1.25. L. Rhescuporis I, king of Bosphorus. R. Emperor Vespasian
+Fig. 1.26. L. Rhescuporis I, king of Bosphorus. R. Emperor Vespasian
 
-![Fig.1.26](/images/PolemonIITitus.jpg){:width="400px"}
+![Fig.1.27](/images/PolemonIITitus.jpg){:width="400px"}
 
-Fig. 1.26. L. Polemon II, king of Bosphorus R. Emperor Titus
+Fig. 1.27. L. Polemon II, king of Bosphorus R. Emperor Titus
 
 The split between Rome in the East and Rome in the West happened sometime after Vespasian. Roman emperor faces no longer appear on Bosphoran coins after the Flavians.  
 
@@ -885,10 +890,6 @@ Jesus ben Gamala/Gamaliel who led the First Jewish–Roman War (66-70 AD) agains
     [[link](https://web.archive.org/web/20240728150536/https://x.com/ralfellis/status/1809520320077803525)]). King Izates of Monobazus was a descendant of the dragon bloodline and was married to the sister of Dynamis's mother. Tiberius Julius Sauromates II could have also been Simon bar Kokhba who led the Bar Kokhba revolt (132-136 AD against Rome). Either of these two, as heirs to the Scythian Dragon throne, led a revolt against western Rome. The Flavians or Hadrian then erased the Bosphoran connection after putting down these revolts.
 
 Roman emperors also stopped looking "Aryan"/Nordic after the Flavian empire
-
-![Fig.1.27](/images/Emperors.jpg){:width="400px"}
-
-Fig. 1.27. Notice how the emperor phenotype changes after the Flavians?
 
 Endnotes (Chapter 5)
 
