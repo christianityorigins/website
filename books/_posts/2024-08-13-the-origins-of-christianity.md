@@ -886,7 +886,7 @@ Jesus ben Gamala/Gamaliel who led the First Jewish–Roman War (66-70 AD) agains
 
 Roman emperors also stopped looking "Aryan"/Nordic after the Flavian empire
 
-![Fig.1.27](/images/emperors.jpg){:width="400px"}
+![Fig.1.27](/images/Emperors.jpg){:width="400px"}
 
 Fig. 1.27. Notice how the emperor phenotype changes after the Flavians?
 
