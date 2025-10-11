@@ -612,19 +612,23 @@ called himself "King of Kings" on coinsas Asander did.
 
 ![Fig.1.14](/images/Atrebates.jpg){:width="400px"}
 
-Fig. 1.14. Coin depicting Atrebates, king of Britton who Julius Caesar was recorded to have defeated in battle.
+Fig. 1.14. Coin depicting Atrebates, king of Britannia who Julius Caesar was recorded to have defeated in battle.
 
-![Fig.1.15](/images/MithridatesVIEupator.png){:width="400px"}
+![Fig.1.15](/images/KujulaKadphises.jpg){:width="400px"}
 
-Fig. 1.15. Coin depicting Mithridates VI Eupator, father of Pharnaces II
+Fig. 1.15. Coin depicting Kujula Kadphises, prince of Bactria (modern day Afghanistan). He was the leader of the Yuezhi tribe. This regional avatar of Asander/Julius Caesar also connects to the legendary Chinese emperor Yu the Great (original name "Aži" or "Yazhi" (亞茲))? Julius, from Ioulius, related to Iove (Jove). Iove is linguistically linked to the Scythian tribal name Yuehzi (Yuezhi). He is "The Jove/Yuezhi King".
+
+![Fig.1.16](/images/MithridatesVIEupator.png){:width="400px"}
+
+Fig. 1.16. Coin depicting Mithridates VI Eupator, father of Pharnaces II
 and Dynamis. Brother of Mithridates Chrestus. Notice the star and
 crescent that is visible in the Julius Caesar coin above and the winged
 Pegasus within a Dionysiac wreath of ivy and fruit that is seen in the
 Asander coin?
 
-![Fig.1.16](/images/AriarathesIX.jpg){:width="400px"}
+![Fig.1.17](/images/AriarathesIX.jpg){:width="400px"}
 
-Fig. 1.16. Coin depicting Ariarathes IX Eusebes Philopator, King of
+Fig. 1.17. Coin depicting Ariarathes IX Eusebes Philopator, King of
 Cappadocia. Notice the resemblance to Mithridates VI Eupator of Pontus?
 
 Julius Caesar aka Asander of Bosphorus aka Pharnaces II was also Brogitarix, king
@@ -700,9 +704,9 @@ Theophilos in Greek. Around 26% of the New Testament was written to
 Theophilus in Luke and Acts of the Apostles).
 
 ![Fig.
-1.17](/images/AlexanderPhilo.jpg){:width="400px"}
+1.18](/images/AlexanderPhilo.jpg){:width="400px"}
 
-Fig. 1.17. (L) Alexander (grandson of King Herod) aka Gaius Julius
+Fig. 1.18. (L) Alexander (grandson of King Herod) aka Gaius Julius
 Alexander, Herodian Prince of Judaea aka Alexander the Alabarch aka
 (King/Tetrarch) Ptolemy (Alexander) bar Menneus aka Ptolemy of
 Mauretania aka "Jesus" in the bible. (R) Cleopatra (Thea Philopator) of
@@ -720,9 +724,9 @@ Adiabene/Edessa aka Ptolemy aka Yakov Zu Tolomoy aka Izates aka Jesus
 Emmanuel aka Monobazus of Adiabene [^12]
 
 ![Fig.
-1.18](/images/Josephus.jpg){:width="400px"}
+1.19](/images/Josephus.jpg){:width="400px"}
 
-Fig. 1.18. 'Josephus' bust which I identify as Tiberius Julius
+Fig. 1.19. 'Josephus' bust which I identify as Tiberius Julius
 Alexander. Compare it to Nerva's depictions. So, 'Josephus' was Philo of
 Alexandria's son. Tiberius Julius Alexander's son was named
 'Philopappos' and one of his mother's aliases was 'Alexandria bat
@@ -730,9 +734,9 @@ Matthias' which is where the pseudonym 'Joseph bar Matthias' comes from.
 Also, drop the initial b and final s in the name "Bar Mathias" and you
 get (Joseph of) Arimathea.
 
-![Fig. 1.19](/images/coin-abgar-phraates.png){:width="400px"}
+![Fig. 1.20](/images/coin-abgar-phraates.png){:width="400px"}
 
-Fig. 1.19. (L) and (R) show King Izates Monobazus of Edessa (known in
+Fig. 1.20. (L) and (R) show King Izates Monobazus of Edessa (known in
 Greek as the "Kingdom of Ourania" or in English as the "Kingdom of
 Heaven") wearing a crown of thorns. Izates or Izas is his title which is
 an ancient Greek translation of the Avestan word Yazatas (Persian:
@@ -741,9 +745,9 @@ and Sultan Ezid in the Yazadi ('Iza'di) religion. He was the uncle of
 Tiberius Julius Sauromates II, King of Bosphorus. The middle image
 source: The Alexander Mosaic, Huqoq, Israel.
 
-![Fig.1.20](/images/SauromatesII2.jpg){:width="400px"}
+![Fig.1.21](/images/SauromatesII2.jpg){:width="400px"}
 
-Fig. 1.20. Tiberius Julius Sauromates II, King of Bosphorus, who was the
+Fig. 1.21. Tiberius Julius Sauromates II, King of Bosphorus, who was the
 son of Tiberius Julius Cotys (aka Tiberius Julius Alexander aka Arrius
 Calpernius Piso aka Arrius Varus aka Emperor Nerva), great-grandson of
 Dynamis aka Cleopatra and Mark Antony.
@@ -786,9 +790,9 @@ Boethus was another of Cleopatra's regional aliases?  If you identify
 King Herod as Mark Antony aka Tiberius Claudius Nero aka Phraates IV of
 Parthia's regional alias then the picture becomes clearer.
 
-![Fig.1.21](/images/PtolemyXII.jpeg){:width="400px"}
+![Fig.1.22](/images/PtolemyXII.jpeg){:width="400px"}
 
-Fig. 1.21. Ptolemy XII Auletes, king of Egypt, who was also Mithridates
+Fig. 1.22. Ptolemy XII Auletes, king of Egypt, who was also Mithridates
 VI Eupator, Ariarathes IX of Cappadocia, Simon Boethus/Magus/Ptolemy
 (Alexander) bar Menneus, et.al. Mithridates VI married his sister
 Laodice---just as Ptolemy XII married his sister Cleopatra V. Both had
@@ -857,29 +861,29 @@ entire identity and history from here.
 
 **5.2 Numismatic Proof**
 
-![Fig.1.22](/images/RhoemetalcesOctavian.jpg){:width="400px"}
+![Fig.1.23](/images/RhoemetalcesOctavian.jpg){:width="400px"}
 
-Fig. 1.22. L. Rhoemetalces I, king of Bosphorus. R. Emperor Augustus (Octavian)
+Fig. 1.23. L. Rhoemetalces I, king of Bosphorus. R. Emperor Augustus (Octavian)
 
-![Fig.1.23](/images/AspurgusTiberius.jpg){:width="400px"}
+![Fig.1.24](/images/AspurgusTiberius.jpg){:width="400px"}
 
-Fig. 1.23. L. Tiberius Julius Aspurgus I, king of Bosphorus. R. Emperor Tiberius Caesar Augustus
+Fig. 1.24. L. Tiberius Julius Aspurgus I, king of Bosphorus. R. Emperor Tiberius Caesar Augustus
 
-![Fig.1.24](/images/MithridatesIIICaligula.jpg){:width="400px"}
+![Fig.1.25](/images/MithridatesIIICaligula.jpg){:width="400px"}
 
-Fig. 1.24. L. Mithridates III, king of Bosphorus. R. Emperor Caligula
+Fig. 1.25. L. Mithridates III, king of Bosphorus. R. Emperor Caligula
 
-![Fig.1.25](/images/CotysIClaudius.jpg){:width="400px"}
+![Fig.1.26](/images/CotysIClaudius.jpg){:width="400px"}
 
-Fig. 1.25. L. Cotys I, king of Bosphorus R. Emperor Claudius
+Fig. 1.26. L. Cotys I, king of Bosphorus R. Emperor Claudius
 
-![Fig.1.26](/images/RhescuporisIVespasian.jpg){:width="400px"}
+![Fig.1.27](/images/RhescuporisIVespasian.jpg){:width="400px"}
 
-Fig. 1.26. L. Rhescuporis I, king of Bosphorus. R. Emperor Vespasian
+Fig. 1.27. L. Rhescuporis I, king of Bosphorus. R. Emperor Vespasian
 
-![Fig.1.27](/images/PolemonIITitus.jpg){:width="400px"}
+![Fig.1.28](/images/PolemonIITitus.jpg){:width="400px"}
 
-Fig. 1.27. L. Polemon II, king of Bosphorus R. Emperor Titus
+Fig. 1.28. L. Polemon II, king of Bosphorus R. Emperor Titus
 
 The split between Rome in the East and Rome in the West happened sometime during the Flavian period. Roman emperor faces no longer appear on Bosphoran coins after emperor Titus.  
 
@@ -940,9 +944,9 @@ King, and Pas means "all" as in Pan. "Vespasian" = "King of All", or "King of Ev
 'Flavius Scaevinus' the conspirator involved in Nero's assassination.
 
 ![Fig.
-1.28](/images/Vespasian.jpg){:width="400px"}
+1.29](/images/Vespasian.jpg){:width="400px"}
 
-Fig. 1.28. L. Vespasian. R. Herod Agrippa I
+Fig. 1.29. L. Vespasian. R. Herod Agrippa I
 
 'Antonia Caenis' was Vespassian's mistress who was his first cousin who
 was Cleopatra (Thea Philopator) of Mauretania aka Cleopatra IX aka
@@ -1037,9 +1041,9 @@ Capitolina after the Bar Kokhba revolt (the city was named after Hadrian's famil
 that Aquila of Sinope and his wife Prisca or Priscilla lived with Paul
 the Apostle and Paul called them "my fellow workers in Christ Jesus"
 
-![Fig.1.29](/images/Antinous.jpg){:width="400px"}
+![Fig.1.30](/images/Antinous.jpg){:width="400px"}
 
-Fig. 1.29. Steel relief that shows Antinous holding the grapes of Dionysus in one-hand and a cross in the other.
+Fig. 1.30. Steel relief that shows Antinous holding the grapes of Dionysus in one-hand and a cross in the other.
 
 **8.2 Subversion of the Imperial Cult by Rabbi Akiva and His Students**
 
