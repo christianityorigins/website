@@ -239,6 +239,8 @@ In the elite burial chambers from the Scythian Kurgans in Ukraine to the Etrusca
 All ancient Mediterranean religions derive from the
 Sarmatian serpent-dragon cult. See: Papaios and the Snake-Legged Goddess (Scythian) = Nehebkau, Uraeus, and Apep/Apophis (Egypt) = Ningishzida (Sumerian) = Tiamat and Mušḫuššu who was associated with Marduk (Babylonian) = Aži Dahāka (Zoroastrianism) later syncretized with Mithra = Ophion, Agathodaemon, Typhon, and Delphi's Pythoness priestess (Greek) = Nāgendra and Nāga (Vedic), Nehushtan/serpent staff of Moses, the Dacian and Roman Draco standards, the serpent-worshipping Essenes and Gnostics, Sebazi (Phrygian/Bulgarian), Jörmungandr (Norse), Ouroboros serpent in Freemasonry, etc. The Knights Templar knew the truth. The Templars worshipped Baphomet—a Sarmatian dragon deity (Aži Dahāka).
 
+The Sons of Zadok or Zadokites is a lineage of priests (kohanim) descended from Zadok that is described in the prophecies of Ezekiel. Aži Dahāka (Avestan) -> Aždahāg or Az-i Dahāg (Farsi) -> Aždahāg which becomes Zahhāk. Simon Boethus/Magus as high priests and as aliases for the Ptolemaic/Bosphoran royal family. The "Sons of Zadok" were likely the priestly branch of this same Dragon Bloodline. 
+
 Kings who took on the snake/dragon/serpent/Azhi Dahaka title: Scorpion I, Pharaoh of Egypt, Azhdahak, which is the Armenian form of the name of the Avestan Azhi Dahaka, was associated with the Median king Astyages (564–550 BC) who was the grandfather of Cyrus the Great. Tigranes II/the Great, King of Armenia (140–55 BC) was also called Azhdahak. Tiberius Julius Sauromates II, King of Bosphorus ('Saur'
 means 'lizard' or 'reptile', and 'mates' means 'man' or 'warrior'). The roots of the snake titles were: Aži-, Azhd-, -zates, Sauro-, Draco-.
 
@@ -347,8 +349,7 @@ Footnotes (Chapter 3)
     cannabis cult that stripped them of their martial spirit
     (https://en.wikipedia.org/wiki/Enaree). Marijuanna turned them from
     fearless warriors into potheads who were led by transgender priests.\
-(b) Azhdahak, which is the Armenian form of the name of the Avestan Azhi Dahaka, was associated with the Median king Astyages (r. 564–550 BC) who was the grandfather of Cyrus the Great. https://en.wikipedia.org/wiki/Azhdahak_(mythology)   
-(c) Quetzalcōātl, the Mesoamerican serpent deity, shares uncanny similarities to Aži Dahāka which suggests a transoceanic exchange of religious ideas long before Columbus (the Jade Mask of Calakmul (7th century CE) also depicts a Caucasian-featured ruler with a serpent headdress—resembling Scythian dragon crowns).
+(b) Quetzalcōātl, the Mesoamerican serpent deity, shares uncanny similarities to Aži Dahāka which suggests a transoceanic exchange of religious ideas long before Columbus (the Jade Mask of Calakmul (7th century CE) also depicts a Caucasian-featured ruler with a serpent headdress—resembling Scythian dragon crowns).
 
 **4 The Alexandrian School**
 
@@ -485,7 +486,7 @@ substantial part of Byzantine coinage from two millennia ago boasts
 inscriptions in Latin and not in Greek, including the Asander of
 Bosphorus coin above.
 
-This is why the Ottomans called themselves "Rum" (Rome). They knew exactly what they were the heirs to.
+This is why the Ottomans called themselves "Rum" (Rome). They knew exactly what they were the heirs to. The Ottomans also called the Balkans "Rumeli", or "Land of the Romans".
 
 Rome in Italy was real, but it was a province, a frontier military district (Limes) of the true Empire based on the Bosphorus. It was never the center of power it was made out to be. Its "fall" was the loss of central control from the East and the rise of local Gothic/Sarmatian warlords (Theodoric, etc.) who still tried to cloak themselves in the legitimacy of the Eastern Koryllis.
 
@@ -900,9 +901,7 @@ Endnotes (Chapter 5)
     into Parthian Mithra). Philometer then corresponds to Mithradates of
     Parthia and Mattathius the Hasmonean. (Mattath is the Hebrew
     feminine form of Mattan).\
-(b) Speculative: Mark Antony's son with Livia Drusilla = Emperor Tiberius Julius Caesar
-Augustus who was also Ptolemy XIII Theos Philopator, Cleopatra VII's brother?\
-(c) Apollonius of Tyre was married to the daughter of a king of Libya
+(b) Apollonius of Tyre was married to the daughter of a king of Libya
     ("Historia Apollonii Regis Tyri" or "The Story of Apollonius, King
     of Tyre"), who was Cleopatra Selene aka Drusilla (aka Cleopatra
     (Thea Philopator) of Mauretania aka Cleopatra IX aka Helene aka
@@ -922,7 +921,7 @@ Augustus who was also Ptolemy XIII Theos Philopator, Cleopatra VII's brother?\
     Tyana? This would make Apollonius of Tyana the brother-husband of
     Philo of Alexandria and the father of Josephus. These three created
     the core of Christianity.\
-(d) Gautama Buddha was Gaumata Bardya, the son of Cyrus the Great.
+(c) Gautama Buddha was Gaumata Bardya, the son of Cyrus the Great.
     Ptolemy I Soter and his successors were closely associated with
     Serapis. "Jesus" was an avatar for the Bosphioran royal family.
     Apollonius of Tyana was king Juba II, the grandson of Julius
