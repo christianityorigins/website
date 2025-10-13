@@ -663,12 +663,11 @@ the Bosphorus, and Julius Caesar/Asander was king of this region.
 "Gaius" then can refer to Asander's connection to the Gallian (Gauls
 (Galli = Celt in Latin)) people or his ancestry in the region.
 
-Ceasar's gentilice (surname) was Iulius. Iulius comes from Dyaus (the sky god, same as Zeus, Jupiter - the name Zeus comes from the pronunciation of "Dyeus", and (I)Jupiter comes from the pronunciation of "Dyeus Pter" (Diespiter -> Iupiter)). So Iulius = Dyaus -> Iou -> Jupiter. "Iulius" (Julius) is related to "Iove" (Jove) which is the Roman equivalent of Zeus, and would have been pronouced Yahweh in the Latin language. The ancient
-Celtic tribe known as the Iudii, Iudaei. or "Ioulios" (ιούλιος) in Greek,
-also means "descended from Jupiter" or "son of Jupiter". 
+Ceasar's gentilice (surname) was Iulius. Iulius comes from Dyaus (the sky god, same as Zeus, Jupiter - the name Zeus comes from the pronunciation of "Dyeus", and (I)Jupiter comes from the pronunciation of "Dyeus Pter" (Diespiter -> Iupiter)). So Iulius = Dyaus -> Iou -> Jupiter. "Iulius" (Julius) is related to "Iove" (Jove) which is the Roman equivalent of Zeus, and would have been pronouced Yahweh in the Latin language.
 
-Another option: Julius comes from the Scythian Yuezhi tribe whose name came from Dyaus Pter. Yuezhi also connects to the legendary Chinese emperor Yu the Great (original name "Aži" or "Yazhi" (亞茲)). He is "The Jove/Yuezhi King".
-
+Another option: Julius comes from the Scythian Yuezhi tribe whose name derives from Dyaus Pter. Yuezhi also connects to the legendary Chinese emperor Yu the Great (original name "Aži" or "Yazhi" (亞茲)). The ancient
+Celtic tribe known as the Iudii, Iudaei, or "Ioulios" (ιούλιος) in Greek,
+also means "descended from Jupiter" or "son of Jupiter" which also lingusitically comes from Dyaus Pter. 
 
 The Egyptian name "Asar" was another name for Osiris. "Ra"
     was the Egyptian deity of the Sun (Asar-Ra). This title very likely
@@ -684,8 +683,8 @@ the Cimbrian War.
 
 Gaius Julius Caesar was a title, and Gaius Julius Caesar could
 conceivably translate to: Chieftain of the Iudii or Iudaiei tribe from
-Galatia, or Lord Asar/Aesus (pronunced ah-soos) of the Iudii or Iudaiei
-tribe from Galatia.
+Galatia (or Yuezhi tribe), or Lord Asar/Aesus (pronunced ah-soos) of the Iudii or Iudaiei
+tribe from Galatia (or Yuezhi tribe).
 
 Russian historian and mathematician Anatoly Fomenko wrote several books
 where he claimed that the city of Yoros = Jerusalem = Troy and it was
