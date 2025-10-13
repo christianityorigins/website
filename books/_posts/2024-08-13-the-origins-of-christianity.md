@@ -620,19 +620,6 @@ Fig. 1.14. Coin depicting Atrebates, king of Britannia who Julius Caesar was rec
 
 Fig. 1.15. Coin depicting Kujula Kadphises, prince of Bactria (modern day Afghanistan). He was the leader of the Yuezhi tribe. This regional avatar of Asander/Julius Caesar also connects to the legendary Chinese emperor Yu the Great (original name "Aži" or "Yazhi" (亞茲))? Julius, from Ioulius, related to Iove (Jove). Iove is linguistically linked to the Scythian tribal name Yuehzi. He is "The Jove/Yuezhi King".
 
-![Fig.1.16](/images/MithridatesVIEupator.png){:width="400px"}
-
-Fig. 1.16. Coin depicting Mithridates VI Eupator, father of Pharnaces II
-and Dynamis. Brother of Mithridates Chrestus. Notice the star and
-crescent that is visible in the Julius Caesar coin above and the winged
-Pegasus within a Dionysiac wreath of ivy and fruit that is seen in the
-Asander coin?
-
-![Fig.1.17](/images/AriarathesIX.jpg){:width="400px"}
-
-Fig. 1.17. Coin depicting Ariarathes IX Eusebes Philopator, King of
-Cappadocia. Notice the resemblance to Mithridates VI Eupator of Pontus?
-
 Julius Caesar aka Asander of Bosphorus aka Pharnaces II was also Brogitarix, king
 of Galatia (Full name: Brogitaris (Brigatos) van (de) Celtes
 Trocmii:"Bogo-" is related to the Proto-Celtic word "bog-", which means
@@ -698,6 +685,18 @@ entire identity and history from here.
 
 **5.2 Dragon Bloodline Descendants**
 
+![Fig.1.16](/images/MithridatesVIEupator.png){:width="400px"}
+
+Fig. 1.16. Coin depicting Mithridates VI Eupator, father of Pharnaces II
+and Dynamis. Brother of Mithridates Chrestus. Notice the star and
+crescent that is visible in the Julius Caesar coin above and the winged
+Pegasus within a Dionysiac wreath of ivy and fruit that is seen in the
+Asander coin?
+
+![Fig.1.17](/images/AriarathesIX.jpg){:width="400px"}
+
+Fig. 1.17. Coin depicting Ariarathes IX Eusebes Philopator, King of
+Cappadocia. Notice the resemblance to Mithridates VI Eupator of Pontus?
 Cleopatra aka Dynamis's son with Julius Caesar aka Asander = Tiberius
 Julius Aspurgus Philoromaios (Aspurgus translates to "horseman-lord" in
 Thracian languages. Sabazios was a Thracian deity worshipped as a
