@@ -830,8 +830,10 @@ the Bosphorus, and Julius Caesar/Asander was king of this region.
 
 Ceasar's gentilice (surname) was Iulius. Iulius comes from Dyaus (the sky god, same as Zeus, Jupiter - the name Zeus comes from the pronunciation of "Dyeus", and (I)Jupiter comes from the pronunciation of "Dyeus Pter" (Diespiter -> Iupiter)). So Iulius = Dyaus -> Iou -> Jupiter. "Iulius" (Julius) is related to "Iove" (Jove) which is the Roman equivalent of Zeus, and would have been pronouced Yahweh in the Latin language. The ancient
 Celtic tribe known as the Iudii, Iudaei. or "Ioulios" (ιούλιος) in Greek,
-also means "descended from Jupiter" or "son of Jupiter". So, they got their name from Jupiter as well. It is
-possible that the word "jew" comes from the Iudii or Iudaei.
+also means "descended from Jupiter" or "son of Jupiter". 
+
+Another option: Julius comes from the Scythian Yuezhi tribe whose name came from Dyaus Pter. Yuezhi also connects to the legendary Chinese emperor Yu the Great (original name "Aži" or "Yazhi" (亞茲)). He is "The Jove/Yuezhi King".
+
 
 The Egyptian name "Asar" was another name for Osiris. "Ra"
     was the Egyptian deity of the Sun (Asar-Ra). This title very likely
