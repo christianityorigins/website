@@ -37,8 +37,9 @@ Part 2: The Alexandrian Synthesis\
 Part 3: The Bosphoran Connection\
 5\. Rome Was Located On the Bosphorus River in Crimea\
 5.1\. Julius Caesar aka Asander of Bosphorus\
-5.1.1\. Julius Caesar was a Title\
-5.2\. Numismatic Proof\
+5.1.2\. Julius Caesar was a Title\
+5.2 Dragon Bloodline Descendants\
+5.3\. Numismatic Proof\
 Part 4: From Imperial Cult to Christianity\
 6\. Flavian Dynasty\
 Part 5: Rewriting History\
@@ -651,6 +652,53 @@ would have been Isa, son of Isis. The son of Isis in mythology was
 Horus, and that is why Caesarion's iconography has a Horus falcon on
 it).
 
+
+**5.1.1 Julius Caesar was a Title**
+
+Identifying Julius Caesar as Asander of Bosphorus necessitates a
+re-examination of his name.
+
+Galata in Classical Anatolia was settled by the Gauls. Galatia bordered
+the Bosphorus, and Julius Caesar/Asander was king of this region.
+"Gaius" then can refer to Asander's connection to the Gallian (Gauls
+(Galli = Celt in Latin)) people or his ancestry in the region.
+
+Ceasar's gentilice (surname) was Iulius. Iulius comes from Dyaus (the sky god, same as Zeus, Jupiter - the name Zeus comes from the pronunciation of "Dyeus", and (I)Jupiter comes from the pronunciation of "Dyeus Pter" (Diespiter -> Iupiter)). So Iulius = Dyaus -> Iou -> Jupiter. "Iulius" (Julius) is related to "Iove" (Jove) which is the Roman equivalent of Zeus, and would have been pronouced Yahweh in the Latin language. The ancient
+Celtic tribe known as the Iudii, Iudaei. or "Ioulios" (ιούλιος) in Greek,
+also means "descended from Jupiter" or "son of Jupiter". 
+
+Another option: Julius comes from the Scythian Yuezhi tribe whose name came from Dyaus Pter. Yuezhi also connects to the legendary Chinese emperor Yu the Great (original name "Aži" or "Yazhi" (亞茲)). He is "The Jove/Yuezhi King".
+
+
+The Egyptian name "Asar" was another name for Osiris. "Ra"
+    was the Egyptian deity of the Sun (Asar-Ra). This title very likely
+    connects to "Asar-Hapi" (Osiris-Apis), another name for the
+    Graeco-Egyptian god Serapis (Osiris + Apis = Osorapis). The Etruscan
+    word "Aesar" (also spelled "Aeser" or "Aisar"), meaning god or
+    divine, likely derives from the Egyptian Asar. The Greek language
+    adds a "K" to foreign words, so Aesar -> Greek Kaesar -> Latin
+    Caesar. This title also resembles the the Scythian/Hurrian "Kur-Sar" (Sun King) and the Phoenician "Kosar" (sun god). In Celtic cultures,
+Caesarus also referred to a Celtic chieftain who likely took on a divine
+role. For example, Caesorix was the leader of the Cimbri tribe during
+the Cimbrian War.
+
+Gaius Julius Caesar was a title, and Gaius Julius Caesar could
+conceivably translate to: Chieftain of the Iudii or Iudaiei tribe from
+Galatia, or Lord Asar/Aesus (pronunced ah-soos) of the Iudii or Iudaiei
+tribe from Galatia.
+
+Russian historian and mathematician Anatoly Fomenko wrote several books
+where he claimed that the city of Yoros = Jerusalem = Troy and it was
+situated on the eastern, Asiatic shore of Bosphorus, closer to the Black
+Sea, very near to the Beykoz mountain (Golgotha). The fact that
+Ptolemaic/Bosphoran/Roman kings, many who were Celtic Galatians and
+Aryan Sarmatians, role played as jews, an irrelevant tribe, and israel
+was an irrelevant slice of land in the desert, this makes this claim
+more credible. jews just adopted this imperial cult and they got their
+entire identity and history from here.
+
+**5.2 Dragon Bloodline Descendants**
+
 Cleopatra aka Dynamis's son with Julius Caesar aka Asander = Tiberius
 Julius Aspurgus Philoromaios (Aspurgus translates to "horseman-lord" in
 Thracian languages. Sabazios was a Thracian deity worshipped as a
@@ -818,51 +866,7 @@ even has a story about a 'spurious Alexander' that showed up in Rome
 claiming to be the son of Herod who faked his death [^14], so he was
 'resurrected' as Juba II, king of Numidia and Mauretania. 
 
-**5.1.1 Julius Caesar was a Title**
-
-Identifying Julius Caesar as Asander of Bosphorus necessitates a
-re-examination of his name.
-
-Galata in Classical Anatolia was settled by the Gauls. Galatia bordered
-the Bosphorus, and Julius Caesar/Asander was king of this region.
-"Gaius" then can refer to Asander's connection to the Gallian (Gauls
-(Galli = Celt in Latin)) people or his ancestry in the region.
-
-Ceasar's gentilice (surname) was Iulius. Iulius comes from Dyaus (the sky god, same as Zeus, Jupiter - the name Zeus comes from the pronunciation of "Dyeus", and (I)Jupiter comes from the pronunciation of "Dyeus Pter" (Diespiter -> Iupiter)). So Iulius = Dyaus -> Iou -> Jupiter. "Iulius" (Julius) is related to "Iove" (Jove) which is the Roman equivalent of Zeus, and would have been pronouced Yahweh in the Latin language. The ancient
-Celtic tribe known as the Iudii, Iudaei. or "Ioulios" (ιούλιος) in Greek,
-also means "descended from Jupiter" or "son of Jupiter". 
-
-Another option: Julius comes from the Scythian Yuezhi tribe whose name came from Dyaus Pter. Yuezhi also connects to the legendary Chinese emperor Yu the Great (original name "Aži" or "Yazhi" (亞茲)). He is "The Jove/Yuezhi King".
-
-
-The Egyptian name "Asar" was another name for Osiris. "Ra"
-    was the Egyptian deity of the Sun (Asar-Ra). This title very likely
-    connects to "Asar-Hapi" (Osiris-Apis), another name for the
-    Graeco-Egyptian god Serapis (Osiris + Apis = Osorapis). The Etruscan
-    word "Aesar" (also spelled "Aeser" or "Aisar"), meaning god or
-    divine, likely derives from the Egyptian Asar. The Greek language
-    adds a "K" to foreign words, so Aesar -> Greek Kaesar -> Latin
-    Caesar. This title also resembles the the Scythian/Hurrian "Kur-Sar" (Sun King) and the Phoenician "Kosar" (sun god). In Celtic cultures,
-Caesarus also referred to a Celtic chieftain who likely took on a divine
-role. For example, Caesorix was the leader of the Cimbri tribe during
-the Cimbrian War.
-
-Gaius Julius Caesar was a title, and Gaius Julius Caesar could
-conceivably translate to: Chieftain of the Iudii or Iudaiei tribe from
-Galatia, or Lord Asar/Aesus (pronunced ah-soos) of the Iudii or Iudaiei
-tribe from Galatia.
-
-Russian historian and mathematician Anatoly Fomenko wrote several books
-where he claimed that the city of Yoros = Jerusalem = Troy and it was
-situated on the eastern, Asiatic shore of Bosphorus, closer to the Black
-Sea, very near to the Beykoz mountain (Golgotha). The fact that
-Ptolemaic/Bosphoran/Roman kings, many who were Celtic Galatians and
-Aryan Sarmatians, role played as jews, an irrelevant tribe, and israel
-was an irrelevant slice of land in the desert, this makes this claim
-more credible. jews just adopted this imperial cult and they got their
-entire identity and history from here.
-
-**5.2 Numismatic Proof**
+**5.3 Numismatic Proof**
 
 ![Fig.1.23](/images/RhoemetalcesOctavian.jpg){:width="400px"}
 
