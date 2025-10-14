@@ -870,25 +870,29 @@ claiming to be the son of Herod who faked his death [^14], so he was
 
 Fig. 1.23. L. Rhoemetalces I, king of Bosphorus. R. Emperor Augustus (Octavian)
 
-![Fig.1.24](/images/AspurgusTiberius.jpg){:width="400px"}
+![Fig.1.24](/images/PolemonI.jpg){:width="400px"}
 
-Fig. 1.24. L. Tiberius Julius Aspurgus I, king of Bosphorus. R. Emperor Tiberius Caesar Augustus
+Fig. 1.24. Rhoemetalces I aka Emperor Augustus (Octavian) was also Polemon I of Pontus.
 
-![Fig.1.25](/images/MithridatesIIICaligula.jpg){:width="400px"}
+![Fig.1.25](/images/AspurgusTiberius.jpg){:width="400px"}
 
-Fig. 1.25. L. Mithridates III, king of Bosphorus. R. Emperor Caligula
+Fig. 1.25. L. Tiberius Julius Aspurgus I, king of Bosphorus. R. Emperor Tiberius Caesar Augustus
 
-![Fig.1.26](/images/CotysIClaudius.jpg){:width="400px"}
+![Fig.1.26](/images/MithridatesIIICaligula.jpg){:width="400px"}
 
-Fig. 1.26. L. Cotys I, king of Bosphorus R. Emperor Claudius
+Fig. 1.26. L. Mithridates III, king of Bosphorus. R. Emperor Caligula
 
-![Fig.1.27](/images/RhescuporisIVespasian.jpg){:width="400px"}
+![Fig.1.27](/images/CotysIClaudius.jpg){:width="400px"}
 
-Fig. 1.27. L. Rhescuporis I, king of Bosphorus. R. Emperor Vespasian
+Fig. 1.27. L. Cotys I, king of Bosphorus R. Emperor Claudius
 
-![Fig.1.28](/images/PolemonIITitus.jpg){:width="400px"}
+![Fig.1.28](/images/RhescuporisIVespasian.jpg){:width="400px"}
 
-Fig. 1.28. L. Polemon II, king of Bosphorus R. Emperor Titus
+Fig. 1.28. L. Rhescuporis I, king of Bosphorus. R. Emperor Vespasian
+
+![Fig.1.29](/images/PolemonIITitus.jpg){:width="400px"}
+
+Fig. 1.29. L. Polemon II, king of Bosphorus R. Emperor Titus
 
 The split between Rome in the East and Rome in the West happened sometime during the Flavian period. Roman emperor faces no longer appear on Bosphoran coins after emperor Titus.  
 
@@ -947,9 +951,9 @@ King, and Pas means "all" as in Pan. "Vespasian" = "King of All", or "King of Ev
 'Flavius Scaevinus' the conspirator involved in Nero's assassination.
 
 ![Fig.
-1.29](/images/Vespasian.jpg){:width="400px"}
+1.30](/images/Vespasian.jpg){:width="400px"}
 
-Fig. 1.29. L. Vespasian. R. Herod Agrippa I
+Fig. 1.30. L. Vespasian. R. Herod Agrippa I
 
 'Antonia Caenis' was Vespassian's mistress who was his first cousin who
 was Cleopatra (Thea Philopator) of Mauretania aka Cleopatra IX aka
@@ -1044,9 +1048,9 @@ Capitolina after the Bar Kokhba revolt (the city was named after Hadrian's famil
 that Aquila of Sinope and his wife Prisca or Priscilla lived with Paul
 the Apostle and Paul called them "my fellow workers in Christ Jesus"
 
-![Fig.1.30](/images/Antinous.jpg){:width="400px"}
+![Fig.1.31](/images/Antinous.jpg){:width="400px"}
 
-Fig. 1.30. Steel relief that shows Antinous holding the grapes of Dionysus in one-hand and a cross in the other.
+Fig. 1.31. Steel relief that shows Antinous holding the grapes of Dionysus in one-hand and a cross in the other.
 
 **8.2 Subversion of the Imperial Cult by Rabbi Akiva and His Students**
 
