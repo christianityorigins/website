@@ -21,7 +21,7 @@ Published by Heretical Books
 
 **Epigraph**  
 
-*And as Moses lifted up the serpent in the wilderness, even so must the Son of man be lifted up. *— John 3:14 (The New Testament connecting Jesus directly to the serpent)
+*And as Moses lifted up the serpent in the wilderness, even so must the Son of man be lifted up.*— John 3:14 (The New Testament connecting Jesus directly to the serpent)
 
 **Table of Contents**
 
