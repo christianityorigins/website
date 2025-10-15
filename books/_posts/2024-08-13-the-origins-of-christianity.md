@@ -21,7 +21,7 @@ Published by Heretical Books
 
 **Epigraph**  
 
-*And the Lord sent fiery serpents among the people, and they bit the people; and much people of Israel died … And the Lord said unto Moses, make thee a fiery serpent, and set it upon a pole: and it shall come to pass, that every one that is bitten, when he looketh upon it, shall live. And Moses made a serpent of brass, and put it upon a pole, and it came to pass, that if a serpent had bitten any man, when he beheld the serpent of brass, he lived.* - Numbers 21:9 (The "fiery serpents" in this passage are identified as Scythians in later analysis.)
+*And as Moses lifted up the serpent in the wilderness, even so must the Son of man be lifted up. *— John 3:14 (The New Testament connecting Jesus directly to the serpent)
 
 **Table of Contents**
 
@@ -39,6 +39,11 @@ Part 3: The Bosphoran Connection\
 5.1\. Julius Caesar aka Asander of Bosphorus\
 5.1.2\. Julius Caesar was a Title\
 5.2 Dragon Bloodline Descendants\
+5.2.1 Mithridates VI Eupator\
+5.2.2. Aliases and Avatars of the Bloodline\
+5.2.3. Amyntas Nikator aka Amyntas of Galatia\
+5.2.4. King Izates\
+5.2.5. Tiberius Julius Sauromates II\
 5.3\. Numismatic Proof\
 Part 4: From Imperial Cult to Christianity\
 6\. Flavian Dynasty\
@@ -61,7 +66,7 @@ Christianity is a derivative of one of the religions that were invented at the A
 
 All these religions were psychological and political tools that were created to target regional populations in the empire and were designed to subvert their regional religions in a syncretic manner, through the creation of centralized texts and priesthoods, embedding moral codes like submission, self-sacrifice, obedience, loyalty, and divine judgment, and aiming to lead the population toward monotheism and gradually toward a universal imperial cult. These religions were also likely designed to segment the populations by class, culture, and region to prevent unified resistance. For example, Mithraism was for military elites (requiring blood oaths, with a Mithraic initiate caste system and hierarchical structure). Serapism was for civilians (promising afterlife salvation). Christianity was for slaves ("turn the other cheek").
 
-Christianity was created in phases, the first phase as a synthesis of the Serapis Cult rebranded to serve one of the later Roman (Bosphoran) imperial cults, then reworked by the Flavians, and finally this imperial cult was subverted by a group of Rabbis who were headed by a rabbi named Akiva sometime after the Bar Kokhba Revolt. Jesus in the bible was an avatar, or an administrative title originally for members of the Bosphoran royal family. Asander, king of Bosphorus (Julius Caesar's real identity) took on this role, so did his son Aspurgus, king of Bosphorus aka Amyntas ("Amon-Tas". "Hidden
+Christianity was created in phases, the first phase as a synthesis of the Serapis Cult rebranded to serve one of the later Roman (Bosphoran) imperial cults, then reworked by the Flavians, and finally this imperial cult was subverted by a group of Rabbis who were headed by a rabbi named Akiva sometime after the Bar Kokhba Revolt.Jesus in the bible was not a person but an avatar, a recurring administrative and priestly title for the ruling 'Anointed One' (Christ/Soter) within the Bosphoran royal family, much like 'Pharaoh' or 'Caesar'. Asander, king of Bosphorus (Julius Caesar's real identity) took on this role, so did his son Aspurgus, king of Bosphorus aka Amyntas ("Amon-Tas". "Hidden
 Lord", linking to Amun-Ra - with "Amen"(tas) at the root) Nikator aka
 Amyntas of Galatia aka Jesus ben Fabus aka Isa Amen (Jesus was named
 "Amen" in Rev. iii. 14), and his later descendants Izates II, king of Adiabene, and Tiberius Julius Sauromates II, also took on the role. After Rabbi Akiva Jesus then became Simon Bar Kokhba.
@@ -169,17 +174,6 @@ I. Ptolemaic, Julio-Claudian & Bosphoran Dynasty
         - Tiberius Julius Mithridates III (Italian Avatar: Emperor Caligula)
         - Tiberius Julius Cotys I. Italian Avatar: Emperor Claudius = Rhoemetalces II of Bosporus (Reigns are nearly perfectly co-terminus. Polemon Pythodoros (Julius Caesar/Asander) and Pythodorida of Pontus (Cleopatra/Dynamis) had a daughter Antonia Tryphaena. Her son was Rhoemetalces II whose reign coincided with emperor Claudius)
 
-  - Spouse/Consort 2: Through Julius Caesar/Asandar's Brogitarx alias:  Amyntas ("Amon-Tas". "Hidden
-Lord", linking to Amun-Ra - with "Amen"(tas) at the root) Nikator aka
-Amyntas of Galatia aka Jesus ben Fabus aka Isa Amen (Jesus was named
-"Amen" in Rev. iii. 14). He ruled an empire that stretched from
-modern-day Turkey through India. His palace at Isauria refers to Isis
-(also known as Isa or Aset) who was the mother of Horus (Cleopatra
-identified herself with the Greco-Egyptian goddess Isis. So, her son
-would have been Isa, son of Isis. The son of Isis in mythology was
-Horus, and that is why Caesarion's iconography has a Horus falcon on
-it). Was this Caesarion's avatar and his pareents Julius Caesar/Asander and Cleopatra/Dynamis through regional avatars?
-    
 - Child of Antony/Herod & Dynamis/Cleopatra:
   - Alexander (son of King Herod). Aliases: Alexander Helios, Juba II of Mauretania. Also, Apollonius of Tyana?
     - Spouse: Cleopatra Selene II (twin sister)
@@ -252,17 +246,17 @@ Timeline:
 -Kurgan culture (Scythian ancestors) begin expansions (4500 BC)\
 -Scythian elites establish proxy rule in Sumer (Sargon of Akkad) and Egypt (Scorpion I) (3000 BC)\
 -Gutian Dynasty (2150 BC) – First Scythian rulers of Mesopotamia.\
--The Hyksos (1650–1550 BC) – Scythian Pharaohs of Egypt (Heka-Khasut means "Rulers of Foreign Lands" and Khasut is a cognate of Scythian/Saka, Scyth, Scoloti).\
--The Hittites (1600–1200 BC) – Scythians in Anatolia.\
--Kassite Dynasty (1595–1155 BCE) - Scythian rulers of Babylon after Hittites sacked it.\
+-The Hyksos (c. 1650–1550 BC) – Scythian Pharaohs of Egypt (Heka-Khasut means "Rulers of Foreign Lands" and Khasut is a cognate of Scythian/Saka, Scyth, Scoloti).\
+-The Hittites (c. 1600–1200 BC) – Scythians in Anatolia.\
+-Kassite Dynasty (c. 1595–1155 BCE) - Scythian rulers of Babylon after Hittites sacked it.\
 -The Mitanni (1500 BC) – Scythian horse lords in Syria.\
 -Vedic India (1500 BC) – Scythian chariot kings.\
 -"Sea Peoples" collapse Mediterranean empires (Scythian mercenaries) (1200 BC) \
 -The "Dorian Greeks" who destroyed Mycenae (c. 1200 BC) were steppe nomads and Scythian-Sarmatians.\
--Persia’s Achaemenids (705–330 BC) - Saka (Scythian) clan.\
+-Persia’s Achaemenids (c. 705–330 BC) - Saka (Scythian) clan.\
 -The Etruscan Tarquin dynasty (616 BC) - Scythian rulers of Rome. Tarquin = Tarkhu (Scythian: "Ruler"). Servius Tullius = Tulli (Scythian: "Wolf Clan").\
--The Alani (100 BC - 450 AD) - Alan = Aryan. They were the purest, highest-ranking Scythian tribe. They are the core of the Sarmatian confederation whose royal house ultimately produced the Julio-Claudians (Julius Caesar/Asander) (interesting fact: legendary King Arthur is a corrupted memory of an Alani Warlord (Artorius), one of the military Kšatrapatis sent from the Bosphorus to secure the lucrative tin and iron mines of Britain after the Flavian consolidation).\
--The Khazars (600 AD to 950 AD) - "Ashkenaz" people who controlled the Eurasian trade routes. The Ashkenazi Jews are the Scythian managerial class who maintained the forged chronology and trade networks for the Bosphoran heirs. Their state conversion to Judaism was a geopolitical alignment with the Calami (Jewish) financial proxies to solidify control over Eurasian gold and slave routes.
+-The Alani (c. 100 BC - 450 AD) - Alan = Aryan. They were the purest, highest-ranking Scythian tribe. They are the core of the Sarmatian confederation whose royal house ultimately produced the Julio-Claudians (Julius Caesar/Asander) (interesting fact: legendary King Arthur is a corrupted memory of an Alani Warlord (Artorius), one of the military Kšatrapatis sent from the Bosphorus to secure the lucrative tin and iron mines of Britain after the Flavian consolidation).\
+-The Khazars (c. 600 AD to 950 AD) - "Ashkenaz" people who controlled the Eurasian trade routes. The Ashkenazi Jews are the Scythian managerial class who maintained the forged chronology and trade networks for the Bosphoran heirs. Their state conversion to Judaism was a geopolitical alignment with the Calami (Jewish) financial proxies to solidify control over Eurasian gold and slave routes.
 
 The Mitanni exercised hegemony over a pan-Eurasian empire. The Hittites,
 also known as the Neshians, were one enforcement arm for the Mitanni.
@@ -620,26 +614,6 @@ Fig. 1.14. Coin depicting Atrebates, king of Britannia who Julius Caesar was rec
 
 Fig. 1.15. Coin depicting Kujula Kadphises, prince of Bactria (modern day Afghanistan). He was the leader of the Yuezhi tribe. This regional avatar of Asander/Julius Caesar also connects to the legendary Chinese emperor Yu the Great (original name "Aži" or "Yazhi" (亞茲))? Julius, from Ioulius, related to Iove (Jove). Iove is linguistically linked to the Scythian tribal name Yuehzi. He is "The Jove/Yuezhi King".
 
-Julius Caesar aka Asander of Bosphorus aka Pharnaces II was also Brogitarix, king
-of Galatia (Full name: Brogitaris (Brigatos) van (de) Celtes
-Trocmii:"Bogo-" is related to the Proto-Celtic word "bog-", which means
-"god" or "divine". "-diatarus" could be connected to the Latin word
-"diatus", meaning "divine" or "godlike", the Old Irish word -tairx means
-" lord"."Van" or "de" is a preposition indicating "of" or "from",
-which suggests that Brogitaris/Brigatos is the divine leader or a member
-of the Celtes Trocmii which refers to the Trocmi, a Celtic tribe that
-lived in ancient Galatia). Brogitarix's son Amyntas ("Amon-Tas". "Hidden
-Lord", linking to Amun-Ra - with "Amen"(tas) at the root) Nikator aka
-Amyntas of Galatia aka Jesus ben Fabus aka Isa Amen (Jesus was named
-"Amen" in Rev. iii. 14) [^10] ruled an empire that stretched from
-modern-day Turkey through India. His palace at Isauria refers to Isis
-(also known as Isa or Aset) who was the mother of Horus (Cleopatra
-identified herself with the Greco-Egyptian goddess Isis. So, her son
-would have been Isa, son of Isis. The son of Isis in mythology was
-Horus, and that is why Caesarion's iconography has a Horus falcon on
-it).
-
-
 **5.1.1 Julius Caesar was a Title**
 
 Identifying Julius Caesar as Asander of Bosphorus necessitates a
@@ -685,6 +659,10 @@ entire identity and history from here.
 
 **5.2 Dragon Bloodline Descendants**
 
+**5.2.1 Mithridates VI Eupator**
+
+Ptolemy XII Auletes aka Mark Antony aka Mithridates VI Eupator.
+
 ![Fig.1.16](/images/MithridatesVIEupator.png){:width="400px"}
 
 Fig. 1.16. Coin depicting Mithridates VI Eupator, father of Pharnaces II
@@ -701,6 +679,24 @@ Cleopatra aka Dynamis's son with Julius Caesar aka Asander = Tiberius
 Julius Aspurgus Philoromaios (Aspurgus translates to "horseman-lord" in
 Thracian languages. Sabazios was a Thracian deity worshipped as a
 horseman.).
+
+**5.2.2. Amyntas Nikator aka Amyntas of Galatia**
+
+Amyntas Nikator aka Amyntas of Galatia [^10] aka Jesus ben Fabus aka Isa Amen (Jesus was named "Amen" in Rev. iii. 14) was either Asander aka Julius Caesar or one of his sons (Aspurgus who was also Caesarion?).
+
+He was also Jesus ben Fabus aka Isa Amen (Jesus was named "Amen" in Rev. iii. 14). He ruled an empire that stretched from modern-day Turkey through India. His palace at Isauria refers to Isis (also known as Isa or Aset) who was the mother of Horus (Cleopatra identified herself with the Greco-Egyptian goddess Isis. So, her son would have been Isa, son of Isis. The son of Isis in mythology was Horus, and that is why Caesarion's iconography has a Horus falcon on it). Was this Caesarion's avatar?
+
+If Amyntas Nikator aka Amyntas of Galatia was Asander aka Julius Caesar's son then Asander aka Julius Caesar was also Brogitarix, king
+of Galatia (Full name: Brogitaris (Brigatos) van (de) Celtes
+Trocmii:"Bogo-" is related to the Proto-Celtic word "bog-", which means
+"god" or "divine". "-diatarus" could be connected to the Latin word
+"diatus", meaning "divine" or "godlike", the Old Irish word -tairx means
+" lord"."Van" or "de" is a preposition indicating "of" or "from",
+which suggests that Brogitaris/Brigatos is the divine leader or a member
+of the Celtes Trocmii which refers to the Trocmi, a Celtic tribe that
+lived in ancient Galatia). 
+
+**5.2.3. Aliases and Avatars of the Bloodline**
 
 Cleopatra aka Dynamis's son with Mark Antony [^11] (aka Ptolemy of
 Cyprus, a brother of Ptolemy XII Auletes (Cleopatra's father) making him
@@ -781,6 +777,8 @@ Matthias' which is where the pseudonym 'Joseph bar Matthias' comes from.
 Also, drop the initial b and final s in the name "Bar Mathias" and you
 get (Joseph of) Arimathea.
 
+**5.2.4. King Izates**
+
 ![Fig. 1.20](/images/coin-abgar-phraates.png){:width="400px"}
 
 Fig. 1.20. (L) and (R) show King Izates Monobazus of Edessa (known in
@@ -791,6 +789,8 @@ izad), meaning 'lord'. He is one of the Jesus avatars, Isa in the Quran,
 and Sultan Ezid in the Yazadi ('Iza'di) religion. He was the uncle of
 Tiberius Julius Sauromates II, King of Bosphorus. The middle image
 source: The Alexander Mosaic, Huqoq, Israel.
+
+**5.2.5. Tiberius Julius Sauromates II**
 
 ![Fig.1.21](/images/SauromatesII2.jpg){:width="400px"}
 
