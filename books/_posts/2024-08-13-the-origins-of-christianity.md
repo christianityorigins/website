@@ -36,13 +36,13 @@ Part 2: The Alexandrian Synthesis\
 4.2. Judaism\
 Part 3: The Bosphoran Connection\
 5\. Rome Was Located On the Bosphorus River in Crimea\
-5.1\. Julius Caesar aka Asander of Bosphorus\
+5.1\. Julius Caesar aka Asander, King of Bosphorus\
 5.1.2\. Julius Caesar was a Title\
-5.2 Dragon Bloodline Descendants\
-5.2.1 Ptolemy XII Auletes aka Mark Antony aka Mithridates VI Eupator\
+5.2. Dragon Bloodline Descendants\
+5.2.1. Ptolemy XII Auletes aka Mark Antony aka Mithridates VI Eupator\
 5.2.2. Aliases and Avatars of the Bloodline\
-5.2.3. Amyntas Nikator aka Amyntas of Galatia\
-5.2.4. King Izates\
+5.2.3. Amyntas Nikator aka Amyntas, King of Galatia\
+5.2.4. Izates II, King of Adiabene\
 5.2.5. Tiberius Julius Sauromates II\
 5.3\. Numismatic Proof\
 Part 4: From Imperial Cult to Christianity\
@@ -485,7 +485,7 @@ Rome in Italy was real, but it was a province, a frontier military district (Lim
 
 Also, Carthage was not a Semitic power. The name "Carthage" comes from "Kar-Thaga" - "City of the Thagians" (a Scythian tribe). Hannibal's family name, Barca, means "Lightning" and is a title of the Dragon King. Rome vs. Carthage was not a clash of civilizations. It was a bloody civil war between two Scythian-descended factions for control of the Western Mediterranean. The winner, Rome, wrote the history and painted the losers as monstrous foreigners.
 
-**5.1 Julius Caesar aka Asander of Bosphorus**
+**5.1 Julius Caesar aka Asander, King of Bosphorus**
 
 There was a Bosphoran [^5] imperial cult where Julius Caesar [^6] took
 on the role of Asander (also Asandros), King of Bosphorus [^7] ("Asa"
@@ -741,7 +741,7 @@ Julius Aspurgus Philoromaios (Aspurgus translates to "horseman-lord" in
 Thracian languages. Sabazios was a Thracian deity worshipped as a
 horseman.).
 
-**5.2.2. Amyntas Nikator aka Amyntas of Galatia**
+**5.2.2. Amyntas Nikator aka Amyntas, King of Galatia**
 
 Amyntas Nikator aka Amyntas of Galatia [^10] aka Jesus ben Fabus aka Isa Amen (Jesus was named "Amen" in Rev. iii. 14) was either Asander aka Julius Caesar or one of his sons (Aspurgus who was also Caesarion?).
 
@@ -818,6 +818,8 @@ Mauretania aka Cleopatra IX aka Pythodorida Philometor aka Helene aka
 Drusilla of Mauretania aka Julia Ourania of Parthia aka Alexandra bat
 Mattathias aka 'Philo of Alexandria'.
 
+**5.2.4. Izates II, King of Adiabene**
+
 Alexander (grandson of King Herod) and his sister-wife Cleopatra (Thea
 Philopator) of Mauretania had two sons: Tiberius Julius Alexander aka
 Arrius Calpernius Piso aka Arrius Varus aka Tiberius Julius Cotys (In
@@ -837,8 +839,6 @@ Alexandria's son. Tiberius Julius Alexander's son was named
 Matthias' which is where the pseudonym 'Joseph bar Matthias' comes from.
 Also, drop the initial b and final s in the name "Bar Mathias" and you
 get (Joseph of) Arimathea.
-
-**5.2.4. King Izates**
 
 ![Fig. 1.20](/images/coin-abgar-phraates.png){:width="400px"}
 
