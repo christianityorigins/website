@@ -82,15 +82,13 @@ etc., were all at one point under the suzerainty of Aryan Iranian-Scythian elite
 -   Western Rome in Italy is a phantom empire that was invented by the Vatican. Western Rome was built during the Renaissance period. The original Rome (in Sarmatian, "Ruma" (Rome) = "Place of the Dragon" (Rhu-Ma, from Aži Dahāka, the Iranian dragon)) was located on the Bosphorus river which approximates to modern-day Crimea in southern Ukraine.
 -   Asander, king of Bosphorus aka Julius Caesar was also Ptolemy XI Alexander II, Cleopatra's uncle, but he took on numerous
 other regional aliases. Cleopatra was also Dynamis, queen of Bosphorus. Mark
-Antony the Neos-Dionysos was either Ptolemy of Cyprus, a brother of
-Cleopatra's father Ptolemy XII Auletes (Auletes name adapts well to the
-Parthian Orodes (II?)) the Neos Dionysos aka Polemon (Polemos ->
+Antony the Neos-Dionysos was Cleopatra's father Ptolemy XII Auletes (Auletes name adapts well to the
+Parthian Orodes (II?)) the Neos Dionysos aka  Mithridates VI Eupator aka Polemon (Polemos ->
 Ptolemy) I of Pontus aka Pharnaces II ("Pharao-Nikes", or "Victorious Pharaoh") aka King Herod (Egyptian: Heru (Horus) + Ud
 (divine) -> Herud -> "Herod") aka Tiberius Claudius Nero aka Phraates
-IV of Parthia (Per-aa or Per-Nesu is a corruption of Pharaoh), or he was
-Ptolemy XII Auletes himself (Cleopatra's full name, Cleopatra VII
+IV of Parthia (Per-aa or Per-Nesu is a corruption of Pharaoh). Cleopatra's full name, Cleopatra VII
 Philopator, derives from the Ancient Greek 'Φιλοπάτωρ' meaning "the one
-who loves her father", or simply "father-loving"). She was also married
+who loves her father", or simply "father-loving". She was also married
 to two of her brothers and her uncle as listed previously. This is how
 incestuous this family was.
 
