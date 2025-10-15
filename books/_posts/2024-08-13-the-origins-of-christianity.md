@@ -39,7 +39,7 @@ Part 3: The Bosphoran Connection\
 5.1\. Julius Caesar aka Asander of Bosphorus\
 5.1.2\. Julius Caesar was a Title\
 5.2 Dragon Bloodline Descendants\
-5.2.1 Mithridates VI Eupator\
+5.2.1 Ptolemy XII Auletes aka Mark Antony aka Mithridates VI Eupator\
 5.2.2. Aliases and Avatars of the Bloodline\
 5.2.3. Amyntas Nikator aka Amyntas of Galatia\
 5.2.4. King Izates\
@@ -659,9 +659,72 @@ entire identity and history from here.
 
 **5.2 Dragon Bloodline Descendants**
 
-**5.2.1 Mithridates VI Eupator**
+**5.2.1 Ptolemy XII Auletes aka Mark Antony aka Mithridates VI Eupator**
 
-Ptolemy XII Auletes aka Mark Antony aka Mithridates VI Eupator.
+One name that shows up in the family trees of all the people listed
+above is Simon Boethus who I identify as (king/Tetrarch) Ptolemy
+(Alexander) bar Menneus aka Simon Magus. The name Boethus comes from
+Sabazios which is a translation of Zeus (Jupiter to the Romans) in the
+dialect and tradition of Phrygians and Thracians of Anatolia. Ma'nu is
+likely a diminutive of Menneus ('son of man') and then Manu-Sabazios
+becomes Monobazus which becomes 'Bazus' or 'Bar Izates' shortened to
+'baYZTus' (or bar YZT) through frequent oral repetition which becomes
+'bOETHus'. He was likely also Simon the Essene the founder of the Essene
+sect and Simon Peter in the bible (the term 'Peter' is derived from the
+Latin 'Pater' meaning 'father', denoting the Essene High Priest. The
+Essenes called themselves 'the Sons of Zadok' and Simon was the heir of
+the Zadokite High Priest dynasty). His daughter Mariamne Boethus was the
+fifth wife of King Herod. He was the uncle of Jesus ben Fabus,
+great-great-great-grandfather of Jesus ben Gamla/Gamaliel aka King Izas
+Monobazus (the Talmud (Bereshit Rabbah 46:10) calls Izates and Monobazus
+the 'Sons of Ptolemy'), and I identify Juba II as Alexander (son of King
+Herod) which makes him the grandson of Simon Boethus, and he was the
+great-great-grandfather of Vespasian.
+
+Sabazius is related to the Saba/Sheba root meaning seven, rest, sated
+etc., and Jupiter-Sabazius is a Semitic or Semitized form of Jupiter,
+i.e. Turkish Judaism (the day of Sabbath was a festival of Sabazius
+(Plutarch (Symp. iv. 6)). Also, I(J)upiter was also called Jove or Iove
+to the Romans. The Latin pronunciation of Iove would have been Yoh-Way,
+i.e Yahweh/Yhwh, so Jove (Roman Zeus) Sabazios (Thracian Zeus) became
+conflated with Yahweh Saboath the god of the hebrew bible. Also, from
+Sabazios you get Zebedaios, sons of Zebedee.
+
+Ptolemy Menneus/Simon Boethus's son was named Philippion who I believe
+is a good candidate for Philip II Philoromaios and also Tiridates II of
+Parthia or Arsaces Philoromaios. Arsaces was the brother of Dynamis
+[^11]. So, Simon Boethus/Magus/Ptolemy (Alexander) bar Menneus, et.al.,
+were the aliases of Ptolemy X Alexander I, king of Egypt, and Marriamme
+Boethus was another of Cleopatra's regional aliases?  If you identify
+King Herod as Mark Antony aka Tiberius Claudius Nero aka Phraates IV of
+Parthia's regional alias then the picture becomes clearer.
+
+![Fig.1.22](/images/PtolemyXII.jpeg){:width="400px"}
+
+Fig. 1.22. Ptolemy XII Auletes, king of Egypt, who was also Mithridates
+VI Eupator, Ariarathes IX of Cappadocia, Simon Boethus/Magus/Ptolemy
+(Alexander) bar Menneus, et.al. Mithridates VI married his sister
+Laodice---just as Ptolemy XII married his sister Cleopatra V. Both had
+daughters named Cleopatra who ruled (Cleopatra VII and Dynamis).
+
+The connection between Simon Boethus/Magus/Ptolemy XII Auletes/Ptolemy
+(Alexander) bar Menneus and Julius Caesar is obviously through his
+daughter Cleopatra whom Julius Caesar/Asander married. Using Josephus as
+a source, Antipater the Idumean's son King Herod was married to Simon
+Boethus's daughter Mariamme and Antipater the Idumean saved Julius
+Caesar's life during the Battle of the Nile (47 BC). As a reward,
+Josephus claims that Julius Caesar adopted King Herod's sons (Simon
+Boethus's grandsons) Aristobulus IV (Vespasian's grandfather [^13],
+Alexander (son of king Herod) aka Alexandros III aka Juba II, Herod
+Antipas the Tetrarch, Archelaus, and Philip and raised them in Rome, in
+the household of Gaius Asinius Pollio which was the same household that
+Caesar Augustus was raised in (Josephus, "Antiquities of the Jews", Book
+15, Chapter 2. Josephus, "Antiquities of the Jews", Book 17). This is
+untrue and those kids were his biological sons. It is also untrue that
+Alexander, son of King Herod, was killed by his father Herod, Josephus
+even has a story about a 'spurious Alexander' that showed up in Rome
+claiming to be the son of Herod who faked his death [^14], so he was
+'resurrected' as Juba II, king of Numidia and Mauretania. 
 
 ![Fig.1.16](/images/MithridatesVIEupator.png){:width="400px"}
 
@@ -684,7 +747,7 @@ horseman.).
 
 Amyntas Nikator aka Amyntas of Galatia [^10] aka Jesus ben Fabus aka Isa Amen (Jesus was named "Amen" in Rev. iii. 14) was either Asander aka Julius Caesar or one of his sons (Aspurgus who was also Caesarion?).
 
-He was also Jesus ben Fabus aka Isa Amen (Jesus was named "Amen" in Rev. iii. 14). He ruled an empire that stretched from modern-day Turkey through India. His palace at Isauria refers to Isis (also known as Isa or Aset) who was the mother of Horus (Cleopatra identified herself with the Greco-Egyptian goddess Isis. So, her son would have been Isa, son of Isis. The son of Isis in mythology was Horus, and that is why Caesarion's iconography has a Horus falcon on it). Was this Caesarion's avatar?
+He was also Jesus ben Fabus aka Isa Amen. He ruled an empire that stretched from modern-day Turkey through India. His palace at Isauria refers to Isis (also known as Isa or Aset) who was the mother of Horus (Cleopatra identified herself with the Greco-Egyptian goddess Isis. So, her son would have been Isa, son of Isis. The son of Isis in mythology was Horus, and that is why Caesarion's iconography has a Horus falcon on it). Was this Caesarion's avatar?
 
 If Amyntas Nikator aka Amyntas of Galatia was Asander aka Julius Caesar's son then Asander aka Julius Caesar was also Brogitarix, king
 of Galatia (Full name: Brogitaris (Brigatos) van (de) Celtes
@@ -798,71 +861,6 @@ Fig. 1.21. Tiberius Julius Sauromates II, King of Bosphorus, who was the
 son of Tiberius Julius Cotys (aka Tiberius Julius Alexander aka Arrius
 Calpernius Piso aka Arrius Varus aka Emperor Nerva), great-grandson of
 Dynamis aka Cleopatra and Mark Antony.
-
-One name that shows up in the family trees of all the people listed
-above is Simon Boethus who I identify as (king/Tetrarch) Ptolemy
-(Alexander) bar Menneus aka Simon Magus. The name Boethus comes from
-Sabazios which is a translation of Zeus (Jupiter to the Romans) in the
-dialect and tradition of Phrygians and Thracians of Anatolia. Ma'nu is
-likely a diminutive of Menneus ('son of man') and then Manu-Sabazios
-becomes Monobazus which becomes 'Bazus' or 'Bar Izates' shortened to
-'baYZTus' (or bar YZT) through frequent oral repetition which becomes
-'bOETHus'. He was likely also Simon the Essene the founder of the Essene
-sect and Simon Peter in the bible (the term 'Peter' is derived from the
-Latin 'Pater' meaning 'father', denoting the Essene High Priest. The
-Essenes called themselves 'the Sons of Zadok' and Simon was the heir of
-the Zadokite High Priest dynasty). His daughter Mariamne Boethus was the
-fifth wife of King Herod. He was the uncle of Jesus ben Fabus,
-great-great-great-grandfather of Jesus ben Gamla/Gamaliel aka King Izas
-Monobazus (the Talmud (Bereshit Rabbah 46:10) calls Izates and Monobazus
-the 'Sons of Ptolemy'), and I identify Juba II as Alexander (son of King
-Herod) which makes him the grandson of Simon Boethus, and he was the
-great-great-grandfather of Vespasian.
-
-Sabazius is related to the Saba/Sheba root meaning seven, rest, sated
-etc., and Jupiter-Sabazius is a Semitic or Semitized form of Jupiter,
-i.e. Turkish Judaism (the day of Sabbath was a festival of Sabazius
-(Plutarch (Symp. iv. 6)). Also, I(J)upiter was also called Jove or Iove
-to the Romans. The Latin pronunciation of Iove would have been Yoh-Way,
-i.e Yahweh/Yhwh, so Jove (Roman Zeus) Sabazios (Thracian Zeus) became
-conflated with Yahweh Saboath the god of the hebrew bible. Also, from
-Sabazios you get Zebedaios, sons of Zebedee.
-
-Ptolemy Menneus/Simon Boethus's son was named Philippion who I believe
-is a good candidate for Philip II Philoromaios and also Tiridates II of
-Parthia or Arsaces Philoromaios. Arsaces was the brother of Dynamis
-[^11]. So, Simon Boethus/Magus/Ptolemy (Alexander) bar Menneus, et.al.,
-were the aliases of Ptolemy X Alexander I, king of Egypt, and Marriamme
-Boethus was another of Cleopatra's regional aliases?  If you identify
-King Herod as Mark Antony aka Tiberius Claudius Nero aka Phraates IV of
-Parthia's regional alias then the picture becomes clearer.
-
-![Fig.1.22](/images/PtolemyXII.jpeg){:width="400px"}
-
-Fig. 1.22. Ptolemy XII Auletes, king of Egypt, who was also Mithridates
-VI Eupator, Ariarathes IX of Cappadocia, Simon Boethus/Magus/Ptolemy
-(Alexander) bar Menneus, et.al. Mithridates VI married his sister
-Laodice---just as Ptolemy XII married his sister Cleopatra V. Both had
-daughters named Cleopatra who ruled (Cleopatra VII and Dynamis).
-
-The connection between Simon Boethus/Magus/Ptolemy XII Auletes/Ptolemy
-(Alexander) bar Menneus and Julius Caesar is obviously through his
-daughter Cleopatra whom Julius Caesar/Asander married. Using Josephus as
-a source, Antipater the Idumean's son King Herod was married to Simon
-Boethus's daughter Mariamme and Antipater the Idumean saved Julius
-Caesar's life during the Battle of the Nile (47 BC). As a reward,
-Josephus claims that Julius Caesar adopted King Herod's sons (Simon
-Boethus's grandsons) Aristobulus IV (Vespasian's grandfather [^13],
-Alexander (son of king Herod) aka Alexandros III aka Juba II, Herod
-Antipas the Tetrarch, Archelaus, and Philip and raised them in Rome, in
-the household of Gaius Asinius Pollio which was the same household that
-Caesar Augustus was raised in (Josephus, "Antiquities of the Jews", Book
-15, Chapter 2. Josephus, "Antiquities of the Jews", Book 17). This is
-untrue and those kids were his biological sons. It is also untrue that
-Alexander, son of King Herod, was killed by his father Herod, Josephus
-even has a story about a 'spurious Alexander' that showed up in Rome
-claiming to be the son of Herod who faked his death [^14], so he was
-'resurrected' as Juba II, king of Numidia and Mauretania. 
 
 **5.3 Numismatic Proof**
 
