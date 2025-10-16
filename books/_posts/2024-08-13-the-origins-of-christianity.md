@@ -431,6 +431,14 @@ Serapis, crafted under Ptolemy I at the Alexandrian School, fused Osiris’ resu
 
 Up until the First Council of Nicaea the title "Christ", or "Christian", referred to the Serapis Cult ("those who worship Serapis are, in fact, Christians, and those who call themselves bishops of Christ are, in fact, devotees of Serapis.". Source: The Letter of Hadrian to Servianus).
 
+Zalmoxis the Dacian Deity
+
+Zalmoxis (also spelled Salmoxis, Zalmoxis) is a divinity of the Getae (a Thracian tribe) and Dacians. According to Herodotus (Histories, Book 4, 93-96), Zalmoxis was a slave of Pythagoras who taught the doctrine of immortality. He then returned to his people and taught them that they would not die but go to a place where they would live in perpetual happiness. To prove his doctrine, he hid in an underground chamber for three years and then reappeared (resurrection), thus convincing the Getae of the truth of his teachings.
+
+Zalmoxis was another name of Sabazius, the Thracian version of Zeus. Also, Zalmoxis, or Zalmox or Zalmos, can also be pronounced Salmos which is very close to the Aramaic and Hebrew pronunciation of Solomon.
+
+The capital of the Dacians was called "Sarmizegetusa" (Sarmatian fortress) which contains sar (king). Bosphoran kings names listed in subsequent chapters contain "RH" which is a Dacian trademark. Latin was also the original language of the Dacians and it was high-noble Aryan; German mixed the middle language (proto Latin) with degenerated old Gothic. The Dacians were likely a descendant of the Alani (Aryans) who were the Scythian royal house that controlled a Eurasian empire through proxy states.
+
 Zoroaster the Persian Deity
 
 Miraculous birth (His glory (xvarenah) entered his mother at birth). Temptation in wilderness (resisted the demon Buiti for 40 days). Transfiguration (experienced visions of Ahura Mazda), crucifixion symbolism (tradition says he was murdered at altar while praying). Resurrection belief (Zoroastrianism has strong resurrection theology).
@@ -600,8 +608,7 @@ Bosphorus, etc.
 
 ![Fig.1.13](/images/PharnacesII.jpg){:width="400px"}
 
-Fig. 1.13. Coin depicting Pharnaces II. Pharnaces II "dies" in 47 BCE
-just as Asander appears in 47 BCE as King of Bosphorus. Pharnaces II
+Fig. 1.13. Coin depicting Pharnaces II. At the Battle of Zela (47 BC) Julius Caesar defeats Pharnaces II and coins the phrase "Veni, Vidi, Vici". Pharnaces II flees and is killed by his own governor, Asander, who then becomes King of the Bosporus. This was not a succession; it was an avatar switch. Pharnaces II
 called himself "King of Kings" on coinsas Asander did.
 
 ![Fig.1.14](/images/Burebista.jpg){:width="400px"}
@@ -614,7 +621,7 @@ Fig. 1.15. Coin depicting Atrebates, king of Britannia who Julius Caesar was rec
 
 ![Fig.1.16](/images/KujulaKadphises.jpg){:width="400px"}
 
-Fig. 1.16. Coin depicting Kujula Kadphises, prince of Bactria (modern day Afghanistan). He was the leader of the Yuezhi tribe. This regional avatar of Asander/Julius Caesar also connects to the legendary Chinese emperor Yu the Great (original name "Aži" or "Yazhi" (亞茲))? Julius, from Ioulius, related to Iove (Jove). Iove is linguistically linked to the Scythian tribal name Yuehzi. He is "The Jove/Yuezhi King".
+Fig. 1.16. Coin depicting Kujula Kadphises, prince of Bactria (modern day Afghanistan). Kujula Kadphises unifies the Yuezhi tribes and establishes the Kushan Empire right after the "death" of Julius Caesar/Asander. This is not a successor state; it is the same ruler shifting his primary administrative center to Central Asia to manage the Silk Road. The "Yuezhi" are the "Iudii"/"Jove" tribe—the same Scythian-Celtic priestly class. This regional avatar of Asander/Julius Caesar also connects to the legendary Chinese emperor Yu the Great (original name "Aži" or "Yazhi" (亞茲))? Julius, from Ioulius, related to Iove (Jove).
 
 **5.1.1 Julius Caesar was a Title**
 
