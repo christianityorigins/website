@@ -227,7 +227,7 @@ distances and they spread their Draco (dragon/serpent) cult across Eurasia, enco
 
 The Aryan-Iranian-Scythians were the Egyptian-Persian-Indian-Greek-Roman elite. Egypt, Persia, India, Greece, Rome, etc., were all under the suzerainty of these elites since at least the 40th century BC and their base of operation was on the Bosphorus river.
 
-In the elite burial chambers from the Scythian Kurgans in Ukraine to the Etruscan tombs in Italy to the burial sites of Roman Patricians a specific non-local skull type appears: Dolichocephalic (long-headed) and high-vaulted with a pronounced occipital bun—a bulge at the back of the skull—a feature most commonly associated with Neanderthal admixture. This was no mere coincidence; it was the osteological signature of the Dragon Bloodline, a physiological marker distinguishing the ruling elite from the general population they governed.
+In the elite burial chambers from the Scythian Kurgans in Ukraine to the Egyptian pre-dynastic elite (Naqada culture) to the Indus Valley Civilization (Mehrgarh) to the Etruscan tombs in Italy to the burial sites of Roman Patricians a specific non-local skull type appears: Dolichocephalic (long-headed) and high-vaulted with a pronounced occipital bun—a bulge at the back of the skull—a feature most commonly associated with Neanderthal admixture. This was no mere coincidence; it was the osteological signature of the Dragon Bloodline, a physiological marker distinguishing the ruling elite from the general population they governed.
 
 All ancient Mediterranean religions derive from the
 Sarmatian serpent-dragon cult. See: Papaios and the Snake-Legged Goddess (Scythian) = Nehebkau, Uraeus, and Apep/Apophis (Egypt) = Ningishzida (Sumerian) = Tiamat and Mušḫuššu who was associated with Marduk (Babylonian) = Aži Dahāka (Zoroastrianism) later syncretized with Mithra = Ophion, Agathodaemon, Typhon, and Delphi's Pythoness priestess (Greek) = Nāgendra and Nāga (Vedic), Nehushtan/serpent staff of Moses, the Dacian and Roman Draco standards, the serpent-worshipping Essenes and Gnostics, Sebazi (Phrygian/Bulgarian), Jörmungandr (Norse), Ouroboros serpent in Freemasonry, etc. The Knights Templar knew the truth. The Templars worshipped Baphomet—a Sarmatian dragon deity (Aži Dahāka).
@@ -434,8 +434,6 @@ Zalmoxis (also spelled Salmoxis, Zalmoxis) is a divinity of the Getae (a Thracia
 
 Zalmoxis was another name of Sabazius, the Thracian version of Zeus. Also, Zalmoxis, or Zalmox or Zalmos, can also be pronounced Salmos which is very close to the Aramaic and Hebrew pronunciation of Solomon.
 
-The capital of the Dacians was called "Sarmizegetusa" (Sarmatian fortress) which contains sar (king). Bosphoran kings names listed in subsequent chapters contain "RH" which is a Dacian trademark. Latin was also the original language of the Dacians and it was high-noble Aryan; German mixed the middle language (proto Latin) with degenerated old Gothic. The Dacians were likely a descendant of the Alani (Aryans) who were the Scythian royal house that controlled a Eurasian empire through proxy states.
-
 Zoroaster the Persian Deity
 
 Miraculous birth (His glory (xvarenah) entered his mother at birth). Temptation in wilderness (resisted the demon Buiti for 40 days). Transfiguration (experienced visions of Ahura Mazda), crucifixion symbolism (tradition says he was murdered at altar while praying). Resurrection belief (Zoroastrianism has strong resurrection theology).
@@ -572,6 +570,8 @@ level of prestige and power to be placed alongside those two. Julius
 Caesar is the only historical figure who had a comparable level of
 prestige as Cyrus and Alexander.
 
+The Bosporan and Dacian kingdoms controlled the Danube Delta and the Bosporus Strait—the two most critical chokepoints for Eurasian trade. Whoever controlled these points controlled the flow of goods, armies, and ideas between Europe and Asia. They didn't just rule an empire; they ruled the geography of civilization itself. Also, the massive gold mines of Dacia (modern Romania) were the financial engine of the "Roman" Empire. The output of these mines from 100 BC - 100 AD exceeds the total gold supply of the rest of the ancient world combined.The fact that Asander is today an unknown historical figure despite the fact that he would have been the richest and most powerful man in the word at the time should be regarded as suspictious.
+
 Dynamis's father was Mithridates VI Eupator who also carried the title
 "King of Kings". Her uncle was Mithridates "Chrestus" [^9]. The name
 Mithridates (more accurately, Mithradates) is the Hellenized form of the
@@ -631,6 +631,8 @@ the Bosphorus, and Julius Caesar/Asander was king of this region.
 (Galli = Celt in Latin)) people or his ancestry in the region.
 
 Ceasar's gentilice (surname) was Iulius. Iulius comes from Dyaus (the sky god, same as Zeus, Jupiter - the name Zeus comes from the pronunciation of "Dyeus", and (I)Jupiter comes from the pronunciation of "Dyeus Pter" (Diespiter -> Iupiter)). So Iulius = Dyaus -> Iou -> Jupiter. "Iulius" (Julius) is related to "Iove" (Jove) which is the Roman equivalent of Zeus, and would have been pronouced Yahweh in the Latin language.
+
+Taking the Dacian angle: Julius" = "Zoltes". In Dacian/Thracian, the "J" sound becomes "Z" (Jupiter → Zeus). "Julius" → "Zulius" → "Zoltes"
 
 Another option: Julius comes from the Scythian Yuezhi tribe whose name derives from Dyaus Pter. Yuezhi also connects to the legendary Chinese emperor Yu the Great (original name "Aži" or "Yazhi" (亞茲)). The ancient
 Celtic tribe known as the Iudii, Iudaei, or "Ioulios" (ιούλιος) in Greek,
