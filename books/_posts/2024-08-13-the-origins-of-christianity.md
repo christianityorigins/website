@@ -37,7 +37,7 @@ Part 2: The Alexandrian Synthesis\
 Part 3: The Bosphoran Connection\
 5\. Rome Was Located On the Bosphorus River in Crimea\
 5.1\. Julius Caesar aka Asander, King of Bosphorus\
-5.1.2\. Julius Caesar was a Title\
+5.1.1\. Julius Caesar was a Title\
 5.2. Dragon Bloodline Descendants\
 5.2.1. Ptolemy XII Auletes aka Mark Antony aka Mithridates VI Eupator\
 5.2.2. Aliases and Avatars of the Bloodline\
