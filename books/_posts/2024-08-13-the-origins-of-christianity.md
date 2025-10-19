@@ -1331,18 +1331,6 @@ Then Mao-tse Dong used artificial weaponized famines and outright direct purges 
 
 **Bibliography**
 
-*A Forgery of Our Own* (1991) by Revilo P. Oliver
-[[link](http://www.revilo-oliver.com/rpo/Forgery_of_Our_Own.html)]
-(*short article where professor Revilo P. Oliver points the finger at
-Rabbi Akiva as being the center piece of the conspiracy to create a
-psy-op religion to subjugte the Romans*)
-
-*The Origins of Christianity* (1994) by Revilo P. Oliver
-[[link](https://archive.org/details/the-origins-of-christianity-by-revilo-p-oliver-z-lib.org)]
-
-*Reflections on the Christ Myth* (1994) by Revilo P. Oliver
-[[link](https://ia600201.us.archive.org/22/items/ReflectionsOnTheChristMyth_518/ReflectionsOnTheChristMyth-Oliver.pdf)]
-
 *Cleopatra to Christ* (2010) by Ralph Ellis
 [[link](https://www.google.com/books/edition/Cleopatra_to_Christ/T7sqfHyWPuQC?hl=en&gbpv=1&dq=cleopatra+to+christ&printsec=frontcover)]
 (*reveals that the biblical Jesus was based on King Izates of Adiabene
