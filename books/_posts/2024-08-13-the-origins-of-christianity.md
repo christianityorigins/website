@@ -597,9 +597,9 @@ Fig. 1.14. Coin depicting Burebista, king of the Dacians.
 
 Fig. 1.15. Coin depicting Atrebates, king of Britannia who Julius Caesar was recorded to have defeated in battle.
 
-![Fig.1.16](/images/Brogud.jpg){:width="400px"}
+![Fig.1.16](/images/Bogud.jpg){:width="400px"}
 
-Fig. 1.16. Coin depicting Brogud, king of Mauretania.
+Fig. 1.16. Coin depicting Bogud, king of Mauretania.
 
 ![Fig.1.17](/images/KujulaKadphises.jpg){:width="400px"}
 
