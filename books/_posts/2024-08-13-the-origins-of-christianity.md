@@ -242,25 +242,25 @@ Timeline:
 The Proto-Indo-European (Aryan) Hegemony
 
 -4500 BC: Kurgan (Yamnaya) culture begin expansions. These are the ancestors of many Indo-European groups. They are the first horse riders. Inventors of the chariot.\
--3000 BC: Scythian elites establish proxy rule in Sumer (Sargon of Akkad) and Egypt (Scorpion I).\
--2150 BC: Gutian Dynasty. First Scythian rulers of Mesopotamia. Guti = Goth = Scythian.\
--1650-1500 BC: The Hyksos. Scythian Pharaohs of Egypt (Heka-Khasut means "Rulers of Foreign Lands" and Khasut is a cognate of Scythian/Saka, Scyth, Scoloti).\
--1600-1200 BC: The Hittites. Scythians in Anatolia. Enforcement arm of the Mitanni\
--1595–1155 BC: Kassite Dynasty. Scythian rulers of Babylon after Hittites sacked it.\
--1500 BC: The Mitanni. Scythian horse lords in Syria. Their ruling class has pure Vedic (Aryan) names—Mitra, Varuna, Indra. They are the ultimate horse-lords, and their empire stretches from the Mediterranean to the Indus. The Kassites in Babylon are their vassals.\
--1500 BC: Vedic India. Scythian chariot kings. The Rigveda is their religious text. The term "Aryan" (Noble) is their self-identification.
+-3000 BC: Aryan elites establish proxy rule in Sumer (Sargon of Akkad) and Egypt (Scorpion I).\
+-2150 BC: Gutian Dynasty. First Aryan rulers of Mesopotamia. Guti = Goth = Scythian.\
+-1650-1500 BC: The Hyksos. Aryan Pharaohs of Egypt (Heka-Khasut means "Rulers of Foreign Lands" and Khasut is a cognate of Scythian/Saka, Scyth, Scoloti).\
+-1600-1200 BC: The Hittites. Aryan in Anatolia. Enforcement arm of the Mitanni\
+-1595–1155 BC: Kassite Dynasty. Aryan rulers of Babylon after Hittites sacked it.\
+-1500 BC: The Mitanni. Aryan horse lords in Syria. Their ruling class has pure Vedic (Aryan) names—Mitra, Varuna, Indra. They are the ultimate horse-lords, and their empire stretches from the Mediterranean to the Indus. The Kassites in Babylon are their vassals.\
+-1500 BC: Vedic India. Aryan chariot kings. The Rigveda is their religious text. The term "Aryan" (Noble) is their self-identification.
 
 The Great Upheaval & Reorganization
 
--1200 BC: Bronze Age Collapse. Mainstream history blames the mysterious "Sea Peoples". The truth is that this was a massive civil war within the Scythian hegemony. Assyria rose up under the Chaldean priests (the Kalani, the Jews). Then the Sea Peoples (Sherden = Sarmatians, Peleset = Philistines = Pelasgians) were Scythian factions from the Aegean and Anatolia rebelling against the Mitanni center. The Dorian Invasion of Greece was not a new people arriving. It was the Scythian-Sarmatian elite of mainland Greece reasserting control after the Mycenaean faction grew weak. The trigger was the eruption of Thera (Santorini) around 1600 BC, which disrupted trade and sparked a bloody power struggle.\
+-1200 BC: Bronze Age Collapse. Mainstream history blames the mysterious "Sea Peoples". The truth is that this was a massive civil war within the Aryan hegemony. Assyria rose up under the Chaldean priests (the Kalani, the Jews). Then the Sea Peoples (Sherden = Sarmatians, Peleset = Philistines = Pelasgians) were Aryan factions from the Aegean and Anatolia rebelling against the Mitanni center. The Dorian Invasion of Greece was not a new people arriving. It was the Aryan-Sarmatian elite of mainland Greece reasserting control after the Mycenaean faction grew weak. The trigger was the eruption of Thera (Santorini) around 1600 BC, which disrupted trade and sparked a bloody power struggle.\
 -705-330 BC: Persia’s Achaemenids. Saka (Scythian) clan. This was not a new empire but a reconsolidation of Scythian power under a new clan. The Persians were an Iranian (Saka) tribe. Cyrus the Great's title "Kurush" means "Sun Lord," identical to the Scythian Mithra.\
--616 BC: The Etruscan Tarquin dynasty. The Etruscan Tarquin dynasty seizes power in the Italian settlement of Rome. The Etruscans were not a mystery; they were a Scythian colonial governorate. Tarquin = Tarkhu (Scythian: "Ruler"). Servius Tullius = Tulli (Scythian: "Wolf Clan"). The "Roman" Republic was established as a military-administrative outpost to control the Western Mediterranean and secure tin from Britain.
+-616 BC: The Etruscan Tarquin dynasty. The Etruscan Tarquin dynasty seizes power in the Italian settlement of Rome. The Etruscans were not a mystery; they were a Aryan colonial governorate. Tarquin = Tarkhu (Scythian: "Ruler"). Servius Tullius = Tulli (Scythian: "Wolf Clan"). The "Roman" Republic was established as a military-administrative outpost to control the Western Mediterranean and secure tin from Britain.
 
 The Final Consolidation: The Bosphoran Empire
 
--200 BC:The Thracians emerge in the Balkans (200 BC). The Thracian ruling class is Scythian. The most powerful Thracian tribe, the Dacians (or Getae which is linguistically identical to Goth, Get, Jat, and Scyth), become the Scythian power center for Southeastern Europe. The Dacians were the "Wolf Clan" of the Scythian elite who had mixed with the Alani (Aryan). Their battle standard was the Draco—a wolf-headed serpent. This was not just a standard; it was their religious and royal symbol. The capital of the Dacians was called "Sarmizegetusa" (Sarmatian fortress) which contains sar (king). This is where Latin originates. Latin was the administrative and ritual language of the Dacian-Thracian Scythian elite. It was not a native Italian language. It was imposed on the Italian peninsula by the Scythian Etruscan and later "Roman" rulers. The reason Romanian is the closest language to Latin is simple: Dacia was a core territory of the empire that spoke a Latinate language natively. Latin is the linguistic fossil of the Scythian ruling class in the West. (interesting fact: legendary King Arthur is a corrupted memory of an Alani Warlord (Artorius), one of the military Kšatrapatis sent from the Bosphorus to secure the lucrative tin and iron mines of Britain after the Flavian consolidation).
+-200 BC:The Thracians emerge in the Balkans (200 BC). The Thracian ruling class is Aryan. The most powerful Thracian tribe, the Dacians (or Getae which is linguistically identical to Goth, Get, Jat, and Scyth), become the Aryan power center for Southeastern Europe. The Dacians were the "Wolf Clan" of the Scythian elite who had mixed with the Alani (Aryan). Their battle standard was the Draco—a wolf-headed serpent. This was not just a standard; it was their religious and royal symbol. The capital of the Dacians was called "Sarmizegetusa" (Sarmatian fortress) which contains sar (king). This is where the Latin language originates. Latin was the administrative and ritual language of the Dacian-Thracian Scythian elite. It was not a native Italian language. It was imposed on the Italian peninsula by the Scythian Etruscan and later "Roman" rulers. The reason Romanian is the closest language to Latin is simple: Dacia was a core territory of the empire that spoke a Latinate language natively. Latin is the linguistic fossil of the Scythian ruling class in the West. (interesting fact: legendary King Arthur is a corrupted memory of an Alani Warlord (Artorius), one of the military Kšatrapatis sent from the Bosphorus to secure the lucrative tin and iron mines of Britain after the Flavian consolidation).
 
-The Bosporan and Dacian kingdoms controlled the Danube Delta and the Bosporus Strait—the two most critical chokepoints for Eurasian trade. Whoever controlled these points controlled the flow of goods, armies, and ideas between Europe and Asia. They didn't just rule an empire; they ruled the geography of civilization itself. Also, the massive gold mines of Dacia (modern Romania) were the financial engine of the "Roman" Empire. The output of these mines from 100 BC - 100 AD exceeds the total gold supply of the rest of the ancient world combined. The fact that Asander, king of Bosphrus is today an unknown historical figure despite the fact that he would have been the richest and most powerful man in the word at the time should be regarded as suspictious. The reason why you never heard of him is because you know him under another name: Julius Caesar.\
+The Bosporan and Dacian kingdoms controlled the Danube Delta and the Bosporus Strait—the two most critical chokepoints for Eurasian trade. Whoever controlled these points controlled the flow of goods, armies, and ideas between Europe and Asia. They didn't just rule an empire; they ruled the geography of civilization itself. Also, the massive gold mines of Dacia (modern Romania) were the financial engine of the "Roman" Empire. The output of these mines from 100 BC - 100 AD exceeds the total gold supply of the rest of the ancient world combined. The fact that Asander, king of Bosphrus is today an unknown historical figure despite the fact that he would have been the richest and most powerful man in the word at the time should be regarded as suspictious. The reason why you never heard of him is because you know him under another name: Julius Caesar.
 
 ![Fig.1.1](/images/SauromatesII.jpg){:width="400px"}
 
@@ -733,6 +733,10 @@ Julius Aspurgus Philoromaios (Aspurgus translates to "horseman-lord" in
 Thracian languages. Sabazios was a Thracian deity worshipped as a
 horseman.).
 
+![Fig.1.20](/images/PtolemyApion.jpg){:width="400px"}
+
+Fig. 1.20. Coin depicting Ptolemy Apion, king of Kyrene, Kyrenaica, North Africa. 
+
 **5.2.2. Amyntas Nikator aka Amyntas, King of Galatia**
 
 Amyntas Nikator aka Amyntas of Galatia [^10] aka Jesus ben Fabus aka Isa Amen (Jesus was named "Amen" in Rev. iii. 14) was either Asander aka Julius Caesar or one of his sons (Aspurgus who was also Caesarion?).
@@ -800,9 +804,9 @@ Theophilos in Greek. Around 26% of the New Testament was written to
 Theophilus in Luke and Acts of the Apostles).
 
 ![Fig.
-1.20](/images/AlexanderPhilo.jpg){:width="400px"}
+1.21](/images/AlexanderPhilo.jpg){:width="400px"}
 
-Fig. 1.20. (L) Alexander (grandson of King Herod) aka Gaius Julius
+Fig. 1.21. (L) Alexander (grandson of King Herod) aka Gaius Julius
 Alexander, Herodian Prince of Judaea aka Alexander the Alabarch aka
 (King/Tetrarch) Ptolemy (Alexander) bar Menneus aka Ptolemy of
 Mauretania aka "Jesus" in the bible. (R) Cleopatra (Thea Philopator) of
@@ -822,9 +826,9 @@ Adiabene/Edessa aka Ptolemy aka Yakov Zu Tolomoy aka Izates aka Jesus
 Emmanuel aka Monobazus of Adiabene [^12]
 
 ![Fig.
-1.21](/images/Josephus.jpg){:width="400px"}
+1.22](/images/Josephus.jpg){:width="400px"}
 
-Fig. 1.21. 'Josephus' bust which I identify as Tiberius Julius
+Fig. 1.22. 'Josephus' bust which I identify as Tiberius Julius
 Alexander. Compare it to Nerva's depictions. So, 'Josephus' was Philo of
 Alexandria's son. Tiberius Julius Alexander's son was named
 'Philopappos' and one of his mother's aliases was 'Alexandria bat
@@ -832,9 +836,9 @@ Matthias' which is where the pseudonym 'Joseph bar Matthias' comes from.
 Also, drop the initial b and final s in the name "Bar Mathias" and you
 get (Joseph of) Arimathea.
 
-![Fig. 1.22](/images/coin-abgar-phraates.png){:width="400px"}
+![Fig. 1.23](/images/coin-abgar-phraates.png){:width="400px"}
 
-Fig. 1.22. (L) and (R) show King Izates Monobazus of Edessa (known in
+Fig. 1.23. (L) and (R) show King Izates Monobazus of Edessa (known in
 Greek as the "Kingdom of Ourania" or in English as the "Kingdom of
 Heaven") wearing a crown of thorns. Izates or Izas is his title which is
 an ancient Greek translation of the Avestan word Yazatas (Persian:
@@ -845,42 +849,42 @@ source: The Alexander Mosaic, Huqoq, Israel.
 
 **5.2.5. Tiberius Julius Sauromates II**
 
-![Fig.1.23](/images/SauromatesII2.jpg){:width="400px"}
+![Fig.1.24](/images/SauromatesII2.jpg){:width="400px"}
 
-Fig. 1.23. Tiberius Julius Sauromates II, King of Bosphorus, who was the
+Fig. 1.24. Tiberius Julius Sauromates II, King of Bosphorus, who was the
 son of Tiberius Julius Cotys (aka Tiberius Julius Alexander aka Arrius
 Calpernius Piso aka Arrius Varus aka Emperor Nerva), great-grandson of
 Dynamis aka Cleopatra and Mark Antony.
 
 **5.3 Numismatic Proof**
 
-![Fig.1.24](/images/RhoemetalcesOctavian.jpg){:width="400px"}
+![Fig.1.25](/images/RhoemetalcesOctavian.jpg){:width="400px"}
 
-Fig. 1.24. L. Rhoemetalces I, king of Bosphorus. R. Emperor Augustus (Octavian)
+Fig. 1.25. L. Rhoemetalces I, king of Bosphorus. R. Emperor Augustus (Octavian)
 
-![Fig.1.25](/images/PolemonI.jpg){:width="400px"}
+![Fig.1.26](/images/PolemonI.jpg){:width="400px"}
 
-Fig. 1.25. Rhoemetalces I aka Emperor Augustus (Octavian) was also Polemon I of Pontus.
+Fig. 1.26. Rhoemetalces I aka Emperor Augustus (Octavian) was also Polemon I of Pontus.
 
-![Fig.1.26](/images/AspurgusTiberius.jpg){:width="400px"}
+![Fig.1.27](/images/AspurgusTiberius.jpg){:width="400px"}
 
-Fig. 1.26. L. Tiberius Julius Aspurgus I, king of Bosphorus. R. Emperor Tiberius Caesar Augustus
+Fig. 1.27. L. Tiberius Julius Aspurgus I, king of Bosphorus. R. Emperor Tiberius Caesar Augustus
 
-![Fig.1.27](/images/MithridatesIIICaligula.jpg){:width="400px"}
+![Fig.1.28](/images/MithridatesIIICaligula.jpg){:width="400px"}
 
-Fig. 1.27. L. Mithridates III, king of Bosphorus. R. Emperor Caligula
+Fig. 1.28. L. Mithridates III, king of Bosphorus. R. Emperor Caligula
 
-![Fig.1.28](/images/CotysIClaudius.jpg){:width="400px"}
+![Fig.1.29](/images/CotysIClaudius.jpg){:width="400px"}
 
-Fig. 1.28. L. Cotys I, king of Bosphorus R. Emperor Claudius
+Fig. 1.29. L. Cotys I, king of Bosphorus R. Emperor Claudius
 
-![Fig.1.29](/images/RhescuporisIVespasian.jpg){:width="400px"}
+![Fig.1.30](/images/RhescuporisIVespasian.jpg){:width="400px"}
 
-Fig. 1.29. L. Rhescuporis I, king of Bosphorus. R. Emperor Vespasian
+Fig. 1.30. L. Rhescuporis I, king of Bosphorus. R. Emperor Vespasian
 
-![Fig.1.30](/images/PolemonIITitus.jpg){:width="400px"}
+![Fig.1.31](/images/PolemonIITitus.jpg){:width="400px"}
 
-Fig. 1.30. L. Polemon II, king of Bosphorus R. Emperor Titus
+Fig. 1.31. L. Polemon II, king of Bosphorus R. Emperor Titus
 
 The split between Rome in the East and Rome in the West happened sometime during the Flavian period. Roman emperor faces no longer appear on Bosphoran coins after emperor Titus.  
 
@@ -939,9 +943,9 @@ King, and Pas means "all" as in Pan. "Vespasian" = "King of All", or "King of Ev
 'Flavius Scaevinus' the conspirator involved in Nero's assassination.
 
 ![Fig.
-1.31](/images/Vespasian.jpg){:width="400px"}
+1.32](/images/Vespasian.jpg){:width="400px"}
 
-Fig. 1.31. L. Vespasian. R. Herod Agrippa I
+Fig. 1.32. L. Vespasian. R. Herod Agrippa I
 
 'Antonia Caenis' was Vespassian's mistress who was his first cousin who
 was Cleopatra (Thea Philopator) of Mauretania aka Cleopatra IX aka
@@ -1036,9 +1040,9 @@ Capitolina after the Bar Kokhba revolt (the city was named after Hadrian's famil
 that Aquila of Sinope and his wife Prisca or Priscilla lived with Paul
 the Apostle and Paul called them "my fellow workers in Christ Jesus"
 
-![Fig.1.32](/images/Antinous.jpg){:width="400px"}
+![Fig.1.33](/images/Antinous.jpg){:width="400px"}
 
-Fig. 1.32. Steel relief that shows Antinous holding the grapes of Dionysus in one-hand and a cross in the other.
+Fig. 1.33. Steel relief that shows Antinous holding the grapes of Dionysus in one-hand and a cross in the other.
 
 **8.2 Subversion of the Imperial Cult by Rabbi Akiva and His Students**
 
