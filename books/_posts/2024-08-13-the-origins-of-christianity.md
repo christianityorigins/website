@@ -239,44 +239,28 @@ The snake was revered by the Scythians for several reasons: apart from symbolism
 
 Timeline:
 
--Kurgan culture (Scythian ancestors) begin expansions (4500 BC)\
--Scythian elites establish proxy rule in Sumer (Sargon of Akkad) and Egypt (Scorpion I) (3000 BC)\
--Gutian Dynasty (2150 BC) – First Scythian rulers of Mesopotamia.\
--The Hyksos (c. 1650–1550 BC) – Scythian Pharaohs of Egypt (Heka-Khasut means "Rulers of Foreign Lands" and Khasut is a cognate of Scythian/Saka, Scyth, Scoloti).\
--The Hittites (c. 1600–1200 BC) – Scythians in Anatolia.\
--Kassite Dynasty (c. 1595–1155 BCE) - Scythian rulers of Babylon after Hittites sacked it.\
--The Mitanni (1500 BC) – Scythian horse lords in Syria.\
--Vedic India (1500 BC) – Scythian chariot kings.\
--"Sea Peoples" collapse Mediterranean empires (Scythian mercenaries) (1200 BC) \
--The "Dorian Greeks" who destroyed Mycenae (c. 1200 BC) were steppe nomads and Scythian-Sarmatians.\
--Persia’s Achaemenids (c. 705–330 BC) - Saka (Scythian) clan.\
--The Etruscan Tarquin dynasty (616 BC) - Scythian rulers of Rome. Tarquin = Tarkhu (Scythian: "Ruler"). Servius Tullius = Tulli (Scythian: "Wolf Clan").\
--The Alani (c. 100 BC - 450 AD) - Alan = Aryan. They were the purest, highest-ranking Scythian tribe. They are the core of the Sarmatian confederation whose royal house ultimately produced the Julio-Claudians (Julius Caesar/Asander) (interesting fact: legendary King Arthur is a corrupted memory of an Alani Warlord (Artorius), one of the military Kšatrapatis sent from the Bosphorus to secure the lucrative tin and iron mines of Britain after the Flavian consolidation).\
+The Proto-Indo-European (Aryan) Hegemony
 
-The Mitanni exercised hegemony over a pan-Eurasian empire. The Hittites,
-also known as the Neshians, were one enforcement arm for the Mitanni.
-They ruled by military dominance (chariots, cavalry, mercenaries),
-installing puppet kings (often their own bloodline), controlling trade
-routes (Silk Road, Black Sea, Pontic Steppe), and through enforcing
-religious syncretism.
+-4500 BC: Kurgan (Yamnaya) culture begin expansions. These are the ancestors of many Indo-European groups. They are the first horse riders. Inventors of the chariot.\
+-3000 BC: Scythian elites establish proxy rule in Sumer (Sargon of Akkad) and Egypt (Scorpion I).\
+-2150 BC: Gutian Dynasty. First Scythian rulers of Mesopotamia. Guti = Goth = Scythian.\
+-1650-1500 BC: The Hyksos. Scythian Pharaohs of Egypt (Heka-Khasut means "Rulers of Foreign Lands" and Khasut is a cognate of Scythian/Saka, Scyth, Scoloti).\
+-1600-1200 BC: The Hittites. Scythians in Anatolia. Enforcement arm of the Mitanni\
+-1595–1155 BC: Kassite Dynasty. Scythian rulers of Babylon after Hittites sacked it.\
+-1500 BC: The Mitanni. Scythian horse lords in Syria. Their ruling class has pure Vedic (Aryan) names—Mitra, Varuna, Indra. They are the ultimate horse-lords, and their empire stretches from the Mediterranean to the Indus. The Kassites in Babylon are their vassals.\
+-1500 BC: Vedic India. Scythian chariot kings. The Rigveda is their religious text. The term "Aryan" (Noble) is their self-identification.
 
-The eruption of Thera (Santorini) around 1600 BCE triggered a volcanic
-winter that was recorded all the way in China. This destroyed the
-ancient economy and caused continual strife and this was one of the
-causes of the eventual collapse of the Bronze Age and the fragmentation
-of Scythian hegemony. It also led to the Hyksos expulsion from Egypt and
-Assyria rising up under the Chaldean priests (the Kalani, the Jews).
-Jews referred to them as Ashkenaz, meaning Scythian (Josephus. Vol. 5:
-Antiquities: 8:2:5, pp. 593-595). Khazaria is the former territory of
-the Scythians, which is why they they were called Ashkenazi.
+The Great Upheaval & Reorganization
 
-The Sea Peoples were the revenge against Babylon, Hittites, and Egypt
-after the Mitanni were exiled.
+-1200 BC: Bronze Age Collapse. Mainstream history blames the mysterious "Sea Peoples". The truth is that this was a massive civil war within the Scythian hegemony. Assyria rose up under the Chaldean priests (the Kalani, the Jews). Then the Sea Peoples (Sherden = Sarmatians, Peleset = Philistines = Pelasgians) were Scythian factions from the Aegean and Anatolia rebelling against the Mitanni center. The Dorian Invasion of Greece was not a new people arriving. It was the Scythian-Sarmatian elite of mainland Greece reasserting control after the Mycenaean faction grew weak. The trigger was the eruption of Thera (Santorini) around 1600 BC, which disrupted trade and sparked a bloody power struggle.\
+-705-330 BC: Persia’s Achaemenids. Saka (Scythian) clan. This was not a new empire but a reconsolidation of Scythian power under a new clan. The Persians were an Iranian (Saka) tribe. Cyrus the Great's title "Kurush" means "Sun Lord," identical to the Scythian Mithra.\
+-616 BC: The Etruscan Tarquin dynasty. The Etruscan Tarquin dynasty seizes power in the Italian settlement of Rome. The Etruscans were not a mystery; they were a Scythian colonial governorate. Tarquin = Tarkhu (Scythian: "Ruler"). Servius Tullius = Tulli (Scythian: "Wolf Clan"). The "Roman" Republic was established as a military-administrative outpost to control the Western Mediterranean and secure tin from Britain.
 
-The Sea people consisted of: The Sherden = The Sardinians = The Sauromatians (Sarmatians). The Peleset = The Philistines = The Pelasgians (pre-Greek people) = The Plataeans? This group represents Aegean Scythian remnants. The Denyen = The Danaoi (Homer's term for Greeks) = The Tribe of Dan (Israelites). The Israelite tribe of Dan was a seafaring tribe (see the Song of Deborah). They were not Semites; they were Scythian-Greek sailors who were later written into the Jewish narrative. Their migration from the coast to the north is a memory of their settlement after the Sea Peoples' campaigns.
+The Final Consolidation: The Bosphoran Empire
 
-The Hyksos descendants then re-emerged in Persia and Anatolia, later
-reclaiming Egypt under the Achaemenid Period (525 BCE).
+-200 BC:The Thracians emerge in the Balkans (200 BC). The Thracian ruling class is Scythian. The most powerful Thracian tribe, the Dacians (or Getae which is linguistically identical to Goth, Get, Jat, and Scyth), become the Scythian power center for Southeastern Europe. The Dacians were the "Wolf Clan" of the Scythian elite who had mixed with the Alani (Aryan). Their battle standard was the Draco—a wolf-headed serpent. This was not just a standard; it was their religious and royal symbol. The capital of the Dacians was called "Sarmizegetusa" (Sarmatian fortress) which contains sar (king). This is where Latin originates. Latin was the administrative and ritual language of the Dacian-Thracian Scythian elite. It was not a native Italian language. It was imposed on the Italian peninsula by the Scythian Etruscan and later "Roman" rulers. The reason Romanian is the closest language to Latin is simple: Dacia was a core territory of the empire that spoke a Latinate language natively. Latin is the linguistic fossil of the Scythian ruling class in the West. (interesting fact: legendary King Arthur is a corrupted memory of an Alani Warlord (Artorius), one of the military Kšatrapatis sent from the Bosphorus to secure the lucrative tin and iron mines of Britain after the Flavian consolidation).
+
+The Bosporan and Dacian kingdoms controlled the Danube Delta and the Bosporus Strait—the two most critical chokepoints for Eurasian trade. Whoever controlled these points controlled the flow of goods, armies, and ideas between Europe and Asia. They didn't just rule an empire; they ruled the geography of civilization itself. Also, the massive gold mines of Dacia (modern Romania) were the financial engine of the "Roman" Empire. The output of these mines from 100 BC - 100 AD exceeds the total gold supply of the rest of the ancient world combined. The fact that Asander, king of Bosphrus is today an unknown historical figure despite the fact that he would have been the richest and most powerful man in the word at the time should be regarded as suspictious. The reason why you never heard of him is because you know him under another name: Julius Caesar.\
 
 ![Fig.1.1](/images/SauromatesII.jpg){:width="400px"}
 
@@ -286,7 +270,7 @@ the Sauromatians". Sauromates is a Greek rendering of 'Sarmatian',
 referring to the Scythian tribe who came from the Pontic steppe. 'Saur'
 means 'lizard' or 'reptile', and 'mates' means 'man' or 'warrior'.
 Therefore, translated literally ΒΑCΙΛΕΩC CΑVΡΟΜΑΤΟΥ means "King of the
-lizard people", or "king of the dragon people".
+lizard people", or "king of the dragon people". He was the grandson (or great-grandson?) of Asander, king of Bosphorus aka Julius Caesar.
 
 ![Fig.1.2](/images/Tamga.jpg){:width="400px"}
 
@@ -569,8 +553,6 @@ used by Cyrus the Great and Alexander the Great, so this shows Asander's
 level of prestige and power to be placed alongside those two. Julius
 Caesar is the only historical figure who had a comparable level of
 prestige as Cyrus and Alexander.
-
-The Bosporan and Dacian kingdoms controlled the Danube Delta and the Bosporus Strait—the two most critical chokepoints for Eurasian trade. Whoever controlled these points controlled the flow of goods, armies, and ideas between Europe and Asia. They didn't just rule an empire; they ruled the geography of civilization itself. Also, the massive gold mines of Dacia (modern Romania) were the financial engine of the "Roman" Empire. The output of these mines from 100 BC - 100 AD exceeds the total gold supply of the rest of the ancient world combined.The fact that Asander is today an unknown historical figure despite the fact that he would have been the richest and most powerful man in the word at the time should be regarded as suspictious.
 
 Dynamis's father was Mithridates VI Eupator who also carried the title
 "King of Kings". Her uncle was Mithridates "Chrestus" [^9]. The name
