@@ -19,7 +19,7 @@ Cosmotheism is the philosophical and spiritual view that the universe itself is 
 
 2 Types of Cosmotheism
 
-There are different interpretations of the cosmotheist cosmology, but here are three:
+There are different interpretations of the cosmotheist cosmology, but here are two:
 
 -   Naturalistic cosmotheism: This view sees the universe as a natural phenomenon, emphasizing the interconnectedness of all things without invoking supernatural elements. It aligns closely with scientific naturalism and can resonate with atheistic perspectives. 
   
