@@ -586,7 +586,7 @@ Bosphorus, etc.
 
 ![Fig.1.13](/images/PharnacesII.jpg){:width="400px"}
 
-Fig. 1.13. Coin depicting Pharnaces II. At the Battle of Zela (47 BC) Julius Caesar defeats Pharnaces II and coins the phrase "Veni, Vidi, Vici". Pharnaces II flees and is killed by his own governor, Asander, who then becomes King of the Bosporus. This was not a succession; it was an avatar switch. Pharnaces II
+Fig. 1.13. Coin depicting Pharnaces II who was the king of the Bosporan Kingdom and the Kingdom of Pontus. He was a . At the Battle of Zela (47 BC) Julius Caesar defeats Pharnaces II and coins the phrase "Veni, Vidi, Vici". Pharnaces II flees and is killed by his own governor, Asander, who then becomes King of the Bosporus. This was not a succession; it was an avatar switch. Pharnaces II
 called himself "King of Kings" on coinsas Asander did.
 
 ![Fig.1.14](/images/Burebista.jpg){:width="400px"}
@@ -599,7 +599,7 @@ Fig. 1.15. Coin depicting Atrebates, king of Britannia who Julius Caesar was rec
 
 ![Fig.1.16](/images/Bogud.jpg){:width="400px"}
 
-Fig. 1.16. Coin depicting Bogud, king of Mauretania.
+Fig. 1.16. Coin depicting Bogud, king of Mauretania (a territory that encompassed most of North Africa), who was a recorded ally of Julius Caesar.
 
 ![Fig.1.17](/images/KujulaKadphises.jpg){:width="400px"}
 
