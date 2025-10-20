@@ -450,8 +450,7 @@ Footnotes (Chapter 4)
 
 **5 Rome Was Located On the Bosphorus River in Crimea**
 
-Much of the history of the Western Roman Empire was conjured up by the
-Church Fathers, Jesuits, Joseph Justus Scaliger, and medieval forgers,
+Much of the history of the Western Roman Empire was conjured up by the Flavians, Church Fathers, Jesuits, Joseph Justus Scaliger, and medieval forgers,
 either to retrofit history to align with the Bible, due to conflicts
 between the Vatican and the Eastern Byzantine Church, or for profit.
 
