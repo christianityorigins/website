@@ -546,9 +546,8 @@ A statue from the Bosporan Kingdom, dated to Asander's reign (ca. 47--17
 BCE), refers to Asander as the "Great King of Kings Asandros
 Philoromaios Soter" (Corpus Inscriptionum Regni Bosporani 30). So, he
 was a 'King of Kings', Soter (savior), and 'The Great'. Individually,
-each of those titles carries significance, but the 'Great King of Kings'
-title in that inscription stands out because it is a rare title that was
-used by Cyrus the Great and Alexander the Great, so this shows Asander's
+each of those titles carries significance, for example, the title "King of Kings" (Shahanshah) originated in ancient Persia, notably with the Achaemenid Empire, and was adopted in Parthia. For a ruler to claim it means he was either declaring himself the equal to the Persian or Parthian emperor or, more likely, was the Persian or Parthian emperor himself but the 'Great King of Kings'
+title in that inscription stands out because it is a rare title that only two other historical figures carried and they were Cyrus the Great and Alexander the Great, so this shows Asander's
 level of prestige and power to be placed alongside those two. Julius
 Caesar is the only historical figure who had a comparable level of
 prestige as Cyrus and Alexander.
@@ -591,7 +590,7 @@ called himself "King of Kings" on coinsas Asander did.
 
 ![Fig.1.14](/images/Burebista.jpg){:width="400px"}
 
-Fig. 1.14. Coin depicting Burebista, king of the Dacians, who was an alleged enemy of Julius Caesar.
+Fig. 1.14. Coin depicting Burebista, king of the Dacians, who was an alleged enemy of Julius Caesar. He was assasinated in 44 BC, the same year as Julius Caesar.
 
 ![Fig.1.15](/images/Atrebates.jpg){:width="400px"}
 
@@ -872,7 +871,7 @@ Fig. 1.27. L. Tiberius Julius Aspurgus I, king of Bosphorus. R. Emperor Tiberius
 
 ![Fig.1.28](/images/KadphisesTiberius.jpg){:width="400px"}
 
-Fig. 1.28. L. Tiberius Julius Aspurgus I, king of Bosphorus aka Emperor Tiberius Caesar Augustus. R. Kujula Kadphises, prince of Bactria (modern day Afghanistan). Kujula Kadphises unifies the Yuezhi tribes and establishes the Kushan Empire right after the "death" of Julius Caesar/Asander. This is not a successor state; it is the same ruler shifting his primary administrative center to Central Asia to manage the Silk Road. The "Yuezhi" are the "Iudii"/"Jove" tribe—the same Scythian-Celtic priestly class. This regional avatar also connects to the legendary Chinese emperor Yu the Great (original name "Aži" or "Yazhi" (亞茲))? Julius, from Ioulius, related to Iove (Jove).
+Fig. 1.28. Tiberius Julius Aspurgus I, king of Bosphorus aka Emperor Tiberius Caesar Augustus was also Kujula Kadphises, prince of the Kushan Empire (a vast territory stretching from Central Asia into northern India). Kujula Kadphises unifies the Yuezhi tribes and establishes the Kushan Empire right after the "death" of Julius Caesar/Asander. This is not a successor state; it is the same ruler shifting his primary administrative center to Central Asia to manage the Silk Road. The "Yuezhi" are the "Iudii"/"Jove" tribe—the same Scythian-Celtic priestly class. This regional avatar also connects to the legendary Chinese emperor Yu the Great (original name "Aži" or "Yazhi" (亞茲))? Julius, from Ioulius, related to Iove (Jove).
 
 ![Fig.1.29](/images/MithridatesIIICaligula.jpg){:width="400px"}
 
