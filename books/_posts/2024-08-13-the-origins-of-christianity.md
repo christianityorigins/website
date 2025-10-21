@@ -123,7 +123,7 @@ end of the book.
 -   Flavius: Flavus = yellow/golden is a deliberate Latin mistranslation of the Scythian root Pālava or Palavi (Pahlavi), the term for the Parthian/Iranian aristocracy. The "Flavian" line was a Parthian/Sarmatian proxy dynasty installed by the Bosphoran center (Julius Caesar/Asander's line) to enforce the new Christianized Imperial Cult. They claimed a 'Golden Age' (Flavius) when they were truly the Pahlavi (Parthians) rewriting the Roman lie. 
 -   Izates or Izas: Ie- is a prefix denoting divinity (as in I-em-hotep in Egyptianm and IE in Indo-European is a divine prefix (as in Ie-ove/Jove)). -sous is a variant of Zeus (Zas or Dyas is a cognate of Izas). Iesous = "Divine Zeus." This connects directly to Iulius (from Jupiter/Zeus). This becomes Jesus [^1], Aesus (Etruscan god), and the Avestan word Yazatas (Persian: izad), meaning 'lord'. In the name "Yeshua Ben Panthera" the Panthera is a Hellenized form of Ptolemaios (Ptolem->Ptol->Panther). "Jesus, son of Ptolemy". This directly connects the "Jesus" figure to the Ptolemaic-Bosphoran royal house. Similar to "Iasus", a Greek figure associated with the Argonauts and "Iaso" the healing Greek goddess.
 -    Jew: Iudii -> Ioudaioi -> Jew. The Iudii, a Galatian tribe, were Scythian-Celtic priests who later became "Jews" under Alexandrian syncretism. 
-They were not semites. Iudii is the tribal corruption of Dyeus Pter (PIE Sky Father). The name Zeus comes from the pronunciation of "Dyeus", and (I)Jupiter comes from the pronunciation of "Dyeus Pter" (Diespiter -> Iupiter). (J)upiter was also called Jove or Iove to the Romans. The Latin pronunciation of Iove would have been Yoh-Way, i.e Yahweh/Yhwh, so Yahweh Saboath, the god of the Hebrew bible, is I(J)ove (Roman Zeus) Sabazios (Thracian Zeus). Scythian-Celtic Iudii then disappeared after the Bar Kokhba revolt when emperor Hadrian decimated their population, then local Canaanites, Edomites, and Levantine converts inherited the "Jewish" identity. The term "Ashkenazi" (Scythian: Ashkuza) confirms their steppe origins, later demonized by Rabbi Akiva to erase their Sarmatian roots. 
+They were not semites. Iudii is the tribal corruption of Dyeus Pter (Proto-Indo-European (PIE) Sky Father). The name Zeus comes from the pronunciation of "Dyeus", and (I)Jupiter comes from the pronunciation of "Dyeus Pter" (Diespiter -> Iupiter). (J)upiter was also called Jove or Iove to the Romans. The Latin pronunciation of Iove would have been Yoh-Way, i.e Yahweh/Yhwh, so Yahweh Saboath, the god of the Hebrew bible, is I(J)ove (Roman Zeus) Sabazios (Thracian Zeus). Scythian-Celtic Iudii then disappeared after the Bar Kokhba revolt when emperor Hadrian decimated their population, then local Canaanites, Edomites, and Levantine converts inherited the "Jewish" identity. The term "Ashkenazi" (Scythian: Ashkuza) confirms their steppe origins, later demonized by Rabbi Akiva to erase their Sarmatian roots. 
   - Lord: The term Kavi in Avestan texts (e.g., Yasna 10.6) denotes a divine ruler associated with Aži (dragon/serpent). Translating Kavi to Greek yields Kyrios ("lord"), a title used for Jesus in the New Testament (e.g., Kyrios Iesous). The Scythian title Xšaya (king) appears in Old Persian as Xšayathiya, phonetically linked to Kshatriya (Sanskrit: warrior-king) and Caesar via the Greek Kaesar. A kurgan inscription from Issyk (Kazakhstan, 4th century BCE) mentions a ruler named Ašakavi ("dragon-priest"), combining Aša (truth/order) and Kavi. This title parallels Asander (Thracian: Asa = "lord") and suggests a pan-steppe naming convention for dragon-kings. 
 -   Monobazus: Sabazios is the Phrygian and Thracian version of Zeus.
     Ma'nu is likely a diminutive of Menneus ("son of man"), and then
@@ -163,10 +163,10 @@ I. Ptolemaic, Julio-Claudian & Bosphoran Dynasty
     - Cleopatra VII Thea Philopator aka Dynamis, queen of Bosphorus
 
 - Julius Caesar = Asander, King of Bosporus
-  Aliases: Ptolemy XI Alexander II, (titles: Philocaesar Philoromaios, Soter, Great King of Kings, "As" in his name refers to Asar(Osiris)/Aesar/Aeser/Aisar/Ais/Is). Other suspected aliases: Mithridates II of the Bosporus, Akrosandros II, King of Scythia, Brogitarix, Idumean Antipater, Parthian Artavasdes (Greek Alex = Persian Arta) who was the brother of Tigranes II (Tigranes II/the Great was called Azhdahak proving Aži Dahāka was a royal Scythian title), and the Hasmonean Alexander II (son of king Aristobulus II son of Jannaeus Alexander also the nephew and son-in-law of king/high-priest Hyrcanus II. Also, Julius = Janneus? Or Janneus (Yannai) is related to the Roman name Gaius?). Bocchus II, King of Mauretania, Burebista, King of the Dacians, Atrebates, king of Britannia. Kujula Kadphises, prince of Bactria. Also, was he the legendary Chinese emperor Yu the Great (original name "Aži" or "Yazhi" (亞茲))? Julius, from Ioulius, related to Iove (Jove). Iove is linguistically linked to the Scythian tribal name Yuehzi (Yuezhi). He is "The Jove/Yuezhi King".
+  Aliases: Ptolemy XI Alexander II, (titles: Philocaesar Philoromaios, Soter, Great King of Kings, "As" in his name refers to Asar(Osiris)/Aesar/Aeser/Aisar/Ais/Is). Other suspected aliases: Mithridates II of the Bosporus, Akrosandros II, King of Scythia, Brogitarix, Idumean Antipater, Parthian Artavasdes (Greek Alex = Persian Arta) who was the brother of Tigranes II (Tigranes II/the Great was called Azhdahak proving Aži Dahāka was a royal Scythian title), and the Hasmonean Alexander II (son of king Aristobulus II son of Jannaeus Alexander also the nephew and son-in-law of king/high-priest Hyrcanus II. Also, Julius = Janneus? Or Janneus (Yannai) is related to the Roman name Gaius?). Bocchus II, King of Mauretania, Burebista, King of the Dacians, Atrebates, king of Britannia.
   - Spouse/Consort 1: Cleopatra VII (Isis who in mythology was the wife of Osiris and the mother of Horus): Dynamis Ourania (Aphrodite Urania). Aliases: Pythodorida Philometor (Pytho- from python, and -doria from the Dorian tribe who were Scythian Greeks). Also, Amanirenas ("Amon is Lord"), Kandake of Kush?
   - Children:
-    - Emperor Tiberius Julius Caesar Augustus. Alias: Tiberius Julius Aspurgus, king of Bosphorus
+    - Emperor Tiberius Julius Caesar Augustus. Alias: Tiberius Julius Aspurgus, king of Bosphorus. Also likely Kujula Kadphises, prince of Bactria. Also, was he the legendary Chinese emperor Yu the Great (original name "Aži" or "Yazhi" (亞茲))? Julius, from Ioulius, related to Iove (Jove). Iove is linguistically linked to the Scythian tribal name Yuehzi (Yuezhi). He is "The Jove/Yuezhi King"?
       - Spouse: Vipsania Agrippina. The name Vipsania is obscure, but Agrippina means "wild horse" (from agri- "wild" and -pina "mare"), and Tiberius Julius Aspurgus Philoromaios's wife, known only through numismatic evidence, was Gepae-pyris (Gepa- from hippos, "horse" in Greek, cf. Epona, Celtic horse goddess and -epyris (possibly "lady" or "queen"). Both names encode "Horse-Queen." This is a title for a Sarmatian noblewoman of the steppe horse-culture.
       - Children:
         - Tiberius Julius Mithridates III (Italian Avatar: Emperor Caligula)
@@ -188,7 +188,7 @@ II. Flavian Emperors
   Aliases: Herod Agrippa I (See: The Royal Ancestry of Emperor Vespasian. Henry Davis, [https://www.henryhdavis.com/theroyalancestryofemperorvespasian](https://henrydavis-cc.medium.com/the-royal-ancestry-of-the-roman-emperor-vespasian-72e144335299)), Flavius Scaevinus
 - Titus. Aliases: Polemon II, Aulus Avillius Flaccus, Marcus Julius Agrippa I(?)
 
-  III. Speculative
+III. Speculative
 
 -  Alexander the Great: Scythian prince who was the son of Ateas the Scythian aka Artaxerxes
     II Memnon ("Kai Bahman") and half-brother of Darius III ("Darab").
@@ -586,12 +586,12 @@ Bosphorus, etc.
 
 ![Fig.1.13](/images/PharnacesII.jpg){:width="400px"}
 
-Fig. 1.13. Coin depicting Pharnaces II who was the king of the Bosporan Kingdom and the Kingdom of Pontus. He was a . At the Battle of Zela (47 BC) Julius Caesar defeats Pharnaces II and coins the phrase "Veni, Vidi, Vici". Pharnaces II flees and is killed by his own governor, Asander, who then becomes King of the Bosporus. This was not a succession; it was an avatar switch. Pharnaces II
+Fig. 1.13. Coin depicting Pharnaces II who was the king of the Bosporan Kingdom and the Kingdom of Pontus. At the Battle of Zela (47 BC) Julius Caesar defeats Pharnaces II and coins the phrase "Veni, Vidi, Vici". Pharnaces II flees and is killed by his own governor, Asander, who then becomes King of the Bosporus. This was not a succession; it was an avatar switch. Pharnaces II
 called himself "King of Kings" on coinsas Asander did.
 
 ![Fig.1.14](/images/Burebista.jpg){:width="400px"}
 
-Fig. 1.14. Coin depicting Burebista, king of the Dacians.
+Fig. 1.14. Coin depicting Burebista, king of the Dacians, who was an alleged enemy of Julius Caesar.
 
 ![Fig.1.15](/images/Atrebates.jpg){:width="400px"}
 
@@ -601,9 +601,6 @@ Fig. 1.15. Coin depicting Atrebates, king of Britannia who Julius Caesar was rec
 
 Fig. 1.16. Coin depicting Bogud, king of Mauretania (a territory that encompassed most of North Africa), who was a recorded ally of Julius Caesar.
 
-![Fig.1.17](/images/KujulaKadphises.jpg){:width="400px"}
-
-Fig. 1.17. Coin depicting Kujula Kadphises, prince of Bactria (modern day Afghanistan). Kujula Kadphises unifies the Yuezhi tribes and establishes the Kushan Empire right after the "death" of Julius Caesar/Asander. This is not a successor state; it is the same ruler shifting his primary administrative center to Central Asia to manage the Silk Road. The "Yuezhi" are the "Iudii"/"Jove" tribe—the same Scythian-Celtic priestly class. This regional avatar of Asander/Julius Caesar also connects to the legendary Chinese emperor Yu the Great (original name "Aži" or "Yazhi" (亞茲))? Julius, from Ioulius, related to Iove (Jove).
 
 **5.1.1 Julius Caesar was a Title**
 
@@ -692,9 +689,9 @@ Boethus was another of Cleopatra's regional aliases?  If you identify
 King Herod as Mark Antony aka Tiberius Claudius Nero aka Phraates IV of
 Parthia's regional alias then the picture becomes clearer.
 
-![Fig.1.18](/images/PtolemyXII.jpeg){:width="400px"}
+![Fig.1.17](/images/PtolemyXII.jpeg){:width="400px"}
 
-Fig. 1.18. Ptolemy XII Auletes, king of Egypt, who was also Mithridates
+Fig. 1.17. Ptolemy XII Auletes, king of Egypt, who was also Mithridates
 VI Eupator, Ariarathes IX of Cappadocia, Simon Boethus/Magus/Ptolemy
 (Alexander) bar Menneus, et.al. Mithridates VI married his sister
 Laodice---just as Ptolemy XII married his sister Cleopatra V. Both had
@@ -719,26 +716,26 @@ even has a story about a 'spurious Alexander' that showed up in Rome
 claiming to be the son of Herod who faked his death [^14], so he was
 'resurrected' as Juba II, king of Numidia and Mauretania. 
 
-![Fig.1.19](/images/MithridatesVIEupator.png){:width="400px"}
+![Fig.1.18](/images/MithridatesVIEupator.png){:width="400px"}
 
-Fig. 1.19. Coin depicting Mithridates VI Eupator, father of Pharnaces II
+Fig. 1.18. Coin depicting Mithridates VI Eupator, father of Pharnaces II
 and Dynamis. Brother of Mithridates Chrestus. Notice the star and
 crescent that is visible in the Julius Caesar coin above and the winged
 Pegasus within a Dionysiac wreath of ivy and fruit that is seen in the
 Asander coin?
 
-![Fig.1.20](/images/AriarathesIX.jpg){:width="400px"}
+![Fig.1.19](/images/AriarathesIX.jpg){:width="400px"}
 
-Fig. 1.20. Coin depicting Ariarathes IX Eusebes Philopator, King of
+Fig. 1.19. Coin depicting Ariarathes IX Eusebes Philopator, King of
 Cappadocia. Notice the resemblance to Mithridates VI Eupator of Pontus?
 Cleopatra aka Dynamis's son with Julius Caesar aka Asander = Tiberius
 Julius Aspurgus Philoromaios (Aspurgus translates to "horseman-lord" in
 Thracian languages. Sabazios was a Thracian deity worshipped as a
 horseman.).
 
-![Fig.1.21](/images/PtolemyApion.jpg){:width="400px"}
+![Fig.1.20](/images/PtolemyApion.jpg){:width="400px"}
 
-Fig. 1.21. Coin depicting Ptolemy Apion, king of Kyrene, Kyrenaica, North Africa. 
+Fig. 1.20. Coin depicting Ptolemy Apion, king of Kyrene, Kyrenaica, North Africa. 
 
 **5.2.2. Amyntas Nikator aka Amyntas, King of Galatia**
 
@@ -807,9 +804,9 @@ Theophilos in Greek. Around 26% of the New Testament was written to
 Theophilus in Luke and Acts of the Apostles).
 
 ![Fig.
-1.22](/images/AlexanderPhilo.jpg){:width="400px"}
+1.21](/images/AlexanderPhilo.jpg){:width="400px"}
 
-Fig. 1.22. (L) Alexander (grandson of King Herod) aka Gaius Julius
+Fig. 1.21. (L) Alexander (grandson of King Herod) aka Gaius Julius
 Alexander, Herodian Prince of Judaea aka Alexander the Alabarch aka
 (King/Tetrarch) Ptolemy (Alexander) bar Menneus aka Ptolemy of
 Mauretania aka "Jesus" in the bible. (R) Cleopatra (Thea Philopator) of
@@ -829,9 +826,9 @@ Adiabene/Edessa aka Ptolemy aka Yakov Zu Tolomoy aka Izates aka Jesus
 Emmanuel aka Monobazus of Adiabene [^12]
 
 ![Fig.
-1.23](/images/Josephus.jpg){:width="400px"}
+1.22](/images/Josephus.jpg){:width="400px"}
 
-Fig. 1.23. 'Josephus' bust which I identify as Tiberius Julius
+Fig. 1.22. 'Josephus' bust which I identify as Tiberius Julius
 Alexander. Compare it to Nerva's depictions. So, 'Josephus' was Philo of
 Alexandria's son. Tiberius Julius Alexander's son was named
 'Philopappos' and one of his mother's aliases was 'Alexandria bat
@@ -839,9 +836,9 @@ Matthias' which is where the pseudonym 'Joseph bar Matthias' comes from.
 Also, drop the initial b and final s in the name "Bar Mathias" and you
 get (Joseph of) Arimathea.
 
-![Fig. 1.24](/images/coin-abgar-phraates.png){:width="400px"}
+![Fig. 1.23](/images/coin-abgar-phraates.png){:width="400px"}
 
-Fig. 1.24. (L) and (R) show King Izates Monobazus of Edessa (known in
+Fig. 1.23. (L) and (R) show King Izates Monobazus of Edessa (known in
 Greek as the "Kingdom of Ourania" or in English as the "Kingdom of
 Heaven") wearing a crown of thorns. Izates or Izas is his title which is
 an ancient Greek translation of the Avestan word Yazatas (Persian:
@@ -852,26 +849,30 @@ source: The Alexander Mosaic, Huqoq, Israel.
 
 **5.2.5. Tiberius Julius Sauromates II**
 
-![Fig.1.25](/images/SauromatesII2.jpg){:width="400px"}
+![Fig.1.24](/images/SauromatesII2.jpg){:width="400px"}
 
-Fig. 1.25. Tiberius Julius Sauromates II, King of Bosphorus, who was the
+Fig. 1.24. Tiberius Julius Sauromates II, King of Bosphorus, who was the
 son of Tiberius Julius Cotys (aka Tiberius Julius Alexander aka Arrius
 Calpernius Piso aka Arrius Varus aka Emperor Nerva), great-grandson of
 Dynamis aka Cleopatra and Mark Antony.
 
 **5.3 Numismatic Proof**
 
-![Fig.1.26](/images/RhoemetalcesOctavian.jpg){:width="400px"}
+![Fig.1.25](/images/RhoemetalcesOctavian.jpg){:width="400px"}
 
-Fig. 1.26. L. Rhoemetalces I, king of Bosphorus. R. Emperor Augustus (Octavian)
+Fig. 1.25. L. Rhoemetalces I, king of Bosphorus. R. Emperor Augustus (Octavian)
 
-![Fig.1.27](/images/PolemonI.jpg){:width="400px"}
+![Fig.1.26](/images/PolemonI.jpg){:width="400px"}
 
-Fig. 1.27. Rhoemetalces I aka Emperor Augustus (Octavian) was also Polemon I of Pontus.
+Fig. 1.26. Rhoemetalces I aka Emperor Augustus (Octavian) was also Polemon I of Pontus.
 
-![Fig.1.28](/images/AspurgusTiberius.jpg){:width="400px"}
+![Fig.1.27](/images/AspurgusTiberius.jpg){:width="400px"}
 
-Fig. 1.28. L. Tiberius Julius Aspurgus I, king of Bosphorus. R. Emperor Tiberius Caesar Augustus
+Fig. 1.27. L. Tiberius Julius Aspurgus I, king of Bosphorus. R. Emperor Tiberius Caesar Augustus
+
+![Fig.1.28](/images/KadphisesTiberius.jpg){:width="400px"}
+
+Fig. 1.28. L. Tiberius Julius Aspurgus I, king of Bosphorus aka Emperor Tiberius Caesar Augustus. R. Kujula Kadphises, prince of Bactria (modern day Afghanistan). Kujula Kadphises unifies the Yuezhi tribes and establishes the Kushan Empire right after the "death" of Julius Caesar/Asander. This is not a successor state; it is the same ruler shifting his primary administrative center to Central Asia to manage the Silk Road. The "Yuezhi" are the "Iudii"/"Jove" tribe—the same Scythian-Celtic priestly class. This regional avatar also connects to the legendary Chinese emperor Yu the Great (original name "Aži" or "Yazhi" (亞茲))? Julius, from Ioulius, related to Iove (Jove).
 
 ![Fig.1.29](/images/MithridatesIIICaligula.jpg){:width="400px"}
 
