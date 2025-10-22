@@ -227,8 +227,6 @@ distances and they spread their Draco (dragon/serpent) cult across Eurasia, enco
 
 The Aryan-Iranian-Scythians were the Egyptian-Persian-Indian-Greek-Roman elite. Egypt, Persia, India, Greece, Rome, etc., were all under the suzerainty of these elites since at least the 40th century BC and their base of operation was on the Bosphorus river.
 
-In the elite burial chambers from the Scythian Kurgans in Ukraine to the Egyptian pre-dynastic elite (Naqada culture) to the Indus Valley Civilization (Mehrgarh) to the Etruscan tombs in Italy to the burial sites of Roman Patricians a specific non-local skull type appears: Dolichocephalic (long-headed) and high-vaulted with a pronounced occipital bun—a bulge at the back of the skull—a feature most commonly associated with Neanderthal admixture. This was no mere coincidence; it was the osteological signature of the Dragon Bloodline, a physiological marker distinguishing the ruling elite from the general population they governed.
-
 All ancient Mediterranean religions derive from the
 Sarmatian serpent-dragon cult. See: Papaios and the Snake-Legged Goddess (Scythian) = Nehebkau, Uraeus, and Apep/Apophis (Egypt) = Ningishzida (Sumerian) = Tiamat and Mušḫuššu who was associated with Marduk (Babylonian) = Aži Dahāka (Zoroastrianism) later syncretized with Mithra = Ophion, Agathodaemon, Typhon, and Delphi's Pythoness priestess (Greek) = Nāgendra and Nāga (Vedic), Nehushtan/serpent staff of Moses, the Dacian and Roman Draco standards, the serpent-worshipping Essenes and Gnostics, Sebazi (Phrygian/Bulgarian), Jörmungandr (Norse), Ouroboros serpent in Freemasonry, etc. The Knights Templar knew the truth. The Templars worshipped Baphomet—a Sarmatian dragon deity (Aži Dahāka).
 
@@ -335,6 +333,8 @@ Fig. 1.4 Copper statuette of the god Sarapis Amun Agathodaemon depicted as half-
 
 The Sarapis Cult eventually evolved into Christianity, which was repackaged Serapis cult and targeted at local populations (the Christogram symbolizing Jesus Christ (IHS) = "Isis-Horus-Serapis"). Religion was the technology that the empire used to subjugate the people they ruled.
 
+After the Serapis cult the Alexandrian School made an industry out of taking existing religions and then adding to them a psy-op slave-morality foundation. The goal was to get the population to accept monotheism and move them towards the Sarapis Cult. The Serapis Cult, Gnosticism, Mithraism, Christianity, Manichaeanism, Valentinianism, Hermeticism (Philo of Alexandria’s syncretic philosophy to Hellenize the Canaanite religion of the levant), Buddhism (Pyrrho of Elis's syncretic attempt at subverting the Indo-Aryans in Bactria which was governed by Gaumata Bardya, Cyrus the Greats son), etc., all came from here. 
+
 **4.1 The Blueprint Deities: Pre-existing Saviors (Horus, Dionysus, Mithras, etc.)**
 
 The Jesus archetype, as presented in Christianity, and characterized as a divine birth, a role as a savior or king, betrayal, sacrifice (often by crucifixion or a similar act), and resurrection is not a unique historical phenomenon but a syncretic construct, drawing from a recurring pattern of divine or semi-divine figures across ancient Indo-European, Scythian, and Near Eastern mythologies. The Alexandrian School did not invent these tropes; they identified and weaponized them. This section examines the 'blueprint deities'—Horus, Dionysus, Mithras, and others—whose myths provided the raw material for the School's religious engineering.
@@ -438,11 +438,9 @@ As for the term 'Hebrew", it comes from the Celts as well who called themselves 
 
 Jerusalem = I(J)ERU-SAR-AM, meaning "The Holy City of the Scythian King". The SAR element (Scythian for king/royal) embedded in the name of the 'holy city' confirms the Judean state, like Rome, was nothing more than a military garrison run by the Bosphoran elite.
 
-These Sarmatian-Celtic (Galatian) males mixed with Neolithic Anatolian women before their descendants moved into Egypt (Apiru or Habiru) and Caanan and then mixed with indigenous people in those places. Celtic Jews (Iudii) then disappeared after the Bar Kokhba Revolt when Emperor Hadrian decimated their population. Modern Ashkenazi Jews are a hodgepodge of native Canaanites (a mix of Canaanites, Edomites, and other Levantine peoples, as well as, proto-Arab Natufians (Natufians had ~20% higher Basal Eurasian -- Basal means with sub-Saharin African, North Africa was green/fertile so Africans could cross the Sahara)) and Neolithic proto-Sicilians who originated in Anatolia [^4] with minor Celtic Cimbri and Celtic Galatian from Anatolia.
+These Sarmatian-Celtic (Galatian) males mixed with Neolithic Anatolian women before their descendants moved into Egypt (Apiru or Habiru) and Caanan and then mixed with indigenous people in those places. Celtic Jews (Iudii) then disappeared after the Bar Kokhba Revolt when Emperor Hadrian decimated their population. Modern Ashkenazi Jews are a hodgepodge of Neolithic (proto-Sicilian who originated in Anatolia), native Canaanites (who were literal human-neanderthal hybrids [^4]), proto-Arab Natufians (Natufians had ~20% higher Basal Eurasian -- Basal means with SSA, North Africa was green/fertile so sub-Saharin Africans could cross the Sahara), and Celtic Cimbri and Celtic Galatian from Anatolia.
 
 The rest of the jewish religion and identity came from later incarnations of this imperial cult: Abel and Cain are just a copy of Romulus and Remus. Judas Iscariot is a copy of Brutus. Genesis 4:5-31. Enoch, Irad, Mehujael, Methuselah, Lamech, Seth, Enosh, Kenan, Mahalalel, are copies of Titus Livy's Regal Rome of the seven kings.
-
-After the Serapis cult the Alexandrian School made an industry out of taking existing religions and then adding to them a psy-op slave-morality foundation. The goal was to get the population to accept monotheism and move them towards the Sarapis Cult. The Serapis Cult, Gnosticism, Mithraism, Christianity, Manichaeanism, Valentinianism, Hermeticism (Philo of Alexandria’s syncretic philosophy to Hellenize the Canaanite religion of the levant), Buddhism (Pyrrho of Elis's syncretic attempt at subverting the Indo-Aryans in Bactria which was governed by Gaumata Bardya, Cyrus the Greats son), etc., all came from here. 
 
 Footnotes (Chapter 4)
 
@@ -891,7 +889,7 @@ Fig. 1.32. L. Polemon II, king of Bosphorus R. Emperor Titus
 
 The split between Rome in the East and Rome in the West happened sometime during the Flavian period. Roman emperor faces no longer appear on Bosphoran coins after emperor Titus.  
 
-According to the book 'Jesus, King of Edessa' (2012) by Ralph  Ellis [[link](https://web.archive.org/web/20240728150536/https://x.com/ralfellis/status/1809520320077803525)] Jesus ben Gamala/Gamaliel who led the First Jewish–Roman War (66-70 AD) against Rome was also Jesus ben Sapphias and Izas Ma'nu (Jesus Emmanuel) Monobazus of Adiabene aka Yeshua Cleopatros (Cantheras/Panthera) ben Josephus bar Menneus aka Ptolemy aka Yakov Zu Tolomoy. King Izates of Monobazus was a descendant of the dragon bloodline and was married to the sister of Dynamis's mother. Tiberius Julius Sauromates II could have also been Simon bar Kokhba (Bar Kokhba means "Son of the Star" which directly links to the "Star and Crescent" symbolism on the coins of Asander/Julius Caesar and Dynamis/Cleopatra) who led the Bar Kokhba revolt (132-136 AD against Rome). Either of these two, as heirs to the Scythian Dragon throne, led a revolt against western Rome. The Flavians or Hadrian then erased the Bosphoran connection after putting down these revolts.
+According to the book 'Jesus, King of Edessa' (2012) by Ralph  Ellis [[link](https://web.archive.org/web/20240728150536/https://x.com/ralfellis/status/1809520320077803525)] Jesus ben Gamala/Gamaliel who led the First Jewish–Roman War (66-70 AD) against Rome was also Jesus ben Sapphias and Izas Ma'nu (Jesus Emmanuel) Monobazus of Adiabene aka Yeshua Cleopatros (Cantheras/Panthera) ben Josephus bar Menneus aka Ptolemy aka Yakov Zu Tolomoy. King Izates of Monobazus was a descendant of the dragon bloodline and was married to the sister of Dynamis's mother. Tiberius Julius Sauromates II could have also been Simon bar Kokhba (Bar Kokhba means "Son of the Star" which directly links to the "Star and Crescent" symbolism on the coins of Asander/Julius Caesar and Dynamis/Cleopatra) who led the Bar Kokhba revolt (132-136 AD) against Rome. Either of these two, as heirs to the Scythian Dragon throne, led a revolt against western Rome. The Flavians or Hadrian then erased the Bosphoran connection after putting down these revolts.
 
 Roman emperors also stopped looking "Aryan"/Nordic after the Flavian empire.
 
@@ -1375,7 +1373,38 @@ https://unz.com/article/how-fake-is-church-history by Laurent Guyénot
     Dracula (Son of the Dragon) is an example of this bloodline in
     Wallachia.
     
-[^3]: https://genoplot.com/discussions/topic/12414/jewish-roots-with-italian-ashkenazi-levantine-and-middle-eastern-ancestry \
+[^3]: You can read more about the Jew-Neanderthal connection here: (Humans
+    and Neanderthals likely interbred in the Middle East. Science
+    Magazine,
+    https://www.sciencemag.org/news/2015/01/humans-and-neandertals-likely-interbred-middle-east),
+    (Remains of hybrid Neanderthal-Sapiens population found in Israel.
+    Haaretz,
+    https://www.haaretz.com/israel-news/2019-11-08/ty-article-magazine/.premium/remains-of-hybrid-neanderthal-sapiens-population-found-in-israel/0000017f-dbcf-db5a-a57f-dbef18940000),
+    (Evidence of human-Neanderthal hybrids found in Israeli cave.
+    Forward,
+    https://forward.com/culture/434525/evidence-of-human-neanderthal-hybrids-found-in-israeli-cave),
+    (The Chosen People: Caucasus, Deceptions, and Historical. Amazon,
+    https://www.amazon.com/Chosen-People-Caucasus-Deceptions-Historical/dp/0883781476),
+    (Genetic studies of Jews. National Center for Biotechnology
+    Information, https://www.ncbi.nlm.nih.gov/pmc/articles/PMC6309227),
+    (Genetic studies of Jews. Wikipedia,
+    https://en.wikipedia.org/wiki/Genetic_studies_of_Jews),
+    (Ashkenazi Jewish population history revealed by ancient DNA
+    analysis. GenomeWeb,
+    https://www.genomeweb.com/sequencing/ashkenazi-jewish-population-history-revealed-ancient-dna-analysis),
+    (Ashkenazi gene increases schizophrenia. Haaretz,
+    https://www.haaretz.com/2013-11-26/ty-article/.premium/ashkenazi-gene-increases-schizophrenia/0000017f-e04b-d75c-a7ff-fccfa3e10000),
+    (Genetic studies of Jews. National Center for Biotechnology
+    Information, https://www.ncbi.nlm.nih.gov/pmc/articles/PMC7465115/),
+    (So, are the Neanderthals still Jews? Slate,
+    https://slate.com/news-and-politics/1997/08/so-are-the-neanderthals-still-jews.html),
+    (Did modern humans and Neanderthals really meet in the Negev?
+    Haaretz,
+    https://www.haaretz.com/archaeology/2021-06-21/ty-article/.premium/did-modern-humans-and-neanderthals-really-meet-in-the-negev/),
+    (BBC News, https://www.bbc.co.uk/news/science-environment-57586315),
+    (New America Government,
+    https://archive.ph/2024.02.24-211636/https://newamericangovernment.org/ailink/802/),
+    (Blogger, https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiyDzxbNmb6Oj5aDWOknO84-hwkdkoi) \
 
 [^4]: See: "History: Fiction or Science? Russia. Britain. Byzantium.
     Rome. New Chronology Vol.IV" (2008) by Anatoly T. Fomenko, "Jesus
