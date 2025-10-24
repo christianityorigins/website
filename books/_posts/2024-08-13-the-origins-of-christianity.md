@@ -83,8 +83,8 @@ etc., were all at one point under the suzerainty of Aryan Iranian-Scythian elite
 -   Asander, king of Bosphorus aka Julius Caesar was also Ptolemy XI Alexander II, Cleopatra's uncle, but he took on numerous
 other regional aliases. Cleopatra was also Dynamis, queen of Bosphorus. Mark
 Antony the Neos-Dionysos was Cleopatra's father Ptolemy XII Auletes (Auletes name adapts well to the
-Parthian Orodes (II?)) the Neos Dionysos aka  Mithridates VI Eupator aka Polemon (Polemos ->
-Ptolemy) I of Pontus aka Pharnaces II ("Pharao-Nikes", or "Victorious Pharaoh") aka King Herod (Egyptian: Heru (Horus) + Ud
+Parthian Orodes (II?)) the Neos Dionysos aka  Mithridates VI Eupator aka Polemon Pythodoros, King of Pontus, prince of Pontus (Polemos ->
+Ptolemy) aka Pharnaces II ("Pharao-Nikes", or "Victorious Pharaoh") aka King Herod (Egyptian: Heru (Horus) + Ud
 (divine) -> Herud -> "Herod") aka Tiberius Claudius Nero aka Phraates
 IV of Parthia (Per-aa or Per-Nesu is a corruption of Pharaoh). Cleopatra's full name, Cleopatra VII
 Philopator, derives from the Ancient Greek 'Φιλοπάτωρ' meaning "the one
@@ -157,7 +157,7 @@ to the same woman, Berenice, granddaughter of King Herod.
 I. Ptolemaic, Julio-Claudian & Bosphoran Dynasty
 
 - Mithridates VI Eupator of Pontus = Ptolemy XII Auletes of Egypt
-  Aliases: Mark Antony (Marcus Antonius = Mar (Phoenician "lord") + Anton (from Antaeus, giant son of Gaia)), King Herod (Heru (Horus) + Ud (divine) = Herud -> Herod. "The Divine Horus". The "Slaughter of the Innocents" is a mythological trope attached to the birth of every Horus-figure who must overcome a threat (against Set). It is not history; it is theological propaganda asserting Herod's/Mark Antony's legitimacy as the living god-king against the resurrected one. This is also attached to the Indian god Krishna (against Kamsa)), Polemon (Polemos -> Ptolemy) I of Pontus aka Pharnaces II ("Pharao-Nikes", or "Victorious Pharaoh"), Tiberius Claudius Nero, Phraates IV of Parthia (Per-aa or Per-Nesu is a corruption of Pharaoh). Ariarathes IX (Arya-Ratha". Sanskrit:"Noble Charioteer") Eusebes Philopator, King of Cappadocia. Was he also Ptolemy X Alexander I aka Simon Boethus aka Simon Magus?
+  Aliases: Mark Antony (Marcus Antonius = Mar (Phoenician "lord") + Anton (from Antaeus, giant son of Gaia)), King Herod (Heru (Horus) + Ud (divine) = Herud -> Herod. "The Divine Horus". The "Slaughter of the Innocents" is a mythological trope attached to the birth of every Horus-figure who must overcome a threat (against Set). It is not history; it is theological propaganda asserting Herod's/Mark Antony's legitimacy as the living god-king against the resurrected one. This is also attached to the Indian god Krishna (against Kamsa)), Polemon Pythodoros, King of Pontus, prince of Pontus  (Polemos -> Ptolemy) aka Pharnaces II ("Pharao-Nikes", or "Victorious Pharaoh"), Tiberius Claudius Nero, Phraates IV of Parthia (Per-aa or Per-Nesu is a corruption of Pharaoh). Ariarathes IX (Arya-Ratha". Sanskrit:"Noble Charioteer") Eusebes Philopator, King of Cappadocia. Was he also Ptolemy X Alexander I aka Simon Boethus aka Simon Magus?
   - Spouse: Wife/sister: Laodice (in Pontus) = Cleopatra V Tryphaena (in Egypt)
   - Children:
     - Cleopatra VII Thea Philopator aka Dynamis, queen of Bosphorus
@@ -500,19 +500,15 @@ close companion to Zeus.
 
 ![Fig.1.8](/images/asandernike.jpg){:width="400px"}
 
-Fig. 1.8. Coin of Asander, King of Bosphorus depicting a Nike
-
-![Fig.1.9](/images/Polemon.jpg){:width="400px"}
-
-Fig. 1.9. Coin of Polemon I of Pontus who was an alias of Asander (both were married to Dynamis, queen of Bosphorus. You can usually find their aliases through marriages) depicting a Uraeus (the Egyptian cobra) and also Zeus-Ammon. Other depictions of Asander show the star and cresent
+Fig. 1.8. Coin of Asander, King of Bosphorus depicting a Nike. Other depictions of Asander show the star and cresent
 that is visible in the Julius Caesar coin above (https://rpc.ashmus.ox.ac.uk/coins/1/1845). The crescent moon and
 star symbol has Mithraic symbolism, and another coin of Asander depicts a
 Phrygian cap which is closely associated with the Roman god Mithras:
 <https://silver.kbr.be/3628_-_Panticapaeum%3F_(Asander)_(AE_Apollo/prow)_over_Pontic_type_(Perseus/Pegasus)_(Oxford,_AM>).
 
-![Fig.1.10](/images/Cleopatra%20VIIDynamis.png){:width="400px"}
+![Fig.1.9](/images/Cleopatra%20VIIDynamis.png){:width="400px"}
 
-Fig. 1.10. (L) Dynamis, Queen of Bosphorus, (R) Cleopatra VII. There were
+Fig. 1.9. (L) Dynamis, Queen of Bosphorus, (R) Cleopatra VII. There were
 obviously many years between the ages at which she was depicted,
 however, even in the elder Dynamis bust you can see her lazy eye and
 abnormally large eyes which she was reported to have had, possibly as a
@@ -520,9 +516,9 @@ consequence of inbreeding. The hat she is wearing is a Phrygian cap, a
 distinctivehat that is closely associated with the Roman god Mithras.
 Dynamis was recorded as being of "Sarmatian" ancestry.
 
-![Fig.1.11](/images/cleopatra.png){:width="400px"}
+![Fig.1.10](/images/cleopatra.png){:width="400px"}
 
-Fig. 1.11. (L) Julia Mamaea, Queen of Pontus (wife of Polemon II), (R)
+Fig. 1.10. (L) Julia Mamaea, Queen of Pontus (wife of Polemon II), (R)
 Cleopatra VII. Polemon Pythodoros, King of Pontus was a regional alias
 of Julius Caesar/Asander (as Asander and Polemon were both married to
 Dynamis), and if he also played the religious role of Gaius Julius
@@ -577,23 +573,27 @@ of Bosphorus. After Mithridates Chrestus's loss to Asander he was
 imprisoned and executed by his elder brother, Mithridates VI Eupator,
 who had previously beat him in war.
 
-![Fig.1.12](/images/PtolemyXAlexanderII.png){:width="400px"}
+![Fig.1.11](/images/PtolemyXAlexanderII.png){:width="400px"}
 
-Fig. 1.12. Coin depicting Ptolemy XI Alexander II aka Asander, king of
+Fig. 1.11. Coin depicting Ptolemy XI Alexander II aka Asander, king of
 Bosphorus, etc.
 
-![Fig.1.13](/images/PharnacesII.jpg){:width="400px"}
+![Fig.1.12](/images/PharnacesII.jpg){:width="400px"}
 
-Fig. 1.13. Coin depicting Pharnaces II who was the king of the Bosporan Kingdom and the Kingdom of Pontus. At the Battle of Zela (47 BC) Julius Caesar defeats Pharnaces II and coins the phrase "Veni, Vidi, Vici". Pharnaces II flees and is killed by his own governor, Asander, who then becomes King of the Bosporus. This was not a succession; it was an avatar switch. Pharnaces II
+Fig. 1.12. Coin depicting Pharnaces II who was the king of the Bosporan Kingdom and the Kingdom of Pontus. At the Battle of Zela (47 BC) Julius Caesar defeats Pharnaces II and coins the phrase "Veni, Vidi, Vici". Pharnaces II flees and is killed by his own governor, Asander, who then becomes King of the Bosporus. This was not a succession; it was an avatar switch. Pharnaces II
 called himself "King of Kings" on coinsas Asander did.
 
-![Fig.1.14](/images/Burebista.jpg){:width="400px"}
+![Fig.1.13](/images/Burebista.jpg){:width="400px"}
 
-Fig. 1.14. Coin depicting Burebista, king of the Dacians, who was an alleged enemy of Julius Caesar. He was assasinated in 44 BC, the same year as Julius Caesar.
+Fig. 1.13. Coin depicting Burebista, king of the Dacians, who was an alleged enemy of Julius Caesar. He was assasinated in 44 BC, the same year as Julius Caesar.
 
-![Fig.1.15](/images/Atrebates.jpg){:width="400px"}
+![Fig.1.14](/images/Atrebates.jpg){:width="400px"}
 
-Fig. 1.15. Coin depicting Atrebates, king of Britannia who Julius Caesar was recorded to have defeated in battle.
+Fig. 1.14. Coin depicting Atrebates, king of Britannia who Julius Caesar was recorded to have defeated in battle.
+
+![Fig.1.5](/images/Vercingetorix.jpg){:width="400px"}
+
+Fig. 1.5. Coin of Vercingetorix, a Gallic king and chieftain of the Arverni tribe who united the Gauls in a failed revolt against Julius Caesar in the Gallic Wars.
 
 ![Fig.1.16](/images/Bogud.jpg){:width="400px"}
 
@@ -755,7 +755,7 @@ lived in ancient Galatia).
 
 Cleopatra aka Dynamis's son with Mark Antony [^11] (aka Ptolemy of
 Cyprus, a brother of Ptolemy XII Auletes (Cleopatra's father) making him
-Cleopatra's uncle aka Polemon I of Pontus aka King Herod aka Tiberius
+Cleopatra's uncle aka Polemon Pythodoros, King of Pontus, prince of Pontus aka King Herod aka Tiberius
 Claudius Nero aka Phraates IV of Parthia) = Alexander Helios aka
 Alexander (son of King Herod) aka Juba II who was married to his twin
 sister Cleopatra Selene II aka Queen Thea Muse Ourania. Juba II of
@@ -862,7 +862,7 @@ Fig. 1.25. L. Rhoemetalces I, king of Bosphorus. R. Emperor Augustus (Octavian)
 
 ![Fig.1.26](/images/PolemonI.jpg){:width="400px"}
 
-Fig. 1.26. Rhoemetalces I aka Emperor Augustus (Octavian) was also Polemon I of Pontus.
+Fig. 1.26. Rhoemetalces I aka Emperor Augustus (Octavian) was also Polemon I of Pontus. Rhoemetalces Philocaesar of Pontus was the son of Marcus Antonius Polemon Pythodoros. Polemon I of Pontus was married to Dynamis (Cleopatra). So was Augustus Cleopatra's brother or son that was married to his mother?!
 
 ![Fig.1.27](/images/AspurgusTiberius.jpg){:width="400px"}
 
