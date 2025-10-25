@@ -575,7 +575,7 @@ who had previously beat him in war.
 ![Fig.1.11](/images/MithridatesChrestus.jpg){:width="400px"}
 
 Fig. 1.11. Mithridates Chrestus aka Ptolemy of Cyprus aka Asander, king of
-Bosphorus, etc.
+Bosphorus, etc. The names Asander and Caesar both derive from the Etruscan word "Aesar" (also spelled "Aeser" or "Aisar" which likely derives from the Egyptian "Asar" which was another name for Osiris - there was no J in ancient Latin, so it was pronounced ah-soos). He would have been the first person to take on the title Iesus Christ.
 
 ![Fig.1.12](/images/PharnacesII.jpg){:width="400px"}
 
