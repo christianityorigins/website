@@ -36,7 +36,7 @@ Part 2: The Alexandrian Synthesis\
 4.2. Judaism\
 Part 3: The Bosphoran Connection\
 5\. Rome Was Located On the Bosphorus River in Crimea\
-5.1\. Julius Caesar aka Asander, King of Bosphorus\
+5.1\. Julius Caesar aka Asander, King of Bosphorus aka Mithridates Chrestus\
 5.1.1\. Julius Caesar was a Title\
 5.2. Dragon Bloodline Descendants\
 5.2.1. Ptolemy XII Auletes aka Mark Antony aka Mithridates VI Eupator\
@@ -80,8 +80,7 @@ A few things you need to know before you read my book:
 -   Much of what we know of ancient history is fabricated by the Flavian emperors, Jesuits, and the Vatican. The Egyptian-Persian-Indian-Greek-Roman elite were a Proto-Indo-European (PIE) Elite (Kurgan Culture) who were the horse-riding, chariot-inventing pastoralists from the Pontic-Caspian Steppe who, beginning around 4500 BC, began a systematic conquest of Europe, Anatolia, and the Indus Valley, and who ruled through proxy dynasties. Egypt, Persia, India, Greece, Rome,
 etc., were all at one point under the suzerainty of Aryan Iranian-Scythian elites and their base of operation was on the Bosphorus river. The Persian system of Satraps (Old Persian xšaçapāvan, "protector of the dominion") is the administrative blueprint of this hegemony. The title derives from Xšaya (to rule), which links to Roman Caesar and Sanskrit Kshatriya. Every Satrap was a regional "dragon-king" enforcing the center's will.
 -   Western Rome in Italy is a phantom empire that did not conquer the kingdoms of the East. The Bosphoran royal house created Western Rome as a military garrison. The original Rome (in Sarmatian, "Ruma" (Rome) = "Place of the Dragon" (Rhu-Ma, from Aži Dahāka, the Iranian dragon)) was located on the Bosphorus river which approximates to modern-day Crimea in southern Ukraine. There was a split between East and West during the Flavian period and the Flavians erased their Bosphoran origins.
--   Asander, king of Bosphorus aka Julius Caesar was also Ptolemy XI Alexander II, Cleopatra's uncle, but he took on numerous
-other regional aliases. Cleopatra was also Dynamis, queen of Bosphorus. Mark
+-   Asander, king of Bosphorus aka Julius Caesar was also Cleopatra's uncle Ptolemy of Cyprus (brother of Ptolemy XII Auletes and husband of "Mithridates") aka Mithridates Chrestus, King of Pontus VI (brother of Mithridates VI, king of Pontus), but he took on numerous other regional aliases. Cleopatra was also Dynamis, queen of Bosphorus. Mark
 Antony the Neos-Dionysos was Cleopatra's father Ptolemy XII Auletes (Auletes name adapts well to the
 Parthian Orodes (II?)) the Neos Dionysos aka  Mithridates VI Eupator aka Polemon Pythodoros, King of Pontus, prince of Pontus (Polemos ->
 Ptolemy) aka Pharnaces II ("Pharao-Nikes", or "Victorious Pharaoh") aka King Herod (Egyptian: Heru (Horus) + Ud
@@ -163,8 +162,8 @@ I. Ptolemaic, Julio-Claudian & Bosphoran Dynasty
     - Cleopatra VII Thea Philopator aka Dynamis, queen of Bosphorus
     - Ptolemy XIII Theos Philopator aka Gaius Octavius (Emperor Augustus). Aliases: Polemon I of Pontus. Gaius Julius Sohaemus of Emesa. Rhoemetalces I (a classic Thracian royal name, linking to the "Rome" = "Ruma" etymology), king of Bosphorus. Rhoemetalces Philocaesar of Pontus was the son of Marcus Antonius Polemon Pythodoros. Polemon I of Pontus was married to Dynamis (Cleopatra). Cleopatra was married to her brother Ptolemy XIII Theos Philopator who was born at the same time as Augustus. He was her brother husband.
 
-- Julius Caesar = Asander, King of Bosporus
-  Aliases: Ptolemy XI Alexander II, (titles: Philocaesar Philoromaios, Soter, Great King of Kings, "As" in his name refers to Asar(Osiris)/Aesar/Aeser/Aisar/Ais/Is). Other suspected aliases: Mithridates II of the Bosporus, Akrosandros II, King of Scythia, Brogitarix, Idumean Antipater, Parthian Artavasdes (Greek Alex = Persian Arta) who was the brother of Tigranes II (Tigranes II/the Great was called Azhdahak proving Aži Dahāka was a royal Scythian title), and the Hasmonean Alexander II (son of king Aristobulus II son of Jannaeus Alexander also the nephew and son-in-law of king/high-priest Hyrcanus II. Also, Julius = Janneus? Or Janneus (Yannai) is related to the Roman name Gaius?). Bogud, King of Mauretania, Burebista, King of the Dacians, Atrebates, king of Britannia. Also Prince Jin Midi in China? Jin (金) means "Gold," a royal Scythian attribute. Mi (日) is "Sun." Di (磾) is a rare character meaning "black," but also a homophone for "Emperor" (帝). His story: A noble "barbarian" prince from the West (Xiongnu confederation, which included Saka/Scythians) is captured and rises to become the most powerful man in China, serving as regent to a child emperor. This is the exact same narrative archetype as a foreigner (Caesar) rising to power in Rome.
+- Julius Caesar = Asander, King of Bosporus aka Ptolemy of Cyprus (brother of Ptolemy XII Auletes and husband of "Mithridates") aka Mithridates Chrestus, King of Pontus VI (brother of Mithridates VI, king of Pontus).
+  Titles: Philocaesar Philoromaios, Soter, Great King of Kings, "As" in his name refers to Asar(Osiris)/Aesar/Aeser/Aisar/Ais/Is). Other suspected aliases: Akrosandros II, King of Scythia, Brogitarix, Idumean Antipater, Parthian Artavasdes (Greek Alex = Persian Arta) who was the brother of Tigranes II (Tigranes II/the Great was called Azhdahak proving Aži Dahāka was a royal Scythian title), and the Hasmonean Alexander II (son of king Aristobulus II son of Jannaeus Alexander also the nephew and son-in-law of king/high-priest Hyrcanus II. Also, Julius = Janneus? Or Janneus (Yannai) is related to the Roman name Gaius?). Bogud, King of Mauretania, Burebista, King of the Dacians, Atrebates, king of Britannia. Also Prince Jin Midi in China? Jin (金) means "Gold," a royal Scythian attribute. Mi (日) is "Sun." Di (磾) is a rare character meaning "black," but also a homophone for "Emperor" (帝). His story: A noble "barbarian" prince from the West (Xiongnu confederation, which included Saka/Scythians) is captured and rises to become the most powerful man in China, serving as regent to a child emperor. This is the exact same narrative archetype as a foreigner (Caesar) rising to power in Rome.
   - Spouse/Consort 1: Cleopatra VII (Isis who in mythology was the wife of Osiris and the mother of Horus): Dynamis Ourania (Aphrodite Urania). Aliases: Pythodorida Philometor (Pytho- from python, and -doria from the Dorian tribe who were Scythian Greeks). Also, Amanirenas ("Amon is Lord"), Kandake of Kush?
   - Children:
     - Emperor Tiberius Julius Caesar Augustus. Alias: Tiberius Julius Aspurgus, king of Bosphorus. Also likely Kujula Kadphises, prince of Bactria. Also, was he the legendary Chinese emperor Yu the Great (original name "Aži" or "Yazhi" (亞茲))? Julius, from Ioulius, related to Iove (Jove). Iove is linguistically linked to the Scythian tribal name Yuehzi (Yuezhi). He is "The Jove/Yuezhi King"?
@@ -470,7 +469,7 @@ Rome in Italy was real, but it was a province, a frontier military district (Lim
 
 Also, Carthage was not a Semitic power. The name "Carthage" comes from "Kar-Thaga" - "City of the Thagians" (a Scythian tribe). Hannibal's family name, Barca, means "Lightning" and is a title of the Dragon King. Rome vs. Carthage was not a clash of civilizations. It was a bloody civil war between two Scythian-descended factions for control of the Western Mediterranean. The winner, Rome, wrote the history and painted the losers as monstrous foreigners.
 
-**5.1 Julius Caesar aka Asander, King of Bosphorus**
+**5.1 Julius Caesar aka Asander, King of Bosphorus aka Mithridates Chrestus**
 
 There was a Bosphoran [^5] imperial cult where Julius Caesar [^6] took
 on the role of Asander (also Asandros), King of Bosphorus [^7] ("Asa"
@@ -573,9 +572,9 @@ of Bosphorus. After Mithridates Chrestus's loss to Asander he was
 imprisoned and executed by his elder brother, Mithridates VI Eupator,
 who had previously beat him in war.
 
-![Fig.1.11](/images/PtolemyXAlexanderII.jpg){:width="400px"}
+![Fig.1.11](/images/MithridatesChrestus.jpg){:width="400px"}
 
-Fig. 1.11. Coin depicting Ptolemy XI Alexander II aka Asander, king of
+Fig. 1.11. Mithridates Chrestus aka Ptolemy of Cyprus aka Asander, king of
 Bosphorus, etc.
 
 ![Fig.1.12](/images/PharnacesII.jpg){:width="400px"}
