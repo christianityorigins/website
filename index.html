@@ -15,9 +15,9 @@ For inquiries or academic correspondence, please <a href="mailto:christianityexp
 {% assign all_posts = books | concat: blog %}
 
 {% comment %} 2. Sort the combined list by date (newest first) {% endcomment %}
-{% assign sorted_posts = all_posts | sort: 'date' | reverse %}\
+{% assign sorted_posts = all_posts | sort: 'date' | reverse %}
 
-<br><br>Recent Updates<br><br>
+<br><br>Recent Updates<br>
 
 <ul>
 {% for post in sorted_posts %}
