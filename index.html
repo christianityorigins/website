@@ -21,16 +21,14 @@ For inquiries or academic correspondence, please <a href="mailto:christianityexp
 
 {% for post in sorted_posts %}
   {% unless post.draft %}
-    <div style="line-height: 1.4;">
-      <div><a href="{{ post.url }}">{{ post.title }}</a></div>
-      <div>
-        {% if post.categories contains "books" %}
-          Book Draft
-        {% else %}
-          Blog Post
-        {% endif %}
-      </div>
-      <div>{{ post.date | date: "%b %d, %Y" }}</div>
+    <div style="line-height: 1.6;">
+      <a href="{{ post.url }}">{{ post.title }}</a>
+      {% if post.categories contains "books" %}
+        (<span style="color: inherit;">Book Draft</span>)
+      {% else %}
+        (<span style="color: inherit;">Blog Post</span>)
+      {% endif %}
+      - {{ post.date | date: "%b %d, %Y" }}
     </div>
   {% endunless %}
 {% endfor %}
