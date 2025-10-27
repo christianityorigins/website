@@ -17,17 +17,17 @@ For inquiries or academic correspondence, please <a href="mailto:christianityexp
 {% comment %} 2. Sort the combined list by date (newest first) {% endcomment %}
 {% assign sorted_posts = all_posts | sort: 'date' | reverse %}
 
-<br><br>Recent Updates<br>
+<br><br>Recent Updates<br><br>
 
 {% for post in sorted_posts %}
   {% unless post.draft %}
-    <div style="margin-bottom: 15px;">
+    <div style="line-height: 1.4;">
       <div><a href="{{ post.url }}">{{ post.title }}</a></div>
       <div>
         {% if post.categories contains "books" %}
-          <span>Book Draft</span>
+          Book Draft
         {% else %}
-          <span>Blog Post</span>
+          Blog Post
         {% endif %}
       </div>
       <div>{{ post.date | date: "%b %d, %Y" }}</div>
