@@ -43,8 +43,8 @@ Part 4: The Bosphoran Connection\
 5.1.1\. Julius Caesar was a Title\
 5.2. Dragon Bloodline Descendants\
 5.2.1. Ptolemy XII Auletes aka Mark Antony aka Mithridates VI Eupator\
-5.2.2. Aliases and Avatars of the Bloodline\
-5.2.3. Amyntas Nikator aka Amyntas, King of Galatia\
+5.2.2. Amyntas Nikator aka Amyntas, King of Galatia\
+5.2.3. Aliases and Avatars of the Bloodline\
 5.2.4. Izates II, King of Adiabene\
 5.2.5. Tiberius Julius Sauromates II\
 Part 5: From Imperial Cult to Christianity\
@@ -94,8 +94,7 @@ to two of her brothers and her uncle as listed previously. This is how
 incestuous this family was.
 
 This book directly challenges mainstream historiography. My methodologies are:
-archaeological and numismatic evidence, linguistic and etymological
-analysis, and historical correlation and timeline analysis. The sources
+numismatic and onomastic evidence, and historical correlation and timeline analysis. The sources
 that inspired my work are listed in the 'Bibliography' section at the
 end of the book.
 
@@ -733,7 +732,7 @@ Fig. 1.23. Coin depicting Ptolemy Apion, king of Kyrene, Kyrenaica, North Africa
 
 **5.2.2. Amyntas Nikator aka Amyntas, King of Galatia**
 
-Amyntas Nikator aka Amyntas of Galatia [^10] aka Jesus ben Fabus aka Isa Amen (Jesus was named "Amen" in Rev. iii. 14) was either Asander aka Julius Caesar or one of his sons (Aspurgus who was also Caesarion?).
+Amyntas Nikator aka Amyntas of Galatia [^10] aka Jesus ben Fabus aka Isa Amen (Jesus was named "Amen" in Rev. iii. 14) was one of Asander aka Julius Caesar's sons (Aspurgus who was also Caesarion? Plutarch says that Caesarion was sent to India. Or was he Asander aka Julius Caesar's son with another woman?).
 
 He was also Jesus ben Fabus aka Isa Amen. He ruled an empire that stretched from modern-day Turkey through India. His palace at Isauria refers to Isis (also known as Isa or Aset) who was the mother of Horus (Cleopatra identified herself with the Greco-Egyptian goddess Isis. So, her son would have been Isa, son of Isis. The son of Isis in mythology was Horus, and that is why Caesarion's iconography has a Horus falcon on it). Was this Caesarion's avatar?
 
