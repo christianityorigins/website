@@ -109,7 +109,7 @@ Coins are the unlying testimony. They cannot be forged by later historians. The 
 
 The Foundational Avatar: Julius Caesar is Asander, king of Bosporus
 
-![Fig.1.1](/images/caesarstar.jpg){:width="400px"}
+![Fig.1.1](/images/caesarstar.jpg){:width="400px"}\
 ![Fig.1.2](/images/asandernike.jpg){:width="400px"}
 
 Fig. 1.1 & 1.2. (L) Julius Caesar. (R) Asander, king of Bosphorus depicting a Nike which was the Greek goddes of victory and a close companion of Zeus. Other depictions of Asander show the star and cresent that is visible in the Julius Caesar coin above (https://rpc.ashmus.ox.ac.uk/coins/1/1845). The crescent moon and star symbol has Mithraic symbolism, and another coin of Asander depicts a Phrygian cap which is closely associated with the Roman god Mithras: https://silver.kbr.be/3628_-_Panticapaeum%3F_(Asander)_(AE_Apollo/prow)_over_Pontic_type_(Perseus/Pegasus)_(Oxford,_AM).
@@ -118,23 +118,23 @@ The Avatar Succession: Roman Emperors are Bosporan Kings
 
 The following side-by-side comparisons prove that the Julio-Claudian and Flavian emperors were the ruling dynasty of the Bosporan Kingdom, their faces stamped on coinage in both the "Roman" West and the "Bosporan" East.
 
-![Fig.1.3](/images/RhoemetalcesOctavian.jpg){:width="400px"}
+![Fig.1.3](/images/RhoemetalcesOctavian.jpg){:width="400px"}\
 Fig. 1.3. L. Rhoemetalces I, king of Bosphorus. R. Emperor Augustus (Octavian). Rhoemetalces = "king of Rhome", or "king of Rome" in ancient Thracian.
 
-![Fig.1.4](/images/AspurgusTiberius.jpg){:width="400px"}
-Fig. 1.4. L. Tiberius Julius Aspurgus I, king of Bosphorus. R. Emperor Tiberius Caesar Augustus. The same person.
+![Fig.1.4](/images/AspurgusTiberius.jpg){:width="400px"}\
+Fig. 1.4. L. Tiberius Julius Aspurgus I, king of Bosphorus. R. Emperor Tiberius Caesar Augustus.
 
-![Fig.1.5](/images/MithridatesIIICaligula.jpg){:width="400px"}
-Fig. 1.5. L. Mithridates III, king of Bosphorus. R. Emperor Caligula. The same person.
+![Fig.1.5](/images/MithridatesIIICaligula.jpg){:width="400px"}\
+Fig. 1.5. L. Mithridates III, king of Bosphorus. R. Emperor Caligula.
 
-![Fig.1.6](/images/CotysIClaudius.jpg){:width="400px"}
-Fig. 1.6. L. Cotys I, king of Bosphorus. R. Emperor Claudius. The same person.
+![Fig.1.6](/images/CotysIClaudius.jpg){:width="400px"}\
+Fig. 1.6. L. Cotys I, king of Bosphorus. R. Emperor Claudius.
 
-![Fig.1.7](/images/RhescuporisIVespasian.jpg){:width="400px"}
-Fig. 1.7. L. Rhescuporis I, king of Bosphorus. R. Emperor Vespasian. The same person.
+![Fig.1.7](/images/RhescuporisIVespasian.jpg){:width="400px"}\
+Fig. 1.7. L. Rhescuporis I, king of Bosphorus. R. Emperor Vespasian.
 
-![Fig.1.8](/images/PolemonIITitus.jpg){:width="400px"}
-Fig. 1.8. L. Polemon II, king of Bosphorus. R. Emperor Titus. The same person.
+![Fig.1.8](/images/PolemonIITitus.jpg){:width="400px"}\
+Fig. 1.8. L. Polemon II, king of Bosphorus. R. Emperor Titus.
 
 1.2 Ancient Alias Names List
 
