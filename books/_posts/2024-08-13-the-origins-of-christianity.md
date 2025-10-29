@@ -112,7 +112,7 @@ The Foundational Avatar: Julius Caesar is Asander, king of Bosporus
 ![Fig.1.1](/images/caesarstar.jpg){:width="400px"}\
 ![Fig.1.2](/images/asandernike.jpg){:width="400px"}
 
-Fig. 1.1 & 1.2. (L) Julius Caesar. (R) Asander, king of Bosphorus depicting a Nike which was the Greek goddes of victory and a close companion of Zeus. Other depictions of Asander show the star and cresent that is visible in the Julius Caesar coin above (https://rpc.ashmus.ox.ac.uk/coins/1/1845). The crescent moon and star symbol has Mithraic symbolism, and another coin of Asander depicts a Phrygian cap which is closely associated with the Roman god Mithras: https://silver.kbr.be/3628_-_Panticapaeum%3F_(Asander)_(AE_Apollo/prow)_over_Pontic_type_(Perseus/Pegasus)_(Oxford,_AM).
+Fig. 1.1 & 1.2. (L) Julius Caesar. (R) Asander, king of Bosphorus depicting a Nike which was the Greek goddess of victory and a close companion of Zeus. Other depictions of Asander show the star and cresent that is visible in the Julius Caesar coin above (https://rpc.ashmus.ox.ac.uk/coins/1/1845). Another coin of Asander depicts a Phrygian cap which is closely associated with the Roman god Mithras: https://silver.kbr.be/3628_-_Panticapaeum%3F_(Asander)_(AE_Apollo/prow)_over_Pontic_type_(Perseus/Pegasus)_(Oxford,_AM). The star and crescent in above coins was the symbol of the city of Byzantium/Constantinople long before the Ottomans used it. The legend was that Byzas, the founder, chose the site based on a vision of a crescent moon and a star. This symbol represented the fusion of the lunar goddess (Hecate/Artemis, who was associated with snakes) and the solar god (Apollo). By using this symbol, Asander and Caesar were not just using a random symbol; they were explicitly claiming lordship over the Bosphorus.
 
 The Avatar Succession: Roman Emperors are Bosporan Kings
 
@@ -527,8 +527,6 @@ would have been married to her half-brother (Cleopatra and Mark Antony's
 son) Polemon II, King of Pontus aka Ptolemy Philadelphus aka
 Sampsiceramus I? The Bosphorus Kingdom, also known as the Kingdom of the
 Cimmerian Bosphorus, was located next to the Pontus Kingdom
-
-The star and crescent on the above coins was the symbol of the city of Byzantium/Constantinople long before the Ottomans used it. The legend was that Byzas, the founder, chose the site based on a vision of a crescent moon and a star. This symbol represented the fusion of the lunar goddess (Hecate/Artemis, who was associated with snakes) and the solar god (Apollo). By using this symbol, Asander and Caesar were not just using a "dragon symbol"; they were explicitly claiming lordship over the Bosphorus.
  
  Asander was born in 110 BCE, the same year as Julius Caesar. Dynamis was
 born in 70/69 BCE, the same year as Cleopatra VII. Julius Caesar was 30
