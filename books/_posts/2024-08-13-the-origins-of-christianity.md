@@ -320,7 +320,7 @@ The Ptolemaic Egyptians (Ptolemaios - the root "ptol" resembling the
 Indo-Iranian term for warrior-kings (e.g., Parthian pat, "lord"), or
 Scythian Patala (horse lords), were the continuation of this bloodline.
 
-The cross was not made of wood. It was a T-shaped standard, the Tau (Τ), the ancient symbol of the Mesopotamian god Tammuz of Ezekiel 8:14 who was associated with snakes. This was the crux commissa or Tau cross.
+The cross was not made of wood. It was a T-shaped standard, the Tau (Τ), the ancient symbol of the Mesopotamian god Tammuz. Ezekiel 8:14 condemns the women of Jerusalem for weeping for Tammuz.. This was the crux commissa or Tau cross.
 
 In Sarmatian, "Ruma" (Rome) = "Place of the Dragon" (Rhu-Ma, from Aži
 Dahāka, the Iranian dragon).
@@ -564,7 +564,7 @@ Mithridates VI, king of Pontus, was the father of both Pharnaces II and
 Dynamis (Cleopatra). Pharnaces II was Ptolemy XIV who was Cleopatra's
 brother-husband.
 
-Asander beat Mithridates Chrestus (his uncle) in battle to become King
+Asander beat Mithridates Chrestus in battle to become King
 of Bosphorus. After Mithridates Chrestus's loss to Asander he was
 imprisoned and executed by his elder brother, Mithridates VI Eupator,
 who had previously beat him in war.
