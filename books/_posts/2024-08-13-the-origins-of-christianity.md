@@ -80,7 +80,7 @@ This book traces Christianity back to its foundations — from the mythemes of S
 A few things you need to know before you read my book:
 
 -   Much of what we know of ancient history is fabricated by the Flavian emperors, Jesuits, and the Vatican. The Egyptian-Persian-Indian-Greek-Roman elite were a Proto-Indo-European (PIE) Elite (Kurgan Culture) who were the horse-riding, chariot-inventing pastoralists from the Pontic-Caspian Steppe who, beginning around 4500 BC, began a systematic conquest of Europe, Anatolia, and the Indus Valley, and who ruled through proxy dynasties. Egypt, Persia, India, Greece, Rome,
-etc., were all at one point under the suzerainty of Aryan Iranian-Scythian elites and their base of operation was on the Bosphorus river. The Persian system of Satraps (Old Persian xšaçapāvan, "protector of the dominion") is the administrative blueprint of this hegemony. The title derives from Xšaya (to rule), which links to Roman Caesar and Sanskrit Kshatriya. Every Satrap was a regional "dragon-king" enforcing the center's will.
+etc., were all at one point under the suzerainty of Aryan Iranian-Scythian elites and their base of operation was on the Bosphorus river. Mainstream history presents a linear progression: Egypt -> Greece -> Persia -> Rome. This is a complete fabrication. The "ancient" civilizations of Egypt, Greece, Persia, and Rome were largely concurrent satrapies of the Scythian core. The Persian system of Satraps (Old Persian xšaçapāvan, "protector of the dominion") is the administrative blueprint of this hegemony. The title derives from Xšaya (to rule), which links to Roman Caesar and Sanskrit Kshatriya. Every Satrap was a regional "dragon-king" enforcing the center's will.
 -   Western Rome in Italy is a phantom empire that did not conquer the kingdoms of the East. The Bosphoran royal house created Western Rome as a military garrison. The original Rome (in Sarmatian, "Ruma" (Rome) = "Place of the Dragon" (Rhu-Ma, from Aži Dahāka, the Iranian dragon)) was located on the Bosphorus river which approximates to modern-day Crimea in southern Ukraine. There was a split between East and West during the Flavian period and the Flavians erased their Bosphoran origins.
 -   Asander, king of Bosphorus aka Julius Caesar was also Cleopatra's uncle Ptolemy of Cyprus (brother of Ptolemy XII Auletes and husband of "Mithridates") aka Mithridates Chrestus, King of Pontus VI (brother of Mithridates VI, king of Pontus), but he took on numerous other regional aliases. Cleopatra was also Dynamis, queen of Bosphorus. Mark
 Antony the Neos-Dionysos was Cleopatra's father Ptolemy XII Auletes (Auletes name adapts well to the
@@ -111,14 +111,14 @@ The Foundational Avatar: Julius Caesar is Asander, king of Bosporus
 ![Fig.1.1](/images/caesarstar.jpg){:width="400px"}\
 ![Fig.1.2](/images/asandernike.jpg){:width="400px"}
 
-Fig. 1.1 & 1.2. (L) Julius Caesar. (R) Asander, king of Bosphorus depicting a Nike which was the Greek goddess of victory and a close companion of Zeus. Other depictions of Asander show the star and cresent that is visible in the Julius Caesar coin above (https://rpc.ashmus.ox.ac.uk/coins/1/1845). Another coin of Asander depicts a Phrygian cap which is closely associated with the Roman god Mithras: https://silver.kbr.be/3628_-_Panticapaeum%3F_(Asander)_(AE_Apollo/prow)_over_Pontic_type_(Perseus/Pegasus)_(Oxford,_AM). The star and crescent in above coins was the symbol of the city of Byzantium/Constantinople long before the Ottomans used it. The legend was that Byzas, the founder, chose the site based on a vision of a crescent moon and a star. This symbol represented the fusion of the lunar goddess (Hecate/Artemis, who was associated with snakes) and the solar god (Apollo). By using this symbol, Asander and Caesar were not just using a random symbol; they were explicitly claiming lordship over the Bosphorus.
+Fig. 1.1 & 1.2. (L) Julius Caesar. (R) Asander, king of Bosphorus depicting a Nike which was the Greek goddess of victory and a close companion of Zeus. Other depictions of Asander show the star and cresent that is visible in the Julius Caesar coin above (https://rpc.ashmus.ox.ac.uk/coins/1/1845). Another coin of Asander depicts a Phrygian cap which is closely associated with the Roman god Mithras: https://silver.kbr.be/3628_-_Panticapaeum%3F_(Asander)_(AE_Apollo/prow)_over_Pontic_type_(Perseus/Pegasus)_(Oxford,_AM). This coin of Asander displays a prow (front of a ship) that is also seen in Julius Caesar coins. The star and crescent in above coins was the symbol of the city of Byzantium/Constantinople long before the Ottomans used it. The legend was that Byzas, the founder, chose the site based on a vision of a crescent moon and a star. This symbol represented the fusion of the lunar goddess (Hecate/Artemis, who was associated with snakes) and the solar god (Apollo). By using this symbol, Asander and Caesar were not just using a random symbol; they were explicitly claiming lordship over the Bosphorus.
 
 The Avatar Succession: Roman Emperors are Bosporan Kings
 
 The following side-by-side comparisons prove that the Julio-Claudian and Flavian emperors were the ruling dynasty of the Bosporan Kingdom, their faces stamped on coinage in both the "Roman" West and the "Bosporan" East.
 
 ![Fig.1.3](/images/RhoemetalcesOctavian.jpg){:width="400px"}\
-Fig. 1.3. L. Rhoemetalces I, king of Bosphorus. R. Emperor Augustus (Octavian). Rhoemetalces = "king of Rhome", or "king of Rome" in ancient Thracian.
+Fig. 1.3. L. Rhoemetalces I, king of Bosphorus. R. Emperor Augustus (Octavian). Talces = the Thracian word for "king" or "ruler". Rhoemetalces = "king of Rhome", or "king of Rome" in ancient Thracian.
 
 ![Fig.1.4](/images/AspurgusTiberius.jpg){:width="400px"}\
 Fig. 1.4. L. Tiberius Julius Aspurgus I, king of Bosphorus. R. Emperor Tiberius Caesar Augustus.
@@ -138,6 +138,8 @@ Fig. 1.8. L. Polemon II, king of Bosphorus. R. Emperor Titus.
 1.2 Ancient Alias Names List
 
 Note on Aliases: The Ptolemaic-Bosporan elite employed an incredible number of regional aliases, fictional stories, and fabricated deaths. They role-played as deities and various characters as if they were actors in a play. This was done because populations would not accept foreign kings, and a god-king had to manifest according to local religious expectations.
+
+Mainstream history presents the Ptolemies, Seleucids, Attalids, and Romans as separate, often warring entities. This is a Flavian-Vatican fabrication. In reality, they were four branches of a single Scythian-Sarmatian dynasty, a "Tetrarchy", administering different sectors of the empire from the Bosphoran center.
 
 I. The Core Dragon Bloodline (Ptolemaic, Julio-Claudian & Bosphoran Dynasty)
 
@@ -211,7 +213,7 @@ III. Speculative
     divine, likely derives from the Egyptian Asar. The Greek language
     adds a "K" to foreign words, so Aesar -> Greek Kaesar -> Latin
     Caesar. This title also resembles the Scythian/Hurrian "Kur-Sar" (Sun King), the Phoenician "Kosar" (sun god), Assyrian "Aššur" (god), Germanic Æsir (the Norse gods, like Odin), Sanskrit Kesari (lion), Persian Kesar (king), Scythian "As" (lord) and Scythian Sar (king), Kšar (from the Old Persian Xšaya = king), and also Cyrus the Great's title (Kuruš (Cyrus) = Khur (Sun) + -uš (lord)).
--   Christ: Karast, a person who is anointed as a Heru (Hero/Horus) during their lifetime. When they are deceased they receive great honor as a KRST or Ausar (Osiris). Egyptian Karast (“Anointed One”) = Greek Christos (“Anointed One”) = Scythian Xšaθra (Power, Dominion, Kingdom which becomes "Kšatrapati" (Satrap, Governor) in Persian, and "Kshatriya" (Warrior-King) in Sanskrit, which also = Vedic "Krishna" (the dark god of Hinduism. Krishna is an avatar of Vishnu, and his name means "dark" or "black". This might connect to the black stone of Emesa -- a meteorite worshipped by the Scythian elite) = Hyksos "Khasut", linking India, Egypt, and Judea to a Scythian elite. Christ is identical to the title Soter. Several historical figures were
+-   Christ: Scythian Xšaθra (power, dominion) -> Kšatrapati" (Satrap, Governor) in Persian -> Hyksos "Khasut" in Egypt -> Kshatriya (Warrior-King) in Sanskrit (which also = Vedic "Krishna" (the dark god of Hinduism. Krishna is an avatar of Vishnu, and his name means "dark" or "black")) -> Christos. The title "Christ" did not mean a meek "anointed one" in the original context. It meant "the Satrap"—the imperial governor of the Dragon Kingdom. Jesus Christ was, in the original Bosporan cult, the title for the ruling Satrap of Judea, who was a member of the Bosporan royal house. The Flavian revision turned this title of worldly power into one of spiritual suffering. This title links India, Egypt, and Judea to a Scythian elite. Christ is identical to the title Soter. Several historical figures were
     Christs/Soters. In Isaiah 45:1 the jews called Cyrus the Great "The
     Anointed One". Alexander the Great was also a Chréstos/Soter
     (Josephus. Antiquities, XI. 8. Talmud, Yoma 67b). Up until the First
@@ -324,8 +326,6 @@ The cross was not made of wood. It was a T-shaped standard, the Tau (Τ), the an
 In Sarmatian, "Ruma" (Rome) = "Place of the Dragon" (Rhu-Ma, from Aži
 Dahāka, the Iranian dragon).
 
-Mainstream history presents the Ptolemies, Seleucids, Attalids, and Romans as separate, often warring entities. This is a Flavian-Vatican fabrication. In reality, they were four branches of a single Scythian-Sarmatian dynasty, a "Tetrarchy", administering different sectors of the empire from the Bosphoran center.
-
 Footnotes (Chapter 3)
 
 (a) The eruption of Thera (Santorini) was one factor in destroying the
@@ -346,6 +346,8 @@ Fig. 1.9 Copper statuette of the god Sarapis Amun Agathodaemon depicted as half-
 The Sarapis Cult eventually evolved into Christianity, which was repackaged Serapis cult and targeted at local populations (the Christogram symbolizing Jesus Christ (IHS) = "Isis-Horus-Serapis"). Religion was the technology that the empire used to subjugate the people they ruled.
 
 After the Serapis cult the Alexandrian School made an industry out of taking existing religions and then adding to them a psy-op slave-morality foundation. The goal was to get the population to accept monotheism and move them towards the Sarapis Cult. The Serapis Cult, Gnosticism, Mithraism, Christianity, Manichaeanism, Valentinianism, Hermeticism (Philo of Alexandria’s syncretic philosophy to Hellenize the Canaanite religion of the levant), Buddhism (Pyrrho of Elis's syncretic attempt at subverting the Indo-Aryans in Bactria which was governed by Gaumata Bardya, Cyrus the Greats son), etc., all came from here. 
+
+The director of the Mouseion and the chief architect of the synthetic religions was not a man. It was a succession of Ptolemaic princesses who held the title The Muse Ourania (The Heavenly Muse). The Mouseion was named after her office. Arsinoë II Philadelphus (c. 316 BC – 270 BC), daughter of Ptolmy Soter, was refered to as "the tenth Muse" and she had a cult dedicated to her as Arsinoë Aphrodite Ourania. in some cases these females directors took on male aliases, for example, Philo of Alexandria was  Cleopatra (Thea Philopator) of Mauretania aka Cleopatra IX, Helene, Drusilla of Mauretania, Julia Ourania of Parthia, etc. 
 
 **4.1 The Blueprint Deities: Pre-existing Saviors (Horus, Dionysus, Mithras, etc.)**
 
@@ -453,10 +455,6 @@ Jerusalem = I(J)ERU-SAR-AM, meaning "The Holy City of the Scythian King". The SA
 These Sarmatian-Celtic (Galatian) males mixed with Neolithic Anatolian women before their descendants moved into Egypt (Apiru or Habiru) and Caanan and then mixed with indigenous people in those places. Celtic Jews (Iudii) then disappeared after the Bar Kokhba Revolt when Emperor Hadrian decimated their population. Modern Ashkenazi Jews are a hodgepodge of Neolithic (proto-Sicilian who originated in Anatolia), native Canaanites (who were literal human-neanderthal hybrids [^4]), proto-Arab Natufians (Natufians had ~20% higher Basal Eurasian -- Basal means with SSA, North Africa was green/fertile so sub-Saharin Africans could cross the Sahara), and Celtic Cimbri and Celtic Galatian from Anatolia.
 
 The rest of the jewish religion and identity came from later incarnations of this imperial cult: Abel and Cain are just a copy of Romulus and Remus. Judas Iscariot is a copy of Brutus. Genesis 4:5-31. Enoch, Irad, Mehujael, Methuselah, Lamech, Seth, Enosh, Kenan, Mahalalel, are copies of Titus Livy's Regal Rome of the seven kings.
-
-Footnotes (Chapter 4)
-
-(a) The director of the Mouseion and the chief architect of the synthetic religions was not a man. It was a succession of Ptolemaic princesses who held the title The Muse Ourania (The Heavenly Muse). The Mouseion was named after her office. Arsinoë II Philadelphus (c. 316 BC – 270 BC), daughter of Ptolmy Soter, was refered to as "the tenth Muse" and she had a cult dedicated to her as Arsinoë Aphrodite Ourania.
 
 **5 Rome On the Bosphorus River**
 
@@ -982,8 +980,6 @@ The primary architects were the Flavian dynasty (Vespasian, Titus, Domitian) and
 Roman emperor faces no longer appear on Bosphoran coins after emperor Titus. Roman emperors also stopped looking "Aryan"/Nordic after the Flavian empire.
 
 According to the book 'Jesus, King of Edessa' (2012) by Ralph  Ellis [[link](https://web.archive.org/web/20240728150536/https://x.com/ralfellis/status/1809520320077803525)] Jesus ben Gamala/Gamaliel who led the First Jewish–Roman War (66-70 AD) against Rome was also Jesus ben Sapphias and Izas Ma'nu (Jesus Emmanuel) Monobazus of Adiabene aka Yeshua Cleopatros (Cantheras/Panthera) ben Josephus bar Menneus aka Ptolemy aka Yakov Zu Tolomoy. King Izates of Monobazus was a descendant of the dragon bloodline and was married to the sister of Dynamis's mother. Tiberius Julius Sauromates II could have also been Simon bar Kokhba (Bar Kokhba means "Son of the Star" which directly links to the "Star and Crescent" symbolism on the coins of Asander/Julius Caesar and Dynamis/Cleopatra) who led the Bar Kokhba revolt (132-136 AD) against Rome. Either of these two, as heirs to the Scythian Dragon throne, led a revolt against western Rome. The Flavians or Hadrian then erased the Bosphoran connection after putting down these revolts.
-
-Then the renaissance finished the fabrication of history. This was all to secretly make Rome into a Carian empire. It was an Aryan and Thracian proxy state of the Scythins who were based out of the Bosphorus. The Bosphorus was always its capital. Latin was the original language of the Dacians and it was high-noble Aryan; German mixed the middle language (proto Latin) with degenerated old Gothic.
 
 Emperor Theodosius, Pope Theophilus I of Alexandria, and Jerome also played a big role in the deception. The mainstream claim is that the Library of Alexandria was destroyed by Julius Caesar (48 BC) or Muslim conquest (642 AD). The truth is that the final and most devastating burn was ordered by Emperor Theodosius and Pope Theophilus I of Alexandria in 391 AD to erase Serapis cult texts that exposed Christianity’s origins. Proof: The Nag Hammadi Library (1945) contained Gnostic texts that matched Serapis theology—proving a cover-up, and the "Letter of Hadrian to Servianus" (found in Vindobonensis manuscript) admits: "Those who worship Serapis are Christians… devotees of Serapis call themselves bishops of Christ."
 
