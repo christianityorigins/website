@@ -190,8 +190,8 @@ III. Speculative
     Molossian tribe, claimed to have been impregnated by the god Zeus
     Ammon disguised as a serpent. Alexander's fathers name Philip was a title (Philippos (Lover of Horses) is a direct Greek translation of the Scythian royal title Pharnavaz (Horse-Lord)). Alexander also married the Scythian princess Roxana. Alexanders campaign was not a conquest, it was a Scythian restoration. The Achaemenid Persians (Achaemenes is likely Akh-Manesh or "Spirit of Manu", linking to the Vedic sage-king) were a rival Scythian clan (the "Ariya" - Aryans). Alexander was re-establishing the older, purer Scythian hegemony of the Medes and the pre-Zoroastrian Mitanni. In the Old Testament he was Solomon (Sol-Amūn or "Sun of Amun") which is a direct parallel to "Zeus-Ammon", a title he carried.
 
-![Fig.1.9](/images/AteasAlexander.jpeg){:width="400px"}\
-Fig. 1.9. L. Ateas the Scythian. R. Alexander. King Ateas the Scythian was Artaxerxes II Memnon in Persia, Phillip II in Macedonia, and Nectanebo I in Egypt? He was the patriarch of the Dragon bloodline.
+![Fig.1.9](/images/AteasPhillipAlexander.jpg.jpeg){:width="400px"}\
+Fig. 1.9. L. Ateas the Scythian. M. Philip II of Macedon. R. Alexander the Great. King Ateas the Scythian was Artaxerxes II Memnon in Persia, Phillip II in Macedonia, and Nectanebo I in Egypt? He was the patriarch of the Dragon bloodline.
   
 -  Gautama Buddha: Bardiya (Smerdis)/Gaumata (Cyrus the Great's son who was satrap (governor) of the Persian province of Bactria (modern day Afghanistan)). He was of the Śākya tribe which is the Sanskrit equivalent of Saka (Scythian).
 -  Marcion of Sinope: Markianos of Alexandria. The association with Sinope came from Aquila of Sinope who was a disciple of Rabbi Akiva. Are the two the same? Probably.
