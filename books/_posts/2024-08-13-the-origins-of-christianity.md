@@ -189,9 +189,13 @@ III. Speculative
     Aži-Sandar also = "Dragon King" in Mittani and Old Persian. He did not die in Babylon. He "became a god" by undergoing a ritual transformation in the ziggurat. He then re-emerged in the East with a new identity. Alexander's mother Olympias (Ol or ophis + Pias = "serpent queen"), who was a Scythian princess of the
     Molossian tribe, claimed to have been impregnated by the god Zeus
     Ammon disguised as a serpent. Alexander's fathers name Philip was a title (Philippos (Lover of Horses) is a direct Greek translation of the Scythian royal title Pharnavaz (Horse-Lord)). Alexander also married the Scythian princess Roxana. Alexanders campaign was not a conquest, it was a Scythian restoration. The Achaemenid Persians (Achaemenes is likely Akh-Manesh or "Spirit of Manu", linking to the Vedic sage-king) were a rival Scythian clan (the "Ariya" - Aryans). Alexander was re-establishing the older, purer Scythian hegemony of the Medes and the pre-Zoroastrian Mitanni. In the Old Testament he was Solomon (Sol-Amūn or "Sun of Amun") which is a direct parallel to "Zeus-Ammon", a title he carried.
+
+![Fig.1.9](/images/AteasAlexander.jpg){:width="400px"}\
+Fig. 1.9. L. Ateas the Scythian. R. Alexander. 
+  
 -  Gautama Buddha: Bardiya (Smerdis)/Gaumata (Cyrus the Great's son who was satrap (governor) of the Persian province of Bactria (modern day Afghanistan)). He was of the Śākya tribe which is the Sanskrit equivalent of Saka (Scythian).
 -  Marcion of Sinope: Markianos of Alexandria. The association with Sinope came from Aquila of Sinope who was a disciple of Rabbi Akiva. Are the two the same? Probably.
--  Moses = Manes/Mannu-Kuras = Manu (Scythian Sage-King) = Menes (Egypt’s legendary founder). Also appears in "Monobazus" → “Manu Bazus” → Sarmatian-Mythological Sage King. The Iranian Manu is a legendary civilizer, and in India he becomes the first Lawgiver (the Manu Smriti = Scythian governance code). The biblical Moses defeats Pharaoh (actually Mitanni elite), parts waters with a serpent-staff—obvious encoding of dragon-kingship (Aži Dahāka). Moses takes on different masks: M enes – the first official Pharaoh (not real, a compilation of conquerors). Menes – the semi-mythical Median king, founder of the priest-class. Mannu-kuras – Proto-Mede, whose name becomes Cyrus. The name Kur-Ash = "Sun Man". The Exodus is not Judaic memory: it's a political memory of Mitanni-Scythian expulsion from Egypt after the religious revolution of Thutmose III → Horemheb wiped them out with a new priest-kingship in Amarna.
+-  Moses = Manes/Mannu-Kuras = Manu (Scythian Sage-King) = Menes (Egypt’s legendary founder). Also appears in "Monobazus" → “Manu Bazus” → Sarmatian-Mythological Sage King. The Iranian Manu is a legendary civilizer, and in India he becomes the first Lawgiver (the Manu Smriti = Scythian governance code). The biblical Moses defeats Pharaoh (actually Mitanni elite), parts waters with a serpent-staff—obvious encoding of dragon-kingship (Aži Dahāka). Moses takes on different masks: M enes – the first official Pharaoh (not real, a compilation of conquerors). Menes – the semi-mythical Median king, founder of the priest-class. Mannu-kuras – Proto-Mede, whose name becomes Cyrus. The name Kur-Ash = "Sun Man". The Exodus is not Judaic memory: it's a political memory of Mitanni-Scythian expulsion from Egypt after the religious revolution of Thutmose III → Horemheb wiped them out with a new priest-kingship in Amarna. He shows up in a number of religions: In Zoroastrianism he is Manushchihr, in Hinuduisn he is Manu, in Judaism he is Moses, in Norse mythology he is Mannus, etc.
 -  Paul the Apostle = likely a composite character or an avatar/cipher. Two suspects for having taken on the character are: 1) Saulus ben Antipater who was the
     son of Antipater/Herod Antipas the Tetrarch, grandson of King Herod
     (Josephus, Antiquities of the Jews, Chapter 9, section 211), and 2) Rabbi Akiva (whose students included: Aquila of Sinope aka Onkelos, Markianos of Alexandria aka Marcion (Greek Markion) of Sinope, Shimon bar Yohai aka Simon Peter (Shimon bar Yonah). The character
@@ -339,9 +343,9 @@ Footnotes (Chapter 3)
 
 In Egypt, Ptolemy I Soter, who was a Scythian continuation of the Sarmatian snake/serpent kings line, used religion to subjugate the vast and disparate peoples he ruled. This was likely inspired by Plato's noble lie which is a concept from his work "The Republic" where he suggests that a myth or falsehood can be used by rulers to maintain social order and promote the common good. The Alexandrian School (Mouseion of Alexandria) then became his religion making factory. He was in the process of creating a universal religion and this was being achieved by gradual syncretism using local identities and blending local deities into syncretic universal savior archetypes (Interpretatio Graecae) as a transitional phase toward a universal monotheism. The Ptolemaic elites were conditioning the disparate populations they ruled into accepting the Serapis cult (sarp- is a Proto-Indo-European root meaning "serpent" as seen in Sanskrit sarpa, "snake". "Sar-Ap" translates to "Serpent-Lord" in Scythian).
 
-![Fig.1.9](/images/SarapisAmunAgathodaemon.jpg){:width="400px"}
+![Fig.1.10](/images/SarapisAmunAgathodaemon.jpg){:width="400px"}
 
-Fig. 1.9 Copper statuette of the god Sarapis Amun Agathodaemon depicted as half-deity. half-snake (Egypt late Hellenistic/early Roman period 1st century BC - 1st century AD).
+Fig. 1.10 Copper statuette of the god Sarapis Amun Agathodaemon depicted as half-deity. half-snake (Egypt late Hellenistic/early Roman period 1st century BC - 1st century AD).
 
 The Sarapis Cult eventually evolved into Christianity, which was repackaged Serapis cult and targeted at local populations (the Christogram symbolizing Jesus Christ (IHS) = "Isis-Horus-Serapis"). Religion was the technology that the empire used to subjugate the people they ruled.
 
@@ -370,9 +374,9 @@ was invented in the 17th century, so the name "Jesus" would have been
 "Esus" in the classical sense.
 
 ![Fig.
-1.10](/images/Esus.jpg){:width="400px"}
+1.11](/images/Esus.jpg){:width="400px"}
 
-Fig. 1.10. Statue from classical Anatolia that is dedicated to "Esumopas
+Fig. 1.11. Statue from classical Anatolia that is dedicated to "Esumopas
 Cnusticus". Esumopas means "Slave to Esus", and Esus means lord in
 Proto-Celtic. If you combine the Etruscan word "cnus" with the suffix
 "-ticus" or "-tic-" you get a word that translates to "anointed one" or
@@ -416,9 +420,9 @@ Rhu/Ru: The Indo-European root for "Dragon/Serpent" (cognate with the Scythian A
 
 According to Plutarch’s Life of Romulus (circa 75 CE) the Roman deity of Quirinus aka Romulus was born to a virgin, Rhea Silvia, impregnated by the god Mars, establishing his divine lineage. Hailed as a king and revered as the son of a god, Romulus founded Rome after a fratricidal conflict with his brother Remus, a narrative echoing the biblical Cain and Abel, crucified by a conniving elite and rose from the dead as the god Quirinus.
 
-![Fig.1.11](/images/Denarius_C._Memmius_C._F._Romulus.jpg){:width="400px"}
+![Fig.1.12](/images/Denarius_C._Memmius_C._F._Romulus.jpg){:width="400px"}
 
-Fig. 1.11. Romulus. 
+Fig. 1.12. Romulus. 
 
 Serapis the Greco-Egyptian Deity
 
@@ -501,9 +505,9 @@ Cleopatra used the regional alias of Dynamis Ourania [^8]
 Bosporus approximates to modern-day Crimea in southern Ukraine (see
 also: Jesus Christ Was Born in Crimea by Anatoly Fomenko).
 
-![Fig.1.12](/images/Cleopatra%20VIIDynamis.png){:width="400px"}
+![Fig.1.13](/images/Cleopatra%20VIIDynamis.png){:width="400px"}
 
-Fig. 1.12. (L) Dynamis, Queen of Bosphorus, (R) Cleopatra VII. There were
+Fig. 1.13. (L) Dynamis, Queen of Bosphorus, (R) Cleopatra VII. There were
 obviously many years between the ages at which she was depicted,
 however, even in the elder Dynamis bust you can see her lazy eye and
 abnormally large eyes which she was reported to have had, possibly as a
@@ -511,9 +515,9 @@ consequence of inbreeding. The hat she is wearing is a Phrygian cap, a
 distinctivehat that is closely associated with the Roman god Mithras.
 Dynamis was recorded as being of "Sarmatian" ancestry.
 
-![Fig.1.13](/images/cleopatra.png){:width="400px"}
+![Fig.1.14](/images/cleopatra.png){:width="400px"}
 
-Fig. 1.13. (L) Julia Mamaea, Queen of Pontus (wife of Polemon II), (R)
+Fig. 1.14. (L) Julia Mamaea, Queen of Pontus (wife of Polemon II), (R)
 Cleopatra VII. Polemon Pythodoros, King of Pontus was a regional alias
 of Julius Caesar/Asander (as Asander and Polemon were both married to
 Dynamis), and if he also played the religious role of Gaius Julius
@@ -566,31 +570,31 @@ of Bosphorus. After Mithridates Chrestus's loss to Asander he was
 imprisoned and executed by his elder brother, Mithridates VI Eupator,
 who had previously beat him in war.
 
-![Fig.1.14](/images/MithridatesChrestus.jpg){:width="400px"}
+![Fig.1.15](/images/MithridatesChrestus.jpg){:width="400px"}
 
-Fig. 1.14. Mithridates Chrestus aka Ptolemy of Cyprus aka Asander, king of
+Fig. 1.15. Mithridates Chrestus aka Ptolemy of Cyprus aka Asander, king of
 Bosphorus, etc. The names Asander and Caesar both derive from the Etruscan word "Aesar" (also spelled "Aeser" or "Aisar" which likely derives from the Egyptian "Asar" which was another name for Osiris - there was no J in ancient Latin, so it was pronounced ah-soos). He would have been the first person to take on the title Iesus Christ.
 
-![Fig.1.15](/images/PharnacesII.jpg){:width="400px"}
+![Fig.1.16](/images/PharnacesII.jpg){:width="400px"}
 
-Fig. 1.15. Coin depicting Pharnaces II who was the king of the Bosporan Kingdom and the Kingdom of Pontus. At the Battle of Zela (47 BC) Julius Caesar defeats Pharnaces II and coins the phrase "Veni, Vidi, Vici". Pharnaces II flees and is killed by his own governor, Asander, who then becomes King of the Bosporus. This was not a succession; it was an avatar switch. Pharnaces II
+Fig. 1.16. Coin depicting Pharnaces II who was the king of the Bosporan Kingdom and the Kingdom of Pontus. At the Battle of Zela (47 BC) Julius Caesar defeats Pharnaces II and coins the phrase "Veni, Vidi, Vici". Pharnaces II flees and is killed by his own governor, Asander, who then becomes King of the Bosporus. This was not a succession; it was an avatar switch. Pharnaces II
 called himself "King of Kings" on coinsas Asander did.
 
-![Fig.1.16](/images/Burebista.jpg){:width="400px"}
+![Fig.1.17](/images/Burebista.jpg){:width="400px"}
 
-Fig. 1.16. Coin depicting Burebista, king of the Dacians, who was an alleged enemy of Julius Caesar. He was assasinated in 44 BC, the same year as Julius Caesar.
+Fig. 1.17. Coin depicting Burebista, king of the Dacians, who was an alleged enemy of Julius Caesar. He was assasinated in 44 BC, the same year as Julius Caesar.
 
-![Fig.1.17](/images/Atrebates.jpg){:width="400px"}
+![Fig.1.18](/images/Atrebates.jpg){:width="400px"}
 
-Fig. 1.17. Coin depicting Atrebates, king of Britannia who Julius Caesar was recorded to have defeated in battle.
+Fig. 1.18. Coin depicting Atrebates, king of Britannia who Julius Caesar was recorded to have defeated in battle.
 
-![Fig.1.18](/images/Vercingetorix.jpg){:width="400px"}
+![Fig.1.19](/images/Vercingetorix.jpg){:width="400px"}
 
-Fig. 1.18. Coin of Vercingetorix, a Gallic king and chieftain of the Arverni tribe who united the Gauls in a failed revolt against Julius Caesar in the Gallic Wars.
+Fig. 1.19. Coin of Vercingetorix, a Gallic king and chieftain of the Arverni tribe who united the Gauls in a failed revolt against Julius Caesar in the Gallic Wars.
 
-![Fig.1.19](/images/Bogud.jpg){:width="400px"}
+![Fig.1.20](/images/Bogud.jpg){:width="400px"}
 
-Fig. 1.19. Coin depicting Bogud, king of Mauretania (a territory that encompassed most of North Africa), who was a recorded ally of Julius Caesar.
+Fig. 1.20. Coin depicting Bogud, king of Mauretania (a territory that encompassed most of North Africa), who was a recorded ally of Julius Caesar.
 
 
 **5.1.1 Julius Caesar was a Title**
@@ -680,9 +684,9 @@ Boethus was another of Cleopatra's regional aliases?  If you identify
 King Herod as Mark Antony aka Tiberius Claudius Nero aka Phraates IV of
 Parthia's regional alias then the picture becomes clearer.
 
-![Fig.1.20](/images/PtolemyXII.jpeg){:width="400px"}
+![Fig.1.21](/images/PtolemyXII.jpeg){:width="400px"}
 
-Fig. 1.20. Ptolemy XII Auletes, king of Egypt, who was also Mithridates
+Fig. 1.21. Ptolemy XII Auletes, king of Egypt, who was also Mithridates
 VI Eupator, Ariarathes IX of Cappadocia, Simon Boethus/Magus/Ptolemy
 (Alexander) bar Menneus, et.al. Mithridates VI married his sister
 Laodice---just as Ptolemy XII married his sister Cleopatra V. Both had
@@ -707,26 +711,26 @@ even has a story about a 'spurious Alexander' that showed up in Rome
 claiming to be the son of Herod who faked his death [^14], so he was
 'resurrected' as Juba II, king of Numidia and Mauretania. 
 
-![Fig.1.21](/images/MithridatesVIEupator.png){:width="400px"}
+![Fig.1.22](/images/MithridatesVIEupator.png){:width="400px"}
 
-Fig. 1.21. Coin depicting Mithridates VI Eupator, father of Pharnaces II
+Fig. 1.22. Coin depicting Mithridates VI Eupator, father of Pharnaces II
 and Dynamis. Brother of Mithridates Chrestus. Notice the star and
 crescent that is visible in the Julius Caesar coin above and the winged
 Pegasus within a Dionysiac wreath of ivy and fruit that is seen in the
 Asander coin?
 
-![Fig.1.22](/images/AriarathesIX.jpg){:width="400px"}
+![Fig.1.23](/images/AriarathesIX.jpg){:width="400px"}
 
-Fig. 1.22. Coin depicting Ariarathes IX Eusebes Philopator, King of
+Fig. 1.23. Coin depicting Ariarathes IX Eusebes Philopator, King of
 Cappadocia. Notice the resemblance to Mithridates VI Eupator of Pontus?
 Cleopatra aka Dynamis's son with Julius Caesar aka Asander = Tiberius
 Julius Aspurgus Philoromaios (Aspurgus translates to "horseman-lord" in
 Thracian languages. Sabazios was a Thracian deity worshipped as a
 horseman.).
 
-![Fig.1.23](/images/PtolemyApion.jpg){:width="400px"}
+![Fig.1.24](/images/PtolemyApion.jpg){:width="400px"}
 
-Fig. 1.23. Coin depicting Ptolemy Apion, king of Kyrene, Kyrenaica, North Africa. 
+Fig. 1.24. Coin depicting Ptolemy Apion, king of Kyrene, Kyrenaica, North Africa. 
 
 **5.2.2. Amyntas Nikator aka Amyntas, King of Galatia**
 
@@ -795,9 +799,9 @@ Theophilos in Greek. Around 26% of the New Testament was written to
 Theophilus in Luke and Acts of the Apostles).
 
 ![Fig.
-1.24](/images/AlexanderPhilo.jpg){:width="400px"}
+1.25](/images/AlexanderPhilo.jpg){:width="400px"}
 
-Fig. 1.24. (L) Alexander (grandson of King Herod) aka Gaius Julius
+Fig. 1.25. (L) Alexander (grandson of King Herod) aka Gaius Julius
 Alexander, Herodian Prince of Judaea aka Alexander the Alabarch aka
 (King/Tetrarch) Ptolemy (Alexander) bar Menneus aka Ptolemy of
 Mauretania aka "Jesus" in the bible. (R) Cleopatra (Thea Philopator) of
@@ -817,9 +821,9 @@ Adiabene/Edessa aka Ptolemy aka Yakov Zu Tolomoy aka Izates aka Jesus
 Emmanuel aka Monobazus of Adiabene [^12]
 
 ![Fig.
-1.25](/images/Josephus.jpg){:width="400px"}
+1.26](/images/Josephus.jpg){:width="400px"}
 
-Fig. 1.25. 'Josephus' bust which I identify as Tiberius Julius
+Fig. 1.26. 'Josephus' bust which I identify as Tiberius Julius
 Alexander. Compare it to Nerva's depictions. So, 'Josephus' was Philo of
 Alexandria's son. Tiberius Julius Alexander's son was named
 'Philopappos' and one of his mother's aliases was 'Alexandria bat
@@ -827,9 +831,9 @@ Matthias' which is where the pseudonym 'Joseph bar Matthias' comes from.
 Also, drop the initial b and final s in the name "Bar Mathias" and you
 get (Joseph of) Arimathea.
 
-![Fig. 1.26](/images/coin-abgar-phraates.png){:width="400px"}
+![Fig. 1.27](/images/coin-abgar-phraates.png){:width="400px"}
 
-Fig. 1.26. (L) and (R) show King Izates Monobazus of Edessa (known in
+Fig. 1.27. (L) and (R) show King Izates Monobazus of Edessa (known in
 Greek as the "Kingdom of Ourania" or in English as the "Kingdom of
 Heaven") wearing a crown of thorns. Izates or Izas is his title which is
 an ancient Greek translation of the Avestan word Yazatas (Persian:
@@ -840,9 +844,9 @@ source: The Alexander Mosaic, Huqoq, Israel.
 
 **5.2.5. Tiberius Julius Sauromates II**
 
-![Fig.1.1](/images/SauromatesII.jpg){:width="400px"}
+![Fig.1.28](/images/SauromatesII.jpg){:width="400px"}
 
-Fig. 1.1 Tiberius Julius Sauromates II, King of Bosphorus, who was the
+Fig. 1.28 Tiberius Julius Sauromates II, King of Bosphorus, who was the
 son of Tiberius Julius Cotys (aka Tiberius Julius Alexander aka Arrius
 Calpernius Piso aka Arrius Varus aka Emperor Nerva), great-grandson of
 Dynamis aka Cleopatra and Mark Antony. Does he look
@@ -853,13 +857,13 @@ means 'lizard' or 'reptile', and 'mates' means 'man' or 'warrior'.
 Therefore, translated literally ΒΑCΙΛΕΩC CΑVΡΟΜΑΤΟΥ means "King of the
 lizard people", or "king of the dragon people". He was the grandson (or great-grandson?) of Asander, king of Bosphorus aka Julius Caesar.
 
-![Fig.1.27](/images/Tamga.jpg){:width="400px"}
+![Fig.1.29](/images/Tamga.jpg){:width="400px"}
 
-Fig. 1.27 The royal Tamga (symbol/signature) of Tiberius Julius Sauromates II contains a cross and a Chi Rho.
+Fig. 1.29 The royal Tamga (symbol/signature) of Tiberius Julius Sauromates II contains a cross and a Chi Rho.
 
-![Fig.1.28](/images/SauromatesCross.jpg){:width="400px"}
+![Fig.1.30](/images/SauromatesCross.jpg){:width="400px"}
 
-Fig. 1.28 Coin of Tiberius Julius Sauromates II that displays a cross in the right corner.
+Fig. 1.30 Coin of Tiberius Julius Sauromates II that displays a cross in the right corner.
 
 Endnotes (Chapter 5)
 
@@ -912,9 +916,9 @@ King, and Pas means "all" as in Pan. "Vespasian" = "King of All", or "King of Ev
 'Flavius Scaevinus' the conspirator involved in Nero's assassination.
 
 ![Fig.
-1.29](/images/Vespasian.jpg){:width="400px"}
+1.31](/images/Vespasian.jpg){:width="400px"}
 
-Fig. 1.29. L. Vespasian. R. Herod Agrippa I
+Fig. 1.31. L. Vespasian. R. Herod Agrippa I
 
 'Antonia Caenis' was Vespassian's mistress who was his first cousin who
 was Cleopatra (Thea Philopator) of Mauretania aka Cleopatra IX aka
@@ -1009,9 +1013,9 @@ Capitolina after the Bar Kokhba revolt (the city was named after Hadrian's famil
 that Aquila of Sinope and his wife Prisca or Priscilla lived with Paul
 the Apostle and Paul called them "my fellow workers in Christ Jesus"
 
-![Fig.1.30](/images/Antinous.jpg){:width="400px"}
+![Fig.1.32](/images/Antinous.jpg){:width="400px"}
 
-Fig. 1.30. Steel relief that shows Antinous holding the grapes of Dionysus in one-hand and a cross in the other.
+Fig. 1.32. Steel relief that shows Antinous holding the grapes of Dionysus in one-hand and a cross in the other.
 
 **8.2 Subversion of the Imperial Cult by Rabbi Akiva and His Students**
 
