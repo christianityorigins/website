@@ -139,26 +139,7 @@ Fig. 1.8. L. Polemon II, king of Bosphorus. R. Emperor Titus.
 
 Note on Aliases: The Ptolemaic-Bosporan elite employed an incredible number of regional aliases, fictional stories, and fabricated deaths. They role-played as deities and various characters as if they were actors in a play. This was done because populations would not accept foreign kings, and a god-king had to manifest according to local religious expectations.
 
-I. Patriarch: Ateas the Scythian aka Artaxerxes II Memnon of Persia aka Phillip II in Macedonia aka Nectanebo II in Egypt aka Evagoras I of Salamis (Cyprus). 
-
-![Fig.1.9](/images/AteasPhillipAlexander.jpg){:width="400px"}\
-Fig. 1.9. L. Ateas the Scythian. M. Philip II of Macedon. R. Alexander the Great. King Ateas the Scythian was Artaxerxes II Memnon in Persia, Phillip II in Macedonia, Nectanebo II in Egypt, and Evagoras I of Salamis (Cyprus). He was the patriarch of the Dragon bloodline. Ateas and Artaxerxes II Mnemon were reported "enemies" of Phillip. Ateas dies in battle against him. And in the Alexander Romance, the wizard-pharaoh Nectanebo II is secretly Alexander's real father, magically impersonating the god Amun. This is not fantasy; it is a mythological encoding of historical truth. The forebearer of Ateas the Scythian was the Median king Astyages (r. 564–550 BC). His name is associated with Azhdahak which is the Armenian and Middle Persian form of the Avestan Aži Dahāka. The most plausible etymology of the name Ateas connects it to his ancestor Astygages title, the Avestan word Aži (serpent, dragon), which is also related Scythian term for "lord" or "father" cognate with it.
-
-- Son 1: Alexander the Great: Scythian prince who was the son of Ateas the Scythian aka Artaxerxes
-    II Memnon ("Kai Bahman"), half brother of Darius III ("Darab").
-    In India he took the regional aliases of Chandragupta Maurya
-    ("Chandragupta" = "Sander-Gupta" (Scythian "Sander" = Alexander. "Aleks" = Greekization of "Alakh" which means "not seen" or "unseen" in Sanskrit/Hindi. "Gupta" = Hidden). Greek sources (Megasthenes) refer to Chandragupta Maurya as "Sandrokottos" with the Sandro- deriving from Alexandros. "Aži-ander": Aži
-    (Avestan "dragon") + Andros (Greek "man") = "Dragon-Man". Alaksandu
-    of Wilusa, a Hittie king of Wilusa (Troy) (Alaksandu = Alak-San-Du
-    (Hurrian: "Ruler-Dragon-Son")), who predates Alexander by 800 years,
-    proves that the name Alexander was a Scythian title for kings.
-    Aži-Sandar also = "Dragon King" in Mittani and Old Persian. He did not die in Babylon. He "became a god" by undergoing a ritual transformation in the ziggurat. He then re-emerged in the East with a new identity. Alexander's mother Olympias (Ol or ophis + Pias = "serpent queen"), who was a Scythian princess of the
-    Molossian tribe, claimed to have been impregnated by the god Zeus
-    Ammon disguised as a serpent. Alexander's fathers name Philip was a title (Philippos (Lover of Horses) is a direct Greek translation of the Scythian royal title Pharnavaz (Horse-Lord)). Alexander also married the Scythian princess Roxana. Alexanders campaign was not a conquest, it was a Scythian restoration. The Achaemenid Persians (Achaemenes is likely Akh-Manesh or "Spirit of Manu", linking to the Vedic sage-king) were a rival Scythian clan (the "Ariya" - Aryans). Alexander was re-establishing the older, purer Scythian hegemony of the Medes and the pre-Zoroastrian Mitanni. In the Old Testament he was Solomon (Sol-Amūn or "Sun of Amun") which is a direct parallel to "Zeus-Ammon", a title he carried. He was also Qin Shi Huang in China. The "King of Kings" and "King of the World" titles Alexander and Cyrus used were literal. They were kings of a global empire.
-
-- Son 2: Darius III of Persia? Half brother of Alexander.
-
-II. The Ptolemaic, Julio-Claudian & Bosphoran Bloodline
+I. The Ptolemaic, Julio-Claudian & Bosphoran Bloodline
 
 Mainstream history presents the Ptolemies, Seleucids, Attalids, and Romans as separate, often warring entities. This is a Flavian-Vatican fabrication. In reality, they were four branches of a single Scythian-Sarmatian dynasty, a "Tetrarchy", administering different sectors of the empire from the Bosphoran center.
 
@@ -192,11 +173,29 @@ Mainstream history presents the Ptolemies, Seleucids, Attalids, and Romans as se
 IV. Flavian Emperors
 
 - Vespasian
-  Aliases: Herod Agrippa I (See: The Royal Ancestry of Emperor Vespasian. Henry Davis, [https://www.henryhdavis.com/theroyalancestryofemperorvespasian](https://henrydavis-cc.medium.com/the-royal-ancestry-of-the-roman-emperor-vespasian-72e144335299)), Flavius Scaevinus
+  Aliases: Rhescuporis I, king of Bosphorus. Herod Agrippa I (See: The Royal Ancestry of Emperor Vespasian. Henry Davis, [https://www.henryhdavis.com/theroyalancestryofemperorvespasian](https://henrydavis-cc.medium.com/the-royal-ancestry-of-the-roman-emperor-vespasian-72e144335299)). Flavius Scaevinus
 - Titus. Aliases: Polemon II, Aulus Avillius Flaccus, Marcus Julius Agrippa I(?)
 
 V. Speculative
 
+- Ateas the Scythian was also Artaxerxes II Memnon of Persia aka Phillip II in Macedonia aka Nectanebo II in Egypt aka Evagoras I of Salamis (Cyprus). 
+
+![Fig.1.9](/images/AteasPhillipAlexander.jpg){:width="400px"}\
+Fig. 1.9. L. Ateas the Scythian. M. Philip II of Macedon. R. Alexander the Great. Ateas and Artaxerxes II Mnemon were reported "enemies" of Phillip. Ateas dies in battle against him, and in the Alexander Romance the wizard-pharaoh Nectanebo II is secretly Alexander's real father, magically impersonating the god Amun. This is not fantasy; it is a mythological encoding of historical truth. it.
+
+   - Son 1: Alexander the Great: Scythian prince who was the son of Ateas the Scythian aka Artaxerxes
+    II Memnon ("Kai Bahman"), half brother of Darius III ("Darab").
+    In India he took the regional aliases of Chandragupta Maurya
+    ("Chandragupta" = "Sander-Gupta" (Scythian "Sander" = Alexander. "Aleks" = Greekization of "Alakh" which means "not seen" or "unseen" in Sanskrit/Hindi. "Gupta" = Hidden). Greek sources (Megasthenes) refer to Chandragupta Maurya as "Sandrokottos" with the Sandro- deriving from Alexandros. "Aži-ander": Aži
+    (Avestan "dragon") + Andros (Greek "man") = "Dragon-Man". Alaksandu
+    of Wilusa, a Hittie king of Wilusa (Troy) (Alaksandu = Alak-San-Du
+    (Hurrian: "Ruler-Dragon-Son")), who predates Alexander by 800 years,
+    proves that the name Alexander was a Scythian title for kings.
+    Aži-Sandar also = "Dragon King" in Mittani and Old Persian. He did not die in Babylon. He "became a god" by undergoing a ritual transformation in the ziggurat. He then re-emerged in the East with a new identity. Alexander's mother Olympias (Ol or ophis + Pias = "serpent queen"), who was a Scythian princess of the
+    Molossian tribe, claimed to have been impregnated by the god Zeus
+    Ammon disguised as a serpent. Alexander's fathers name Philip was a title (Philippos (Lover of Horses) is a direct Greek translation of the Scythian royal title Pharnavaz (Horse-Lord)). Alexander also married the Scythian princess Roxana. Alexanders campaign was not a conquest, it was a Scythian restoration. The Achaemenid Persians (Achaemenes is likely Akh-Manesh or "Spirit of Manu", linking to the Vedic sage-king) were a rival Scythian clan (the "Ariya" - Aryans). Alexander was re-establishing the older, purer Scythian hegemony of the Medes and the pre-Zoroastrian Mitanni. In the Old Testament he was Solomon (Sol-Amūn or "Sun of Amun") which is a direct parallel to "Zeus-Ammon", a title he carried. He was also Qin Shi Huang in China. The "King of Kings" and "King of the World" titles Alexander and Cyrus used were literal. They were kings of a global empire.
+
+   - Son 2: Darius III of Persia? Half brother of Alexander.
 -  Gautama Buddha: Bardiya (Smerdis)/Gaumata (Cyrus the Great's son who was satrap (governor) of the Persian province of Bactria (modern day Afghanistan)). He was of the Śākya tribe which is the Sanskrit equivalent of Saka (Scythian).
 -  Marcion of Sinope: Markianos of Alexandria. The association with Sinope came from Aquila of Sinope who was a disciple of Rabbi Akiva. Are the two the same? Probably.
 -  Moses = Manes/Mannu-Kuras = Manu (Scythian Sage-King) = Menes (Egypt’s legendary founder). Also appears in "Monobazus" → “Manu Bazus” → Sarmatian-Mythological Sage King. The Iranian Manu is a legendary civilizer, and in India he becomes the first Lawgiver (the Manu Smriti = Scythian governance code). The biblical Moses defeats Pharaoh (actually Mitanni elite), parts waters with a serpent-staff—obvious encoding of dragon-kingship (Aži Dahāka). Moses takes on different masks: M enes – the first official Pharaoh (not real, a compilation of conquerors). Menes – the semi-mythical Median king, founder of the priest-class. Mannu-kuras – Proto-Mede, whose name becomes Cyrus. The name Kur-Ash = "Sun Man". The Exodus is not Judaic memory: it's a political memory of Mitanni-Scythian expulsion from Egypt after the religious revolution of Thutmose III → Horemheb wiped them out with a new priest-kingship in Amarna. He shows up in a number of religions: In Zoroastrianism he is Manushchihr, in Hinuduisn he is Manu, in Judaism he is Moses, in Norse mythology he is Mannus, etc.
