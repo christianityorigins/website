@@ -66,21 +66,23 @@ Footnotes
  
 Christianity is a derivative of one of the religions that were invented at the Alexandrian School in Egypt. The Alexandrian School was a religion-making factory that was set up by Ptolemy Soter. The Serapis cult, Judaism, Gnosticism, Valentinianism, Christianity, Hermeticism, Mithraism, Manichaeism, Mandaeism, and many other religions originated from there. 
 
-All these religions were psychological and political tools that were created to target regional populations in the empire and were designed to subvert their regional religions in a syncretic manner, through the creation of centralized texts and priesthoods, embedding moral codes like submission, self-sacrifice, obedience, loyalty, and divine judgment, and aiming to lead the population toward monotheism and gradually toward a universal imperial cult. These religions were also likely designed to segment the populations by class, culture, and region to prevent unified resistance. For example, Mithraism was for military elites (requiring blood oaths, with a Mithraic initiate caste system and hierarchical structure). Serapism was for civilians (promising afterlife salvation). Christianity was for slaves ("turn the other cheek").
+Religion was the technology that the Ptolemaic dynasty used to control the vast and disparate population they ruled and they created religions in every single conquered land. They would take local customs and create a syncretic man-god representing Ptolemaic pharaoh.
 
-Christianity was created in phases, the first phase as a synthesis of the Serapis Cult rebranded to serve one of the later Roman (Bosphoran) imperial cults, then reworked by the Flavians, and finally this imperial cult was subverted by a group of Rabbis who were headed by a rabbi named Akiva sometime after the Bar Kokhba Revolt.Jesus in the bible was not a person but an avatar, a recurring administrative and priestly title for the ruling 'Anointed One' (Christ/Soter) within the Bosphoran royal family, much like 'Pharaoh' or 'Caesar'. Asander, king of Bosphorus (Julius Caesar's real identity) took on this role, so did his son Aspurgus, king of Bosphorus aka Amyntas ("Amon-Tas". "Hidden
+It was necessary for the Alexandrian School religions to be packaged as sects of local religions, because getting people to abandon their religions for a new one is an impossible task. However, there are thousands of sects of major religions today, many with different prophets. (The Alexandrian School and Library of Alexandria were founded soon after the Ptolemaic cult of Alexander the Great failed to catch on, so it was likely at this at point when they began focusing on subverting established religions instead of forcing a new one on the population).
+
+Common in all these Alexandrian School religions were centralized texts and priesthoods which makes a population easier to control through proxy, also, moral codes like submission, self-sacrifice, obedience, loyalty, and divine judgment, and monotheism which divides the population through binary thinking, ie., opposition between good and evil, us vs them, left vs right, etc. These religions were also likely designed to segment the populations by class, culture, and region to prevent unified resistance. For example, Mithraism was for military elites (requiring blood oaths, with a Mithraic initiate caste system and hierarchical structure). Serapism was for civilians (promising afterlife salvation). Christianity was for slaves ("turn the other cheek").
+
+Christianity was created in phases, the first phase as a synthesis of the Serapis Cult rebranded to serve one of the later Roman (Bosphoran) imperial cults, then reworked by the Flavians. Jesus in the bible was not a person but an avatar, a recurring administrative and priestly title for the ruling 'Anointed One' (Christ/Soter) within the Bosphoran royal family, much like 'Pharaoh' or 'Caesar'. Asander, king of Bosphorus (Julius Caesar's real identity) took on this role, so did his son Aspurgus, king of Bosphorus aka Amyntas ("Amon-Tas". "Hidden
 Lord", linking to Amun-Ra - with "Amen"(tas) at the root) Nikator aka
 Amyntas of Galatia aka Jesus ben Fabus aka Isa Amen (Jesus was named
 "Amen" in Rev. iii. 14), and his later descendants Izates II, king of Adiabene, and Tiberius Julius Sauromates II, also took on the role. After Rabbi Akiva Jesus then became Simon Bar Kokhba.
-
-It was necessary for these rabbis to cut and paste from an imperial cult, just as it was necessary for the Alexandrian School religions to be packaged as sects of local religions, because getting people to abandon their religions for a new one is an impossible task. However, there are thousands of sects of major religions today, many with different prophets.(The Alexandrian School and Library of Alexandria were founded soon after the Ptolemaic cult of Alexander the Great failed to catch on, so it was likely at this at point when they began focusing on subverting established religions instead of forcing a new one on the population.)
 
 This book traces Christianity back to its foundations — from the mythemes of Scythian snake-worshiping cults, to the Alexandrian School in Egypt and the Sarapis cult, to the Roman (Bosphoran) imperial cult — and then finishes with the subversion of the Bosphoran cult.
 
 A few things you need to know before you read my book:
 
 -   Much of what we know of ancient history is fabricated by the Flavian emperors, Jesuits, and the Vatican. The Egyptian-Persian-Indian-Greek-Roman elite were a Proto-Indo-European (PIE) Elite (Kurgan Culture) who were the horse-riding, chariot-inventing pastoralists from the Pontic-Caspian Steppe who, beginning around 4500 BC, began a systematic conquest of Europe, Anatolia, and the Indus Valley, and who ruled through proxy dynasties. Egypt, Persia, India, Greece, Rome,
-etc., were all at one point under the suzerainty of Aryan Iranian-Scythian elites and their base of operation was on the Bosphorus river. Mainstream history presents a linear progression: Egypt -> Greece -> Persia -> Rome. This is a complete fabrication. The "ancient" civilizations of Egypt, Greece, Persia, and Rome were largely concurrent satrapies of the Scythian core. The Persian system of Satraps (Old Persian xšaçapāvan, "protector of the dominion") is the administrative blueprint of this hegemony. The title derives from Xšaya (to rule), which links to Roman Caesar and Sanskrit Kshatriya. Every Satrap was a regional "dragon-king" enforcing the center's will.
+etc., were all at one point under the suzerainty of Aryan Iranian-Scythian elites and their base of operation was on the Bosphorus river. Mainstream history presents a linear progression: Egypt -> Greece -> Persia -> Rome. This is a complete fabrication. The "ancient" civilizations of Egypt, Greece, Persia, and Rome were largely concurrent satrapies of the Scythian core. The Persian system of Satraps (Old Persian xšaçapāvan, "protector of the dominion") is the administrative blueprint of this hegemony8. The title derives from Xšaya (to rule), which links to Roman Caesar and Sanskrit Kshatriya. Every Satrap was a regional "dragon-king" enforcing the center's will.
 -   Western Rome in Italy is a phantom empire that did not conquer the kingdoms of the East. The Bosphoran royal house created Western Rome as a military garrison. The original Rome (in Sarmatian, "Ruma" (Rome) = "Place of the Dragon" (Rhu-Ma, from Aži Dahāka, the Iranian dragon)) was located on the Bosphorus river which approximates to modern-day Crimea in southern Ukraine. There was a split between East and West during the Flavian period and the Flavians erased their Bosphoran origins.
 -   Asander, king of Bosphorus aka Julius Caesar was also Cleopatra's uncle Ptolemy of Cyprus (brother of Ptolemy XII Auletes and husband of "Mithridates") aka Mithridates Chrestus, King of Pontus VI (brother of Mithridates VI, king of Pontus), but he took on numerous other regional aliases. Cleopatra was also Dynamis, queen of Bosphorus. Mark
 Antony the Neos-Dionysos was Cleopatra's father Ptolemy XII Auletes (Auletes name adapts well to the
@@ -453,11 +455,12 @@ As for the term 'Hebrew", it comes from the Celts as well who called themselves 
 
 'Ashkenazi', or 'Ashkuza', was the name given to the Scythians by the ancient Akkadians. The Assyrians called the Scythians "Asguzaya" and the ancient Persians called the Scythians 'Saka'. In Biblical Hebrew, the Ashkuz (Ashkenaz) are considered to be a direct offshoot from the Gimirri, known as the Cimmerians to the ancient Greeks. Cimmerians were a Middle Eastern offshoot of the Celtic Cimbri tribe. 
 
-Jerusalem = I(J)ERU-SAR-AM, meaning "The Holy City of the Scythian King". The SAR element (Scythian for king/royal) embedded in the name of the 'holy city' confirms the Judean state, like Rome, was nothing more than a military garrison run by the Bosphoran elite.
-
 These Sarmatian-Celtic (Galatian) males mixed with Neolithic Anatolian women before their descendants moved into Egypt (Apiru or Habiru) and Caanan and then mixed with indigenous people in those places. Celtic Jews (Iudii) then disappeared after the Bar Kokhba Revolt when Emperor Hadrian decimated their population. Modern Ashkenazi Jews are a hodgepodge of Neolithic (proto-Sicilian who originated in Anatolia), native Canaanites (who were literal human-neanderthal hybrids [^4]), proto-Arab Natufians (Natufians had ~20% higher Basal Eurasian -- Basal means with SSA, North Africa was green/fertile so sub-Saharin Africans could cross the Sahara), and Celtic Cimbri and Celtic Galatian from Anatolia.
 
-The rest of the jewish religion and identity came from later incarnations of this imperial cult: Abel and Cain are just a copy of Romulus and Remus. Judas Iscariot is a copy of Brutus. Genesis 4:5-31. Enoch, Irad, Mehujael, Methuselah, Lamech, Seth, Enosh, Kenan, Mahalalel, are copies of Titus Livy's Regal Rome of the seven kings.
+The fact that Ptolemaic/Bosphoran/Roman kings, many who were Celtic Galatians and
+Aryan Sarmatians, role played as jews, an irrelevant tribe, and israel
+was an irrelevant slice of land in the desert, this makes the claim that modern jews (who are a mix of multitude of races including non-human Neanderthal) just inherited this imperial cult and they got their
+entire identity and history from here.
 
 **5 Rome On the Bosphorus River**
 
@@ -634,12 +637,7 @@ tribe from Galatia (or Yuezhi tribe).
 Russian historian and mathematician Anatoly Fomenko wrote several books
 where he claimed that the city of Yoros = Jerusalem = Troy and it was
 situated on the eastern, Asiatic shore of Bosphorus, closer to the Black
-Sea, very near to the Beykoz mountain (Golgotha). The fact that
-Ptolemaic/Bosphoran/Roman kings, many who were Celtic Galatians and
-Aryan Sarmatians, role played as jews, an irrelevant tribe, and israel
-was an irrelevant slice of land in the desert, this makes this claim
-more credible. jews just adopted this imperial cult and they got their
-entire identity and history from here.
+Sea, very near to the Beykoz mountain (Golgotha). 
 
 **5.2 Dragon Bloodline Descendants**
 
@@ -950,6 +948,14 @@ Aristobulus IV was likely Vespasian and Vitellius's father, so like his
 cousin Alexander (grandson of King Herod), he was also married to his
 sister).
 
+The Flavians were either Italic Shabbos Goyim or mixed with proto-Jews in the modern sense.
+
+You can connect the title Flavius to Phlabios and then to Shabbos.
+
+So then from Constantine to Heraklios, for 500 years, nearly every single Emperor bore the Flavius (Shabbos) title. By my count, 37 Roman and Byzantine emperors all bore the honorary title "Flavius" ("Shabbos"), and then later, "Phlabios":
+
+https://en.wikipedia.org/wiki/Special:MobileDiff/1062698821
+
 Endnotes (Chapter 6)
 
 (a) Theory: Alexander (grandson of King Herod) aka Gaius Julius
@@ -973,8 +979,6 @@ Endnotes (Chapter 6)
     solar son deity, a Jupiter.\
 (b) Coin of Vespasian depicitng "Zeus-Sarapis":
     https://www.coinarchives.com/a/lotviewer.php?LotID=2528933&AucID=6356&Lot=485&Val=e5e4db7aa704d656893926a33a970991 \
-(c) Hebrew Wordplay: Vespasian -> V'Esav Pan (ועשו פן) -> "And Esau's
-    Face" (Talmudic insult linking him to Edom).
 
 **7: Who Forged History?**
 
