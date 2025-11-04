@@ -66,7 +66,7 @@ Footnotes
  
 Christianity is a derivative of one of the religions that were invented at the Alexandrian School in Egypt. The Alexandrian School was a religion-making factory that was set up by Ptolemy Soter. The Serapis cult, Judaism, Gnosticism, Valentinianism, Christianity, Hermeticism, Mithraism, Manichaeism, Mandaeism, and many other religions originated from there. 
 
-Religion was the technology that the Ptolemaic dynasty used to control the vast and disparate population they ruled and they created religions in every single conquered land. They would take local customs and create a syncretic man-god representing Ptolemaic pharaoh.
+Religion was the technology that the Ptolemaic dynasty used to control the vast and disparate populations they ruled and they created religions in every single conquered land. They would take local customs and create a syncretic man-god representing Ptolemaic pharaoh.
 
 It was necessary for the Alexandrian School religions to be packaged as sects of local religions, because getting people to abandon their religions for a new one is an impossible task. However, there are thousands of sects of major religions today, many with different prophets. (The Alexandrian School and Library of Alexandria were founded soon after the Ptolemaic cult of Alexander the Great failed to catch on, so it was likely at this at point when they began focusing on subverting established religions instead of forcing a new one on the population).
 
