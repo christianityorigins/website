@@ -181,14 +181,24 @@ V. Speculative
 - Ateas the Scythian was also Artaxerxes II Memnon ("Kai Bahman") of Persia aka Phillip II in Macedonia aka Nectanebo II in Egypt aka Evagoras I of Salamis (Cyprus). 
 
 ![Fig.1.9](/images/AteasPhillipAlexander.jpg){:width="400px"}\
-Fig. 1.9. L. Ateas the Scythian. M. Philip II of Macedon. R. Alexander the Great. Ateas and Artaxerxes II Mnemon were reported "enemies" of Phillip. Ateas dies in battle against him, and in the Alexander Romance, a book that has its earliest copy dating back a couple of centuries after Alexanders life, the wizard-pharaoh Nectanebo II is secretly Alexander's real father, magically impersonating the god Amun. This is not fantasy; it is a mythological encoding of historical truth.\
+Fig. 1.9. L. Ateas the Scythian. M. Philip II of Macedon. R. Alexander the Great. Ateas and Artaxerxes II Mnemon were reported "enemies" of Phillip. Ateas dies in battle against him, and in the Alexander Romance, a book that has its earliest copy dating back a couple of centuries after Alexanders life, the wizard-pharaoh Nectanebo II is secretly Alexander's real father, magically impersonating the god Amun. This is not fantasy; it is a mythological encoding of historical truth.
   - Son 1: Alexander the Great. In India he took the regional aliases of Chandragupta Maurya
     ("Chandragupta" = "Sander-Gupta" (Scythian "Sander" = Alexander. "Aleks" = Greekization of "Alakh" which means "not seen" or "unseen" in Sanskrit/Hindi. "Gupta" = Hidden)}. Greek sources (Megasthenes) refer to Chandragupta Maurya as "Sandrokottos" with the Sandro- deriving from Alexandros. "Aži-ander": Aži
     (Avestan "dragon") + Andros (Greek "man") = "Dragon-Man". Alaksandu
     of Wilusa, a Hittie king of Wilusa (Troy) (Alaksandu = Alak-San-Du
     (Hurrian: "Ruler-Dragon-Son")), who predates Alexander by 800 years,
-    proves that the name Alexander was a Scythian title for kings.
-    Aži-Sandar also = "Dragon King" in Mittani and Old Persian. He did not die in Babylon. He "became a god" by undergoing a ritual transformation in the ziggurat. He then re-emerged in the East with a new identity. Alexander's mother Olympias (Ol or ophis + Pias = "serpent queen"), who was a Scythian princess of the
+    proves that the name Alexander was a Scythian title for kings. 
+    Aži-Sandar also = "Dragon King" in Mittani and Old Persian. Recorded in
+   the Persian ('Iskandarnameh', or Book of Alexander and 'Shahnameh') and Islamic sources, is that Alexander the Great was a
+    Persian prince named Bubares who was the son of Artaxerxes
+    II Memnon (Kai Bahman), half brother of "Dara" (Darius III), and that Macedon
+    was a province of Persia that his father was governor of.
+    Alexander's father Philip of Macedon was Artaxerxes II Memnon's
+    regional alias. The book 'The Life of Alexander of Macedon'
+    also claims that he didn't die in Babylon in 232 BC at the age of 33
+    (same as Jesus) but was only forced from power and he had a
+    posthumous birth/'resurrection'.He resurrected in India with the
+    regional alias of Chandragupta. Alexander's mother Olympias (Ol or ophis + Pias = "serpent queen"), who was a Scythian princess of the
     Molossian tribe, claimed to have been impregnated by the god Zeus
     Ammon disguised as a serpent. Alexander's fathers name Philip was a title (Philippos (Lover of Horses) is a direct Greek translation of the Scythian royal title Pharnavaz (Horse-Lord)). Alexander also married the Scythian princess Roxana. Alexanders campaign was not a conquest, it was a Scythian restoration. The Achaemenid Persians (Achaemenes is likely Akh-Manesh or "Spirit of Manu", linking to the Vedic sage-king) were a rival Scythian clan (the "Ariya" - Aryans). Alexander was re-establishing the older, purer Scythian hegemony of the Medes and the pre-Zoroastrian Mitanni. In the Old Testament he was Solomon (Sol-Amūn or "Sun of Amun") which is a direct parallel to "Zeus-Ammon", a title he carried. He was also Qin Shi Huang in China. The "King of Kings" and "King of the World" titles Alexander and Cyrus used were literal. They were kings of a global empire.\
   - Son 2: Darius III ("Darab") of Persia? Half brother of Alexander.
