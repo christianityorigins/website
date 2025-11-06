@@ -341,12 +341,7 @@ Dahāka, the Iranian dragon).
 
 Footnotes (Chapter 3)
 
-(a) The eruption of Thera (Santorini) was one factor in destroying the
-    Scythian steppe warriors hegemony, but the biggest cause was a
-    cannabis cult that stripped them of their martial spirit
-    (https://en.wikipedia.org/wiki/Enaree). Marijuanna turned them from
-    fearless warriors into potheads who were led by transgender priests.\
-(b) Quetzalcōātl, the Mesoamerican serpent deity, shares uncanny similarities to Aži Dahāka which suggests a transoceanic exchange of religious ideas long before Columbus (the Jade Mask of Calakmul (7th century CE) also depicts a Caucasian-featured ruler with a serpent headdress—resembling Scythian dragon crowns).
+(a) Quetzalcōātl, the Mesoamerican serpent deity, shares uncanny similarities to Aži Dahāka which suggests a transoceanic exchange of religious ideas long before Columbus (the Jade Mask of Calakmul (7th century CE) also depicts a Caucasian-featured ruler with a serpent headdress—resembling Scythian dragon crowns).
 
 **4 The Alexandrian School**
 
@@ -741,7 +736,15 @@ Fig. 1.24. Coin depicting Ptolemy Apion, king of Kyrene, Kyrenaica, North Africa
 
 Amyntas Nikator aka Amyntas of Galatia [^10] aka Jesus ben Fabus aka Isa Amen (Jesus was named "Amen" in Rev. iii. 14) was one of Asander aka Julius Caesar's sons (Caesarion was too young to be Amyntas, so he was likely one of Julius Caesar aka Asanders sons from a Galatian Celtic princess from the Deiotarus royal house. However, Amyntas carried the Isis iconography, and Cleopatra claimed descent from Isis).
 
-He was also Jesus ben Fabus aka Isa Amen. He ruled an empire that stretched from modern-day Turkey through India. His palace at Isauria refers to Isis (also known as Isa or Aset) who was the mother of Horus (Cleopatra identified herself with the Greco-Egyptian goddess Isis). -Ura is a city suffix so this makes "Isaura" the "City of the Mother Goddess", whose son was the god-king. So, her son would have been Isa, son of Isis. The son of Isis in mythology was Horus, and that is why Caesarion's iconography has a Horus falcon on it. 
+He was also Jesus ben Fabus aka Isa Amen. The name Fabus may have been distorted by Josephus from Jesus ben Bagus (Bagus means god in Celtic). Amyntas was the son of Bogitarus. In Celtic and Persian "Bagus" means god. "Boga" in Persian also means god and in the name Adobogiona "Bog-" means god in Celtic. In Latin Nikator translates to Invictus. "Jesus ben Bagus" means "Jesus, Son of God", or  "Jesus, Son of The Lord".
+
+Bagus -> Baga -> Bhagavan: This is the Sanskrit word for "The Blessed One" "The Lord," a title for God. It enters Persian as "Baga" (as in the city Baghdad, "Given by God"). He is known in Indian sources as "Amita," from which "Amyntas" derives, but also as "Moga" or "Maues," the first Saka (Scythian) King in India.
+
+Islamic tradition holds that Jesus (Isa) was a prophet born of the virgin Maryam, who did not die but was raised to heaven. "Maryam" is not a Jewish woman. It is a title for the Mari, the Scythian "Mother Goddess" worshipped by the Anatolian Celts. Amyntas, as the son of the Celtic princess Adobogiona, was literally the "Son of the Mari." His "ascension" refers to his assumption of the "Hidden Lord" (Amen) kingship after a period of conflict.
+
+Amyntas's mother Adobogiona was a "Jewish Queen" and the "Celtic Goddess-Queen" at the same time, proving Jew: Iudii -> Ioudaioi -> Jew. The Iudii, were originally Scythian-Celtic priests from Galatia who later became "Jews" under Alexandrian syncretism. 
+
+Amyntas ruled an empire that stretched from modern-day Turkey through India, but likely further (his reign coicides with the "Yellow Emperor" Zhao of Han, an archetype that he fits perfectly with). His palace at Isauria refers to Isis (also known as Isa or Aset) who was the mother of Horus (Cleopatra identified herself with the Greco-Egyptian goddess Isis). -Ura is a city suffix so this makes "Isaura" the "City of the Mother Goddess", whose son was the god-king. So, her son would have been Isa, son of Isis. The son of Isis in mythology was Horus, and that is why Caesarion's iconography has a Horus falcon on it. 
 
 If Amyntas Nikator aka Amyntas of Galatia was Asander aka Julius Caesar's son then Asander aka Julius Caesar was also Brogitarix, king
 of Galatia (Full name: Brogitaris (Brigatos) van (de) Celtes
@@ -995,6 +998,8 @@ The primary architects were the Flavian dynasty (Vespasian, Titus, Domitian) and
 Roman emperor faces no longer appear on Bosphoran coins after emperor Titus. Roman emperors also stopped looking "Aryan"/Nordic after the Flavian empire.
 
 According to the book 'Jesus, King of Edessa' (2012) by Ralph  Ellis [[link](https://web.archive.org/web/20240728150536/https://x.com/ralfellis/status/1809520320077803525)] Jesus ben Gamala/Gamaliel who led the First Jewish–Roman War (66-70 AD) against Rome was also Jesus ben Sapphias and Izas Ma'nu (Jesus Emmanuel) Monobazus of Adiabene aka Yeshua Cleopatros (Cantheras/Panthera) ben Josephus bar Menneus aka Ptolemy aka Yakov Zu Tolomoy. King Izates of Monobazus was a descendant of the dragon bloodline and was married to the sister of Dynamis's mother. Tiberius Julius Sauromates II could have also been Simon bar Kokhba (Bar Kokhba means "Son of the Star" which directly links to the "Star and Crescent" symbolism on the coins of Asander/Julius Caesar and Dynamis/Cleopatra) who led the Bar Kokhba revolt (132-136 AD) against Rome. Either of these two, as heirs to the Scythian Dragon throne, led a revolt against western Rome. The Flavians or Hadrian then erased the Bosphoran connection after putting down these revolts.
+
+It seems plausable that in the "Jewish-Roman" Wars, the Flavians didn't put down a provincial revolt. They launched a blitzkrieg against the core Eastern administration, and this destroyed the Scythian steppe hegemony. The Flavians then rewrote history immediately after this.
 
 Emperor Theodosius, Pope Theophilus I of Alexandria, and Jerome also played a big role in the deception. The mainstream claim is that the Library of Alexandria was destroyed by Julius Caesar (48 BC) or Muslim conquest (642 AD). The truth is that the final and most devastating burn was ordered by Emperor Theodosius and Pope Theophilus I of Alexandria in 391 AD to erase Serapis cult texts that exposed Christianity’s origins. Proof: The Nag Hammadi Library (1945) contained Gnostic texts that matched Serapis theology—proving a cover-up, and the "Letter of Hadrian to Servianus" (found in Vindobonensis manuscript) admits: "Those who worship Serapis are Christians… devotees of Serapis call themselves bishops of Christ."
 
