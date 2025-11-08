@@ -315,7 +315,7 @@ Cyrus the Great = "Kurush" (Scythian for "Sun King"). The name "Cyrus"
 (Old Persian: Kuruš) derives from Scythian "Khur" (Sun) + "Us" (Lord) =
 "Sun Lord" (identical to Mitra/Mithra, the Indo-Iranian sun god). In
 Avestan (Scythian religious texts), "Kavi" means "King-Priest". Cyrus'
-clan was the "Kayanian" dynasty (Scythian royal bloodline).
+clan was the "Kayanian" dynasty (Scythian royal bloodline). Cyrus the Great's father was Cambyses I. "Cambyses" is linguistically identical to "Kambojas," the name of a famous Scythian tribe from Central Asia mentioned in Indian texts.
 
 Darius I = "Dārayavahuš" which was Scythian for "Holding the Horse" (a
 Scythian warlord title). Darius' father was Hystaspes (Vištāspa)---which
@@ -734,11 +734,11 @@ Fig. 1.24. Coin depicting Ptolemy Apion, king of Kyrene, Kyrenaica, North Africa
 
 **5.2.2. Amyntas Nikator aka Amyntas, King of Galatia**
 
-Amyntas Nikator aka Amyntas of Galatia [^10] aka Jesus ben Fabus aka Isa Amen (Jesus was named "Amen" in Rev. iii. 14) was one of Asander aka Julius Caesar's sons (Caesarion was too young to be Amyntas, so he was likely one of Julius Caesar aka Asanders sons from a Galatian Celtic princess from the Deiotarus royal house. However, Amyntas carried the Isis iconography, and Cleopatra claimed descent from Isis).
+Amyntas Nikator aka Amyntas of Galatia [^10] aka Jesus ben Fabus aka Isa Amen (Jesus was named "Amen" in Rev. iii. 14) was one of either Ptolemy XII Auletes aka Mark Antony aka Mithridates VI Eupator or Asander aka Julius Caesar's sons (Caesarion was too young to be Amyntas, so he would have been one of Julius Caesar aka Asanders sons from a Galatian Celtic princess from the Deiotarus royal house. However, Amyntas carried the Isis iconography, and Cleopatra claimed descent from Isis).
 
 He was also Jesus ben Fabus aka Isa Amen. The name Fabus may have been distorted by Josephus from Jesus ben Bagus (Bagus means god in Celtic). Amyntas was the son of Bogitarus. In Celtic and Persian "Bagus" means god. "Boga" in Persian also means god and in the name Adobogiona "Bog-" means god in Celtic. In Latin Nikator translates to Invictus. "Jesus ben Bagus" means "Jesus, Son of God", or  "Jesus, Son of The Lord".
 
-Bagus -> Baga -> Bhagavan: This is the Sanskrit word for "The Blessed One" "The Lord," a title for God. It enters Persian as "Baga" (as in the city Baghdad, "Given by God"). He is known in Indian sources as "Amita," from which "Amyntas" derives, but also as "Moga" or "Maues," the first Saka (Scythian) King in India.
+Bagus -> Baga -> Bhagavan: This is the Sanskrit word for "The Blessed One", "The Lord," a title for God. It enters Persian as "Baga" (as in the city Baghdad, "Given by God"). He is known in Indian sources as "Amita," from which "Amyntas" derives, but also as "Moga" or "Maues," the first Saka (Scythian) King in India.
 
 Islamic tradition holds that Jesus (Isa) was a prophet born of the virgin Maryam, who did not die but was raised to heaven. "Maryam" is not a Jewish woman. It is a title for the Mari, the Scythian "Mother Goddess" worshipped by the Anatolian Celts. Amyntas, as the son of the Celtic princess Adobogiona, was literally the "Son of the Mari." His "ascension" refers to his assumption of the "Hidden Lord" (Amen) kingship after a period of conflict.
 
@@ -1007,7 +1007,7 @@ Pope Theophilus I of Alexandria also destroyed the Serapeum in Alexandria (refer
 
 Then the Vatican later made up the "Council of Nicaea". It never happened. There is no contemporary records that exist of the Council of Nicaea (325 AD). The Council of Nicaea mirrors the Mithraic Congress of 307 AD where Emperor Galerius declared Sol Invictus the official god of Rome. Constantine’s "conversion" was fabricated. He remained a Sol Invictus sun-worshipper until death—his coins never feature Christian symbols. His last coin (337 AD) depicts him as Sol Comitatus ("Sun Companion"), not Christ. The "Chi-Rho" symbol was a later interpolation by Eusebius, who forged Life of Constantine in the 5th century. The "Arian Controversy" was a fake debate to disguise the fact that early Christianity was a Roman imperial cult. Proof: The "Life of Constantine" by Eusebius was forged in the 5th century to retroactively justify Nicaea, and the Edict of Milan (313 AD) never mentions Jesus—only a vague "Divine Providence". Also, the Vatican's greatest forgery was the Donation of Constantine. The Vatican forged it in the 8th century to claim Rome. It was based on earlier forgeries by Eusebius (a Flavian propagandist).
 
-Two other men are responsible for most of what we know about the rest of European history from the Middle Ages and before: Joseph Justus Scaliger who was the Jesuit who “authored” most texts historians use today (possibly had a team of scribes), and Poggio Bracciolini was the guy who collected documents for him and even forged them (there are preserved letters from Bracciolini arranging a forgery with a remote monastery).
+Two other men are responsible for most of what we know about the rest of European history from the Middle Ages and before: Poggio Bracciolini who held the position of Apostolic Secretary to the Pope which gave him access to the Vatican Library and is who is the onne creditied with "rediscovering" most ancient manuscricts from antiquity. He was also working for the wealthy Italian aristocrat Cosimo de Medici (look up the similarities between Plato and Gemistus Plethon whose patron was also Cosimo de Medici), and then Joseph Justus Scaliger.
 
 There was a Jesuit named Jean Hardouin who said that a 14th Century Jesuit conspiracy forged practically all literature traditionally believed to have been written before that era. He was the official librarian to the King of France. He published a book called the Prolegomena and it caused such controversy that the Pope and the King had him come before them and explain himself. He defended his work, and refused to retract it, so they threw him in prison.
 
