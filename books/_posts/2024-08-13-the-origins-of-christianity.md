@@ -209,7 +209,7 @@ Fig. 1.9. L. Ateas the Scythian. M. Philip II of Macedon. R. Alexander the Great
     Molossian tribe, claimed to have been impregnated by the god Zeus
     Ammon disguised as a serpent. Alexander's fathers name Philip was a title (Philippos (Lover of Horses) is a direct Greek translation of the Scythian royal title Pharnavaz (Horse-Lord)). Alexander also married the Scythian princess Roxana. Alexanders campaign was not a conquest, it was a Scythian restoration. The Achaemenid Persians (Achaemenes is likely Akh-Manesh or "Spirit of Manu", linking to the Vedic sage-king) were a rival Scythian clan (the "Ariya" - Aryans). Alexander was re-establishing the older, purer Scythian hegemony of the Medes and the pre-Zoroastrian Mitanni. In the Old Testament he was Solomon (Sol-Amūn or "Sun of Amun") which is a direct parallel to "Zeus-Ammon", a title he carried. He was also Qin Shi Huang in China. The "King of Kings" and "King of the World" titles Alexander and Cyrus used were literal. They were kings of a global empire.\
   - Son 2: Darius III ("Darab") of Persia? Half brother of Alexander.
--  Gautama Buddha: Bardiya (Smerdis)/Gaumata (Cyrus the Great's son who was satrap (governor) of the Persian province of Bactria (modern day Afghanistan)). He was of the Śākya tribe which is the Sanskrit equivalent of Saka (Scythian).
+-  Gautama Buddha: Bardiya (Smerdis)/Gaumata (Cyrus the Great's son who was satrap (governor) of the Persian province of Bactria (modern day Afghanistan)). He was of the Śākya tribe which is the Sanskrit equivalent of Saka (Scythian). Buddhism was a syncretic pacifist religion to subdue the population of the Indian subcontinent. The doctrine of renunciation (non-attachment to the material world) is the precise Eastern equivalent of the Serapis/Christian "turn the other cheek". Buddhism was a control mechanism designed by the same Dragon Empire.
 -  Marcion of Sinope: Markianos of Alexandria. The association with Sinope came from Aquila of Sinope who was a disciple of Rabbi Akiva. Are the two the same? Probably.
 -  Moses = Manes/Mannu-Kuras = Manu (Scythian Sage-King) = Menes (Egypt’s legendary founder). Also appears in "Monobazus" → “Manu Bazus” → Sarmatian-Mythological Sage King. The Iranian Manu is a legendary civilizer, and in India he becomes the first Lawgiver (the Manu Smriti = Scythian governance code). The biblical Moses defeats Pharaoh (actually Mitanni elite), parts waters with a serpent-staff—obvious encoding of dragon-kingship (Aži Dahāka). Moses takes on different masks: M enes – the first official Pharaoh (not real, a compilation of conquerors). Menes – the semi-mythical Median king, founder of the priest-class. Mannu-kuras – Proto-Mede, whose name becomes Cyrus. The name Kur-Ash = "Sun Man". The Exodus is not Judaic memory: it's a political memory of Mitanni-Scythian expulsion from Egypt after the religious revolution of Thutmose III → Horemheb wiped them out with a new priest-kingship in Amarna. He shows up in a number of religions: In Zoroastrianism he is Manushchihr, in Hinuduisn he is Manu, in Judaism he is Moses, in Norse mythology he is Mannus, etc.
 -  Paul the Apostle = likely a composite character or an avatar/cipher. Two suspects for having taken on the character are: 1) Saulus ben Antipater who was the
@@ -265,7 +265,7 @@ They were not semites. Iudii is the tribal corruption of Dyeus Pter (Proto-Indo-
     deposed by a Piso. Appius is also cognate with Arrius (through
     rhotacization in ancient Latin the /p/ and /r/ could be swapped).
 -   Sar root:  Sar is the Scythian word for "king". Sarpa in Sanskrit means "serpent". Sarmatian, Akkadian Sarrum (which becomes Persian Xšaya-/Xšayathiya), Hurrian Šarri, Sargon, Sarlagab, Serapis (Sar-Apis = "Serpent Bull"), Zarathustra (Sar + Ustra = "serpent-lord"), Saraswati (Hindi goddes of knowledge), Saracen (Roman designation for Middle Eastern peoples), Šaruma (Mitanni deity), Saragurs (Scythian tribe in China), Caesar, Asar (Osiris), Tsar (Slavic monarch), Sargon of Akkad, feminine Sarai (or "Sarah" meaning "princess" (Genesis 17:15)), etc. Sar means king, or serpent king, across the empires that the Scythians used to rule over.
--   Vespasian: Vas/Bas was the royal abbreviation for the Greek word Basilius which = King, and Pas means "all" as in Pan. "Vespasian" = "King of All", or "King of Everything" which is a claim to the title "King of Kings"). Another option: Vas/Bas = King, and Pasian = Pisonian (a member of the key conspiratorial Piso family). King Piso.
+-   Vespasian: Vas/Bas was the royal abbreviation for the Greek word Basilius which = King, and Pasis means "all" in Greek as in Pan. "Vespasian" = "King of All", or "King of Everything" which is a claim to the title "King of Kings". Another option: Vas/Bas = King, and Pasian = Pisonian (a member of the key conspiratorial Piso family). King Piso.
 
 **3 The Sarmatian Dragon Cult**
 
@@ -585,7 +585,7 @@ who had previously beat him in war.
 ![Fig.1.15](/images/MithridatesChrestus.jpg){:width="400px"}
 
 Fig. 1.15. Mithridates Chrestus aka Ptolemy of Cyprus aka Asander, king of
-Bosphorus, etc. The names Asander and Caesar both derive from the Etruscan word "Aesar" (also spelled "Aeser" or "Aisar" which likely derives from the Egyptian "Asar" which was another name for Osiris - there was no J in ancient Latin, so it was pronounced ah-soos). He would have been the first person to take on the title Iesus Christ.
+Bosphorus, etc. The names Asander and Caesar both derive from the Etruscan word "Aesar" (also spelled "Aeser" or "Aisar" which likely derives from the Egyptian "Asar" which was another name for Osiris - there was no J in ancient Latin, so it was pronounced ah-soos). He would have been the first person to take on the title Iesus Christ. Asander is recorded to have beat Mithridates Chrestus in battle to become the king of the Bosphorus.
 
 ![Fig.1.16](/images/PharnacesII.jpg){:width="400px"}
 
@@ -741,7 +741,7 @@ Fig. 1.24. Coin depicting Ptolemy Apion, king of Kyrene, Kyrenaica, North Africa
 
 **5.2.2. Amyntas Nikator aka Amyntas, King of Galatia**
 
-Amyntas Nikator aka Amyntas of Galatia [^10] aka Jesus ben Fabus aka Isa Amen (Jesus was named "Amen" in Rev. iii. 14) was one of either Ptolemy XII Auletes aka Mark Antony aka Mithridates VI Eupator or Asander aka Julius Caesar's sons (Caesarion was too young to be Amyntas, so he would have been one of Julius Caesar aka Asanders sons from a Galatian Celtic princess from the Deiotarus royal house. However, Amyntas carried the Isis iconography, and Cleopatra claimed descent from Isis).
+Amyntas Nikator aka Amyntas of Galatia [^10] aka Jesus ben Fabus aka Isa Amen (Jesus was named "Amen" in Rev. iii. 14) was one of either Ptolemy XII Auletes aka Mark Antony aka Mithridates VI Eupator or Asander aka Julius Caesar's sons or grandsons (Caesarion was too young to be Amyntas, but Amyntas carried the Isis iconography, and Cleopatra claimed descent from Isis), so likely one of Julius Caesar aka Asander's grandsons through Emperor Tiberius Julius Caesar Augustus aka Tiberius Julius Aspurgus, king of Bosphorus.
 
 He was also Jesus ben Fabus aka Isa Amen. The name Fabus may have been distorted by Josephus from Jesus ben Bagus (Bagus means god in Celtic). Amyntas was the son of Bogitarus. In Celtic and Persian "Bagus" means god. "Boga" in Persian also means god and in the name Adobogiona "Bog-" means god in Celtic. In Latin Nikator translates to Invictus. "Jesus ben Bagus" means "Jesus, Son of God", or  "Jesus, Son of The Lord".
 
@@ -749,11 +749,15 @@ Bagus -> Baga -> Bhagavan: This is the Sanskrit word for "The Blessed One", "The
 
 Islamic tradition holds that Jesus (Isa) was a prophet born of the virgin Maryam, who did not die but was raised to heaven. "Maryam" is not a Jewish woman. It is a title for the Mari, the Scythian "Mother Goddess" worshipped by the Anatolian Celts. Amyntas, as the son of the Celtic princess Adobogiona, was literally the "Son of the Mari." His "ascension" refers to his assumption of the "Hidden Lord" (Amen) kingship after a period of conflict.
 
-Amyntas's mother Adobogiona was a "Jewish Queen" and the "Celtic Goddess-Queen" at the same time, proving Jew: Iudii -> Ioudaioi -> Jew. The Iudii, were originally Scythian-Celtic priests from Galatia who later became "Jews" under Alexandrian syncretism. 
+Amyntas's mother Adobogiona was a "Jewish Queen" and the "Celtic Goddess-Queen" at the same time, proving Jew: Iudii -> Ioudaioi -> Jew. The Iudii were originally Scythian-Celtic priests from Galatia who later became "Jews" under Alexandrian syncretism. 
 
-Amyntas ruled an empire that stretched from modern-day Turkey through India, but likely further (his reign coicides with the "Yellow Emperor" Zhao of Han, an archetype that he fits perfectly with). His palace at Isauria refers to Isis (also known as Isa or Aset) who was the mother of Horus (Cleopatra identified herself with the Greco-Egyptian goddess Isis). -Ura is a city suffix so this makes "Isaura" the "City of the Mother Goddess", whose son was the god-king. So, her son would have been Isa, son of Isis. The son of Isis in mythology was Horus, and that is why Caesarion's iconography has a Horus falcon on it. 
+Amyntas ruled an empire that stretched from modern-day Turkey through India, but likely further as his reign coicides with the "Yellow Emperor" Zhao of Han, an archetype that he fits perfectly with. He was likely also king Gondopharnes who ruled (c. 19-46 AD) what is now Afghanistan/Pakistan. Gondo-pharnes: Gondo, from Sanskrit Ganda meaning "hero" or "warrior" and Pharnes is identical to Pharnaces - the Pontic/Bosporan royal title meaning "Victorious Pharaoh". Gondopharnes = "The Heroic Victorious Pharaoh" - the exact Eastern equivalent of "Amyntas Nikator".
 
-If Amyntas Nikator aka Amyntas of Galatia was Asander aka Julius Caesar's son then Asander aka Julius Caesar was also Brogitarix, king
+His palace at Isauria refers to Isis (also known as Isa or Aset) who was the mother of Horus (Cleopatra identified herself with the Greco-Egyptian goddess Isis and in Egyptian mythology the son of Isis was Horus), and Jesus is called Isa in the Quran. -Ura is a city suffix so this makes "Isaura" (Isa-Ura) literally "Jesus City".
+ 
+Galatia = Galilee: The names are linguistically identical. "Galatia" is the Greek form of "Galilee." His kingdom was the biblical "Galilee."
+
+If Amyntas Nikator aka Amyntas of Galatia was Asander aka Julius Caesar's son or grandson then Asander aka Julius Caesar or his son Emperor Tiberius Julius Caesar Augustus aka Tiberius Julius Aspurgus, king of Bosphorus, was also Brogitarix, king
 of Galatia (Full name: Brogitaris (Brigatos) van (de) Celtes
 Trocmii:"Bogo-" is related to the Proto-Celtic word "bog-", which means
 "god" or "divine". "-diatarus" could be connected to the Latin word
