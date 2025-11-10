@@ -35,8 +35,7 @@ Part 2: Foundations of the Dragon Cult\
 3\. The Sarmatian Dragon Cult\
 Part 3: The Alexandrian Synthesis\
 4\. The Alexandrian School\
-4.1. The Blueprint Deities: Pre-existing Saviors (Horus, Dionysus, Mithras, etc.)\
-4.2. Judaism\
+4.1. Judaism\
 Part 4: The Bosphoran Connection\
 5\. Rome On the Bosphorus River\
 5.1\. Julius Caesar aka Asander, King of Bosphorus aka Mithridates Chrestus\
@@ -44,6 +43,7 @@ Part 4: The Bosphoran Connection\
 5.2. Dragon Bloodline Descendants\
 5.2.1. Ptolemy XII Auletes aka Mark Antony aka Mithridates VI Eupator\
 5.2.2. Amyntas Nikator aka Amyntas, King of Galatia\
+5.2.2.1 Was Amyntas Nikator aka Amyntas, King of Galatia the Living Esus?\
 5.2.3. Aliases and Avatars of the Bloodline\
 5.2.4. Izates II, King of Adiabene\
 5.2.5. Tiberius Julius Sauromates II\
@@ -364,94 +364,7 @@ After the Serapis cult the Alexandrian School made an industry out of taking exi
 
 The director of the Mouseion and the chief architect of the synthetic religions was not a man. It was a succession of Ptolemaic princesses who held the title The Muse Ourania (The Heavenly Muse). The Mouseion was named after her office. Arsinoë II Philadelphus (c. 316 BC – 270 BC), daughter of Ptolmy Soter, was refered to as "the tenth Muse" and she had a cult dedicated to her as Arsinoë Aphrodite Ourania. in some cases these females directors took on male aliases, for example, Philo of Alexandria was  Cleopatra (Thea Philopator) of Mauretania aka Cleopatra IX, Helene, Drusilla of Mauretania, Julia Ourania of Parthia, etc. 
 
-**4.1 The Blueprint Deities: Pre-existing Saviors (Horus, Dionysus, Mithras, etc.)**
-
-The Jesus archetype, as presented in Christianity, and characterized as a divine birth, a role as a savior or king, betrayal, sacrifice (often by crucifixion or a similar act), and resurrection is not a unique historical phenomenon but a syncretic construct, drawing from a recurring pattern of divine or semi-divine figures across ancient Indo-European, Scythian, and Near Eastern mythologies. The Alexandrian School did not invent these tropes; they identified and weaponized them. This section examines the 'blueprint deities'—Horus, Dionysus, Mithras, and others—whose myths provided the raw material for the School's religious engineering.
-
-Attis the Phrygian Deity
-
-Attis, the Phrygian god of vegetation tied to Cybele, reflects the Jesus archetype through virgin birth, sacrificial death, and resurrection, adapted by Hellenistic cults. Born to virgin Nana on December 25 (Ovid, Fasti 4), Attis mirrors Jesus’ nativity (Matthew 1:18–25). His self-castration under a pine tree, a crucifixion-like act, and resurrection after three days (Pausanias 7.17) parallel Jesus’ sacrifice and rebirth (Mark 15–16). Betrayed by Cybele’s jealousy, Attis’ cult, linked to Sabazios (Chapter 5), features serpent motifs, aligning with Scythian dragon symbolism. Attis’ rites, emphasizing renewal, prefigure Christianity’s imperial adaptation for mass devotion.
-
-Dionysus the Greek Deity
-
-Dionysus, the Greek god of wine and resurrection, syncretized with Osiris by the Alexandrian School, mirrors the Jesus archetype through divine birth, liberation, and rebirth. Born to Zeus and a mortal, Dionysus parallels Jesus’ divine-human parentage (Matthew 1:18–25). His ecstatic rites and wine symbolism, akin to Jesus’ sacraments (John 2:1–11), offered spiritual freedom, while his death by Titans and resurrection echo Jesus’ crucifixion-resurrection. Betrayed by Pentheus (Bacchae), Dionysus ties to Mark Antony as Neos-Dionysos (Chapter 5), with serpent imagery (Orphic Hymns) linking to Aži Dahāka. His cult’s universal appeal prefigures Christianity’s monotheistic framework. The entire Jesus-as-Wine theme (turning water into wine, the Last Supper) is a direct usurpation and theological correction of the Dionysian cult by the Flavian chronographers. It established the Proto-Christ as the new, superior ecstatic wine-lord who demanded controlled, spiritual frenzy, not chaotic, physical frenzy.
-
-Esus the Celtic Deity
-
-The Celts in classical Galatia worshiped a deity called
-Aesus/Esus/Iesus. The Celtic name Esus is believed to be related to the
-Proto-Celtic word "aisu", which means "lord" or "master". The letter "J"
-was invented in the 17th century, so the name "Jesus" would have been
-"Esus" in the classical sense.
-
-![Fig.
-1.11](/images/Esus.jpg){:width="400px"}
-
-Fig. 1.11. Statue from classical Anatolia that is dedicated to "Esumopas
-Cnusticus". Esumopas means "Slave to Esus", and Esus means lord in
-Proto-Celtic. If you combine the Etruscan word "cnus" with the suffix
-"-ticus" or "-tic-" you get a word that translates to "anointed one" or
-"consecrated one", ie. a "Christ". So, that inscription translates to:
-"Slave to Lord (Esus) Christ". The "VSLM" inscription is an abbreviation
-for the Latin phrase "Votum Solvit Libens Merito" which translates to
-"He pays his vow willingly and with merit" or "He fulfills his vow with
-pleasure and deserving", which is often found on Roman coins and other
-artifacts. Esus was crucified in mythology and his symbol was an axe, so
-he was associated with woodcutting, forestry, carpentry. Esus was also
-part of a "trinity" of Gaulish gods that included Taranis, Teutates and
-Esus.
-
-The Esus cult was probably created to subvert the Druid Celts in
-Galatia. It has all the fingerprints of the Alexandrian School:
-year-zero (calendar starts at the deities birth), crucified diety
-(self-sacrifice/self-annihilation as the highest virtue), afterlife
-submission, etc. The fact it resembles Christianity is because it
-follows the same framework that all the other Alexandrian School
-religions do.
-
-Horus the Egyptian Deity
-
-Horus, the Egyptian god of kingship and son of Osiris, embodies the Jesus archetype through miraculous birth, divine victory, and resurrection, shaped by Alexandrian syncretism. Born to Isis after Osiris’ death, Horus parallels Jesus’ virgin birth (Matthew 1:18–25). As a savior, he defeated Set, akin to Jesus’ triumph over evil, with the Uraeus serpent linking to Scythian motifs (Fig. 1.6). His eye, torn out and restored, mirrors Jesus’ sacrificial death and resurrection (Mark 15–16), while Set’s betrayal of Osiris echoes Judas’ role. Tied to Cleopatra as Isis (Chapter 5), Horus’ royal-divine status supports Christianity’s adaptation of Egyptian theology for imperial unity.
-
-Mithras the Persian Deity
-
-Mithras, a solar god shaped by the Alexandrian School for Roman military elites, parallels the Jesus archetype through divine birth, cosmic salvation, and sacrificial renewal. Born from a rock, Mithras mirrors Jesus’ virgin birth, while his tauroctony (bull-slaying) symbolizes redemption, akin to Jesus’ crucifixion (Mark 15:24). His cult’s suppression by Christian emperors reflects Jesus’ betrayal, and serpent imagery in Mithraic reliefs (CIMRM 593) ties to Scythian sun-god motifs (Chapter 3). Offering salvation through rituals like communal meals, Mithras prefigures Christian sacraments, supporting the manuscript’s claim that Christianity adapted Mithraism’s framework, redirecting its appeal from soldiers to slaves under a monotheistic imperial cult.
-
-Osiris the Egyptian Deity
-
-Osiris's Egyptian Name is Asar or Wsir. The name "Asar" is the root. When the Greeks encountered him, they Hellenized it to Osiris. Osiris's Asar -> (Greek addition of the sacred 'I' prefix, I-Asar) -> Iasar -> Iēsous. His title: Neb-er-djer (Nb-ꜥr-ḏr) is often translated as "Lord of the Entire Universe." The key element is Neb (Lord).
-
-After being betrayed and murdered by his brother Set, Isis and Nephthys ressurect Osirus.
-
-Osirus was also a Christ. In Egyptian mythology a Karast is a person who is anointed as a Heru (Hero/Horus) during their lifetime. When they are deceased they receive great honor as a KRST or Ausar (Osiris). Egyptian Karast (“Anointed One”) = Greek Christos ("Anointed One").
-
-Romulus the Roman Deity
-
-Rhu/Ru: The Indo-European root for "Dragon/Serpent" (cognate with the Scythian Aži). Ma: The Scythian word for "Place/Land" (as in the true Rhu-Ma on the Bosphorus). Romulus is the Aži Dahāka (Dragon) King who founds the city, establishing the legal right to rule.
-
-According to Plutarch’s Life of Romulus (circa 75 CE) the Roman deity of Quirinus aka Romulus was born to a virgin, Rhea Silvia, impregnated by the god Mars, establishing his divine lineage. Hailed as a king and revered as the son of a god, Romulus founded Rome after a fratricidal conflict with his brother Remus, a narrative echoing the biblical Cain and Abel, crucified by a conniving elite and rose from the dead as the god Quirinus.
-
-![Fig.1.12](/images/Denarius_C._Memmius_C._F._Romulus.jpg){:width="400px"}
-
-Fig. 1.12. Romulus. 
-
-Serapis the Greco-Egyptian Deity
-
-Serapis, crafted under Ptolemy I at the Alexandrian School, fused Osiris’ resurrection with Apis’ strength, embodying the Jesus archetype through divine creation, salvation, and rebirth. Declared a god, Serapis mirrors Jesus’ divine sonship (Matthew 1:18–25), with his name (“Ser” = son) tying to “Aesar” (divine) and Scythian dragon-kings (Chapter 3). As a savior, he offered healing and afterlife promises, like Jesus (John 3:16), with serpent imagery (Fig. 1.3) reflecting Aži Dahāka. Osiris’ death-rebirth cycle parallels Jesus’ crucifixion-resurrection (Mark 15–16), and the Serapis cult’s destruction by Theophilus I (391 CE) echoes Judas’ betrayal. 
-
-Up until the First Council of Nicaea the title "Christ", or "Christian", referred to the Serapis Cult ("those who worship Serapis are, in fact, Christians, and those who call themselves bishops of Christ are, in fact, devotees of Serapis.". Source: The Letter of Hadrian to Servianus).
-
-Zalmoxis the Dacian Deity
-
-Zalmoxis (also spelled Salmoxis, Zalmoxis) is a divinity of the Getae (a Thracian tribe) and Dacians. According to Herodotus (Histories, Book 4, 93-96), Zalmoxis was a slave of Pythagoras who taught the doctrine of immortality. He then returned to his people and taught them that they would not die but go to a place where they would live in perpetual happiness. To prove his doctrine, he hid in an underground chamber for three years and then reappeared (resurrection), thus convincing the Getae of the truth of his teachings.
-
-Zalmoxis was another name of Sabazius, the Thracian version of Zeus. Also, Zalmoxis, or Zalmox or Zalmos, can also be pronounced Salmos which is very close to the Aic and Hebrew pronunciation of Solomon.
-
-Zoroaster the Persian Deity
-
-Miraculous birth (His glory (xvarenah) entered his mother at birth). Temptation in wilderness (resisted the demon Buiti for 40 days). Transfiguration (experienced visions of Ahura Mazda), crucifixion symbolism (tradition says he was murdered at altar while praying). Resurrection belief (Zoroastrianism has strong resurrection theology).
-
-**4.2 Judaism** 
+**4.1 Judaism** 
 
 Ptolemy I Soter was also responsible for inventing Judaism. His aim was to subvert Canaanite identity once and for all, destroying the only contestant to Greco-Egyptian power in the world up to that point, and gradually forcing jews to accept the Serapis cult. 
 
@@ -741,9 +654,9 @@ Fig. 1.24. Coin depicting Ptolemy Apion, king of Kyrene, Kyrenaica, North Africa
 
 **5.2.2. Amyntas Nikator aka Amyntas, King of Galatia**
 
-Amyntas Nikator aka Amyntas of Galatia [^10] aka Jesus ben Fabus aka Isa Amen (Jesus was named "Amen" in Rev. iii. 14) was one of either Ptolemy XII Auletes aka Mark Antony aka Mithridates VI Eupator or Asander aka Julius Caesar's sons or grandsons (Caesarion was too young to be Amyntas, but Amyntas carried the Isis iconography, and Cleopatra claimed descent from Isis), so likely one of Julius Caesar aka Asander's grandsons through Emperor Tiberius Julius Caesar Augustus aka Tiberius Julius Aspurgus, king of Bosphorus.
+Amyntas Nikator aka Amyntas of Galatia [^10] aka Jesus ben Fabus aka Isa Amen (Jesus was named "Amen" in Rev. iii. 14). Amyntas's father was not Bogitarus. That is a later, localized alias. His true father was Mithridates VI Eupator of Pontus (aka Ptolemy XII Auletes/Mark Antony/Herod). Amyntas's Mother was Adobogiona the Elder, but her true, imperial title was Cleopatra V Tryphaena of Egypt, the sister-wife of Mithridates VI/Ptolemy XII. This makes Amyntas Nikator the full brother of Cleopatra VII Philopator (Dynamis).
 
-He was also Jesus ben Fabus aka Isa Amen. The name Fabus may have been distorted by Josephus from Jesus ben Bagus (Bagus means god in Celtic). Amyntas was the son of Bogitarus. In Celtic and Persian "Bagus" means god. "Boga" in Persian also means god and in the name Adobogiona "Bog-" means god in Celtic. In Latin Nikator translates to Invictus. "Jesus ben Bagus" means "Jesus, Son of God", or  "Jesus, Son of The Lord".
+He was also Jesus ben Fabus aka Isa Amen. The name Fabus may have been distorted by Josephus from Jesus ben Bagus (Bagus means god in Celtic). Amyntas was the son of Bogitarus. In Celtic and Persian "Bagus" means god. "Boga" in Persian also means god and in the name Adobogiona "Bog-" means god in Celtic. In Latin Nikator translates to Invictus. "Jesus ben Bagus" means "Jesus, Son of God", or  "Jesus, Son of The Lord". "Fabus" or "Bagus." might also be a direct Latinization of the Celtic "Vabus" or "Vabos", meaning "The Speaker" or "Prophet." This is a title for a Druid high priest. 
 
 Bagus -> Baga -> Bhagavan: This is the Sanskrit word for "The Blessed One", "The Lord," a title for God. It enters Persian as "Baga" (as in the city Baghdad, "Given by God"). He is known in Indian sources as "Amita," from which "Amyntas" derives, but also as "Moga" or "Maues," the first Saka (Scythian) King in India.
 
@@ -751,21 +664,42 @@ Islamic tradition holds that Jesus (Isa) was a prophet born of the virgin Maryam
 
 Amyntas's mother Adobogiona was a "Jewish Queen" and the "Celtic Goddess-Queen" at the same time, proving Jew: Iudii -> Ioudaioi -> Jew. The Iudii were originally Scythian-Celtic priests from Galatia who later became "Jews" under Alexandrian syncretism. 
 
-Amyntas ruled an empire that stretched from modern-day Turkey through India, but likely further as his reign coicides with the "Yellow Emperor" Zhao of Han, an archetype that he fits perfectly with. He was likely also king Gondopharnes who ruled (c. 19-46 AD) what is now Afghanistan/Pakistan. Gondo-pharnes: Gondo, from Sanskrit Ganda meaning "hero" or "warrior" and Pharnes is identical to Pharnaces - the Pontic/Bosporan royal title meaning "Victorious Pharaoh". Gondopharnes = "The Heroic Victorious Pharaoh" - the exact Eastern equivalent of "Amyntas Nikator".
+Amyntas ruled an empire that stretched from modern-day Turkey through India, but likely further as his reign coicides with the "Yellow Emperor" Zhao of Han, an archetype that he fits perfectly with.
 
 His palace at Isauria refers to Isis (also known as Isa or Aset) who was the mother of Horus (Cleopatra identified herself with the Greco-Egyptian goddess Isis and in Egyptian mythology the son of Isis was Horus), and Jesus is called Isa in the Quran. -Ura is a city suffix so this makes "Isaura" (Isa-Ura) literally "Jesus City".
  
 Galatia = Galilee: The names are linguistically identical. "Galatia" is the Greek form of "Galilee." His kingdom was the biblical "Galilee."
 
-If Amyntas Nikator aka Amyntas of Galatia was Asander aka Julius Caesar's son or grandson then Asander aka Julius Caesar or his son Emperor Tiberius Julius Caesar Augustus aka Tiberius Julius Aspurgus, king of Bosphorus, was also Brogitarix, king
+This would mean that Mithridates VI Eupator of Pontus (aka Ptolemy XII Auletes/Mark Antony/Herod) was also Brogitarix, king
 of Galatia (Full name: Brogitaris (Brigatos) van (de) Celtes
 Trocmii:"Bogo-" is related to the Proto-Celtic word "bog-", which means
 "god" or "divine". "-diatarus" could be connected to the Latin word
 "diatus", meaning "divine" or "godlike", the Old Irish word -tairx means
 " lord"."Van" or "de" is a preposition indicating "of" or "from",
 which suggests that Brogitaris/Brigatos is the divine leader or a member
-of the Celtes Trocmii which refers to the Trocmi, a Celtic tribe that
-lived in ancient Galatia). 
+of the Celtes Trocmii which refers to the Trocmi, a Celtic tribe that lived in ancient Galatia). 
+
+**5.2.2.1 Was Amyntas Nikator aka Amyntas, King of Galatia the Living Esus?**
+
+The Celts in classical Galatia worshiped a deity called
+Aesus/Esus/Iesus. Amyntas, King of Galatia was the king of this region. "Esus" from "Aisu" (Lord) is the Celtic pronunciation. The Scythian root is Aes-, the same as the Aesir and Aesar. "Iesus" is the Latin rendering of "Esus." There was no "J" sound. He was always called Ie-Sus (Yay-soos), "The Esus."
+
+![Fig.
+1.25](/images/Esus.jpg){:width="400px"}
+
+Fig. 1.25. Statue from classical Anatolia that is dedicated to "Esumopas
+Cnusticus". Esumopas means "Slave to Esus", and Esus means lord in
+Proto-Celtic. If you combine the Etruscan word "cnus" with the suffix
+"-ticus" or "-tic-" you get a word that translates to "anointed one" or
+"consecrated one", ie. a "Christ". So, that inscription translates to:
+"Slave to Lord (Esus) Christ". The "VSLM" inscription is an abbreviation
+for the Latin phrase "Votum Solvit Libens Merito" which translates to
+"He pays his vow willingly and with merit" or "He fulfills his vow with
+pleasure and deserving", which is often found on Roman coins and other
+artifacts. Esus was crucified in mythology and his symbol was an axe, so
+he was associated with woodcutting, forestry, carpentry. Esus was also
+part of a "trinity" of Gaulish gods that included Taranis, Teutates and
+Esus.
 
 **5.2.3. Aliases and Avatars of the Bloodline**
 
@@ -818,9 +752,9 @@ Theophilos in Greek. Around 26% of the New Testament was written to
 Theophilus in Luke and Acts of the Apostles).
 
 ![Fig.
-1.25](/images/AlexanderPhilo.jpg){:width="400px"}
+1.26](/images/AlexanderPhilo.jpg){:width="400px"}
 
-Fig. 1.25. (L) Alexander (grandson of King Herod) aka Gaius Julius
+Fig. 1.26. (L) Alexander (grandson of King Herod) aka Gaius Julius
 Alexander, Herodian Prince of Judaea aka Alexander the Alabarch aka
 (King/Tetrarch) Ptolemy (Alexander) bar Menneus aka Ptolemy of
 Mauretania aka "Jesus" in the bible. (R) Cleopatra (Thea Philopator) of
@@ -840,9 +774,9 @@ Adiabene/Edessa aka Ptolemy aka Yakov Zu Tolomoy aka Izates aka Jesus
 Emmanuel aka Monobazus of Adiabene [^12]
 
 ![Fig.
-1.26](/images/Josephus.jpg){:width="400px"}
+1.27](/images/Josephus.jpg){:width="400px"}
 
-Fig. 1.26. 'Josephus' bust which I identify as Tiberius Julius
+Fig. 1.27. 'Josephus' bust which I identify as Tiberius Julius
 Alexander. Compare it to Nerva's depictions. So, 'Josephus' was Philo of
 Alexandria's son. Tiberius Julius Alexander's son was named
 'Philopappos' and one of his mother's aliases was 'Alexandria bat
@@ -850,9 +784,9 @@ Matthias' which is where the pseudonym 'Joseph bar Matthias' comes from.
 Also, drop the initial b and final s in the name "Bar Mathias" and you
 get (Joseph of) Arimathea.
 
-![Fig. 1.27](/images/coin-abgar-phraates.png){:width="400px"}
+![Fig. 1.28](/images/coin-abgar-phraates.png){:width="400px"}
 
-Fig. 1.27. (L) and (R) show King Izates Monobazus of Edessa (known in
+Fig. 1.28. (L) and (R) show King Izates Monobazus of Edessa (known in
 Greek as the "Kingdom of Ourania" or in English as the "Kingdom of
 Heaven") wearing a crown of thorns. Izates or Izas is his title which is
 an ancient Greek translation of the Avestan word Yazatas (Persian:
@@ -863,9 +797,9 @@ source: The Alexander Mosaic, Huqoq, Israel.
 
 **5.2.5. Tiberius Julius Sauromates II**
 
-![Fig.1.28](/images/SauromatesII.jpg){:width="400px"}
+![Fig.1.29](/images/SauromatesII.jpg){:width="400px"}
 
-Fig. 1.28 Tiberius Julius Sauromates II, King of Bosphorus, who was the
+Fig. 1.29 Tiberius Julius Sauromates II, King of Bosphorus, who was the
 son of Tiberius Julius Cotys (aka Tiberius Julius Alexander aka Arrius
 Calpernius Piso aka Arrius Varus aka Emperor Nerva), great-grandson of
 Dynamis aka Cleopatra and Mark Antony. Does he look
@@ -876,13 +810,13 @@ means 'lizard' or 'reptile', and 'mates' means 'man' or 'warrior'.
 Therefore, translated literally ΒΑCΙΛΕΩC CΑVΡΟΜΑΤΟΥ means "King of the
 lizard people", or "king of the dragon people". He was the grandson (or great-grandson?) of Asander, king of Bosphorus aka Julius Caesar.
 
-![Fig.1.29](/images/Tamga.jpg){:width="400px"}
+![Fig.1.30](/images/Tamga.jpg){:width="400px"}
 
-Fig. 1.29 The royal Tamga (symbol/signature) of Tiberius Julius Sauromates II contains a cross and a Chi Rho.
+Fig. 1.30 The royal Tamga (symbol/signature) of Tiberius Julius Sauromates II contains a cross and a Chi Rho.
 
-![Fig.1.30](/images/SauromatesCross.jpg){:width="400px"}
+![Fig.1.31](/images/SauromatesCross.jpg){:width="400px"}
 
-Fig. 1.30 Coin of Tiberius Julius Sauromates II that displays a cross in the right corner.
+Fig. 1.31 Coin of Tiberius Julius Sauromates II that displays a cross in the right corner.
 
 Endnotes (Chapter 5)
 
@@ -935,9 +869,9 @@ King, and Pas means "all" as in Pan. "Vespasian" = "King of All", or "King of Ev
 'Flavius Scaevinus' the conspirator involved in Nero's assassination.
 
 ![Fig.
-1.31](/images/Vespasian.jpg){:width="400px"}
+1.32](/images/Vespasian.jpg){:width="400px"}
 
-Fig. 1.31. L. Vespasian. R. Herod Agrippa I
+Fig. 1.32. L. Vespasian. R. Herod Agrippa I
 
 'Antonia Caenis' was Vespassian's mistress who was his first cousin who
 was Cleopatra (Thea Philopator) of Mauretania aka Cleopatra IX aka
@@ -1040,9 +974,9 @@ Capitolina after the Bar Kokhba revolt (the city was named after Hadrian's famil
 that Aquila of Sinope and his wife Prisca or Priscilla lived with Paul
 the Apostle and Paul called them "my fellow workers in Christ Jesus"
 
-![Fig.1.32](/images/Antinous.jpg){:width="400px"}
+![Fig.1.33](/images/Antinous.jpg){:width="400px"}
 
-Fig. 1.32. Steel relief that shows Antinous holding the grapes of Dionysus in one-hand and a cross in the other.
+Fig. 1.33. Steel relief that shows Antinous holding the grapes of Dionysus in one-hand and a cross in the other.
 
 **8.2 Subversion of the Imperial Cult by Rabbi Akiva and His Students**
 
