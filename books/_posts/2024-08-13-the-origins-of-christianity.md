@@ -137,7 +137,14 @@ Fig. 1.8. L. Polemon II, king of Bosphorus. R. Emperor Titus.
 
 1.2 Ancient Alias Names List
 
-Note on Aliases: The Ptolemaic-Bosporan elite employed an incredible number of regional aliases, fictional stories, and fabricated deaths. They role-played as deities and various characters as if they were actors in a play. This was done because populations would not accept foreign kings, and a god-king had to manifest according to local religious expectations.
+Note on Aliases: I believe that the Ptolemaic elites in antiquity employed an incredible number of regional aliases, locations, fictional stories, faked adoptions, and fabricated deaths for themselves and their family members as a way to control the
+population. They role-played as deities, religious figures, and various characters as if they were actors in a play. This was done partially for obscuration, but also because people wouldn't accept foreign kings or kings with foreign names, and also, for theological requirements: a god-king had to manifest in different regions according to local religious expectations. For example, the governor of Roman Egypt from 33 CE to 38, Aulus Avillius Flaccus, was also Polemon II of Pontus, who was
+the prince of the Bosporan, Pontus, Cilicia, and Cappadocia, which was
+the regional alias of Emperor Titus. The character of Aulus Avillius
+Flaccus dies at the same time Polemon II of Pontus takes power, and then
+Polemon II of Pontus dies around the same time Titus becomes emperor.
+The way to connect them is through the fact that they were all married
+to the same woman, Berenice, granddaughter of King Herod.
 
 I. The Ptolemaic, Julio-Claudian & Bosphoran Bloodline
 
