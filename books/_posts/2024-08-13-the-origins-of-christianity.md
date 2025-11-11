@@ -654,11 +654,11 @@ Fig. 1.24. Coin depicting Ptolemy Apion, king of Kyrene, Kyrenaica, North Africa
 
 **5.2.2. Amyntas Nikator aka Amyntas, King of Galatia**
 
-Amyntas Nikator aka Amyntas of Galatia [^10] aka Jesus ben Fabus aka Isa Amen (Jesus was named "Amen" in Rev. iii. 14). Amyntas's father was not Bogitarus. That is a later, localized alias. His true father was Mithridates VI Eupator of Pontus (aka Ptolemy XII Auletes/Mark Antony/Herod). Amyntas's mother was Adobogiona the Elder, but her true imperial title was Cleopatra V Tryphaena of Egypt, the sister-wife of Mithridates VI/Ptolemy XII. This makes Amyntas Nikator the full brother of Cleopatra VII Philopator (Dynamis).
+Amyntas Nikator (Latin Invictus which links him to Sol Invictus) aka Amyntas of Galatia [^10] aka Jesus ben Fabus aka Isa Amen (Jesus was named "Amen" in Rev. iii. 14 and Amen links to Egypt through the name of the pharaoh Amenhotep). Amyntas's father was not Bogitarus. That is a later, localized alias. His true father was Mithridates VI Eupator of Pontus (aka Ptolemy XII Auletes/Mark Antony/Herod). Amyntas's mother was Adobogiona the Elder, but her true imperial title was Cleopatra V Tryphaena of Egypt, the sister-wife of Mithridates VI/Ptolemy XII. This makes Amyntas Nikator the full brother of Cleopatra VII Philopator (Dynamis).
 
 He was also Jesus ben Fabus aka Isa Amen. The name Fabus may have been distorted by Josephus from Jesus ben Bagus (Bagus means god in Celtic). Amyntas was the son of Bogitarus. In Celtic and Persian "Bagus" means god. "Boga" in Persian also means god and in the name Adobogiona "Bog-" means god in Celtic. In Latin Nikator translates to Invictus. "Jesus ben Bagus" means "Jesus, Son of God", or  "Jesus, Son of The Lord". "Fabus" or "Bagus." might also be a direct Latinization of the Celtic "Vabus" or "Vabos", meaning "The Speaker" or "Prophet." This is a title for a Druid high priest. 
 
-Bagus -> Baga -> Bhagavan: This is the Sanskrit word for "The Blessed One", "The Lord," a title for God. It enters Persian as "Baga" (as in the city Baghdad, "Given by God"). He is known in Indian sources as "Amita," from which "Amyntas" derives, but also as "Moga" or "Maues," the first Saka (Scythian) King in India.
+"Bagha" (Old Persian), "Baga" (Avestan), "Bhagavan" (Sanskrit) all mean "Lord", a title for God. It enters Persian as "Baga" (as in the city Baghdad, "Given by God"). He is known in Indian sources as "Amita," from which "Amyntas" derives, but also as "Moga" or "Maues," the first Saka (Scythian) King in India. He was also associated with the Mên Askaênos cult of Antiochia Pisidia which echoes the name of the Indian king Asoka the Great.
 
 Islamic tradition holds that Jesus (Isa) was a prophet born of the virgin Maryam, who did not die but was raised to heaven. "Maryam" is not a Jewish woman. It is a title for the Mari, the Scythian "Mother Goddess" worshipped by the Anatolian Celts. Amyntas, as the son of the Celtic princess Adobogiona, was literally the "Son of the Mari." His "ascension" refers to his assumption of the "Hidden Lord" (Amen) kingship after a period of conflict.
 
@@ -682,7 +682,7 @@ of the Celtes Trocmii which refers to the Trocmi, a Celtic tribe that lived in a
 **5.2.2.1 Was Amyntas Nikator aka Amyntas, King of Galatia the Living Esus?**
 
 The Celts in classical Galatia worshiped a deity called
-Aesus/Esus/Iesus. Amyntas, King of Galatia was the king of this region. "Esus" from "Aisu" (Lord) is the Celtic pronunciation. The Scythian root is Aes-, the same as the Aesir and Aesar. "Iesus" is the Latin rendering of "Esus." There was no "J" sound. He was always called Ie-Sus (Yay-soos), "The Esus."
+Aesus/Esus/Iesus. Amyntas, as the god king of Galatia would have been the personification of Esus. "Esus" from "Aisu" (Lord) is the Celtic pronunciation. The Scythian root is Aes-, the same as the Aesir and Aesar. "Iesus" is the Latin rendering of "Esus." There was no "J" sound. He was always called Ie-Sus (Yay-soos), "The Esus."
 
 ![Fig.
 1.25](/images/Esus.jpg){:width="400px"}
@@ -701,11 +701,11 @@ he was associated with woodcutting, forestry, carpentry. Esus was also
 part of a "trinity" of Gaulish gods that included Taranis, Teutates and
 Esus.
 
-The cult of Esus follows the precise theological blueprint developed by the Alexandrian School for imperial control. Like Serapis (Osiris+Apis), Esus represents a deliberate syncretism—in this case, merging the Celtic god of the axe with the Phrygian Attis and Thracian Sabazios. The dominant local Anatolian deity would have been Attis and Esus was the deity tof the Gauls who settled in that area. 
+The cult of Esus follows the precise theological blueprint developed by the Alexandrian School for imperial control. Like Serapis (Osiris+Apis), Esus represents a deliberate syncretism—in this case, merging the Celtic god of the axe with the Phrygian Attis (dying-and-reviving god) and Thracian Sabazios (Thracian horseman god, another form of Zeus). The dominant local Anatolian deity would have been Attis and Esus was the deity of the Gauls who settled in that area. 
 
 The template is unmistakable: Divine Birth/Lordship: "Esus" from aisu ("lord") mirrors "Serapis" from aser ("lord") and "Christ" from Kristos ("anointed lord"). Crucifixion/Resurrection: Esus's T-cross crucifixion parallels Attis's pine-tree death, Osiris's dismemberment, and Dionysus's dismemberment by Titans. Sacrificial Symbolism: The labrys (double-axe) represents the same sacrificial logic as Mithras's bull-slaying and Osiris's grain symbolism. Trinitarian Structure: Esus-Taranis-Teutates mirrors Osiris-Isis-Horus, Serapis-Isis-Harpocrates, and the Christian Trinity.
 
-The "Esumopas Cnusticus" inscription proves this was a state-sponsored imperial cult, not organic Celtic religion. Like all Alexandrian creations, it packaged Dragon Empire ideology in local costume—in this case, Celtic—to enforce the "slave morality" of submission, sacrifice, and afterlife obedience. The Flavian editors simply swapped the Celtic "Esus" for a Judaized "Jesus" while keeping the identical theological framework.
+The "Esumopas Cnusticus" inscription proves this was a state-sponsored imperial cult, not organic Celtic religion. The original Esus was a warrior. The new, syncretic "Esus Christos" was a god who was crucified on a T-shaped tree (a clear parallel to the Tau cross). The message to the fierce Galatian Celts was: "Your god is not a warrior, but a sacrificial victim. True strength is in submission, sacrifice, obedience, and turning the other cheek".
 
 **5.2.3. Aliases and Avatars of the Bloodline**
 
