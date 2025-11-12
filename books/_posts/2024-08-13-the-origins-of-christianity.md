@@ -70,16 +70,19 @@ Religion was the technology that the Ptolemaic dynasty used to control the vast 
 
 Common in all these Alexandrian School religions were centralized texts and priesthoods which makes a population easier to control through proxy, also, moral codes like submission, self-sacrifice, obedience, loyalty, divine judgment, and monotheism which divides the population through binary thinking, ie., the opposition between good and evil, us vs them, left vs right, etc., which destroys tribalism/collectivism by splitting the population into two groups. These religions were also likely designed to segment the populations by class, culture, and region to prevent unified resistance. For example, Mithraism was for military elites (requiring blood oaths, with a Mithraic initiate caste system and hierarchical structure). Serapism was for civilians (promising afterlife salvation). Christianity was for slaves ("turn the other cheek").
 
-"Jesus Christ" was a rank, not a name. It was the title for the Satrap-Soter (Governor-Savior) of the Levant-Judea sector, a high-level administrative and priestly position within the Ptolemaic/Bosphoran imperial structure, often filled by a bloodline prince, much like 'Pharaoh' or 'Caesar'. Jesus Christ = I-Zeus ("divine Zeus") + Christ which was the title for the ruling Satrap of Judea who was a member of the Bosporan royal house (equivalent to Scythian Xšaθra, Persian "Kšatrapati" (Satrap, Governor), Hyksos "Khasut" in Egypt, Kshatriya (Warrior-King) in Sanskrit (which also = Vedic "Krishna" (the dark god of Hinduism. Krishna is an avatar of Vishnu, and his name means "dark" or "black")), etc.
+"Jesus Christ" was a rank, not a name. It was the title for the Satrap-Soter (Governor-Savior) of the Levant-Judea sector, a high-level administrative and priestly position within the Ptolemaic/Bosphoran imperial structure, often filled by a bloodline prince, much like 'Pharaoh' or 'Caesar'. Jesus Christ = I-Zeus ("Divine Zeus") + Christ which was the title for the ruling Satrap of Judea who was a member of the Bosporan royal house (equivalent to Scythian Xšaθra, Persian "Kšatrapati" (Satrap, Governor), Hyksos "Khasut" in Egypt, Kshatriya (Warrior-King) in Sanskrit which also = Vedic "Krishna", etc.
 
 People who assumed this role are:
 
-Julius Caesar aka Asander, King of Bosphorus aka Mithridates Chrestus\
-Amyntas Nikator aka Amyntas, King of Galatia (Jesus ben Fabus [[link](https://ranajitpal-jesus-from-asia-minor.blogspot.com/2011/06/jesus-christ-was-amyntas-of-galatia_20.html)])\
-Alexander (son of King Herod) aka Alexander Helios aka Juba II\
-Alexander (grandson of King Herod) aka Ptolemy of Mauretania aka Monobazus I\
-Izates II, King of Adiabene (Jesus ben Gamala/Gamaliel [[link](https://web.archive.org/web/20240728150536/https://x.com/ralfellis/status/1809520320077803525)])\
-Tiberius Julius Sauromates II
+-   Julius Caesar aka Asander, King of Bosphorus aka Mithridates Chrestus
+-   Amyntas Nikator aka Amyntas, King of Galatia (who was Jesus ben Fabus. See:
+    Jesus Christ Was Amyntas of Galatia (2010) by Ranajit Pal
+    [[link](https://ranajitpal-jesus-from-asia-minor.blogspot.com/2011/06/jesus-christ-was-amyntas-of-galatia_20.html)])
+-   Alexander (son of King Herod) aka Alexander Helios aka Juba II
+-   Alexander (grandson of King Herod) aka Ptolemy of Mauretania aka Monobazus I (who was Jesus ben Sapphias?)
+-   Izates II, King of Adiabene (who was Jesus ben Gamala/Gamaliel. See: Cleopatra to Christ (2010) by Ralph Ellis
+[[link](https://www.google.com/books/edition/Cleopatra_to_Christ/T7sqfHyWPuQC?hl=en&gbpv=1&dq=cleopatra+to+christ&printsec=frontcover)]
+-   Tiberius Julius Sauromates II
 
 A few things you need to know before you read my book:
 
