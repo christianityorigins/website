@@ -70,10 +70,14 @@ Religion was the technology that the Ptolemaic dynasty used to control the vast 
 
 Common in all these Alexandrian School religions were centralized texts and priesthoods which makes a population easier to control through proxy, also, moral codes like submission, self-sacrifice, obedience, loyalty, divine judgment, and monotheism which divides the population through binary thinking, ie., the opposition between good and evil, us vs them, left vs right, etc., which destroys tribalism/collectivism by splitting the population into two groups. These religions were also likely designed to segment the populations by class, culture, and region to prevent unified resistance. For example, Mithraism was for military elites (requiring blood oaths, with a Mithraic initiate caste system and hierarchical structure). Serapism was for civilians (promising afterlife salvation). Christianity was for slaves ("turn the other cheek").
 
-Christianity was created in phases, the first phase as a synthesis of the Serapis Cult rebranded to serve one of the later Roman (Bosphoran) imperial cults, then reworked by the Flavians. Jesus in the bible was not a person but an avatar, a recurring administrative and priestly title for the ruling 'Anointed One' (Christ/Soter) within the Bosphoran royal family, much like 'Pharaoh' or 'Caesar'. Asander, king of Bosphorus (Julius Caesar's real identity) took on this role, so did his son Aspurgus, king of Bosphorus aka Amyntas ("Amon-Tas". "Hidden
-Lord", linking to Amun-Ra - with "Amen"(tas) at the root) Nikator aka
-Amyntas of Galatia aka Jesus ben Fabus aka Isa Amen (Jesus was named
-"Amen" in Rev. iii. 14), and his later descendants Izates II, king of Adiabene, and Tiberius Julius Sauromates II, also took on the role. After Rabbi Akiva Jesus then became Simon Bar Kokhba.
+Christianity was created in phases, the first phase as a synthesis of the Serapis Cult rebranded to serve one of the later Roman (Bosphoran) imperial cults, then reworked by the Flavians. Jesus in the bible was not a person but an avatar, a recurring administrative and priestly title for the ruling 'Anointed One' (Christ/Soter) within the Bosphoran royal family, much like 'Pharaoh' or 'Caesar'. People who assumed this role are:
+
+Julius Caesar aka Asander, King of Bosphorus aka Mithridates Chrestus\
+Alexander (son of King Herod) aka Alexander Helios aka Juba II\
+Alexander (grandson of King Herod) aka Ptolemy of Mauretania aka Monobazus I\
+Amyntas Nikator aka Amyntas, King of Galatia\
+Izates II, King of Adiabene\
+Tiberius Julius Sauromates II
 
 This book traces Christianity back to its foundations — from the mythemes of Scythian snake-worshiping cults, to the Alexandrian School in Egypt and the Sarapis cult, to the Roman (Bosphoran) imperial cult — and then finishes with the subversion of the Bosphoran cult.
 
@@ -656,9 +660,9 @@ Fig. 1.24. Coin depicting Ptolemy Apion, king of Kyrene, Kyrenaica, North Africa
 
 Amyntas Nikator (Latin Invictus which links him to Sol Invictus) aka Amyntas of Galatia [^10] aka Jesus ben Fabus aka Isa Amen (Jesus was named "Amen" in Rev. iii. 14 and Amen links to Egypt through the name of the pharaoh Amenhotep). Amyntas's father was not Bogitarus. That is a later, localized alias. His true father was Mithridates VI Eupator of Pontus (aka Ptolemy XII Auletes/Mark Antony/Herod). Amyntas's mother was Adobogiona the Elder, but her true imperial title was Cleopatra V Tryphaena of Egypt, the sister-wife of Mithridates VI/Ptolemy XII. This makes Amyntas Nikator the full brother of Cleopatra VII Philopator (Dynamis).
 
-He was also Jesus ben Fabus aka Isa Amen. The name Fabus may have been distorted by Josephus from Jesus ben Bagus (Bagus means god in Celtic). Amyntas was the son of Bogitarus. In Celtic and Persian "Bagus" means god. "Boga" in Persian also means god and in the name Adobogiona "Bog-" means god in Celtic. In Latin Nikator translates to Invictus. "Jesus ben Bagus" means "Jesus, Son of God", or  "Jesus, Son of The Lord". "Fabus" or "Bagus." might also be a direct Latinization of the Celtic "Vabus" or "Vabos", meaning "The Speaker" or "Prophet." This is a title for a Druid high priest. 
+He was also Jesus ben Fabus aka Isa Amen. The name Fabus may have been distorted by Josephus from Jesus ben Bagus. Amyntas was the son of Bogitarus. In Celtic and Persian "Bagus" means god. "Boga" in Persian also means god and in the name Adobogiona "Bog-" means god in Celtic. In Latin Nikator translates to Invictus which liks him the the deity Sol Invictus. "Jesus ben Bagus" means "Jesus, Son of God", or  "Jesus, Son of The Lord". "Fabus" or "Bagus." might also be a direct Latinization of the Celtic "Vabus" or "Vabos", meaning "The Speaker" or "Prophet". This is a title for a Druid high priest. 
 
-"Bagha" (Old Persian), "Baga" (Avestan), "Bhagavan" (Sanskrit) all mean "Lord", a title for God. It enters Persian as "Baga" (as in the city Baghdad, "Given by God"). He is known in Indian sources as "Amita," from which "Amyntas" derives, but also as "Moga" or "Maues," the first Saka (Scythian) King in India. He was also associated with the Mên Askaênos cult of Antiochia Pisidia which echoes the name of the Indian king Asoka the Great.
+"Bagha" (Old Persian), "Baga" (Avestan), "Bhagavan" (Sanskrit) all mean "Lord", a title for God. It enters Persian as "Baga" (as in the city Baghdad, "Given by God"). He is known in Indian sources as "Amita", from which "Amyntas" derives, but also as "Moga" or "Maues," the first Saka (Scythian) King in India. He was also associated with the Mên Askaênos cult of Antiochia Pisidia which echoes the name of the Indian king Asoka the Great.
 
 Islamic tradition holds that Jesus (Isa) was a prophet born of the virgin Maryam, who did not die but was raised to heaven. "Maryam" is not a Jewish woman. It is a title for the Mari, the Scythian "Mother Goddess" worshipped by the Anatolian Celts. Amyntas, as the son of the Celtic princess Adobogiona, was literally the "Son of the Mari." His "ascension" refers to his assumption of the "Hidden Lord" (Amen) kingship after a period of conflict.
 
@@ -668,7 +672,7 @@ Amyntas ruled an empire that stretched from modern-day Turkey through India, but
 
 His palace at Isauria refers to Isis (also known as Isa or Aset) who was the mother of Horus (Cleopatra identified herself with the Greco-Egyptian goddess Isis and in Egyptian mythology the son of Isis was Horus), and Jesus is called Isa in the Quran. -Ura is a city suffix so this makes "Isaura" (Isa-Ura) literally "Jesus City".
  
-Galatia = Galilee: The names are linguistically identical. "Galatia" is the Greek form of "Galilee." His kingdom was the biblical "Galilee."
+Galatia = Galilee: The names are linguistically identical. "Galatia" is the Greek form of "Galilee." His kingdom was the biblical "Galilee".
 
 This would mean that Mithridates VI Eupator of Pontus (aka Ptolemy XII Auletes/Mark Antony/Herod) was also Brogitarix, king
 of Galatia (Full name: Brogitaris (Brigatos) van (de) Celtes
