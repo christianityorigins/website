@@ -70,16 +70,16 @@ Religion was the technology that the Ptolemaic dynasty used to control the vast 
 
 Common in all these Alexandrian School religions were centralized texts and priesthoods which makes a population easier to control through proxy, also, moral codes like submission, self-sacrifice, obedience, loyalty, divine judgment, and monotheism which divides the population through binary thinking, ie., the opposition between good and evil, us vs them, left vs right, etc., which destroys tribalism/collectivism by splitting the population into two groups. These religions were also likely designed to segment the populations by class, culture, and region to prevent unified resistance. For example, Mithraism was for military elites (requiring blood oaths, with a Mithraic initiate caste system and hierarchical structure). Serapism was for civilians (promising afterlife salvation). Christianity was for slaves ("turn the other cheek").
 
-Christianity was created in phases, the first phase as a synthesis of the Serapis Cult rebranded to serve one of the later Roman (Bosphoran) imperial cults, then reworked by the Flavians. Jesus in the bible was not a person but an avatar, a recurring administrative and priestly title for the ruling 'Anointed One' (Christ/Soter) within the Bosphoran royal family, much like 'Pharaoh' or 'Caesar'. People who assumed this role are:
+"Jesus Christ" was a rank, not a name. It was the title for the Satrap-Soter (Governor-Savior) of the Levant-Judea sector, a high-level administrative and priestly position within the Ptolemaic/Bosphoran imperial structure, often filled by a bloodline prince, much like 'Pharaoh' or 'Caesar'. Jesus Christ = I-Zeus ("divine Zeus") + Christ which was the title for the ruling Satrap of Judea who was a member of the Bosporan royal house (equivalent to Scythian Xšaθra, Persian "Kšatrapati" (Satrap, Governor), Hyksos "Khasut" in Egypt, Kshatriya (Warrior-King) in Sanskrit (which also = Vedic "Krishna" (the dark god of Hinduism. Krishna is an avatar of Vishnu, and his name means "dark" or "black")), etc.
+
+People who assumed this role are:
 
 Julius Caesar aka Asander, King of Bosphorus aka Mithridates Chrestus\
+Amyntas Nikator aka Amyntas, King of Galatia\
 Alexander (son of King Herod) aka Alexander Helios aka Juba II\
 Alexander (grandson of King Herod) aka Ptolemy of Mauretania aka Monobazus I\
-Amyntas Nikator aka Amyntas, King of Galatia\
 Izates II, King of Adiabene\
 Tiberius Julius Sauromates II
-
-This book traces Christianity back to its foundations — from the mythemes of Scythian snake-worshiping cults, to the Alexandrian School in Egypt and the Sarapis cult, to the Roman (Bosphoran) imperial cult — and then finishes with the subversion of the Bosphoran cult.
 
 A few things you need to know before you read my book:
 
@@ -97,9 +97,10 @@ who loves her father", or simply "father-loving". She was also married
 to two of her brothers and her uncle as listed previously. This is how
 incestuous this family was.
 
-This book directly challenges mainstream historiography. My methodologies are:
-numismatic and onomastic evidence, and historical correlation and timeline analysis. The sources
-that inspired my work are listed in the 'Bibliography' section at the
+This book traces Christianity back to its foundations — from the mythemes of Scythian snake-worshiping cults, to the Alexandrian School in Egypt and the Sarapis cult, to the Roman (Bosphoran) imperial cult — and then finishes with the subversion of the Bosphoran cult.
+
+In contrast to conventional narratives, this work directly challenges mainstream historiography. My methodologies are:
+numismatic and onomastic evidence, and historical correlation and timeline analysis. The sources that inspired my work are listed in the 'Bibliography' section at the
 end of the book.
 
 **1 The Imperial Avatar System: Numismatic Proof and Aliases**
