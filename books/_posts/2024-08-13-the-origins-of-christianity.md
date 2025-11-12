@@ -75,10 +75,10 @@ Common in all these Alexandrian School religions were centralized texts and prie
 People who assumed this role are:
 
 Julius Caesar aka Asander, King of Bosphorus aka Mithridates Chrestus\
-Amyntas Nikator aka Amyntas, King of Galatia\
+Amyntas Nikator aka Amyntas, King of Galatia (Jesus ben Fabus [[link](https://ranajitpal-jesus-from-asia-minor.blogspot.com/2011/06/jesus-christ-was-amyntas-of-galatia_20.html)])\
 Alexander (son of King Herod) aka Alexander Helios aka Juba II\
 Alexander (grandson of King Herod) aka Ptolemy of Mauretania aka Monobazus I\
-Izates II, King of Adiabene\
+Izates II, King of Adiabene (Jesus ben Gamala/Gamaliel [[link](https://web.archive.org/web/20240728150536/https://x.com/ralfellis/status/1809520320077803525)])\
 Tiberius Julius Sauromates II
 
 A few things you need to know before you read my book:
