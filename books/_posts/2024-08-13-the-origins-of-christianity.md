@@ -78,7 +78,7 @@ People who assumed this role are:
 -   Amyntas Nikator aka Amyntas, King of Galatia (who was Jesus ben Fabus. See:
     Jesus Christ Was Amyntas of Galatia (2010) by Ranajit Pal
     [[link](https://ranajitpal-jesus-from-asia-minor.blogspot.com/2011/06/jesus-christ-was-amyntas-of-galatia_20.html)])
--   Alexander (son of King Herod) aka Alexander Helios aka Juba II (who was Jesus ben Panthera? "Panthera" is a Hellenized corruption of "Ptolemaios" (Ptolem -> Ptol -> Panther). "Jesus son of Ptolemy")
+-   Alexander (son of King Herod) aka Alexander Helios aka Juba II (who was Jesus ben Panthera? "Panthera" is a Hellenized corruption of "Ptolemaios" (Ptolem -> Ptol -> Panther). "Jesus, son of Ptolemy". The Talmud (Bereshit Rabbah 46:10) calls Izates and Monobazus the "Sons of Ptolemy")
 -   Alexander (grandson of King Herod) aka Ptolemy of Mauretania aka Monobazus I (who was Jesus ben Sapphias?)
 -   Izates II, King of Adiabene (who was Jesus ben Gamala/Gamaliel. Izates is the Aramaic/Iranian form of Iesous. His name is "Jesus, King of Adiabene". See: Cleopatra to Christ (2010) by Ralph Ellis
 [[link](https://web.archive.org/web/20240728150536/https://x.com/ralfellis/status/1809520320077803525)])
