@@ -44,9 +44,10 @@ Part 4: The Bosphoran Connection\
 5.2.1. Ptolemy XII Auletes aka Mark Antony aka Mithridates VI Eupator\
 5.2.2. Amyntas Nikator aka Amyntas, King of Galatia\
 5.2.2.1 Was Amyntas Nikator aka Amyntas, King of Galatia the Living Esus?\
-5.2.3. Aliases and Avatars of the Bloodline\
-5.2.4. Izates II, King of Adiabene\
-5.2.5. Tiberius Julius Sauromates II\
+5.2.3. Alexander, son of King Herod aka Alexander Helios aka Juba II\
+5.2.4. Aliases and Avatars of the Bloodline\
+5.2.5. Izates II, King of Adiabene\
+5.2.6. Tiberius Julius Sauromates II\
 Part 5: From Imperial Cult to Christianity\
 6\. Flavian Dynasty\
 Part 6: Rewriting History\
@@ -718,12 +719,10 @@ Like Serapis (Osiris+Apis), Esus represents a deliberate syncretism—in this ca
 
 The "Esumopas Cnusticus" inscription proves this was a state-sponsored imperial cult, not organic Celtic religion. The original Esus was a warrior. The new, syncretic "Esus Christos" was a god who was crucified on a T-shaped tree (a clear parallel to the Tau cross). The message to the fierce Galatian Celts was: "Your god is not a warrior, but a sacrificial victim. True strength is in submission, sacrifice, obedience, and turning the other cheek".
 
-**5.2.3. Aliases and Avatars of the Bloodline**
+**5.2.3. Alexander, son of King Herod aka Alexander Helios aka Juba II**
 
-Cleopatra aka Dynamis's son with Mark Antony [^11] (aka Ptolemy of
-Cyprus, a brother of Ptolemy XII Auletes (Cleopatra's father) making him
-Cleopatra's uncle aka Polemon Pythodoros, King of Pontus, prince of Pontus aka King Herod aka Tiberius
-Claudius Nero aka Phraates IV of Parthia) = Alexander Helios aka
+Cleopatra aka Dynamis's son with her father Mark Antony [^11] (aka Ptolemy XII Auletes aka Polemon Pythodoros, King of Pontus, prince of Pontus aka King Herod aka Tiberius
+Claudius Nero aka Phraates IV of Parthia) was Alexander Helios aka
 Alexander (son of King Herod) aka Juba II who was married to his twin
 sister Cleopatra Selene II aka Queen Thea Muse Ourania. Juba II of
 Mauritania's full name was Gaius Iulius Iuba, prenomen and nomen after
@@ -733,6 +732,23 @@ tribe, which is the 'Messiah' lineage from David's firstborn son with
 Saul's daughter Michal (one way to prove that Mark Antony was also King
 Herod is through the equivalence of Alexander Helios aka Alexander (son
 of King Herod) aka Juba II).
+
+Alexander Helios's father was  Mark Antony who officially was declared Neos Dionysus (the "New Dionysus"), a dying-and-reviving god. His mother, Cleopatra VII, was the New Isis, the mother goddess. Therefore, Alexander Helios was, in the state religion of the Ptolemaic-Roman East, the literal divine son of a god and a goddess. This is the precise theological template for the Christian "Son of God".
+
+He was the brother of Amyntas Nikator aka Amyntas, King of Galatia.
+
+Alexander, son of King Herod, was allegedly killed by his father Herod, but Josephus
+even has a story about a 'spurious Alexander' that showed up in Rome
+claiming to be the son of Herod who faked his death, so he was
+'resurrected' as Juba II, king of Numidia and Mauretania. 
+
+Juba II was also married to Cleopatra Selene II, the twin sister-wife of Alexander Helios. 
+
+I identify Cleopatra's brother-husband Ptolemy XIII Theos Philopator as Gaius Octavius (Emperor Augustus) (aka Polemon I of Pontus. Gaius Julius Sohaemus of Emesa. Rhoemetalces I, king of Bosphorus). Rhoemetalces Philocaesar of Pontus was the son of Marcus Antonius Polemon Pythodoros was married to Pythodoris I (Cleopatra). Polemon I of Pontus was married to Dynamis (Cleopatra). Cleopatra was married to her brother Ptolemy XIII Theos Philopator who was born at the same time as Augustus. He was her brother husband. Asander was also married to Pythodoris I and Dynamis proving these were Cleopatra's aliases. So, was Alexander, son of King Herod aka Alexander Helios aka Juba II also emperor Augustus?
+
+Was he also Jesus ben Panthera? "Panthera" is a Hellenized corruption of "Ptolemaios" (Ptolem -> Ptol -> Panther). "Jesus, son of Ptolemy". The Talmud (Bereshit Rabbah 46:10) calls Izates and Monobazus the "Sons of Ptolemy".
+
+**5.2.4. Aliases and Avatars of the Bloodline**
 
 Cleopatra aka Dynamis's son with Mark Antony = Ptolemy Philadelphus who
 was Sampsiceramus I?
@@ -779,7 +795,7 @@ Mauretania aka Cleopatra IX aka Pythodorida Philometor aka Helene aka
 Drusilla of Mauretania aka Julia Ourania of Parthia aka Alexandra bat
 Mattathias aka 'Philo of Alexandria'.
 
-**5.2.4. Izates II, King of Adiabene**
+**5.2.5. Izates II, King of Adiabene**
 
 Alexander (grandson of King Herod) and his sister-wife Cleopatra (Thea
 Philopator) of Mauretania had two sons: Tiberius Julius Alexander aka
@@ -812,7 +828,7 @@ and Sultan Ezid in the Yazadi ('Iza'di) religion. He was the uncle of
 Tiberius Julius Sauromates II, King of Bosphorus. The middle image
 source: The Alexander Mosaic, Huqoq, Israel.
 
-**5.2.5. Tiberius Julius Sauromates II**
+**5.2.6. Tiberius Julius Sauromates II**
 
 ![Fig.1.29](/images/SauromatesII.jpg){:width="400px"}
 
