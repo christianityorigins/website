@@ -735,14 +735,14 @@ of King Herod) aka Juba II).
 
 Alexander Helios's father was  Mark Antony who officially was declared Neos Dionysus (the "New Dionysus"), a dying-and-reviving god. His mother, Cleopatra VII, was the New Isis, the mother goddess. Therefore, Alexander Helios was, in the state religion of the Ptolemaic-Roman East, the literal divine son of a god and a goddess. This is the precise theological template for the Christian "Son of God".
 
+Alexander, son of King Herod and Juba II were married to Glaphyra of Cappadocia. Alexander Helios was married to his twin sister Cleopatra Selene II, Queen of Mauretania, who was also married to Juba II.
+
 Alexander, son of King Herod, was allegedly killed by his father Herod, but Josephus
 even has a story about a 'spurious Alexander' that showed up in Rome
 claiming to be the son of Herod who faked his death, so he was
 'resurrected' as Juba II, king of Numidia and Mauretania. 
 
-Juba II was also married to Cleopatra Selene II, the twin sister-wife of Alexander Helios. 
-
-I identify Cleopatra's brother-husband Ptolemy XIII Theos Philopator as Gaius Octavius (Emperor Augustus) (aka Polemon I of Pontus. Gaius Julius Sohaemus of Emesa. Rhoemetalces I, king of Bosphorus). Rhoemetalces Philocaesar of Pontus was the son of Marcus Antonius Polemon Pythodoros who was married to Pythodoris I (Cleopatra). Polemon I of Pontus was married to Dynamis (Cleopatra). Cleopatra was married to her brother Ptolemy XIII Theos Philopator who was born at the same time as Augustus. He was her brother husband. Asander was also married to Pythodoris I and Dynamis proving these were Cleopatra's aliases. So, was Alexander, son of King Herod aka Alexander Helios aka Juba II also emperor Augustus? If not, he was his brother, as well as, Amyntas Nikator aka Amyntas, King of Galatia's brother.
+I identify Cleopatra's brother-husband Ptolemy XIII Theos Philopator as Gaius Octavius (Emperor Augustus) (aka Polemon I of Pontus. Gaius Julius Sohaemus of Emesa. Rhoemetalces I, king of Bosphorus). Rhoemetalces Philocaesar of Pontus was the son of Marcus Antonius Polemon Pythodoros who was married to Pythodoris I (Cleopatra). Polemon I of Pontus was married to Dynamis (Cleopatra). Cleopatra was married to her brother Ptolemy XIII Theos Philopator who was born at the same time as Augustus. He was her brother husband. Asander was also married to Pythodoris I and Dynamis proving these were Cleopatra's aliases. So, was Alexander, son of King Herod aka Alexander Helios aka Juba II also emperor Augustus? If not, he was his brother, as well as, the brother of Amyntas Nikator aka Amyntas, King of Galatia.
 
 Was he also Jesus ben Panthera? "Panthera" is a Hellenized corruption of "Ptolemaios" (Ptolem -> Ptol -> Panther). "Jesus, son of Ptolemy". The Talmud (Bereshit Rabbah 46:10) calls Izates and Monobazus the "Sons of Ptolemy".
 
