@@ -1,12 +1,12 @@
 ---
 layout: default
 open_links_in_new_tab: true
-title: "On the Origins of Christianity: Aži Dahāka as the Proto-Christ"
+title: "On the Origins of Christianity: The Scythian Dracaena as the Proto-Christ"
 date: 2024-08-13
 category: books
 ---
 
-# On the Origins of Christianity: Aži Dahāka as the Proto-Christ 
+# On the Origins of Christianity: The Scythian Dracaena as the Proto-Christ 
 
 **By Ralph Perrier**  
 
@@ -53,12 +53,18 @@ Part 4: The Bosphoran Connection\
 Part 5: From Imperial Cult to Christianity\
 6\. Flavian Dynasty\
 Part 6: Rewriting History\
-7\. Who Forged History?\
+7. Inventing History\
+7.1 Inventing Classical Greece\
+7.2 The 'Achaemenid' Empire is the Parthian Empire\
+7.3 Fabricating 'Ancient' Egypt\
+7.4 China\
+7.5 India\
+8\. Who Forged History?\
 Part 7. Sects of the Imperial Cult\
-8\. Sects of the Imperial Cult\
-8.1. The Cult of Antinous\
-8.2. Subversion of the Imperial Cult by Rabbi Akiva and His Students\
-8.3. Islam\
+9\. Sects of the Imperial Cult\
+9.1. The Cult of Antinous\
+9.2. Subversion of the Imperial Cult by Rabbi Akiva and His Students\
+9.3. Islam\
 Conclusion\
 Appendix A: Scythians in India\
 Appendix B: Scythians in China\
@@ -532,7 +538,7 @@ Fig. 1.16. Coin depicting Bogud, king of Mauretania (a territory that encompasse
 
 **5.2 Cleopatra VII aka Dynamis Ourania aka Pythodorida Philometor**
 
-Cleopatra VII was the archtype, not the avatar, for the "Jesus" figure. She was the living Soteira (feminine Soter), Thea (Goddess), and "Queen of Kings".
+Cleopatra VII was the archtype, not the avatar, for the "Jesus" figure. She was the living Soteira (feminine Soter), Thea (Goddess), and "Queen of Kings". She was the descendant of the Scythian Dracaena, or the snake-legged goddess who was the mother of the Scythians in mythology.
 
 ![Fig.1.17](/images/Cleopatra%20VIIDynamis.png){:width="400px"}
 
@@ -966,207 +972,64 @@ Endnotes (Chapter 6)
 (b) Coin of Vespasian depicitng "Zeus-Sarapis":
     https://www.coinarchives.com/a/lotviewer.php?LotID=2528933&AucID=6356&Lot=485&Val=e5e4db7aa704d656893926a33a970991 \
 
-**7: Who Forged History?**
+**7. Inventing History**
 
-The primary architects were the Flavian dynasty (Vespasian, Titus, Domitian) and their court historians (Josephus, Pliny, Tacitus). They began the process of creating a "Roman" history to legitimize their new dynasty and obscure their Bosphoran/Herodian origins.
+Mainstream history presents a linear progression: Egypt -> Greece -> Rome. This is a complete fabrication. The "ancient" civilizations of Egypt, Greece, and Persia were largely concurrent satrapies of the Scythian core. 
 
-According to the book 'Jesus, King of Edessa' (2012) by Ralph  Ellis [[link](https://web.archive.org/web/20240728150536/https://x.com/ralfellis/status/1809520320077803525)] Jesus ben Gamala/Gamaliel who led the First Jewish–Roman War (66-70 AD) against Rome was also Jesus ben Sapphias and Izas Ma'nu (Jesus Emmanuel) Monobazus of Adiabene aka Yeshua Cleopatros (Cantheras/Panthera) ben Josephus bar Menneus aka Ptolemy aka Yakov Zu Tolomoy. King Izates of Monobazus was a descendant of the dragon bloodline and was married to the sister of Dynamis's mother. Tiberius Julius Sauromates II could have also been Simon bar Kokhba (Bar Kokhba means "Son of the Star" which directly links to the "Star and Crescent" symbolism on the coins of Asander/Julius Caesar and Dynamis/Cleopatra) who led the Bar Kokhba revolt (132-136 AD) against Rome. 
+**7.1 Inventing Classical Greece**
 
-What seems plausable is that the "Aryan hegemony" of the ancient world was not a monolith, but a network of interrelated clans (Saka, Sarmatian, Cimmerian, Parthian, etc.) who often fought for supremacy within the hegemony. For example, the "Persian" conquest by Cyrus was not a new empire but a coup d'état by one Scythian clan (the Achaemenids/Persians) against the ruling Scythian clan (the Medes). The "Greco-Persian Wars" were a civil war between the Western satrapy (Greece) and the Eastern core (Achaemenid Persia). So in the "Jewish-Roman" Wars (who were Celtic Iudii, unrelated to modern "jews") the Flavians did not put down a provincial revolt. They launched a blitzkrieg against the core Eastern administration, and this destroyed the Scythian steppe hegemony. The Flavians then rewrote history immediately after this.
+Not only is Western Rome a phantom empire, so was the "Classical Greece" of Pericles, Plato, and Aristotle. It is a literary and philosophical back-projection, created by the Flavians and later Renaissance humanists. Its purpose was to provide a "noble pedigree" for the Western Roman Empire, separating it from its "barbaric" Scythian roots. The works of Plato and Aristotle are not the products of a 5th-4th century BC Athenian democracy. They are the synthesized theological and political philosophy of the Alexandrian/Bosphoran intellectual elite, likely compiled between the 1st century BC and 2nd century AD at the Alexandrian School in Egypt, and then retroactively attributed to fictional "Greek" sages.
 
-Roman emperor faces no longer appear on Bosphoran coins after emperor Titus. Roman emperors also stopped looking "Aryan"/Nordic after the Flavian empire.
+**7.2 The 'Achaemenid' Empire is the Parthian Empire**
 
-The Flavians were either Italic Shabbos Goyim or mixed with proto-Jews in the modern sense. You can connect the title Flavius to Phlabios and then to Shabbos. So then from Constantine to Heraklios, for 500 years, nearly every single Emperor bore the Flavius (Shabbos) title. By my count, 37 Roman and Byzantine emperors all bore the honorary title "Flavius" ("Shabbos"), and then later, "Phlabios": https://en.wikipedia.org/wiki/Special:MobileDiff/1062698821
+In Persia, the "Achaemenid Empire" is a phantom, a Flavian-era literary creation designed to provide a grandiose, conquered enemy for "Alexander the Great", and push the "center" of ancient power further east, away from the Bosphoran core. There are no coins issued in the name of "Cyrus the Great", "Darius I", or "Xerxes". The entire empire, supposedly the largest in the world, allegedly functioned for centuries without a coinage system. The coins we attribute to them are misdated Greco-Bactrian and Parthian issues.
 
-The Vatican also played a big role in the deception. They made up the "Council of Nicaea". It never happened. There is no contemporary records that exist of the Council of Nicaea (325 AD). The Council of Nicaea mirrors the Mithraic Congress of 307 AD where Emperor Galerius declared Sol Invictus the official god of Rome. Constantine’s "conversion" was fabricated. He remained a Sol Invictus sun-worshipper until death—his coins never feature Christian symbols. His last coin (337 AD) depicts him as Sol Comitatus ("Sun Companion"), not Christ. The "Chi-Rho" symbol was a later interpolation by Eusebius, who forged Life of Constantine in the 5th century. The "Arian Controversy" was a fake debate to disguise the fact that early Christianity was a Roman imperial cult. Proof: The "Life of Constantine" by Eusebius was forged in the 5th century to retroactively justify Nicaea, and the Edict of Milan (313 AD) never mentions Jesus—only a vague "Divine Providence". Also, the Vatican's greatest forgery was the Donation of Constantine. The Vatican forged it in the 8th century to claim Rome. It was based on earlier forgeries by Eusebius (a Flavian propagandist).
+The "Achaemenid" Empire perfectly mirrors the Arsacid Parthian empire if you factor in "phantom time".
 
-The Vatican had a motive for erasing the Eastern origins of Rome because of their conflicts with the Eastern Byzantine Church, which eventually fell to Islam.
+Cyrus the Great (c. 550 BC) = Mithridates I of Parthia (c. 171 BC) - Founder of the Parthian Empire	Both are "Great Kings" who establish a vast Persian empire from a minor satrapy.
 
-Two other men are responsible for most of what we know about the rest of European history from the Middle Ages and before: Poggio Bracciolini who held the position of Apostolic Secretary to the Pope which gave him access to the Vatican Library and is who is the onne creditied with "rediscovering" most ancient manuscricts from antiquity. He was also working for the wealthy Italian aristocrat Cosimo de Medici (look up the similarities between Plato and Gemistus Plethon whose patron was also Cosimo de Medici), and then Joseph Justus Scaliger.
+Darius I (c. 522 BC) = Mithridates II of Parthia (c. 124 BC) - Consolidated the empire and organized it.	Both are master administrators who create the classic "Persian" imperial structure.
 
-There was a Jesuit named Jean Hardouin who said that a 14th Century Jesuit conspiracy forged practically all literature traditionally believed to have been written before that era. He was the official librarian to the King of France. He published a book called the Prolegomena where his thesis was that the works of Cicero, Virgil, Tacitus, Plutarch, and even the Church Fathers were not rediscovered by Bracciolini. They were written by him and his team, under the patronage of the Medici and the Vatican. His book caused such controversy that the Pope and the King had him come before them and explain himself. He defended his work, and refused to retract it, so they threw him in prison.
+Xerxes I (c. 486 BC) = Salamis	Orodes II of Parthia (c. 57 BC) - His general Surena annihilates the Roman army at Carrhae.	Both launch massive, failed invasions of "the West" (Greece/Rome). The "Persian Wars" are the Mithridatic Wars.
 
-Isaac Newton wrote a book called "The Chronology Of Ancient Kingdoms Amended" where he analysed the eclipses recorded in ancient times and showed that 753 years (the exact number of years between the founding of Rome, or specifically the birth of the Roman deity Romulus and the birth of Jesus), was added in to the first "millennium". This would line up with the gaps of time found across European and world history, oddities like the invention of paper taking 700 years to travel across the Silk Road, or the 1st century Mexican deity Quetzalcoatl being temporarily forgotten til the 8th century.
+**7.3 Fabricating 'Ancient' Egypt**
 
-**8 Sects of the Imperial Cult**
+In Egypt the "5000-year" history of Egypt is a Flavian-era fabrication to provide a deep, mystical past for the Serapis cult.
 
-**8.1 The Cult of Antinous**
+The "Pharaohs" of the Old and Middle Kingdoms are fictional proto-avatars, backdated to create a lineage for the living god-kings like the Ptolemies and Caesars.
 
-Two years before the Bar Kokhba Revolt (132--136 CE) emperor Hadrian created a
-religion to deify his underage gay lover as the son of god
-(Osiris-Antinous) called 'The Cult of Antinous'. The name "Antinous" is an obvious indication of descent from the Antonii line and that he was a descendant of Mark Antony himself, not a random adoption by Hadrian. The use of "-ninus" is really the Greek "nini", which is "baby" or infant (i.e., "baby Jesus"). Historian Cassius
-Dio claims that Antinous was offered as a human sacrifice to Hadrian (Cassius Dio Cocceianus, Historiae Romanae, book 69, chapter 11) and later was "resurrected". Antinous was likely Emperor Titus Aelius Hadrianus Antoninus Pius, who was adopted by Hadrian and was his successor, and the cult of Antinous was his imperial cult. One of the scribes for The Cult of Antinous was Aquila of Sinope aka
-Onkelos who was a kinsman of the Roman emperor Hadrian. The midrash
-(Tanhuma. 41a, Mishpatim 3) claims that Onkelos was a nephew of Hadrian
-and other jewish sources list him as a nephew of emperor Titus (Tractate Gittin (56b)). Emperor
-Hadrian also employed Aquilla of Sinope to rebuild Jerusalem as Aelia
-Capitolina after the Bar Kokhba revolt (the city was named after Hadrian's family name (Aelia) and the Roman god Jupiter (Capitolina)). In Acts 18:2-3 and Romans 16:3 NASB, it is claimed
-that Aquila of Sinope and his wife Prisca or Priscilla lived with Paul
-the Apostle and Paul called them "my fellow workers in Christ Jesus"
+**7.4 China**
 
-![Fig.1.31](/images/Antinous.jpg){:width="400px"}
+The Scythains ruled a Eurasian empire that stretched into China. 
 
-Fig. 1.31. Steel relief that shows Antinous holding the grapes of Dionysus in one-hand and a cross in the other.
+Azhi = Asia (Azhi-A) = "land of the mighty dragon" (Aži is cognate with the Chinese Zhī (dragon)), a very similar name as Rome (Rhu-Ma) = "Place of the Dragon", Romania (Rhu-Ma + Na) = "dragon land", and Sarmatia (serpent) + ma (mother, land). The Chinese dragon, a symbol of imperial power, is a direct descendant of the Scythian Draco standard, carried by Sarmatian cavalry and adopted by the Han dynasty.
 
-**8.2 Subversion of the Imperial Cult by Rabbi Akiva and His Students**
+The Tarim basin mummies are Tocharians, and the Kizilgaha cave portraits deprict redheaded “Chinese” people. Genetic studies show that indegenous people of Linzi in south east China were genetically more similar to Europeans than modern Chinese (https://eurogenes.blogspot.com/2017/07/north-european-admixture-in-han-chinese.html). Tang dynasty mural in tomb unearthed in China portrays a ‘Westerner’ man with blond hair (https://www.livescience.com/archaeology/stunning-tang-dynasty-mural-in-tomb-unearthed-in-china-may-portray-a-westerner-man-with-blond-hair).
 
-Aquila of Sinope aka Onkelos was a student of a rabbi named Akiva who led the Talmudic Pharisees
-and is responsible for large parts of the Talmud, Sefer Yetzirah (book
-of creation), the Mishna and the Midrash Halakha, and modern judaism,
-and who was a student of Gamaliel (Paul the Apostle claimed that he was
-brought up in Jerusalem "at the feet of Gamaliel" (Acts 22:3)), and who
-was the one that came up with the idea that "Rome was Edom". It was likely after the Bar Kokhba Revolt when he realized
-that subversion was the only way to defeat the Romans. So, likely at the Council of Jamnia https://en.wikipedia.org/wiki/Council_of_Jamnia, rabbi Akiva
-and his students Aquila of Sinope aka Onkelos (his connection to the Roman elite), Markianos of Alexandria
-aka Marcion (Greek Markion) of Sinope, Shimon bar Yohai aka Simon Peter
-(Shimon bar Yonah) (Simon's mythology was stolen from the Roman deity
-Janus who was the keeper of keys/gatekeeper role. Eusebius reported that
-Philo had met Simon Peter in Rome), Ketia bar Shalom aka 'Clement of
-Rome' (hebrew Ketia is the same as Latin Clement), Aristo of Pella who
-is a good candidate for being Luke the Evangelist ('Aristo', or
-'Ariston' is a name that is related to 'Proteus' The former means
-'first-rank, noble' the second derives from 'first'. So, was he also
-Peregrinus Proteus? Also, Mark or Mahalia, sixteenth bishop of Jerusalem
-was the secretary of Aristo and Marcion is known to have had a disciple
-named Lucanus as documented by Tertullian, so Mark, or Mahalia, first
-Gentile bishop of Jerusalem was also Markianos of Alexandria aka Marcion
-of Sinope?), Rabbi Yehuda aka Jude the Apostle (Yehuda is the Hebrew
-equivalent of Greek Jude), and Rabbi Meir aka Polycarp aka Bishop
-ignatius (the name "Meir" means "one who illuminates". Ignatius means
-firey one and Polycarp was famous for lighting himself on fire), added a
-slave-morality suicide cult to the imperial cult.
+Alexander the Great = Qin Shi Huang (China’s First Emperor). Both “died” mysteriously at 33 (Alexander in 323 BC; Qin Shi Huang in 210 BC). Alakshandra (Sanskrit) → Qin Shi Huang (Chinese): The “-shandra” morpheme appears in “Shi Huang,” meaning "First Guardian". Qin was founded by Alexander, it starts right exactly around the Greco-Bactrian city states era in Central Asia, it was started by people coming from the West right exactly bordering Central Asia during Greco-Bactrian rule, DA-QIN meaning BIG OR GREATER QIN as a word name term was used to refer to the Roman empire during the "Han dynasty" that came after Qin dynasty which means the QIN people had to have been Greco-Bactrian Seleucids since they equated with Roman type people and they came from the farthest West direction. 
+Qin’s terracotta army has Caucasian features and Hellenistic armor. The character "Qin" (秦) is written with the radicals for "grain" and "man," but its Old Chinese pronunciation was Dzin. This is a direct phonetic match for the Latin Ianus (Janus) and the Sanskrit Yavana (Ionian Greek). The Qin were the Yavanas—the Greeks—from the West. Their sudden rise, standardization of weights/measures, and great wall-building are all hallmarks of an Alexandrian-style conquest state. Greek style coins and statues have been found from this time period, and the terracotta army was built by Greeks from Central Asia [^19], to this day the Chinese currency which came about formally during Qin dynasty era is called a YUAN which is another name for YON-IONIAN Greeks etc.
 
-Many of rabbi Akiva's students and contemporaries had connections to the
-Alexandrian School in Egypt and were themselves students of Philo of
-Alexandria.
+Julius Caesar aka Asander, king of Bosphorus was Prince Jin Midi in China. Jin (金) means "Gold," a royal Scythian attribute. Mi (日) is "Sun." Di (磾) is a rare character meaning "black," but also a homophone for "Emperor" (帝). His story: A noble "barbarian" prince from the West (Xiongnu confederation, which included Saka/Scythians) is captured and rises to become the most powerful man in China, serving as regent to a child emperor. This is the exact same narrative archetype as a foreigner (Caesar) rising to power in Rome.
 
-Rabbi Akiva was likely Paul the Apostle. In Acts 22:3 "Paul" claims to
-have been educated at the feet of Gamaliel who was the teacher of rabbi
-Akiva, and in Acts 18:2-3 and Romans 16:3 NASB, it is claimed that
-Aquila of Sinope and his wife Prisca or Priscilla lived with Paul the
-Apostle and Paul called them "my fellow workers in Christ Jesus.
-Paul's/Saul's fictional life story was stolen from the ancient Egyptian
-story"Tale of the Shipwrecked Sailor".
+Emperor Tiberius aka Tiberius Julius Aspurgus I, king of Bosphorus was the Chinese emperor Yu the Great. He was also Kadphises, prince of the Kushan Empire. Kujula Kadphises unifies the Yuezhi tribes and establishes the Kushan Empire right after the "death" of Julius Caesar/Asander. The "Yuezhi" are the "Iudii"/"Jove" tribe—the same Scythian-Celtic priestly class. "Yazhi" (亞茲)) = Julius, from Ioulius, related to Iove (Jove). Iove is linguistically linked to the Scythian tribal name Yuehzi (Yuezhi). He is "The Jove/Yuezhi King".
 
-Quintus Tinnius Rufus (Turnus Rufus the Evil) was Pontius Pilate, the
-Roman governor of Judaea who crucified Simon bar Kokhba and killed rabbi
-Akiva. Rabbi Akiva preached that Simon bar Kokhba was the jewish
-messiah.
+![Fig.1.32](/images/KadphisesTiberius.jpg){:width="400px"}
 
-Zeus became Baal-Zebub in the bible: Zeus Belos (Greek: Zeus Baal) ->
-Baal-Zebul -> Baal-Zebub ("Lord of the Flies") in 2 Kings 1:2-3.Jesus
-calls Satan "Beelzebul" (Matthew 12:24)---a deliberate mockery of
-Zeus-Baal. Scythian Sar (king) became Esau (Edom) the progenitor of the
-Edomites in the bible, a metaphor for the forces of oppression and
-injustice. Saka (Scythian tribe) is a near-perfect homophone for the name of Satan (adversary). The Jewish
-version of Antichrist (Armilus) is based on Romulus (Armilus is a Hebrew
-corruption or adaptation of the Latin name Romulus). Lucifer, or "lucem
-ferre", which means "light-bearer" or "morning star", is Venus who was
-the Roman goddess whose functions encompassed love, beauty, desire, sex,
-fertility, prosperity, and victory. In Roman mythology, she was the
-ancestor of the Roman people through her son, Aeneas. The Greco-Egyptian
-deity Serapis (the horned deity) became the image of Satan. Sin (also called Nanna or Suen) is a Mesopotamian god of the moon. He was worshiped as the lunar deity whose symbol was the crescent moon. Sin was considered the son of the sky god Enlil and the grain goddess Ninlil, and the father of the sun god Shamash (Sumerian Utu) as well as the goddess Ishtar (Inanna). Together, Sin, Shamash, and Ishtar formed an important astral triad in Mesopotamian religion. In Norse
-mythology Iðunn/Idun (equivalent to Greek Hebe, and Celtic Brigid), is
-the goddess of youth, her name means "giver of eternal youth". The other
-gods get golden apples from her. She stores them in a basket and they
-keep the gods young until the end of the world. Idun became Eve in the
-bible the archetypal sinner whose actions brought death into the world
-(Romans 5:12). Inanna (equivalent to Freyja (Norse mythology), Aphrodite
-(Greek mythology), Venus (Roman mythology), and Morrigan (Celtic
-mythology)), the ancient goddess of war, love, and fertility, became the
-Whore of Babylon (Friday the 13th was the day to honor Freyja). Artemis,
-the goddess of the wilderness, wild animals, nature, vegetation,
-childbirth, care of children, and chastity, became recast as a witch
-(19:24). (The demonization of Venus (lucifer), Idun/Hebe/Brigid,
-Inanna/Freyja/Aphrodite/Venus, Artemis, and other female Pagan deities,
-was designed to instil a strong hatred of women among European men). The
-Mark of the Beast (666) refers to emperor Nero (take Nero's name and
-title in Greek (Nero Caesar), and transliterate it into Hebrew and then
-take the numerical value). Also, the jews' hated enemy in the bible are
-the Celts (Gog or Goy). Flavius Josephus in the 'Antiquities of the
-Jews'. Book I. Chapter 1: "For Gomer founded those whom the Greeks now
-call Galatians [Galls], but were then called Gomerites. Magog founded
-those that from him were named Magogites; but who are by the Greeks
-called Scythians". Josephus is suggesting that the Hebrew word "Goy"
-(meaning "nation" or "people") is related to the Greek word "Galatae"
-(meaning "Gauls" or "Galatians"), In biblical prophecy, Gog is described
-as a leader from the land of Magog in the north, who will gather a
-coalition of nations to attack Israel, but will be defeated by God in a
-great battle.
+Fig. 1.32. Tiberius Julius Aspurgus I, king of Bosphorus aka Emperor Tiberius Caesar Augustus was also Kujula Kadphises, prince of the Kushan Empire (a vast territory stretching from Central Asia into northern India). Kujula Kadphises unifies the Yuezhi tribes and establishes the Kushan Empire right after the "death" of Julius Caesar/Asander. This is not a successor state; it is the same ruler shifting his primary administrative center to Central Asia to manage the Silk Road. The "Yuezhi" are the "Iudii"/"Jove" tribe—the same Scythian-Celtic priestly class. This regional avatar also connects to the legendary Chinese emperor Yu the Great (original name "Aži" or "Yazhi" (亞茲))? Julius, from Ioulius, related to Iove (Jove).
 
-**8.3 Islam**
+China had no chronology until the Jesuits came to the Emperor’s court. Their oldest "ancient" records date from this period. Stone inscriptions and bronze engravings and a few bamboo slips survive from older times, but they were never arranged into a consistent chronology. If you read the Bellum Tartaricum, a pre-edit Jesuit source, it gives a very different chronology as well as info about the white Slav-like race known as the Tartarians, their rulers and their wars with China. The Jesuits essentially wrote early Chinese history for them. They "reconstructed" the Xia and Shang dynasties based on fragmentary records, arranging them to fit the Biblical timeline. Mateo Ricci invented Confucius and was the one who wrote the Art of War.
 
-Islam is a surviving (albeit subverted) sect of the original Bosphoran Imperial Cult.
+The modern "Han Chinese" are not infact "Han" or "Chinese" ("Chinese" is an identity fabricated and conjured up by Jesuits) but are infact Miao-Hmong people. The real Han = Yangshao R1a (90% steppe, 5000 BC), purged in An Lushan (Caucasoid genocide). Genetic studies show the Yangshao culture (5000 BC) had 90% European DNA (Haplogroup R1a). The modern Han are Miao who migrated from Vietnam after the Mongol invasions.
 
-The name of the "Quraysh" tribe of Mecca derives from Quresh (Cyrus) and "Ta-Rex" (Royal One). They were a Scythian-Arabian noble clan.
+The An Lushan rebellion was an ethnic war, mongoloids vs caucasoids which resulted the slaughter of millions of caucasians [^20]. The Xianbei were mongoloids and helped rape and sexually enslave Indo Europeans in China in the An Lushan rebellion. Goguryeo Korean general Gao Juren in the Tang dynasty committed genocide and rape against An Lushan’s community after defeating An Lushan at his headquarters in Fanyang (Beijing).
 
-King Izates of Monobazus's (Isa in the Quran) son was named Zamaris (Zamaris the Babylonian jew) and Zamaris has the same meaning as Muhammad.
+Similarly, Ran Min slaughtered and committed genocide on the entire Caucasian Jie people who were native to Chin, and the Manchus had the Central Asian Indo-European children castrated. 
 
-In the book 'Hagarism: The Making of the Islamic World' (1977) by Patricia Crone and Michael Cook they trace the origins of Islam to 'The Secrets of Shimon bar Yochai' [^16] which is a record of the "divine visions" of the 2nd-century rabbi, Simon ben Yohai aka Simon Peter (Shimon bar Yonah) who was a student of rabbi Akiva, to his students. They theorize that Islam was started as a psy-op to weaponize the Arabs to attack the Byzantine empire (eastern Rome) to free judea. 
+Then Mao-tse Dong used artificial weaponized famines and outright direct purges to direct human wave attacks in the Korean war to mass kill off original Scythian Tartar Turanian stock authentic real “Chinese” populations which is continuing today with the genocide and ethnic cleansing of the Uighurs and Mongolians whom are far more genetically ancestrally connected and linked to the original real actual ancient “Chinese” rather than a vast majority of modern “Han Chinese” whom are actually Miao-Hmong or Miao-Tse or Hmong or Yao or other southern origin non-“Chinese” group pretending to be "Chinese".
 
-Shimon bar Yohai wrote that his "secrets" were revealed to him when he was hiding in a cave on account of the persecutions of Caesar king of Edom (Rome). His secrets were his blueprint for the destruction of Rome (Esau/Edom) and all western "gyrwn" (Aramic form of goyim) through using "Ishmael" (Arabs) and "four-arms" (Indians).
+**Ancient 7.5. India**
 
-According to his prophecy, after Ishmael weakens Edom (Rome) and then "dies a noble death", the jews would import millions of four-arms ("Chaturbhuja" in Sanskri means "four-armed" and many Hindu deities are depicted with four-arms, including Vishnu) to dilute the Roman population and finish the job.
-
-In Jerusalem Talmud Kiddushin, Rabbi Shimon bar Yochai stated: "Kill the best of Gentiles, smash the head of the best of snakes". He was the biggest proponent of the belief that Rome was Edom.
-
-Allah and Muhammad the red-headed warlord then became parodies of Attila the Hun [^17] and his uncle Ruglia waging war against Rome (Edom) because they wanted the Arabs to attack eastern Rome. 
-
-So, Talmudic jews who were hiding out in the Himyarite Kingdom after
-Emperor Hadrian kicked them out of judea, and who were students of Rabbi Akiva, basically just cut-and-pasted
-from one of the Bosphoran/Adiabene/Roman imperial cults of the time and created two sects: Christianity as a
-slave morality/proto-Bolshavism for the Romans and Islam as a warrior morality to weaponize the Arabs to attack Rome. It is impossible to get people to abandon their religions for a new one, so they created sects of one of the popular religions at the time and infused the trojan horse ideology into it.
-This conspiracy was so sophisticated that not only did they rewrite the
-imperial cult, but they rewrote history to align with their psy-op.
-Josephus's (Tiberius Julius Alexander aka Emperor Nerva) works were
-rewritten by Rabbi Akiva's students under the alias Hegesippus. The book
-'The Antiquities of the Jews' then became a pseudo-epigraphical work (of
-propaganda) that was backdated to make christianity look legitimate in
-the same way that the 'Letter of Aristeas' was backdated to exaggerate
-the age of the Septuagint. 
-
-Endnotes (Chapter 8)
-
-(a) Marcion of Sinope aka Markianos of Alexandria grew up in the
-    Attis-Sabazios cult on Anatolia before traveling to Judea to study
-    under rabbi Akiva and finally to Alexandria at the Alexandrian
-    School.\
-(b) There was a Marcus who founded the Marcosian Gnostic sect. He was a
-    teacher of Bishop Irenaeus and a friend of Clement of Alexandria.
-    Was he also Marcion of Sinope aka Markianos of Alexandria?
-    (https://en.wikipedia.org/wiki/Marcus_%28Marcosian%29). St. Jerome
-    in "Against Jovinian" describes Mark as a disciple of the Gnostic
-    teacher Basilides. Here is a list of "Marks" who were active around
-    the same time: Mark, the Evangelist, John Mark, Mark of Apollonias,
-    Markianos of Alexandria, Mahalia, Marcus of Jerusalem, Marcus
-    Pompeius, Marcus Annaeus Lucanus, Marcus the Magician, Marcion of
-    Sinope, Marcus the Marcosian. Mark of Apollonias, John Mark, Mark
-    the cousin of Barnabas, and Mark the Apostle are considered to be
-    the same person by historians, so it is conceivable that all these
-    "Marks" were the same person.\
-(c) In 41 A.D Emperor Claudius sent a letter of warning to the Jews in
-    Egypt (preserved in a papyrus now in the British Museum, R Lond.
-    1912), where he described them as "the fomenters of a universal
-    plague throughout the civilized world.". He eventually expelled them
-    from Rome:
-    https://en.wikipedia.org/wiki/Claudius'_expulsion_of_Jews_from_Rome
-    In the Acts of the Apostles (Acts 18:1-18) it explains how the
-    Apostle Paul met Priscilla and Aquila and mentions in passing an
-    expulsion of Jews from Rome. "Paul" was Rabbi Akiva and Aquila of
-    Sinope aka Onkelos was his student. So, it is possible that the
-    conspiracy even pre-dated the Bar kohiba revolt. Previous to this,
-    Valerius Maximus, in his work 'Facta ac dicta memorabilia', mentions
-    the expulsion of Jews from Rome in 139 BCE by the praetor peregrinus
-    Cn. Cornelius Hispalus for attempting to currupt the cult of
-    Jupiter.[^17]\
-(d) Quintus Tineius Sacerdos, the brother of Quintus Tinnius Rufus, was
-    the governor of Pontus in Anatolia, so the family likely derived
-    from there. Pilate means the temperament of a warrior I.e., famously
-    temperamental. That's where the name Pontius Pilate comes from.
-    *Pilate might also = "Pileatus" (Latin for "wearing a felt cap," a
-    Pontic priestly garb associated with Mithraism).
-
-**Scythians in India**
+The "Mauryan" Empire is a Flavian/Vatican fabrication. Chandragupta Maurya is Alexander the Great.
 
 Alexander was a Sarmatian dragon-king who was the son of Ateas the Scythian aka Artaxerxes
     II Memnon ("Kai Bahman") and half-brother of Darius III ("Darab").
@@ -1260,34 +1123,207 @@ Lost in history is that the greatest slave trade wasn't the Trans-Atlanic one, b
     Ethiopian slaves then mixed with indigenous Australoid/Denisovans
     who were similar to Australian Aborigines.Eventually they mixed with the indigenous Scythians (likely by force and genocide run by the Calami)\
 
-**Scythians in China**
+**8. Who Forged History?**
 
-The Scythains ruled a Eurasian empire that stretched into China. 
+The primary architects were the Flavian dynasty (Vespasian, Titus, Domitian) and their court historians (Josephus, Pliny, Tacitus). They began the process of creating a "Roman" history to legitimize their new dynasty and obscure their Bosphoran/Herodian origins.
 
-Azhi = Asia (Azhi-A) = "land of the mighty dragon" (Aži is cognate with the Chinese Zhī (dragon)), a very similar name as Rome (Rhu-Ma) = "Place of the Dragon", Romania (Rhu-Ma + Na) = "dragon land", and Sarmatia (serpent) + ma (mother, land). The Chinese dragon, a symbol of imperial power, is a direct descendant of the Scythian Draco standard, carried by Sarmatian cavalry and adopted by the Han dynasty.
+According to the book 'Jesus, King of Edessa' (2012) by Ralph  Ellis [[link](https://web.archive.org/web/20240728150536/https://x.com/ralfellis/status/1809520320077803525)] Jesus ben Gamala/Gamaliel who led the First Jewish–Roman War (66-70 AD) against Rome was also Jesus ben Sapphias and Izas Ma'nu (Jesus Emmanuel) Monobazus of Adiabene aka Yeshua Cleopatros (Cantheras/Panthera) ben Josephus bar Menneus aka Ptolemy aka Yakov Zu Tolomoy. King Izates of Monobazus was a descendant of the dragon bloodline and was married to the sister of Dynamis's mother. Tiberius Julius Sauromates II could have also been Simon bar Kokhba (Bar Kokhba means "Son of the Star" which directly links to the "Star and Crescent" symbolism on the coins of Asander/Julius Caesar and Dynamis/Cleopatra) who led the Bar Kokhba revolt (132-136 AD) against Rome. 
 
-The Tarim basin mummies are Tocharians, and the Kizilgaha cave portraits deprict redheaded “Chinese” people. Genetic studies show that indegenous people of Linzi in south east China were genetically more similar to Europeans than modern Chinese (https://eurogenes.blogspot.com/2017/07/north-european-admixture-in-han-chinese.html). Tang dynasty mural in tomb unearthed in China portrays a ‘Westerner’ man with blond hair (https://www.livescience.com/archaeology/stunning-tang-dynasty-mural-in-tomb-unearthed-in-china-may-portray-a-westerner-man-with-blond-hair).
+What seems plausable is that the "Aryan hegemony" of the ancient world was not a monolith, but a network of interrelated clans (Saka, Sarmatian, Cimmerian, Parthian, etc.) who often fought for supremacy within the hegemony. For example, the "Persian" conquest by Cyrus was not a new empire but a coup d'état by one Scythian clan (the Achaemenids/Persians) against the ruling Scythian clan (the Medes). The "Greco-Persian Wars" were a civil war between the Western satrapy (Greece) and the Eastern core (Achaemenid Persia). So in the "Jewish-Roman" Wars (who were Celtic Iudii, unrelated to modern "jews") the Flavians did not put down a provincial revolt. They launched a blitzkrieg against the core Eastern administration, and this destroyed the Scythian steppe hegemony. The Flavians then rewrote history immediately after this.
 
-Alexander the Great = Qin Shi Huang (China’s First Emperor). Both “died” mysteriously at 33 (Alexander in 323 BC; Qin Shi Huang in 210 BC). Alakshandra (Sanskrit) → Qin Shi Huang (Chinese): The “-shandra” morpheme appears in “Shi Huang,” meaning "First Guardian". Qin was founded by Alexander, it starts right exactly around the Greco-Bactrian city states era in Central Asia, it was started by people coming from the West right exactly bordering Central Asia during Greco-Bactrian rule, DA-QIN meaning BIG OR GREATER QIN as a word name term was used to refer to the Roman empire during the "Han dynasty" that came after Qin dynasty which means the QIN people had to have been Greco-Bactrian Seleucids since they equated with Roman type people and they came from the farthest West direction. 
-Qin’s terracotta army has Caucasian features and Hellenistic armor. The character "Qin" (秦) is written with the radicals for "grain" and "man," but its Old Chinese pronunciation was Dzin. This is a direct phonetic match for the Latin Ianus (Janus) and the Sanskrit Yavana (Ionian Greek). The Qin were the Yavanas—the Greeks—from the West. Their sudden rise, standardization of weights/measures, and great wall-building are all hallmarks of an Alexandrian-style conquest state. Greek style coins and statues have been found from this time period, and the terracotta army was built by Greeks from Central Asia [^19], to this day the Chinese currency which came about formally during Qin dynasty era is called a YUAN which is another name for YON-IONIAN Greeks etc.
+Roman emperor faces no longer appear on Bosphoran coins after emperor Titus. Roman emperors also stopped looking "Aryan"/Nordic after the Flavian empire.
 
-Julius Caesar aka Asander, king of Bosphorus was Prince Jin Midi in China. Jin (金) means "Gold," a royal Scythian attribute. Mi (日) is "Sun." Di (磾) is a rare character meaning "black," but also a homophone for "Emperor" (帝). His story: A noble "barbarian" prince from the West (Xiongnu confederation, which included Saka/Scythians) is captured and rises to become the most powerful man in China, serving as regent to a child emperor. This is the exact same narrative archetype as a foreigner (Caesar) rising to power in Rome.
+The Flavians were either Italic Shabbos Goyim or mixed with proto-Jews in the modern sense. You can connect the title Flavius to Phlabios and then to Shabbos. So then from Constantine to Heraklios, for 500 years, nearly every single Emperor bore the Flavius (Shabbos) title. By my count, 37 Roman and Byzantine emperors all bore the honorary title "Flavius" ("Shabbos"), and then later, "Phlabios": https://en.wikipedia.org/wiki/Special:MobileDiff/1062698821
 
-Emperor Tiberius aka Tiberius Julius Aspurgus I, king of Bosphorus was the Chinese emperor Yu the Great. He was also Kadphises, prince of the Kushan Empire. Kujula Kadphises unifies the Yuezhi tribes and establishes the Kushan Empire right after the "death" of Julius Caesar/Asander. The "Yuezhi" are the "Iudii"/"Jove" tribe—the same Scythian-Celtic priestly class. "Yazhi" (亞茲)) = Julius, from Ioulius, related to Iove (Jove). Iove is linguistically linked to the Scythian tribal name Yuehzi (Yuezhi). He is "The Jove/Yuezhi King".
+The Vatican also played a big role in the deception. They made up the "Council of Nicaea". It never happened. There is no contemporary records that exist of the Council of Nicaea (325 AD). The Council of Nicaea mirrors the Mithraic Congress of 307 AD where Emperor Galerius declared Sol Invictus the official god of Rome. Constantine’s "conversion" was fabricated. He remained a Sol Invictus sun-worshipper until death—his coins never feature Christian symbols. His last coin (337 AD) depicts him as Sol Comitatus ("Sun Companion"), not Christ. The "Chi-Rho" symbol was a later interpolation by Eusebius, who forged Life of Constantine in the 5th century. The "Arian Controversy" was a fake debate to disguise the fact that early Christianity was a Roman imperial cult. Proof: The "Life of Constantine" by Eusebius was forged in the 5th century to retroactively justify Nicaea, and the Edict of Milan (313 AD) never mentions Jesus—only a vague "Divine Providence". Also, the Vatican's greatest forgery was the Donation of Constantine. The Vatican forged it in the 8th century to claim Rome. It was based on earlier forgeries by Eusebius (a Flavian propagandist).
 
-![Fig.1.32](/images/KadphisesTiberius.jpg){:width="400px"}
+The Vatican had a motive for erasing the Eastern origins of Rome because of their conflicts with the Eastern Byzantine Church, which eventually fell to Islam.
 
-Fig. 1.32. Tiberius Julius Aspurgus I, king of Bosphorus aka Emperor Tiberius Caesar Augustus was also Kujula Kadphises, prince of the Kushan Empire (a vast territory stretching from Central Asia into northern India). Kujula Kadphises unifies the Yuezhi tribes and establishes the Kushan Empire right after the "death" of Julius Caesar/Asander. This is not a successor state; it is the same ruler shifting his primary administrative center to Central Asia to manage the Silk Road. The "Yuezhi" are the "Iudii"/"Jove" tribe—the same Scythian-Celtic priestly class. This regional avatar also connects to the legendary Chinese emperor Yu the Great (original name "Aži" or "Yazhi" (亞茲))? Julius, from Ioulius, related to Iove (Jove).
+Two other men are responsible for most of what we know about the rest of European history from the Middle Ages and before: Poggio Bracciolini who held the position of Apostolic Secretary to the Pope which gave him access to the Vatican Library and is who is the one creditied with "rediscovering" most ancient manuscricts from antiquity. He was also working for the wealthy Italian aristocrat Cosimo de Medici (look up the similarities between Plato and Gemistus Plethon whose patron was also Cosimo de Medici), and then Joseph Justus Scaliger.
 
-China had no chronology until the Jesuits came to the Emperor’s court. Their oldest "ancient" records date from this period. Stone inscriptions and bronze engravings and a few bamboo slips survive from older times, but they were never arranged into a consistent chronology. If you read the Bellum Tartaricum, a pre-edit Jesuit source, it gives a very different chronology as well as info about the white Slav-like race known as the Tartarians, their rulers and their wars with China. The Jesuits essentially wrote early Chinese history for them. They "reconstructed" the Xia and Shang dynasties based on fragmentary records, arranging them to fit the Biblical timeline. Mateo Ricci invented Confucius and was the one who wrote the Art of War.
+The Jesuits also played a huge role in this. The Jesuits, upon arriving in China, found a civilization with no coherent linear chronology. They took fragmentary records, king lists, and bronze inscriptions and arranged them to fit the Biblical timeline provided by the Septuagint.
 
-The modern "Han Chinese" are not infact "Han" or "Chinese" ("Chinese" is an identity fabricated and conjured up by Jesuits) but are infact Miao-Hmong people. The real Han = Yangshao R1a (90% steppe, 5000 BC), purged in An Lushan (Caucasoid genocide). Genetic studies show the Yangshao culture (5000 BC) had 90% European DNA (Haplogroup R1a). The modern Han are Miao who migrated from Vietnam after the Mongol invasions.
+There was a Jesuit named Jean Hardouin who said that a 14th Century Jesuit conspiracy forged practically all literature traditionally believed to have been written before that era. He was the official librarian to the King of France. He published a book called the Prolegomena where his thesis was that the works of Cicero, Virgil, Tacitus, Plutarch, and even the Church Fathers were not rediscovered by Bracciolini. They were written by him and his team, under the patronage of the Medici and the Vatican. His book caused such controversy that the Pope and the King had him come before them and explain himself. He defended his work, and refused to retract it, so they threw him in prison.
 
-The An Lushan rebellion was an ethnic war, mongoloids vs caucasoids which resulted the slaughter of millions of caucasians [^20]. The Xianbei were mongoloids and helped rape and sexually enslave Indo Europeans in China in the An Lushan rebellion. Goguryeo Korean general Gao Juren in the Tang dynasty committed genocide and rape against An Lushan’s community after defeating An Lushan at his headquarters in Fanyang (Beijing).
+Isaac Newton wrote a book called "The Chronology Of Ancient Kingdoms Amended" where he analysed the eclipses recorded in ancient times and showed that 753 years (the exact number of years between the founding of Rome, or specifically the birth of the Roman deity Romulus and the birth of Jesus), was added in to the first "millennium". This would line up with the gaps of time found across European and world history, oddities like the invention of paper taking 700 years to travel across the Silk Road, or the 1st century Mexican deity Quetzalcoatl being temporarily forgotten til the 8th century.
 
-Similarly, Ran Min slaughtered and committed genocide on the entire Caucasian Jie people who were native to Chin, and the Manchus had the Central Asian Indo-European children castrated. 
+**9 Sects of the Imperial Cult**
 
-Then Mao-tse Dong used artificial weaponized famines and outright direct purges to direct human wave attacks in the Korean war to mass kill off original Scythian Tartar Turanian stock authentic real “Chinese” populations which is continuing today with the genocide and ethnic cleansing of the Uighurs and Mongolians whom are far more genetically ancestrally connected and linked to the original real actual ancient “Chinese” rather than a vast majority of modern “Han Chinese” whom are actually Miao-Hmong or Miao-Tse or Hmong or Yao or other southern origin non-“Chinese” group pretending to be "Chinese".
+**9.1 The Cult of Antinous**
+
+Two years before the Bar Kokhba Revolt (132--136 CE) emperor Hadrian created a
+religion to deify his underage gay lover as the son of god
+(Osiris-Antinous) called 'The Cult of Antinous'. The name "Antinous" is an obvious indication of descent from the Antonii line and that he was a descendant of Mark Antony himself, not a random adoption by Hadrian. The use of "-ninus" is really the Greek "nini", which is "baby" or infant (i.e., "baby Jesus"). Historian Cassius
+Dio claims that Antinous was offered as a human sacrifice to Hadrian (Cassius Dio Cocceianus, Historiae Romanae, book 69, chapter 11) and later was "resurrected". Antinous was likely Emperor Titus Aelius Hadrianus Antoninus Pius, who was adopted by Hadrian and was his successor, and the cult of Antinous was his imperial cult. One of the scribes for The Cult of Antinous was Aquila of Sinope aka
+Onkelos who was a kinsman of the Roman emperor Hadrian. The midrash
+(Tanhuma. 41a, Mishpatim 3) claims that Onkelos was a nephew of Hadrian
+and other jewish sources list him as a nephew of emperor Titus (Tractate Gittin (56b)). Emperor
+Hadrian also employed Aquilla of Sinope to rebuild Jerusalem as Aelia
+Capitolina after the Bar Kokhba revolt (the city was named after Hadrian's family name (Aelia) and the Roman god Jupiter (Capitolina)). In Acts 18:2-3 and Romans 16:3 NASB, it is claimed
+that Aquila of Sinope and his wife Prisca or Priscilla lived with Paul
+the Apostle and Paul called them "my fellow workers in Christ Jesus"
+
+![Fig.1.31](/images/Antinous.jpg){:width="400px"}
+
+Fig. 1.31. Steel relief that shows Antinous holding the grapes of Dionysus in one-hand and a cross in the other.
+
+**9.2 Subversion of the Imperial Cult by Rabbi Akiva and His Students**
+
+Aquila of Sinope aka Onkelos was a student of a rabbi named Akiva who led the Talmudic Pharisees
+and is responsible for large parts of the Talmud, Sefer Yetzirah (book
+of creation), the Mishna and the Midrash Halakha, and modern judaism,
+and who was a student of Gamaliel (Paul the Apostle claimed that he was
+brought up in Jerusalem "at the feet of Gamaliel" (Acts 22:3)), and who
+was the one that came up with the idea that "Rome was Edom". It was likely after the Bar Kokhba Revolt when he realized
+that subversion was the only way to defeat the Romans. So, likely at the Council of Jamnia https://en.wikipedia.org/wiki/Council_of_Jamnia, rabbi Akiva
+and his students Aquila of Sinope aka Onkelos (his connection to the Roman elite), Markianos of Alexandria
+aka Marcion (Greek Markion) of Sinope, Shimon bar Yohai aka Simon Peter
+(Shimon bar Yonah) (Simon's mythology was stolen from the Roman deity
+Janus who was the keeper of keys/gatekeeper role. Eusebius reported that
+Philo had met Simon Peter in Rome), Ketia bar Shalom aka 'Clement of
+Rome' (hebrew Ketia is the same as Latin Clement), Aristo of Pella who
+is a good candidate for being Luke the Evangelist ('Aristo', or
+'Ariston' is a name that is related to 'Proteus' The former means
+'first-rank, noble' the second derives from 'first'. So, was he also
+Peregrinus Proteus? Also, Mark or Mahalia, sixteenth bishop of Jerusalem
+was the secretary of Aristo and Marcion is known to have had a disciple
+named Lucanus as documented by Tertullian, so Mark, or Mahalia, first
+Gentile bishop of Jerusalem was also Markianos of Alexandria aka Marcion
+of Sinope?), Rabbi Yehuda aka Jude the Apostle (Yehuda is the Hebrew
+equivalent of Greek Jude), and Rabbi Meir aka Polycarp aka Bishop
+ignatius (the name "Meir" means "one who illuminates". Ignatius means
+firey one and Polycarp was famous for lighting himself on fire), added a
+slave-morality suicide cult to the imperial cult.
+
+Many of rabbi Akiva's students and contemporaries had connections to the
+Alexandrian School in Egypt and were themselves students of Philo of
+Alexandria.
+
+Rabbi Akiva was likely Paul the Apostle. In Acts 22:3 "Paul" claims to
+have been educated at the feet of Gamaliel who was the teacher of rabbi
+Akiva, and in Acts 18:2-3 and Romans 16:3 NASB, it is claimed that
+Aquila of Sinope and his wife Prisca or Priscilla lived with Paul the
+Apostle and Paul called them "my fellow workers in Christ Jesus.
+Paul's/Saul's fictional life story was stolen from the ancient Egyptian
+story"Tale of the Shipwrecked Sailor".
+
+Quintus Tinnius Rufus (Turnus Rufus the Evil) was Pontius Pilate, the
+Roman governor of Judaea who crucified Simon bar Kokhba and killed rabbi
+Akiva. Rabbi Akiva preached that Simon bar Kokhba was the jewish
+messiah.
+
+Zeus became Baal-Zebub in the bible: Zeus Belos (Greek: Zeus Baal) ->
+Baal-Zebul -> Baal-Zebub ("Lord of the Flies") in 2 Kings 1:2-3.Jesus
+calls Satan "Beelzebul" (Matthew 12:24)---a deliberate mockery of
+Zeus-Baal. Scythian Sar (king) became Esau (Edom) the progenitor of the
+Edomites in the bible, a metaphor for the forces of oppression and
+injustice. Saka (Scythian tribe) is a near-perfect homophone for the name of Satan (adversary). The Jewish
+version of Antichrist (Armilus) is based on Romulus (Armilus is a Hebrew
+corruption or adaptation of the Latin name Romulus). Lucifer, or "lucem
+ferre", which means "light-bearer" or "morning star", is Venus who was
+the Roman goddess whose functions encompassed love, beauty, desire, sex,
+fertility, prosperity, and victory. In Roman mythology, she was the
+ancestor of the Roman people through her son, Aeneas. The Greco-Egyptian
+deity Serapis (the horned deity) became the image of Satan. Sin (also called Nanna or Suen) is a Mesopotamian god of the moon. He was worshiped as the lunar deity whose symbol was the crescent moon. Sin was considered the son of the sky god Enlil and the grain goddess Ninlil, and the father of the sun god Shamash (Sumerian Utu) as well as the goddess Ishtar (Inanna). Together, Sin, Shamash, and Ishtar formed an important astral triad in Mesopotamian religion. In Norse
+mythology Iðunn/Idun (equivalent to Greek Hebe, and Celtic Brigid), is
+the goddess of youth, her name means "giver of eternal youth". The other
+gods get golden apples from her. She stores them in a basket and they
+keep the gods young until the end of the world. Idun became Eve in the
+bible the archetypal sinner whose actions brought death into the world
+(Romans 5:12). Inanna (equivalent to Freyja (Norse mythology), Aphrodite
+(Greek mythology), Venus (Roman mythology), and Morrigan (Celtic
+mythology)), the ancient goddess of war, love, and fertility, became the
+Whore of Babylon (Friday the 13th was the day to honor Freyja). Artemis,
+the goddess of the wilderness, wild animals, nature, vegetation,
+childbirth, care of children, and chastity, became recast as a witch
+(19:24). (The demonization of Venus (lucifer), Idun/Hebe/Brigid,
+Inanna/Freyja/Aphrodite/Venus, Artemis, and other female Pagan deities,
+was designed to instil a strong hatred of women among European men). The
+Mark of the Beast (666) refers to emperor Nero (take Nero's name and
+title in Greek (Nero Caesar), and transliterate it into Hebrew and then
+take the numerical value). Also, the jews' hated enemy in the bible are
+the Celts (Gog or Goy). Flavius Josephus in the 'Antiquities of the
+Jews'. Book I. Chapter 1: "For Gomer founded those whom the Greeks now
+call Galatians [Galls], but were then called Gomerites. Magog founded
+those that from him were named Magogites; but who are by the Greeks
+called Scythians". Josephus is suggesting that the Hebrew word "Goy"
+(meaning "nation" or "people") is related to the Greek word "Galatae"
+(meaning "Gauls" or "Galatians"), In biblical prophecy, Gog is described
+as a leader from the land of Magog in the north, who will gather a
+coalition of nations to attack Israel, but will be defeated by God in a
+great battle.
+
+**9.3 Islam**
+
+Islam is a surviving (albeit subverted) sect of the original Bosphoran Imperial Cult.
+
+The name of the "Quraysh" tribe of Mecca derives from Quresh (Cyrus) and "Ta-Rex" (Royal One). They were a Scythian-Arabian noble clan.
+
+King Izates of Monobazus's (Isa in the Quran) son was named Zamaris (Zamaris the Babylonian jew) and Zamaris has the same meaning as Muhammad.
+
+In the book 'Hagarism: The Making of the Islamic World' (1977) by Patricia Crone and Michael Cook they trace the origins of Islam to 'The Secrets of Shimon bar Yochai' [^16] which is a record of the "divine visions" of the 2nd-century rabbi, Simon ben Yohai aka Simon Peter (Shimon bar Yonah) who was a student of rabbi Akiva, to his students. They theorize that Islam was started as a psy-op to weaponize the Arabs to attack the Byzantine empire (eastern Rome) to free judea. 
+
+Shimon bar Yohai wrote that his "secrets" were revealed to him when he was hiding in a cave on account of the persecutions of Caesar king of Edom (Rome). His secrets were his blueprint for the destruction of Rome (Esau/Edom) and all western "gyrwn" (Aramic form of goyim) through using "Ishmael" (Arabs) and "four-arms" (Indians).
+
+According to his prophecy, after Ishmael weakens Edom (Rome) and then "dies a noble death", the jews would import millions of four-arms ("Chaturbhuja" in Sanskri means "four-armed" and many Hindu deities are depicted with four-arms, including Vishnu) to dilute the Roman population and finish the job.
+
+In Jerusalem Talmud Kiddushin, Rabbi Shimon bar Yochai stated: "Kill the best of Gentiles, smash the head of the best of snakes". He was the biggest proponent of the belief that Rome was Edom.
+
+Allah and Muhammad the red-headed warlord then became parodies of Attila the Hun [^17] and his uncle Ruglia waging war against Rome (Edom) because they wanted the Arabs to attack eastern Rome. 
+
+So, Talmudic jews who were hiding out in the Himyarite Kingdom after
+Emperor Hadrian kicked them out of judea, and who were students of Rabbi Akiva, basically just cut-and-pasted
+from one of the Bosphoran/Adiabene/Roman imperial cults of the time and created two sects: Christianity as a
+slave morality/proto-Bolshavism for the Romans and Islam as a warrior morality to weaponize the Arabs to attack Rome. It is impossible to get people to abandon their religions for a new one, so they created sects of one of the popular religions at the time and infused the trojan horse ideology into it.
+This conspiracy was so sophisticated that not only did they rewrite the
+imperial cult, but they rewrote history to align with their psy-op.
+Josephus's (Tiberius Julius Alexander aka Emperor Nerva) works were
+rewritten by Rabbi Akiva's students under the alias Hegesippus. The book
+'The Antiquities of the Jews' then became a pseudo-epigraphical work (of
+propaganda) that was backdated to make christianity look legitimate in
+the same way that the 'Letter of Aristeas' was backdated to exaggerate
+the age of the Septuagint. 
+
+Endnotes (Chapter 9)
+
+(a) Marcion of Sinope aka Markianos of Alexandria grew up in the
+    Attis-Sabazios cult on Anatolia before traveling to Judea to study
+    under rabbi Akiva and finally to Alexandria at the Alexandrian
+    School.\
+(b) There was a Marcus who founded the Marcosian Gnostic sect. He was a
+    teacher of Bishop Irenaeus and a friend of Clement of Alexandria.
+    Was he also Marcion of Sinope aka Markianos of Alexandria?
+    (https://en.wikipedia.org/wiki/Marcus_%28Marcosian%29). St. Jerome
+    in "Against Jovinian" describes Mark as a disciple of the Gnostic
+    teacher Basilides. Here is a list of "Marks" who were active around
+    the same time: Mark, the Evangelist, John Mark, Mark of Apollonias,
+    Markianos of Alexandria, Mahalia, Marcus of Jerusalem, Marcus
+    Pompeius, Marcus Annaeus Lucanus, Marcus the Magician, Marcion of
+    Sinope, Marcus the Marcosian. Mark of Apollonias, John Mark, Mark
+    the cousin of Barnabas, and Mark the Apostle are considered to be
+    the same person by historians, so it is conceivable that all these
+    "Marks" were the same person.\
+(c) In 41 A.D Emperor Claudius sent a letter of warning to the Jews in
+    Egypt (preserved in a papyrus now in the British Museum, R Lond.
+    1912), where he described them as "the fomenters of a universal
+    plague throughout the civilized world.". He eventually expelled them
+    from Rome:
+    https://en.wikipedia.org/wiki/Claudius'_expulsion_of_Jews_from_Rome
+    In the Acts of the Apostles (Acts 18:1-18) it explains how the
+    Apostle Paul met Priscilla and Aquila and mentions in passing an
+    expulsion of Jews from Rome. "Paul" was Rabbi Akiva and Aquila of
+    Sinope aka Onkelos was his student. So, it is possible that the
+    conspiracy even pre-dated the Bar kohiba revolt. Previous to this,
+    Valerius Maximus, in his work 'Facta ac dicta memorabilia', mentions
+    the expulsion of Jews from Rome in 139 BCE by the praetor peregrinus
+    Cn. Cornelius Hispalus for attempting to currupt the cult of
+    Jupiter.[^17]\
+(d) Quintus Tineius Sacerdos, the brother of Quintus Tinnius Rufus, was
+    the governor of Pontus in Anatolia, so the family likely derived
+    from there. Pilate means the temperament of a warrior I.e., famously
+    temperamental. That's where the name Pontius Pilate comes from.
+    *Pilate might also = "Pileatus" (Latin for "wearing a felt cap," a
+    Pontic priestly garb associated with Mithraism).
 
 **Bibliography**
 
