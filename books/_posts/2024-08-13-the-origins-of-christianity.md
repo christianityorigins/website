@@ -1,12 +1,12 @@
 ---
 layout: default
 open_links_in_new_tab: true
-title: "On the Origins of Christianity: The Scythian Dracaena as the Proto-Christ"
+title: "The Bosphoran Christ: How the Crimean Dragon Kings Invented Jesus and Ruled the Ancient World"
 date: 2024-08-13
 category: books
 ---
 
-# On the Origins of Christianity: The Scythian Dracaena as the Proto-Christ 
+# The Bosphoran Christ: How the Crimean Dragon Kings Invented Jesus and Ruled the Ancient World
 
 **By Ralph Perrier**  
 
@@ -53,7 +53,7 @@ Part 4: The Bosphoran Connection\
 Part 5: From Imperial Cult to Christianity\
 6\. Flavian Dynasty\
 Part 6: Rewriting History\
-7. Inventing History\
+7\. Inventing History\
 7.1 Inventing Classical Greece\
 7.2 The 'Achaemenid' Empire is the Parthian Empire\
 7.3 Fabricating 'Ancient' Egypt\
@@ -986,7 +986,7 @@ In Persia, the "Achaemenid Empire" is a phantom, a Flavian-era literary creation
 
 The "Achaemenid" Empire perfectly mirrors the Arsacid Parthian empire if you factor in "phantom time".
 
-Cyrus the Great (c. 550 BC) = Mithridates I of Parthia (c. 171 BC) - Founder of the Parthian Empire	Both are "Great Kings" who establish a vast Persian empire from a minor satrapy.
+Cyrus the Great (c. 550 BC) = Mithridates I of Parthia (c. 171 BC) - Founder of the Parthian Empire.	Both were "Great Kings" who establish a vast Persian empire from a minor satrapy.
 
 Darius I (c. 522 BC) = Mithridates II of Parthia (c. 124 BC) - Consolidated the empire and organized it.	Both are master administrators who create the classic "Persian" imperial structure.
 
@@ -1006,7 +1006,7 @@ Azhi = Asia (Azhi-A) = "land of the mighty dragon" (Aži is cognate with the Chi
 
 The Tarim basin mummies are Tocharians, and the Kizilgaha cave portraits deprict redheaded “Chinese” people. Genetic studies show that indegenous people of Linzi in south east China were genetically more similar to Europeans than modern Chinese (https://eurogenes.blogspot.com/2017/07/north-european-admixture-in-han-chinese.html). Tang dynasty mural in tomb unearthed in China portrays a ‘Westerner’ man with blond hair (https://www.livescience.com/archaeology/stunning-tang-dynasty-mural-in-tomb-unearthed-in-china-may-portray-a-westerner-man-with-blond-hair).
 
-Alexander the Great = Qin Shi Huang (China’s First Emperor). Both “died” mysteriously at 33 (Alexander in 323 BC; Qin Shi Huang in 210 BC). Alakshandra (Sanskrit) → Qin Shi Huang (Chinese): The “-shandra” morpheme appears in “Shi Huang,” meaning "First Guardian". Qin was founded by Alexander, it starts right exactly around the Greco-Bactrian city states era in Central Asia, it was started by people coming from the West right exactly bordering Central Asia during Greco-Bactrian rule, DA-QIN meaning BIG OR GREATER QIN as a word name term was used to refer to the Roman empire during the "Han dynasty" that came after Qin dynasty which means the QIN people had to have been Greco-Bactrian Seleucids since they equated with Roman type people and they came from the farthest West direction. 
+Alexander the Great = Qin Shi Huang (China’s First Emperor). Both "died" mysteriously at 33 (Alexander in 323 BC; Qin Shi Huang in 210 BC). Alakshandra (Sanskrit) → Qin Shi Huang (Chinese): The "-shandra" morpheme appears in "Shi Huang”" meaning "First Guardian". Qin was founded by Alexander, it starts right exactly around the Greco-Bactrian city states era in Central Asia, it was started by people coming from the West right exactly bordering Central Asia during Greco-Bactrian rule, DA-QIN meaning BIG OR GREATER QIN as a word name term was used to refer to the Roman empire during the "Han dynasty" that came after Qin dynasty which means the QIN people had to have been Greco-Bactrian Seleucids since they equated with Roman type people and they came from the farthest West direction. 
 Qin’s terracotta army has Caucasian features and Hellenistic armor. The character "Qin" (秦) is written with the radicals for "grain" and "man," but its Old Chinese pronunciation was Dzin. This is a direct phonetic match for the Latin Ianus (Janus) and the Sanskrit Yavana (Ionian Greek). The Qin were the Yavanas—the Greeks—from the West. Their sudden rise, standardization of weights/measures, and great wall-building are all hallmarks of an Alexandrian-style conquest state. Greek style coins and statues have been found from this time period, and the terracotta army was built by Greeks from Central Asia [^19], to this day the Chinese currency which came about formally during Qin dynasty era is called a YUAN which is another name for YON-IONIAN Greeks etc.
 
 Julius Caesar aka Asander, king of Bosphorus was Prince Jin Midi in China. Jin (金) means "Gold," a royal Scythian attribute. Mi (日) is "Sun." Di (磾) is a rare character meaning "black," but also a homophone for "Emperor" (帝). His story: A noble "barbarian" prince from the West (Xiongnu confederation, which included Saka/Scythians) is captured and rises to become the most powerful man in China, serving as regent to a child emperor. This is the exact same narrative archetype as a foreigner (Caesar) rising to power in Rome.
@@ -1031,7 +1031,7 @@ Then Mao-tse Dong used artificial weaponized famines and outright direct purges 
 
 The "Mauryan" Empire is a Flavian/Vatican fabrication. Chandragupta Maurya is Alexander the Great.
 
-Alexander was a Sarmatian dragon-king who was the son of Ateas the Scythian aka Artaxerxes
+Alexander was an Aryan dragon-king who was the son of Ateas the Scythian aka Artaxerxes
     II Memnon ("Kai Bahman") and half-brother of Darius III ("Darab").
     In India he took the regional aliases of Chandragupta Maurya
     ("Chandragupta" = "Sander-Gupta" (Scythian "Sander" = Alexander. "Aleks" = Greekization of "Alakh" which means "not seen" or "unseen" in Sanskrit/Hindi. "Gupta" = Hidden)). Greek sources (Megasthenes) refer to Chandragupta Maurya as "Sandrokottos" with the Sandro- deriving from Alexandros). "Aži-ander": Aži
@@ -1121,7 +1121,7 @@ Lost in history is that the greatest slave trade wasn't the Trans-Atlanic one, b
     India. "Habshi" is what Northern Indians called  Southern Indians
     and Habesha comes from "Abyssinia" which refers to Ethiopia. These
     Ethiopian slaves then mixed with indigenous Australoid/Denisovans
-    who were similar to Australian Aborigines.Eventually they mixed with the indigenous Scythians (likely by force and genocide run by the Calami)\
+    who were similar to Australian Aborigines. Eventually they mixed with the indigenous Scythians (likely by force and genocide run by the Calami).
 
 **8. Who Forged History?**
 
