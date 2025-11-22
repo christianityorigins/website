@@ -62,8 +62,8 @@ Part 6: Rewriting History\
 8\. Who Forged History?\
 Part 7. Sects of the Imperial Cult\
 9\. Sects of the Imperial Cult\
-9.1. The Cult of Antinous\
-9.2. Subversion of the Imperial Cult by Rabbi Akiva and His Students\
+9.1 Christianity\
+9.2. The Cult of Antinous\
 9.3. Islam\
 Conclusion\
 Selected Bibliography\
@@ -1150,35 +1150,20 @@ Isaac Newton wrote a book called "The Chronology Of Ancient Kingdoms Amended" wh
 
 **9 Sects of the Imperial Cult**
 
-**9.1 The Cult of Antinous**
+**9.1 Christianity**
 
-Two years before the Bar Kokhba Revolt (132--136 CE) emperor Hadrian created a
-religion to deify his underage gay lover as the son of god
-(Osiris-Antinous) called 'The Cult of Antinous'. The name "Antinous" is an obvious indication of descent from the Antonii line and that he was a descendant of Mark Antony himself, not a random adoption by Hadrian. The use of "-ninus" is really the Greek "nini", which is "baby" or infant (i.e., "baby Jesus"). Historian Cassius
-Dio claims that Antinous was offered as a human sacrifice to Hadrian (Cassius Dio Cocceianus, Historiae Romanae, book 69, chapter 11) and later was "resurrected". Antinous was likely Emperor Titus Aelius Hadrianus Antoninus Pius, who was adopted by Hadrian and was his successor, and the cult of Antinous was his imperial cult. One of the scribes for The Cult of Antinous was Aquila of Sinope aka
-Onkelos who was a kinsman of the Roman emperor Hadrian. The midrash
+Sometime after the Roman-Jewish wars the Flavians tried to subvert the eastern imperial religion and they created christianity. It seems likely that the Bosphoran imperial religion before Christiantiy was essentially Judaism (see: Chapter 8. Who Forged History?). The Flavians took this religon and they infused a slave morality into it. 
+
+The primary architects were Flavian court historians Josephus and Pilny the Younger, but one other person who had a hand in writing the New Testament was named Epicteus (See: "Epictetus and the New Testament" by Douglas Simmonds Sharp (1914)) who was the slave to Nero's scribe Tiberius Claudius Epaphroditus or Epaphroditos (c. 20–25 – died c. 95). Epictetus had a Roman teacher named Gaius Musonius Rufus (c. 20-30-died c. 101) who was a Roman Stoic philosopher. Gaius Musonius Rufus was also a teacher of Dio Chrysostom (c. 40 – c. 115 AD). Josephus opened his book "Jewish Wars" and "History of the Jews" (Antiquities) by addressing them to: "kratistos (most excellent) Epaphroditus".
+
+Epicteus and Pilny the Younger were both in the same places at the same time; Rome, Nicopolis, and Bithynia-Pontus, and Pliny the Younger was a Roman administrator in Bithynia and Pontus at the same time Marcion was in Sinope, so these people knew each other.
+ 
+Epictetus (c. 50–135) fits the typecasting of a rabbi named Akiva (c. 50–135). If Epictetus = rabbi Akiva then this would put all the pieces together. 
+
+Rabbi Akiva was a teacher of of a man named Aquila of Sinope aka Onkelos. The midrash
 (Tanhuma. 41a, Mishpatim 3) claims that Onkelos was a nephew of Hadrian
-and other jewish sources list him as a nephew of emperor Titus (Tractate Gittin (56b)). Emperor
-Hadrian also employed Aquilla of Sinope to rebuild Jerusalem as Aelia
-Capitolina after the Bar Kokhba revolt (the city was named after Hadrian's family name (Aelia) and the Roman god Jupiter (Capitolina)). In Acts 18:2-3 and Romans 16:3 NASB, it is claimed
-that Aquila of Sinope and his wife Prisca or Priscilla lived with Paul
-the Apostle and Paul called them "my fellow workers in Christ Jesus"
-
-![Fig.1.31](/images/Antinous.jpg){:width="400px"}
-
-Fig. 1.31. Steel relief that shows Antinous holding the grapes of Dionysus in one-hand and a cross in the other.
-
-**9.2 Subversion of the Imperial Cult by Rabbi Akiva and His Students**
-
-Aquila of Sinope aka Onkelos was a student of a rabbi named Akiva who led the Talmudic Pharisees
-and is responsible for large parts of the Talmud, Sefer Yetzirah (book
-of creation), the Mishna and the Midrash Halakha, and modern judaism,
-and who was a student of Gamaliel (Paul the Apostle claimed that he was
-brought up in Jerusalem "at the feet of Gamaliel" (Acts 22:3)), and who
-was the one that came up with the idea that "Rome was Edom". It was likely after the Bar Kokhba Revolt when he realized
-that subversion was the only way to defeat the Romans. So, likely at the Council of Jamnia https://en.wikipedia.org/wiki/Council_of_Jamnia, rabbi Akiva
-and his students Aquila of Sinope aka Onkelos (his connection to the Roman elite), Markianos of Alexandria
-aka Marcion (Greek Markion) of Sinope, Shimon bar Yohai aka Simon Peter
+and other jewish sources list him as a nephew of emperor Titus (Tractate Gittin (56b)). His other student was Markianos of Alexandria
+aka Marcion (Greek Markion) of Sinope, also, Shimon bar Yohai aka Simon Peter
 (Shimon bar Yonah) (Simon's mythology was stolen from the Roman deity
 Janus who was the keeper of keys/gatekeeper role. Eusebius reported that
 Philo had met Simon Peter in Rome), Ketia bar Shalom aka 'Clement of
@@ -1193,12 +1178,7 @@ Gentile bishop of Jerusalem was also Markianos of Alexandria aka Marcion
 of Sinope?), Rabbi Yehuda aka Jude the Apostle (Yehuda is the Hebrew
 equivalent of Greek Jude), and Rabbi Meir aka Polycarp aka Bishop
 ignatius (the name "Meir" means "one who illuminates". Ignatius means
-firey one and Polycarp was famous for lighting himself on fire), added a
-slave-morality suicide cult to the imperial cult.
-
-Many of rabbi Akiva's students and contemporaries had connections to the
-Alexandrian School in Egypt and were themselves students of Philo of
-Alexandria.
+firey one and Polycarp was famous for lighting himself on fire).
 
 Rabbi Akiva was likely Paul the Apostle. In Acts 22:3 "Paul" claims to
 have been educated at the feet of Gamaliel who was the teacher of rabbi
@@ -1253,6 +1233,22 @@ called Scythians". Josephus is suggesting that the Hebrew word "Goy"
 as a leader from the land of Magog in the north, who will gather a
 coalition of nations to attack Israel, but will be defeated by God in a
 great battle.
+
+**9.2 The Cult of Antinous**
+
+Two years before the Bar Kokhba Revolt (132--136 CE) emperor Hadrian created a
+religion to deify his underage gay lover as the son of god
+(Osiris-Antinous) called 'The Cult of Antinous'. The name "Antinous" is an obvious indication of descent from the Antonii line and that he was a descendant of Mark Antony himself, not a random adoption by Hadrian. The use of "-ninus" is really the Greek "nini", which is "baby" or infant (i.e., "baby Jesus"). Historian Cassius
+Dio claims that Antinous was offered as a human sacrifice to Hadrian (Cassius Dio Cocceianus, Historiae Romanae, book 69, chapter 11) and later was "resurrected". Antinous was likely Emperor Titus Aelius Hadrianus Antoninus Pius, who was adopted by Hadrian and was his successor, and the cult of Antinous was his imperial cult. One of the scribes for The Cult of Antinous was Aquila of Sinope aka
+Onkelos who was a kinsman of the Roman emperor Hadrian. Emperor
+Hadrian also employed Aquilla of Sinope to rebuild Jerusalem as Aelia
+Capitolina after the Bar Kokhba revolt (the city was named after Hadrian's family name (Aelia) and the Roman god Jupiter (Capitolina)). In Acts 18:2-3 and Romans 16:3 NASB, it is claimed
+that Aquila of Sinope and his wife Prisca or Priscilla lived with Paul
+the Apostle and Paul called them "my fellow workers in Christ Jesus"
+
+![Fig.1.31](/images/Antinous.jpg){:width="400px"}
+
+Fig. 1.31. Steel relief that shows Antinous holding the grapes of Dionysus in one-hand and a cross in the other.
 
 **9.3 Islam**
 
