@@ -8,24 +8,36 @@ Welcome to the homepage of Ralph Perrier (B.A. Philosophy). I am an independent 
 
 For inquiries or academic correspondence, please <a href="mailto:christianityexposed@yandex.com">email</a> me directly. You can also follow me on <a href="https://twitter.com/hereticalbooks" target="_blank">Twitter</a>.
 
-<h2>Book Drafts</h2>
+---
+
+## Current Book Projects
 
 {% for post in site.categories["books"] %}
   {% unless post.draft %}
-    <p style="margin: 0;">
-      <a href="{{ post.url }}">{{ post.title }}</a> — {{ post.date | date: "%b %d, %Y" }}
-    </p>
+* **{{ post.title }}** — Working draft, last updated {{ post.date | date: "%-d %B %Y" }}
   {% endunless %}
 {% endfor %}
 
-<h2>Recent Articles & Blog Posts</h2>
+*Access draft chapters and provide feedback: [View Book Projects](/books)*
 
-{% for post in site.categories["blog"] limit:5 %}
+---
+
+## Recent Scholarship
+
+{% for post in site.categories["blog"] limit:3 %}
   {% unless post.draft %}
-    <p style="margin: 0;">
-      <a href="{{ post.url }}">{{ post.title }}</a> — {{ post.date | date: "%b %d, %Y" }}
-    </p>
+* {{ post.date | date: "%Y-%m-%d" }} — [{{ post.title }}]({{ post.url }})
   {% endunless %}
 {% endfor %}
 
-<p><a href="/blog.html">View all articles...</a></p>
+*Complete archive of research notes and articles: [Browse All Posts](/blog)*
+
+---
+
+## Correspondence
+
+For academic discussion and inquiries:  
+[christianityexposed@yandex.com](mailto:christianityexposed@yandex.com)
+
+Follow research updates:  
+[Twitter @hereticalbooks](https://twitter.com/hereticalbooks)
