@@ -10,7 +10,7 @@ Welcome to the homepage of Ralph Perrier (B.A. Philosophy). I am an independent 
 
 {% for post in site.categories["books"] %}
   {% unless post.draft %}
-      <a href="{{ post.url }}">{{ post.title }}</a> — {{ post.date | date: "%-d %B %Y" }}
+      <a href="{{ post.url }}">{{ post.title }}</a> — {{ post.date | date: "%-d %B %Y" }}<br>
   {% endunless %}
 {% endfor %}
 
@@ -20,16 +20,16 @@ Welcome to the homepage of Ralph Perrier (B.A. Philosophy). I am an independent 
 
 {% for post in site.categories["blog"] limit:5 %}
   {% unless post.draft %}
-      <a href="{{ post.url }}">{{ post.title }}</a> — {{ post.date | date: "%-d %B %Y" }}
+      <a href="{{ post.url }}">{{ post.title }}</a> — {{ post.date | date: "%-d %B %Y" }}<br>
   {% endunless %}
 {% endfor %}
 
-*Complete archive of research notes and articles: [Browse All Posts](/blog)*
+<p>Complete archive of research notes and articles: [Browse All Posts](/blog)</p>
 
-Correspondence
+<p>Correspondence</p>
 
-For academic discussion and inquiries:  
+<p>For academic discussion and inquiries:</p>
 <a href="christianityexposed@yandex.com" target="_blank">Email</a>
 
-Follow research updates:  
+<p>Follow research updates:  </p>
 <a href="https://twitter.com/hereticalbooks" target="_blank">Twitter</a>
