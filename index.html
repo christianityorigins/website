@@ -4,31 +4,28 @@ title: Home
 updated: 2018-11-22 16:01:26 +0100
 ---
 
-Welcome to the homepage of Ralph Perrier (B.A. Philosophy). I am an independent researcher who has a general interest in heterodox ideas, oddities, and mysteries. Recently, I have developed a particular focus on religion and its influence on Western civilization. On this website, you will find working drafts of my first two books, research articles, and various resources.<br><br>
+Welcome to the homepage of Ralph Perrier (B.A. Philosophy). I am an independent researcher who has a general interest in heterodox ideas, oddities, and mysteries. Recently, I have developed a particular focus on religion and its influence on Western civilization. On this website, you will find working drafts of my first two books, research articles, and various resources.
 
 For inquiries or academic correspondence, please <a href="mailto:christianityexposed@yandex.com">email</a> me directly. You can also follow me on <a href="https://twitter.com/hereticalbooks" target="_blank">Twitter</a>.
 
-{% assign books = site.categories["books"] %}
-{% assign blog = site.categories["blog"] %}
+<h2>Book Drafts</h2>
 
-{% comment %} 1. Combine the two lists {% endcomment %}
-{% assign all_posts = books | concat: blog %}
-
-{% comment %} 2. Sort the combined list by date (newest first) {% endcomment %}
-{% assign sorted_posts = all_posts | sort: 'date' | reverse %}
-
-<br><br>Recent Updates<br><br>
-
-{% for post in sorted_posts %}
+{% for post in site.categories["books"] %}
   {% unless post.draft %}
     <p style="margin: 0;">
-      <a href="{{ post.url }}">{{ post.title }}</a>
-      {% if post.categories contains "books" %}
-        (Book Draft)
-      {% else %}
-        (Blog Post)
-      {% endif %}
-      - {{ post.date | date: "%b %d, %Y" }}
+      <a href="{{ post.url }}">{{ post.title }}</a> — {{ post.date | date: "%b %d, %Y" }}
     </p>
   {% endunless %}
 {% endfor %}
+
+<h2>Recent Articles & Blog Posts</h2>
+
+{% for post in site.categories["blog"] limit:5 %}
+  {% unless post.draft %}
+    <p style="margin: 0;">
+      <a href="{{ post.url }}">{{ post.title }}</a> — {{ post.date | date: "%b %d, %Y" }}
+    </p>
+  {% endunless %}
+{% endfor %}
+
+<p><a href="/blog.html">View all articles...</a></p>
