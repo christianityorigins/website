@@ -73,9 +73,9 @@ Footnotes
  
 Christianity is a derivative of one of the religions that were invented at the Alexandrian School in Egypt. The Alexandrian School was a religion-making factory that was set up by Ptolemy Soter. The Serapis cult, Judaism, Gnosticism, Valentinianism, Christianity, Hermeticism, Mithraism, Manichaeism, Mandaeism, and many other religions originated from there. 
 
-Religion was the technology that the Ptolemaic dynasty used to control the vast and disparate populations they ruled and they created religions in every single conquered land. They would take local customs and create a syncretic man-god representing the Ptolemaic pharaoh. They would package these religions as sects of local religions because getting people to abandon their religions for a new one is an impossible task. However, there are thousands of sects of major religions today, many with different prophets. (The Alexandrian School and Library of Alexandria were founded soon after the Ptolemaic cult of Alexander the Great failed to catch on, so it was likely at this at point when they began focusing on subverting established religions instead of forcing a new one on the population).
+Religion was the technology that the Ptolemaic dynasty used to control the vast and disparate populations they ruled and they created religions in every single conquered land. They would take local customs and create a syncretic man-god representing the Ptolemaic pharaoh. This system had one primary function: to psychologically pacify conquered populations and prevent unified rebellion. They would package these religions as sects of local religions because getting people to abandon their religions for a new one is an impossible task. However, there are thousands of sects of major religions today, many with different prophets. 
 
-Common in all these Alexandrian School religions were centralized texts and priesthoods which makes a population easier to control through proxy, also, moral codes like submission, self-sacrifice, obedience, loyalty, divine judgment, and monotheism which divides the population through binary thinking, ie., the opposition between good and evil, us vs them, left vs right, etc., which destroys tribalism/collectivism by splitting the population into two groups. These religions were also likely designed to segment the populations by class, culture, and region to prevent unified resistance. For example, Mithraism was for military elites (requiring blood oaths, with a Mithraic initiate caste system and hierarchical structure). Serapism was for civilians (promising afterlife salvation). Christianity was for slaves ("turn the other cheek").
+Beyond the surface-level imperial fiction, all these Alexandrian School religions contained the same psychological weapon at their core: centralized texts and priesthoods which makes a population easier to control through proxy, moral codes like submission, self-sacrifice, obedience, loyalty, divine judgment, the concept of hell, and monotheism which divides the population through binary thinking, ie., the opposition between good and evil, us vs them, left vs right, etc., which destroys tribalism/collectivism by splitting the population into two groups. These religions were also likely designed to segment the populations by class, culture, and region to prevent unified resistance. For example, Mithraism was for military elites (requiring blood oaths, with a Mithraic initiate caste system and hierarchical structure). Serapism was for civilians (promising afterlife salvation). Christianity was for slaves ("turn the other cheek").
 
 "Jesus Christ" was a rank, not a name. It was the title for the Satrap-Soter (Governor-Savior) of the Levant-Judea sector, a high-level administrative and priestly position within the Ptolemaic/Bosphoran imperial structure, often filled by a bloodline prince, much like 'Pharaoh' or 'Caesar'. Jesus Christ = I-Zeus ("Divine Zeus") + "Christ" was the job title for the Governor (Satrap) of Judea who was a member of the Bosporan royal house (equivalent to Scythian Xšaθra, Persian "Kšatrapati" (Satrap, Governor), Hyksos "Khasut" in Egypt, Kshatriya (Warrior-King) in Sanskrit which also = Vedic "Krishna", etc.
 
@@ -186,7 +186,7 @@ Mainstream history presents the Ptolemies, Seleucids, Attalids, and Romans as se
   - Alexander (son of King Herod). Aliases: Alexander Helios, Juba II of Mauretania. Also, Apollonius of Tyana?
     - Spouse: Cleopatra Selene II (twin sister)
     - Children:
-      - Alexander (grandson of King Herod). Aliases: (King/Tetrarch) Ptolemy (Alexander) bar Menneus, Ptolemy of Mauretania (aka Joseph Panthera, the name for jesus's father in the Talmud; Panthera is a corruption of Cantheras, or Cleopatros. Also, Panthera = Ptolemy in Hebrew), Tiberius Julius Alexander Major, Alexander the Alabarch
+      - Alexander (grandson of King Herod). Aliases: (King/Tetrarch) Ptolemy (Alexander) bar Menneus, Ptolemy of Mauretania (aka  Panthera, the name for jesus's father in the Talmud; Panthera is a corruption of Cantheras, or Cleopatros. Also, Panthera = Ptolemy in Hebrew), Tiberius Julius Alexander Major, Alexander the Alabarch
         - Spouse: Cleopatra (Thea Philopator) of Mauretania. Aliases: Cleopatra IX, Helene, Drusilla of Mauretania, Julia Ourania of Parthia, Philo of Alexandria. She was also Claudius and Nero's secretary "Pallas", and "Antonia Caenis" who was Vespasian's first cousin and mistress (the full name of Pallas was Marcus Antonius Pallas, with the Antonius part being an obvious sign of descent from Mark Antony and that Pallas wasn’t a random slave. Caenis was the Greek goddess who was transformed into a man, and she role-played as two men: Marcus Antonius Pallas and Philo).
         - Children:
           - Tiberius Julius Alexander: Emperor Nerva, Arrius Piso, Josephus
@@ -196,7 +196,7 @@ IV. Flavian Emperors
 
 - Vespasian
   Aliases: Rhescuporis I, king of Bosphorus. Herod Agrippa I (See: The Royal Ancestry of Emperor Vespasian. Henry Davis, [https://www.henryhdavis.com/theroyalancestryofemperorvespasian](https://henrydavis-cc.medium.com/the-royal-ancestry-of-the-roman-emperor-vespasian-72e144335299)). Flavius Scaevinus
-- Titus. Aliases: Polemon II, Aulus Avillius Flaccus, Marcus Julius Agrippa I(?)
+- Titus. Aliases: Polemon II, Aulus Avillius Flaccus.
 
 V. Speculative
 
@@ -280,7 +280,7 @@ Fig. 1.9. L. Ateas the Scythian. M. Philip II of Macedon. R. Alexander the Great
     rhotacization in ancient Latin the /p/ and /r/ could be swapped).
 -   Sar root:  Sar is the Scythian word for "king". Sarpa in Sanskrit means "serpent". Sarmatian, Akkadian Sarrum (which becomes Persian Xšaya-/Xšayathiya), Hurrian Šarri, Sargon, Sarlagab, Serapis (Sar-Apis = "Serpent Bull"), Zarathustra (Sar + Ustra = "serpent-lord"), Saraswati (Hindi goddes of knowledge), Saracen (Roman designation for Middle Eastern peoples), Šaruma (Mitanni deity), Saragurs (Scythian tribe in China), Caesar, Asar (Osiris), Tsar (Slavic monarch), Sargon of Akkad, feminine Sarai (or "Sarah" meaning "princess" (Genesis 17:15)), etc. Sar means king, or serpent king, across the empires that the Scythians used to rule over.
 -   Solomon: Sol-Amūn or "Sun of Amun" which is a direct parallel to "Zeus-Ammon", which was a title for Alexander the Great. 
--   Vespasian: Vas/Bas was the royal abbreviation for the Greek word Basilius which = King, and Pasis means "all" in Greek as in Pan. "Vespasian" = "King of All", or "King of Everything" which is a claim to the title "King of Kings". Another option: Vas/Bas = King, and Pasian = Pisonian (a member of the key conspiratorial Piso family). King Piso.
+-   Vespasian: Vas/Bas was the royal abbreviation for the Greek word Basilius which = King, and Pasis means "all" in Greek as in Pan. "Vespasian" = "King of All", or "King of Everything" which is a claim to the title "King of Kings". Another option: Vas/Bas = King, and -asian = "of Asia" or "the Asian". Vespasian = "The King of Asia".
 
 **3 The Sarmatian Dragon Cult**
 
@@ -391,13 +391,13 @@ Ioudaioi (Jew) does not primarily mean "people from Judah". It means "the People
 
 "Yet Varro, one of themselves—to a more learned man they cannot point—thought the god of the Jews to be the same as Jupiter [deum Iudaeorum Iovem putavit], thinking that it makes no difference by which name he is called, so long as the same thing is understood. I believed that he did it being terrified of his sublimity. Since the Romans habitually worship nothing superior to Jupiter, a fact attested well and openly by their Capitol, and they consider him the king of all the gods, and as he perceived that the Jews worship the highest god, he could not but identify him with Jupiter". (Augustine, De consensu evangelistarum 1.22.30; trans. Stern)
 
-Varro was not alone. In the 2nd century BCE Valerius Maximus accused the Jews in Rome of worshipping Jupiter Sabazius (Facta et Dicta Memorabilia)
-
 The first Jews who settled in Rome were expelled in 139 BCE, along with Chaldaean astrologers by Cornelius Hispalus under a law which proscribed the propagation of the "corrupting" cult of "Jupiter Sabazius", according to the epitome of a lost book of Valerius Maximus:
 
 "Gnaeus Cornelius Hispalus, praetor peregrinus in the year of the consulate of Marcus Popilius Laenas and Lucius Calpurnius, ordered the astrologers by an edict to leave Rome and Italy within ten days, since by a fallacious interpretation of the stars they perturbed fickle and silly minds, thereby making profit out of their lies. The same praetor compelled the Judeans, who attempted to infect the Roman custom with the cult of Jupiter Sabazius, to return to their homes" ((Valerius Maximus), epitome of Nine Books of Memorable Deeds and Sayings)
 
-The last quote is likely related to this quote from Seneca: "When, meanwhile, the customs of that most accursed nation have gained such strength that they have been now received in all lands, the conquered have given laws to the conquerors".
+The last quote is likely related to this quote from Seneca: 
+
+"When, meanwhile, the customs of that most accursed nation have gained such strength that they have been now received in all lands, the conquered have given laws to the conquerors".
 
 So, they inherited a syncretic local Roman cult, remade it, then began proselysing it to others.
 
@@ -921,7 +921,7 @@ Vespasian was also a great-grandson of Cleopatra and Mark Antony (King
 Herod). He was Herod Pollio aka Herod Agrippa I, grandson of King
 Herod's son Aristobulus IV. Vespasian was his title, not his name
 (Vas/Bas was the royal abbreviation for the Greek word Basilius which =
-King, and Pas means "all" as in Pan. "Vespasian" = "King of All", or "King of Everything" which is a claim to the title "King of Kings") [^15]. Another option: Vas/Bas = King, and Pasian = Pisonian (a member of the key conspiratorial Piso family). King Piso. He was also
+King, and Pas means "all" as in Pan. "Vespasian" = "King of All", or "King of Everything" which is a claim to the title "King of Kings") [^15]. Another option: Vas/Bas = King, and -asian = "of Asia" or "the Asian". Vespasian = "The King of Asia". He was also
 'Flavius Scaevinus' the conspirator involved in Nero's assassination.
 
 ![Fig.
