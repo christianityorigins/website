@@ -79,17 +79,21 @@ Beyond the surface-level imperial fiction, all these Alexandrian School religion
 
 "Jesus Christ" was a rank, not a name. It was the title for the Satrap-Soter (Governor-Savior) of the Levant-Judea sector, a high-level administrative and priestly position within the Ptolemaic/Bosphoran imperial structure, often filled by a bloodline prince, much like 'Pharaoh' or 'Caesar'. Jesus Christ = I-Zeus ("Divine Zeus") + "Christ" was the job title for the Governor (Satrap) of Judea who was a member of the Bosporan royal house (equivalent to Scythian Xšaθra, Persian "Kšatrapati" (Satrap, Governor), Hyksos "Khasut" in Egypt, Kshatriya (Warrior-King) in Sanskrit which also = Vedic "Krishna", etc.
 
-People who assumed this role are:
+The people who assumed this role were the descendants of Mark Antony aka King Herod (aka Mithridates VI Eupator of Pontus aka Ptolemy XII Auletes of Egypt):
 
--   Julius Caesar aka Asander, King of Bosphorus aka Mithridates Chrestus
--   Amyntas Nikator aka Amyntas, King of Galatia (who was Jesus ben Fabus. See:
+-   Amyntas Nikator aka Amyntas, King of Galatia, who was Mark Antony aka King Herod's son under his Mithridates VI Eupator of Pontus alias. He was also Jesus ben Fabus. (See:
     Jesus Christ Was Amyntas of Galatia (2010) by Ranajit Pal
     [[link](https://ranajitpal-jesus-from-asia-minor.blogspot.com/2011/06/jesus-christ-was-amyntas-of-galatia_20.html)])
--   Alexander (son of King Herod) aka Alexander Helios aka Juba II (who was Jesus ben Panthera? "Panthera" is a Hellenized corruption of "Ptolemaios" (Ptolem -> Ptol -> Panther). "Jesus, son of Ptolemy". The Talmud (Bereshit Rabbah 46:10) calls Izates and Monobazus the "Sons of Ptolemy")
--   Alexander (grandson of King Herod) aka Ptolemy of Mauretania aka Monobazus I (who was Jesus ben Sapphias?)
--   Izates II, King of Adiabene (who was Jesus ben Gamala/Gamaliel. Izates is the Aramaic/Iranian form of Iesous. His name is "Jesus, King of Adiabene". See: Cleopatra to Christ (2010) by Ralph Ellis
+-   Alexander (son of King Herod) aka Alexander Helios aka Juba II. Was he Jesus ben Panthera? "Panthera" is a Hellenized corruption of "Ptolemaios" (Ptolem -> Ptol -> Panther). "Jesus, son of Ptolemy". The Talmud (Bereshit Rabbah 46:10) calls Izates and Monobazus the "Sons of Ptolemy".
+-   Alexander (grandson of King Herod) aka Ptolemy of Mauretania aka Monobazus I. Who was Jesus ben Sapphias?
+-   Izates II, King of Adiabene who was the son of Alexander (grandson of King Herod) and his sister-wife Cleopatra (Thea
+Philopator) of Mauretania. He was Mark Antony aka King Herod's great-grandson. He was was Jesus ben Gamala/Gamaliel (See: Cleopatra to Christ (2010) by Ralph Ellis
 [[link](https://web.archive.org/web/20240728150536/https://x.com/ralfellis/status/1809520320077803525)])
 -   Tiberius Julius Sauromates II
+
+It is likely that all the grandsons of Mark Antony aka king Herod took on this role, or roles that may be similar. For example, see: Aristobulus V of Chalcis, grandson of king Herod aka Marcus Junius Silanus Torquatus (See: Jesus Among the Julio-Claudians (2021) by Charles N. Pope
+[[link](https://www.amazon.com/Jesus-Among-Julio-Claudians-Charles-Pope/dp/B08XL7Z118%3Fref_=ast_author_mpb)]), or the Herodian Messiah Case For Jesus As Grandson Of Herod (2010) by Joseph Raymond
+[[link](https://archive.org/details/joseph-raymond-herodian-messiah-case-for-jesus-as-grandson-of-herod-tower-grove-publishing-2010/page/n18/mode/1up)])
 
 A few things you need to know before you read my book:
 
@@ -1004,13 +1008,15 @@ Darius I (c. 522 BC) = Mithridates II of Parthia (c. 124 BC) - Consolidated the 
 
 Xerxes I (c. 486 BC) = Salamis	Orodes II of Parthia (c. 57 BC) - His general Surena annihilates the Roman army at Carrhae.	Both launch massive, failed invasions of "the West" (Greece/Rome). The "Persian Wars" are the Mithridatic Wars.
 
+Zoroastrianism was invented by the Sasanian Empire (3rd-7th C. AD). They needed a state religion to rival Christianity and legitimize their rule. They systematically compiled older Iranian oral traditions and created the Avesta as a "holy book". To give it antiquity, they back-dated Zoroaster to a mythical past (6000 BC). In doing so, they plagiarized the life story of a real person: Pythagoras (Both Pythagoras and the Zoroaster of legend are said to have traveled to Egypt and Babylon for wisdom. Both are masters of occult knowledge and ritual purity. Both believe in the transmigration of souls).
+
 **7.3 Fabricating 'Ancient' Egypt**
 
 In Egypt the "5000-year" history of Egypt is a Flavian-era fabrication to provide a deep, mystical past for the Serapis cult.
 
 The "Pharaohs" of the Old and Middle Kingdoms are fictional proto-avatars, backdated to create a lineage for the living god-kings like the Ptolemies and Caesars.
 
-The "Old Kingdom" is a fictional pre-history for the Serapis Cult. The Pyramids are not 2500 BC tombs. They were built in the 3rd-2nd Century BC. The reason carbon dating gives older dates for the mortar is because they used fossilized limestone as a key ingredient, a technology now lost, which throws the isotopic readings wildly out of sync.
+The "Old Kingdom" is a fictional pre-history for the Serapis Cult. The Pyramids are not 2500 BC tombs. They were built in the 3rd-2nd Century BC. The Scythian Kurgan is the architectural and theological prototype for the Egyptian Pyramid. The reason carbon dating gives older dates for the mortar is because they used fossilized limestone as a key ingredient, a technology now lost, which throws the isotopic readings wildly out of sync.
 
 **7.4 China: The Han Synthesis and the Tartarian Genocide**
 
