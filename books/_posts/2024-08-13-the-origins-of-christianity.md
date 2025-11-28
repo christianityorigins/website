@@ -91,8 +91,8 @@ Philopator) of Mauretania. He was Mark Antony aka King Herod's great-grandson. H
 [[link](https://web.archive.org/web/20240728150536/https://x.com/ralfellis/status/1809520320077803525)])
 -   Tiberius Julius Sauromates II
 
-It is likely that all the grandsons of Mark Antony aka king Herod took on this role, or roles that may be similar. For example, see: Aristobulus V of Chalcis, grandson of king Herod aka Marcus Junius Silanus Torquatus (See: Jesus Among the Julio-Claudians (2021) by Charles N. Pope
-[[link](https://www.amazon.com/Jesus-Among-Julio-Claudians-Charles-Pope/dp/B08XL7Z118%3Fref_=ast_author_mpb)]), or the Herodian Messiah Case For Jesus As Grandson Of Herod (2010) by Joseph Raymond
+It is likely that all the grandsons of Mark Antony aka king Herod took on this role, or roles that may be similar. For example, see: Jesus Among the Julio-Claudians (2021) by Charles N. Pope
+[[link](https://www.amazon.com/Jesus-Among-Julio-Claudians-Charles-Pope/dp/B08XL7Z118%3Fref_=ast_author_mpb)]) who claims that Aristobulus V of Chalcis, grandson of king Herod aka Marcus Junius Silanus Torquatus was Jesus, or The Herodian Messiah Case For Jesus As Grandson Of Herod (2010) by Joseph Raymond
 [[link](https://archive.org/details/joseph-raymond-herodian-messiah-case-for-jesus-as-grandson-of-herod-tower-grove-publishing-2010/page/n18/mode/1up)])
 
 A few things you need to know before you read my book:
