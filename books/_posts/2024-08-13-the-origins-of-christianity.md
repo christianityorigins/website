@@ -212,7 +212,7 @@ Fig. 1.9. L. Ateas the Scythian (Ata- or Atha-, meaning "forefather" or "ancesto
     (Avestan "dragon") + Andros (Greek "man") = "Dragon-Man", the same as Akrosander/Akrosas. Alaksandu
     of Wilusa, a Hittie king of Wilusa (Troy) (Alaksandu = Alak-San-Du
     (Hurrian: "Ruler-Dragon-Son")), who predates Alexander by 800 years,
-    proves that the name Alexander was a Scythian title for kings. In India he took the regional aliases of Chandragupta Maurya
+    proves that the name Alexander was a Scythian title for kings. In India he took the regional alias of Chandragupta Maurya
     ("Chandragupta" = "Sander-Gupta" (Scythian "Sander" = Alexander. "Aleks" = Greekization of "Alakh" which means "not seen" or "unseen" and in Sanskrit/Hindi "Gupta" = Hidden)). Greek sources (Megasthenes) refer to Chandragupta Maurya as "Sandrokottos" with the Sandro- deriving from Alexandros. Aži-Sandar also = "Dragon King" in Mittani and Old Persian. Recorded in
    the Persian 'Iskandarnameh', or 'Book of Alexander', and 'Shahnameh' and Islamic sources, is that Alexander the Great was a
     Persian prince named Bubares who was the son of Artaxerxes
@@ -363,6 +363,8 @@ The cross was not made of wood. It was a T-shaped standard, the Tau (Τ), the an
 
 In Sarmatian, "Ruma" (Rome) = "Place of the Dragon" (Rhu-Ma, from Aži
 Dahāka, the Iranian dragon).
+
+The chromosome Haplogroup R1a, specifically subclade Z93 is found in high frequencies among the Scythian remains from the Pontic-Caspian Steppe. The Kshatriya (warrior) caste in India. The Brahmins (priestly) caste in India. The highest nobility of Persia. Patrician families of Rome. The Pharisaic and Herodian dynasties in Judea. The Sarmatian Alans who settled in Western Europe (and whose descendants include the Habsburgs). It is also found in the Tarim Mummies of China and in other tested ancient elite Chinese burial grounds (see: Chapter 7.4 China: The Han Synthesis and the Tartarian Genocide). This is the genetic signature of the administrative and priestly class that was installed globally
 
 Footnotes (Chapter 3)
 
