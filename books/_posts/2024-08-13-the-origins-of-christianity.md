@@ -205,10 +205,7 @@ IV. Flavian Emperors
 V. Speculative
 
 - Ateas the Scythian was also Artaxerxes II Memnon ("Kai Bahman") of Persia aka Phillip II in Macedonia aka Nectanebo II in Egypt aka Evagoras I of Salamis (Cyprus). 
-
-![Fig.1.9](/images/AteasPhillipAlexander.jpg){:width="400px"}\
-Fig. 1.9. L. Ateas the Scythian (Ata- or Atha-, meaning "forefather" or "ancestor" in Scythian). M. Philip II of Macedon. R. Alexander the Great. Ateas and Artaxerxes II Mnemon were reported "enemies" of Phillip. Ateas dies in battle against him, and in the Alexander Romance, a book that has its earliest copy dating back a couple of centuries after Alexanders life, the wizard-pharaoh Nectanebo II is secretly Alexander's real father, magically impersonating the god Amun. This is not fantasy; it is a mythological encoding of historical truth.
-  - Son 1: Alexander the Great: Akrosander/Akrosas ("dragon man" in Scythian) who was king of the Scythian Kingdom. His name connects to Asander, king of Bosphorus. Alexander was his title. "Aži-ander" = Aži
+  - Son 1: Alexander the Great: Alexander was his title. "Aži-ander" = Aži
     (Avestan "dragon") + Andros (Greek "man") = "Dragon-Man", the same as Akrosander/Akrosas. Alaksandu
     of Wilusa, a Hittie king of Wilusa (Troy) (Alaksandu = Alak-San-Du
     (Hurrian: "Ruler-Dragon-Son")), who predates Alexander by 800 years,
@@ -228,7 +225,6 @@ Fig. 1.9. L. Ateas the Scythian (Ata- or Atha-, meaning "forefather" or "ancesto
     Ammon disguised as a serpent. Alexander's fathers name Philip was a title (Philippos (Lover of Horses) is a direct Greek translation of the Scythian royal title Pharnavaz (Horse-Lord)). Alexander also married the Scythian princess Roxana. Alexanders campaign was not a conquest, it was a Scythian restoration. The Achaemenid Persians (Achaemenes is likely Akh-Manesh or "Spirit of Manu", linking to the Vedic sage-king) were a rival Scythian clan (the "Ariya" - Aryans). Alexander was re-establishing the older, purer Scythian hegemony of the Medes and the pre-Zoroastrian Mitanni. In the Old Testament he was Solomon (Sol-Amūn or "Sun of Amun") which is a direct parallel to "Zeus-Ammon", a title he carried. He was also Qin Shi Huang in China. The "King of Kings" and "King of the World" titles Alexander and Cyrus used were literal. They were kings of a global empire.\
   - Son 2: Darius III ("Darab") of Persia? Half brother of Alexander.
 -  Gautama Buddha: Bardiya (Smerdis)/Gaumata (Cyrus the Great's son who was satrap (governor) of the Persian province of Bactria (modern day Afghanistan)). He was of the Śākya tribe which is the Sanskrit equivalent of Saka (Scythian). Buddhism was a syncretic pacifist religion to subdue the population of the Indian subcontinent. The doctrine of renunciation (non-attachment to the material world) is the precise Eastern equivalent of the Serapis/Christian "turn the other cheek". Buddhism was a control mechanism designed by the same Dragon Empire.
--  Marcion of Sinope: Markianos of Alexandria. The association with Sinope came from Aquila of Sinope who was a disciple of Rabbi Akiva. Are the two the same? Probably.
 -  Moses = Manes/Mannu-Kuras = Manu (Scythian Sage-King) = Menes (Egypt’s legendary founder). Also appears in "Monobazus" → “Manu Bazus” → Sarmatian-Mythological Sage King. The Iranian Manu is a legendary civilizer, and in India he becomes the first Lawgiver (the Manu Smriti = Scythian governance code). The biblical Moses defeats Pharaoh (actually Mitanni elite), parts waters with a serpent-staff—obvious encoding of dragon-kingship (Aži Dahāka). Moses takes on different masks: M enes – the first official Pharaoh (not real, a compilation of conquerors). Menes – the semi-mythical Median king, founder of the priest-class. Mannu-kuras – Proto-Mede, whose name becomes Cyrus. The name Kur-Ash = "Sun Man". The Exodus is not Judaic memory: it's a political memory of Mitanni-Scythian expulsion from Egypt after the religious revolution of Thutmose III → Horemheb wiped them out with a new priest-kingship in Amarna. He shows up in a number of religions: In Zoroastrianism he is Manushchihr, in Hinuduisn he is Manu, in Judaism he is Moses, in Norse mythology he is Mannus, etc.
 -  Paul the Apostle = likely a composite character or an avatar/cipher. Two suspects for having taken on the character are: 1) Saulus ben Antipater who was the
     son of Antipater/Herod Antipas the Tetrarch, grandson of King Herod
@@ -325,46 +321,44 @@ The Great Upheaval & Reorganization
 -705-330 BC: Persia’s Achaemenids. Saka (Scythian) clan. This was not a new empire but a reconsolidation of Scythian power under a new clan. The Persians were an Iranian (Saka) tribe. Cyrus the Great's title "Kurush" means "Sun Lord," identical to the Scythian Mithra.\
 -616 BC: The Etruscan Tarquin dynasty. The Etruscan Tarquin dynasty seizes power in the Italian settlement of Rome. The Etruscans were not a mystery; they were a Aryan colonial governorate. Tarquin = Tarkhu (Scythian: "Ruler"). Servius Tullius = Tulli (Scythian: "Wolf Clan"). The "Roman" Republic was established as a military-administrative outpost to control the Western Mediterranean and secure tin from Britain.
 
-The Final Consolidation: The Bosphoran Empire
+The Final Consolidation
 
--200 BC:The Thracians emerge in the Balkans (200 BC). The Thracian ruling class is Aryan. The most powerful Thracian tribe, the Dacians (or Getae which is linguistically identical to Goth, Get, Jat, and Scyth), become the Aryan power center for Southeastern Europe. The Dacians were the "Wolf Clan" of the Scythian elite who had mixed with the Alani (Aryan). Their battle standard was the Draco—a wolf-headed serpent. This was not just a standard; it was their religious and royal symbol. The capital of the Dacians was called "Sarmizegetusa" (Sarmatian fortress) which contains sar (king). This is where the Latin language originates. Latin was the administrative and ritual language of the Dacian-Thracian Scythian elite. It was not a native Italian language. It was imposed on the Italian peninsula by the Scythian Etruscan and later "Roman" rulers. The reason Romanian is the closest language to Latin is simple: Dacia was a core territory of the empire that spoke a Latinate language natively. Latin is the linguistic fossil of the Scythian ruling class in the West. (interesting fact: legendary King Arthur is a corrupted memory of an Alani Warlord (Artorius), one of the military Kšatrapatis sent from the Bosphorus to secure the lucrative tin and iron mines of Britain after the Flavian consolidation).
+-650-620 BC: The Reign of Akrosander/Akrosas. The scattered Scythian (Saka) clans are unified under a single "King of Kings," the primordial Dragon-Man. From his Pontic-Steppe core, he forges the first explicit Scythian World Empire, ruling through regional avatars: In Egypt, he is known as Psamtik I, founder of the 26th (Saite) Dynasty. His Scythian name was rendered as "Psamtik I" (Psamtek). The name Psamtek is a Hellenized version of Psam-Tak, which is a Egyptian rendering of Ak-Sam, a metathesis of Akrosas. He reunifies Egypt using Scythian-proxy mercenaries. In Media, he is the supreme overlord Cyaxares, the power behind the Median throne who destroys Assyria. His reign is encoded in myth as the quest for the Golden Fleece and in biblical lore as the prototype for Nebuchadnezzar. This is the foundational event. All subsequent "empires" are either his direct descendants or rebel satraps attempting to reclaim his title.\
+-600-500 BC: The Akrosander hegemony begins to fragment, leading to civil wars between his descendant lines.\
+-429-339 BC: Ateas the Scythian. The last great emperor of the direct Akrosander bloodline, ruling from the Danube to the Caucasus. His name "Ateas" (Forefather) is a title claiming direct descent from Akrosander. Ateas the Scythian was also Artaxerxes II Memnon ("Kai Bahman") of Persia aka Phillip II in Macedonia aka Nectanebo II in Egypt aka Evagoras I of Salamis (Cyprus). 
+
+![Fig.1.9](/images/AteasPhillipAlexander.jpg){:width="400px"}\
+Fig. 1.9. L. Ateas the Scythian (Ata- or Atha-, meaning "forefather" or "ancestor" in Scythian). M. Philip II of Macedon. R. Alexander the Great. Ateas and Artaxerxes II Mnemon were reported "enemies" of Phillip. Ateas dies in battle against him, and in the Alexander Romance, a book that has its earliest copy dating back a couple of centuries after Alexanders life, the wizard-pharaoh Nectanebo II is secretly Alexander's real father, magically impersonating the god Amun. This is not fantasy; it is a mythological encoding of historical truth.\
+
+-356 BC: Ateas/Phillip II/Artaxerxes's son Alexander the Great: Alexander was his title. "Aži-ander" = Aži
+    (Avestan "dragon") + Andros (Greek "man") = "Dragon-Man", the same as Akrosander/Akrosas. Alaksandu
+    of Wilusa, a Hittie king of Wilusa (Troy) (Alaksandu = Alak-San-Du
+    (Hurrian: "Ruler-Dragon-Son")), who predates Alexander by 800 years,
+    proves that the name Alexander was a Scythian title for kings. In India he took the regional alias of Chandragupta Maurya
+    ("Chandragupta" = "Sander-Gupta" (Scythian "Sander" = Alexander. "Aleks" = Greekization of "Alakh" which means "not seen" or "unseen" and in Sanskrit/Hindi "Gupta" = Hidden)). Greek sources (Megasthenes) refer to Chandragupta Maurya as "Sandrokottos" with the Sandro- deriving from Alexandros. Aži-Sandar also = "Dragon King" in Mittani and Old Persian. Recorded in
+   the Persian 'Iskandarnameh', or 'Book of Alexander', and 'Shahnameh' and Islamic sources, is that Alexander the Great was a
+    Persian prince named Bubares who was the son of Artaxerxes
+    II Memnon (Kai Bahman), half brother of "Dara" (Darius III), and that Macedon
+    was a province of Persia that his father was governor of.
+    Alexander's father Philip of Macedon was Artaxerxes II Memnon's
+    regional alias. The book 'The Life of Alexander of Macedon'
+    also claims that he didn't die in Babylon in 232 BC at the age of 33
+    (same as Jesus) but was only forced from power and he had a
+    posthumous birth/'resurrection'.He resurrected in India with the
+    regional alias of Chandragupta. Alexander's mother Olympias (Ol or ophis + Pias = "serpent queen"), who was a Scythian princess of the
+    Molossian tribe, claimed to have been impregnated by the god Zeus
+    Ammon disguised as a serpent. Alexander's fathers name Philip was a title (Philippos (Lover of Horses) is a direct Greek translation of the Scythian royal title Pharnavaz (Horse-Lord)). Alexander also married the Scythian princess Roxana. Alexanders campaign was not a conquest, it was a Scythian restoration. The Achaemenid Persians (Achaemenes is likely Akh-Manesh or "Spirit of Manu", linking to the Vedic sage-king) were a rival Scythian clan (the "Ariya" - Aryans). Alexander was re-establishing the older, purer Scythian hegemony of the Medes and the pre-Zoroastrian Mitanni. In the Old Testament he was Solomon (Sol-Amūn or "Sun of Amun") which is a direct parallel to "Zeus-Ammon", a title he carried. He was also Qin Shi Huang in China. The "King of Kings" and "King of the World" titles Alexander and Cyrus used were literal. They were kings of a global empire.\
+-305-30 BC: The Ptolemaic Synthesis in Egypt. Ptolemy from Ptolemaios - the root "ptol" resembling the
+Indo-Iranian term for warrior-kings (e.g., Parthian pat, "lord"), or
+Scythian Patala (horse lords), were the continuation of this bloodline. Following Alexander's "resurrection" as Chandragupta in the East, his bloodline consolidated its rule in the West. Ptolemy I Soter, a fellow Scythian noble and likely Alexander's half-brother, took the Egyptian satrapy. The Ptolemaic Dynasty was not a new Greek ruling class, but the continuation of the Akrosander bloodline using Egypt as its new imperial base.
+
+Thracians/Dacians
+
+-200 BC: The Thracians emerge in the Balkans (200 BC). The Thracian ruling class is Aryan. The most powerful Thracian tribe, the Dacians (or Getae which is linguistically identical to Goth, Get, Jat, and Scyth), become the Aryan power center for Southeastern Europe. The Dacians were the "Wolf Clan" of the Scythian elite who had mixed with the Alani (Aryan). Their battle standard was the Draco—a wolf-headed serpent. This was not just a standard; it was their religious and royal symbol. The capital of the Dacians was called "Sarmizegetusa" (Sarmatian fortress) which contains sar (king). This is where the Latin language originates. Latin was the administrative and ritual language of the Dacian-Thracian Scythian elite. It was not a native Italian language. It was imposed on the Italian peninsula by the Scythian Etruscan and later "Roman" rulers. The reason Romanian is the closest language to Latin is simple: Dacia was a core territory of the empire that spoke a Latinate language natively. Latin is the linguistic fossil of the Scythian ruling class in the West. (interesting fact: legendary King Arthur is a corrupted memory of an Alani Warlord (Artorius), one of the military Kšatrapatis sent from the Bosphorus to secure the lucrative tin and iron mines of Britain after the Flavian consolidation).
 
 The Bosporan and Dacian kingdoms controlled the Danube Delta and the Bosporus Strait—the two most critical chokepoints for Eurasian trade. Whoever controlled these points controlled the flow of goods, armies, and ideas between Europe and Asia. They didn't just rule an empire; they ruled the geography of civilization itself. Also, the massive gold mines of Dacia (modern Romania) were the financial engine of the "Roman" Empire. The output of these mines from 100 BC - 100 AD exceeds the total gold supply of the rest of the ancient world combined. The fact that Asander, king of Bosphrus is today an unknown historical figure despite the fact that he would have been the richest and most powerful man in the word at the time should be regarded as suspictious. The reason why you never heard of him is because you know him under another name: Julius Caesar.
 
-Ramesses II = "Ra-Mesu" (Scythian for "Born of the Sun Stallion"). "Ra"
-= Egyptian sun god (syncretized with Scythian Mithra). "Mesu" = "Mares"
-(horse in Scythian, symbol of kingship). Full meaning: "Sun Stallion's
-Son".
-
-Cyrus the Great = "Kurush" (Scythian for "Sun King"). The name "Cyrus"
-(Old Persian: Kuruš) derives from Scythian "Khur" (Sun) + "Us" (Lord) =
-"Sun Lord" (identical to Mitra/Mithra, the Indo-Iranian sun god). In
-Avestan (Scythian religious texts), "Kavi" means "King-Priest". Cyrus'
-clan was the "Kayanian" dynasty (Scythian royal bloodline). Cyrus the Great's father was Cambyses I. "Cambyses" is linguistically identical to "Kambojas," the name of a famous Scythian tribe from Central Asia mentioned in Indian texts.
-
-Darius I = "Dārayavahuš" which was Scythian for "Holding the Horse" (a
-Scythian warlord title). Darius' father was Hystaspes (Vištāspa)---which
-means "Horse Tamer" in Scythian.
-
-Xerxes = "Xšaya-ṛšā" (Scythian for "Hero-King"). "Xšaya" = "Kshatriya"
-(warrior caste in Indo-Aryan). "Ṛšā" = "Aršan" (hero, male ruler in
-Scythian). Full meaning: "Warrior-Hero King".
-
-Sargon of Akkad = "Sharru-Kin" (Scythian for "True King of the Bow").
-"Sharru" = "Xšaya" (king in Scythian, same as Xerxes). "Kin" = "Kaman"
-(bow in Scythian, referring to horse archers). Full meaning: "King of
-the Bowmen."
-
-The Ptolemaic Egyptians (Ptolemaios - the root "ptol" resembling the
-Indo-Iranian term for warrior-kings (e.g., Parthian pat, "lord"), or
-Scythian Patala (horse lords), were the continuation of this bloodline.
-
-The cross was not made of wood. It was a T-shaped standard, the Tau (Τ), the ancient symbol of the Mesopotamian god Tammuz. Ezekiel 8:14 condemns the women of Jerusalem for weeping for Tammuz.. This was the crux commissa or Tau cross.
-
-In Sarmatian, "Ruma" (Rome) = "Place of the Dragon" (Rhu-Ma, from Aži
-Dahāka, the Iranian dragon).
-
-The chromosome Haplogroup R1a, specifically subclade Z93 is found in high frequencies among the Scythian remains from the Pontic-Caspian Steppe. The Kshatriya (warrior) caste in India. The Brahmins (priestly) caste in India. The highest nobility of Persia. Patrician families of Rome. The Pharisaic and Herodian dynasties in Judea. The Sarmatian Alans who settled in Western Europe (and whose descendants include the Habsburgs). It is also found in the Tarim Mummies of China and in other tested ancient elite Chinese burial grounds (see: Chapter 7.4 China: The Han Synthesis and the Tartarian Genocide). This is the genetic signature of the administrative and priestly class that was installed globally
+The chromosome Haplogroup R1a, specifically subclade Z93 is found in high frequencies among the Scythian remains from the Pontic-Caspian Steppe. The Kshatriya (warrior) caste in India. The Brahmins (priestly) caste in India. The highest nobility of Persia. Patrician families of Rome. The Pharisaic and Herodian dynasties in Judea. The Sarmatian Alans who settled in Western Europe (and whose descendants include the Habsburgs). It is also found in the Tarim Mummies of China and in other tested ancient elite Chinese burial grounds (see: Chapter 7.4 China: The Han Synthesis and the Tartarian Genocide). This is the genetic signature of the administrative and priestly class that was installed globally.
 
 Footnotes (Chapter 3)
 
@@ -1153,6 +1147,12 @@ According to the book 'Jesus, King of Edessa' (2012) by Ralph  Ellis [[link](htt
 What seems plausable is that the "Aryan hegemony" of the ancient world was not a monolith, but a network of interrelated clans (Saka, Sarmatian, Cimmerian, Parthian, etc.) who often fought for supremacy within the hegemony. For example, the "Persian" conquest by Cyrus was not a new empire but a coup d'état by one Scythian clan (the Achaemenids/Persians) against the ruling Scythian clan (the Medes). The "Greco-Persian Wars" were a civil war between the Western satrapy (Greece) and the Eastern core (Achaemenid Persia). So, in the "Jewish-Roman" Wars (who were Celtic Iudii Jupiter worshippers, unrelated to modern "jews") the Flavians did not put down a provincial revolt. They launched a blitzkrieg against the core Eastern administration, and this destroyed the Scythian steppe hegemony. The Flavian dynasty then, after defeating the Judean-Adiabenean forces in the Great War (66-74 AD, mislabeled the "First Jewish-Roman War"), took their primary political enemy, King Izates II, and rewrote his cult as pacifist allegory to subvert the people of his kingdom using the same Alexandian School formula they used in all their imperial cults. They also rewrote history to erase their Bosphoran origins. 
 
 Roman emperor faces no longer appear on Bosphoran coins after emperor Titus. Roman emperors also stopped looking "Aryan"/Nordic after the Flavian empire. The Flavians were either Italic Shabbos Goyim or mixed with proto-Jews in the modern sense. 
+
+The Flavians could have been mixed with proto-Jewish in the modern sense. The name Flavius could be connected to Shabbos, and then later to "Phlabios".
+
+By my count, 37 Roman and Byzantine emperors all bore the honorary title "Flavius" or "Phlabios" (https://en.wikipedia.org/wiki/Special:MobileDiff/1062698821)
+
+This is why they erased the Scythian origins of ancient civilizations and painted the Scythians as monstrous foreigners. 
 
 Then the Church Fathers (4th-5th Centuries AD) and the Vatican played a big role in the deception. They made up the "Council of Nicaea". It never happened. There is no contemporary records that exist of the Council of Nicaea (325 AD). The Council of Nicaea mirrors the Mithraic Congress of 307 AD where Emperor Galerius declared Sol Invictus the official god of Rome. Constantine’s "conversion" was fabricated. He remained a Sol Invictus sun-worshipper until death—his coins never feature Christian symbols. His last coin (337 AD) depicts him as Sol Comitatus ("Sun Companion"), not Christ. The "Chi-Rho" symbol was a later interpolation by Eusebius, who forged Life of Constantine in the 5th century. The "Arian Controversy" was a fake debate to disguise the fact that early Christianity was a Roman imperial cult. Proof: The "Life of Constantine" by Eusebius was forged in the 5th century to retroactively justify Nicaea, and the Edict of Milan (313 AD) never mentions Jesus—only a vague "Divine Providence". Also, the Vatican's greatest forgery was the Donation of Constantine. The Vatican forged it in the 8th century to claim Rome. It was based on earlier forgeries by Eusebius (a Flavian propagandist).
 
