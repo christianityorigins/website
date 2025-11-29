@@ -77,7 +77,7 @@ Religion was the technology that the Ptolemaic dynasty used to control the vast 
 
 Beyond the surface-level imperial fiction, all these Alexandrian School religions contained the same psychological weapon at their core: centralized texts and priesthoods which makes a population easier to control through proxy, moral codes like submission, self-sacrifice, obedience, loyalty, divine judgment, the concept of hell, and monotheism which divides the population through binary thinking, ie., the opposition between good and evil, us vs them, left vs right, etc., which destroys tribalism/collectivism by splitting the population into two groups. These religions were also likely designed to segment the populations by class, culture, and region to prevent unified resistance. For example, Mithraism was for military elites (requiring blood oaths, with a Mithraic initiate caste system and hierarchical structure). Serapism was for civilians (promising afterlife salvation). Christianity was for slaves ("turn the other cheek").
 
-"Jesus Christ" was originally a rank, not a name. It was the title for the Satrap-Soter (Governor-Savior) of the Levant-Judea sector, a high-level administrative and priestly position within the Ptolemaic/Bosphoran imperial structure, often filled by a bloodline prince, much like 'Pharaoh' or 'Caesar'. Jesus Christ = I-Zeus ("Divine Zeus") + "Christ" was the job title for the Governor (Satrap) of Judea who was a member of the Bosporan royal house (equivalent to Scythian Xšaθra, Persian "Kšatrapati" (Satrap, Governor), Hyksos "Khasut" in Egypt, Kshatriya (Warrior-King) in Sanskrit which also = Vedic "Krishna", etc.
+"Jesus Christ" was originally a rank, not a name. It was the title for the Satrap-Soter (Governor-Savior) of the Levant-Judea sector, a high-level administrative and priestly position within the Ptolemaic/Bosphoran imperial structure, often filled by a bloodline prince, much like 'Pharaoh' or 'Caesar'. Jesus Christ = I-Zeus ("Divine Zeus") + "Christ" which was the job title for the Governor (Satrap) of Judea who was a member of the Bosporan royal house (equivalent to Scythian Xšaθra, Persian "Kšatrapati" (Satrap, Governor), Hyksos "Khasut" in Egypt, Kshatriya (Warrior-King) in Sanskrit which also = Vedic "Krishna", etc.
 
 The people who assumed this role were the descendants of Mark Antony aka King Herod (aka Mithridates VI Eupator of Pontus aka Ptolemy XII Auletes of Egypt):
 
@@ -91,7 +91,7 @@ Philopator) of Mauretania. He was Mark Antony aka King Herod's great-grandson. H
 [[link](https://web.archive.org/web/20240728150536/https://x.com/ralfellis/status/1809520320077803525)])
 -   Tiberius Julius Sauromates II
 
-It is likely that all the grandsons of Mark Antony aka king Herod took on this role, or roles that may be similar. For example, see: Jesus Among the Julio-Claudians (2021) by Charles N. Pope
+It is likely that all the descendants of Mark Antony aka king Herod took on this role, or roles that may be similar. For example, see: Jesus Among the Julio-Claudians (2021) by Charles N. Pope
 [[link](https://www.amazon.com/Jesus-Among-Julio-Claudians-Charles-Pope/dp/B08XL7Z118%3Fref_=ast_author_mpb)]) who claims that Aristobulus V of Chalcis, grandson of king Herod aka Marcus Junius Silanus Torquatus was Jesus, or The Herodian Messiah Case For Jesus As Grandson Of Herod (2010) by Joseph Raymond
 [[link](https://archive.org/details/joseph-raymond-herodian-messiah-case-for-jesus-as-grandson-of-herod-tower-grove-publishing-2010/page/n18/mode/1up)])
 
@@ -207,14 +207,13 @@ V. Speculative
 - Ateas the Scythian was also Artaxerxes II Memnon ("Kai Bahman") of Persia aka Phillip II in Macedonia aka Nectanebo II in Egypt aka Evagoras I of Salamis (Cyprus). 
 
 ![Fig.1.9](/images/AteasPhillipAlexander.jpg){:width="400px"}\
-Fig. 1.9. L. Ateas the Scythian. M. Philip II of Macedon. R. Alexander the Great. Ateas and Artaxerxes II Mnemon were reported "enemies" of Phillip. Ateas dies in battle against him, and in the Alexander Romance, a book that has its earliest copy dating back a couple of centuries after Alexanders life, the wizard-pharaoh Nectanebo II is secretly Alexander's real father, magically impersonating the god Amun. This is not fantasy; it is a mythological encoding of historical truth.
-  - Son 1: Alexander the Great. In India he took the regional aliases of Chandragupta Maurya
-    ("Chandragupta" = "Sander-Gupta" (Scythian "Sander" = Alexander. "Aleks" = Greekization of "Alakh" which means "not seen" or "unseen" in Sanskrit/Hindi. "Gupta" = Hidden)). Greek sources (Megasthenes) refer to Chandragupta Maurya as "Sandrokottos" with the Sandro- deriving from Alexandros. "Aži-ander": Aži
-    (Avestan "dragon") + Andros (Greek "man") = "Dragon-Man". Alaksandu
+Fig. 1.9. L. Ateas the Scythian (Ata- or Atha-, meaning "forefather" or "ancestor" in Scythian). M. Philip II of Macedon. R. Alexander the Great. Ateas and Artaxerxes II Mnemon were reported "enemies" of Phillip. Ateas dies in battle against him, and in the Alexander Romance, a book that has its earliest copy dating back a couple of centuries after Alexanders life, the wizard-pharaoh Nectanebo II is secretly Alexander's real father, magically impersonating the god Amun. This is not fantasy; it is a mythological encoding of historical truth.
+  - Son 1: Alexander the Great: Akrosander/Akrosas ("dragon man" in Scythian) who was king of the Scythian Kingdom. His name connects to Asander, king of Bosphorus. Alexander was his title. "Aži-ander" = Aži
+    (Avestan "dragon") + Andros (Greek "man") = "Dragon-Man", the same as Akrosander/Akrosas. Alaksandu
     of Wilusa, a Hittie king of Wilusa (Troy) (Alaksandu = Alak-San-Du
     (Hurrian: "Ruler-Dragon-Son")), who predates Alexander by 800 years,
-    proves that the name Alexander was a Scythian title for kings. 
-    Aži-Sandar also = "Dragon King" in Mittani and Old Persian. Recorded in
+    proves that the name Alexander was a Scythian title for kings. In India he took the regional aliases of Chandragupta Maurya
+    ("Chandragupta" = "Sander-Gupta" (Scythian "Sander" = Alexander. "Aleks" = Greekization of "Alakh" which means "not seen" or "unseen" and in Sanskrit/Hindi "Gupta" = Hidden)). Greek sources (Megasthenes) refer to Chandragupta Maurya as "Sandrokottos" with the Sandro- deriving from Alexandros. Aži-Sandar also = "Dragon King" in Mittani and Old Persian. Recorded in
    the Persian 'Iskandarnameh', or 'Book of Alexander', and 'Shahnameh' and Islamic sources, is that Alexander the Great was a
     Persian prince named Bubares who was the son of Artaxerxes
     II Memnon (Kai Bahman), half brother of "Dara" (Darius III), and that Macedon
