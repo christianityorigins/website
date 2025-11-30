@@ -1200,14 +1200,16 @@ ignatius (the name "Meir" means "one who illuminates". Ignatius means
 firey one and Polycarp was famous for lighting himself on fire).
 
 Rabbi Akiva was likely Paul the Apostle. In Acts 22:3 "Paul" claims to
-have been educated at the feet of Gamaliel who was the teacher of rabbi
+have been educated at the feet of Gamaliel (who was likely Tiberius Gemellus who was the grandson of Emperor Tiberius and brother of emperor Caligula) who was the teacher of rabbi
 Akiva, and in Acts 18:2-3 and Romans 16:3 NASB, it is claimed that
 Aquila of Sinope and his wife Prisca or Priscilla lived with Paul the
 Apostle and Paul called them "my fellow workers in Christ Jesus.
 Paul's/Saul's fictional life story was stolen from the ancient Egyptian
 story"Tale of the Shipwrecked Sailor".
 
-Quintus Tinnius Rufus (Turnus Rufus the Evil) was Pontius Pilate, the
+If "Jew" = Jove/Jupiter before the Bar Kokhba revolt (132–136 CE) and Flavian revision, and Judaism was essentially the Cult of Jupiter, then it wouldn't have been unusual for these people to call themselves Jewish despite being genetically Scythian-Sarmatian or Celtic. A "Rabbi" was just a prist in the Flammin Dialis cult. 
+
+Quintus Tinnius Rufus (Turnus Rufus the Evil) would have been Pontius Pilate, the
 Roman governor of Judaea who crucified Simon bar Kokhba and killed rabbi
 Akiva. Rabbi Akiva preached that Simon bar Kokhba was the jewish
 messiah.
