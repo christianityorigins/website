@@ -1058,19 +1058,6 @@ heir, and Caesar was their bloodline successor. The Persian narrative is
 a Flavian forgery to hide their stolen legacy. Alexander conquered
 Persia as vengeance for Persian enslavement of Scythia.
 
-The very first Persian-appointed
-overseer of Macedon had the Persian name Bubares son of Megabyzus
-(likely Cyrus the Great), and subsequent kings of Macedon are said to
-have descended from him. After Megabyzus (Cyrus the Great) conquered
-Thrace and Macedonia (ostensibly on behalf of his brother Darius the
-Great) he established Alexander son of Amyntas as their king. Likely,
-Amyntas was an assumed Macedonian name of Darius the Great. A marriage
-was later arranged between a son of Megabyzus/Cyrus and a daughter of
-Amyntas/Darius. The son of Megabyzus was prince Bupales/Harpalus.
-Likely, Alexander corresponds to Prince Darius/Achaemenes or one of the
-other sons of Darius the Great (such as Ariobarzanes/Pausanias of
-Sparta.
-
 In the book the Alexander Romance, a book that has its earliest copy
 dating back a couple of centuries after his life, Alexander accepts
 mortality only after achieving complete satisfaction in his conquests.
