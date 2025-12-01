@@ -71,13 +71,13 @@ Footnotes
 
 **Introduction**
  
-Christianity is a derivative of one of the religions that were invented at the Alexandrian School in Egypt. The Alexandrian School was a religion-making factory that was set up by Ptolemy Soter. The Serapis cult, Judaism, Gnosticism, Valentinianism, Christianity, Hermeticism, Mithraism, Manichaeism, Mandaeism, and many other religions originated from there. 
+Christianity is a Flavian Dynasty (Vespasian, Titus) hijacking of one of the religions that were invented at the Alexandrian School in Egypt. The Alexandrian School was a religion-making factory that was set up by Ptolemy Soter. The Serapis cult, Judaism, Gnosticism, Valentinianism, Christianity, Hermeticism, Mithraism, Manichaeism, Mandaeism, and many other religions originated from there. 
 
 Religion was the technology that the Ptolemaic dynasty used to control the vast and disparate populations they ruled and they created religions in every single conquered land. They would take local customs and create a syncretic man-god representing the Ptolemaic pharaoh. This system had one primary function: to psychologically pacify conquered populations and prevent unified rebellion. They would package these religions as sects of local religions because getting people to abandon their religions for a new one is an impossible task. However, there are thousands of sects of major religions today, many with different prophets. 
 
 Beyond the surface-level imperial fiction, all these Alexandrian School religions contained the same psychological weapon at their core: centralized texts and priesthoods which makes a population easier to control through proxy, moral codes like submission, self-sacrifice, obedience, loyalty, divine judgment, the concept of hell, and monotheism which divides the population through binary thinking, ie., the opposition between good and evil, us vs them, left vs right, etc., which destroys tribalism/collectivism by splitting the population into two groups. These religions were also likely designed to segment the populations by class, culture, and region to prevent unified resistance. For example, Mithraism was for military elites (requiring blood oaths, with a Mithraic initiate caste system and hierarchical structure). Serapism was for civilians (promising afterlife salvation). Christianity was for slaves ("turn the other cheek").
 
-"Jesus Christ" was originally a rank, not a name. It was the title for the Satrap-Soter (Governor-Savior) of the Levant-Judea sector, a high-level administrative and priestly position within the Ptolemaic/Bosphoran imperial structure, often filled by a bloodline prince, much like 'Pharaoh' or 'Caesar'. Jesus Christ = I-Zeus ("Divine Zeus") + "Christ" which was the job title for the Governor (Satrap) of Judea who was a member of the Bosporan royal house (equivalent to Scythian Xšaθra, Persian "Kšatrapati" (Satrap, Governor), Hyksos "Khasut" in Egypt, Kshatriya (Warrior-King) in Sanskrit which also = Vedic "Krishna", etc.
+"Jesus Christ" was originally a rank, not a name. It was the title for the Satrap-Soter (Governor-Savior) of the Levant-Judea sector, a high-level administrative and priestly position within the Ptolemaic/Bosphoran imperial structure, often filled by a bloodline prince, much like 'Pharaoh' or 'Caesar'. Jesus Christ = Ie-Zeus ("Divine Zeus, the Anointed Governor") + "Kristos" which was the job title for the Governor (Satrap) of Judea who was a member of the Bosporan royal house (equivalent to Scythian Xšaθra, Persian "Kšatrapati" (Satrap, Governor), Hyksos "Khasut" in Egypt, Kshatriya (Warrior-King) in Sanskrit which also = Vedic "Krishna", etc.
 
 The people who assumed this role were the descendants of Mark Antony aka King Herod (aka Mithridates VI Eupator of Pontus aka Ptolemy XII Auletes of Egypt):
 
@@ -94,6 +94,8 @@ Philopator) of Mauretania. He was Mark Antony aka King Herod's great-grandson. H
 It is likely that all the descendants of Mark Antony aka king Herod took on this role, or roles that may be similar. For example, see: Jesus Among the Julio-Claudians (2021) by Charles N. Pope
 [[link](https://www.amazon.com/Jesus-Among-Julio-Claudians-Charles-Pope/dp/B08XL7Z118%3Fref_=ast_author_mpb)]) who claims that Aristobulus V of Chalcis, grandson of king Herod aka Marcus Junius Silanus Torquatus was Jesus, or The Herodian Messiah Case For Jesus As Grandson Of Herod (2010) by Joseph Raymond
 [[link](https://archive.org/details/joseph-raymond-herodian-messiah-case-for-jesus-as-grandson-of-herod-tower-grove-publishing-2010/page/n18/mode/1up)])
+
+Jesus Christ then became a composite literary character based on the defeated Satrap-King Izates II of Adiabene ("Kingdom of Heaven") and other Jesus-avatars after the First Jewish-Roman War (66–73 CE). The Flavian Dynasty weaponized his imperial cult and created a virus within the host: a "religion" that systematically inverted the original cult's power-worship into a slave morality, transforming the governing elite's title into the name of a sacrificial victim. What began in Alexandria as a system of control ended, in the hands of the Flavians, as history's most devastating psy-op—a forged testament used to shatter the very empire that authored it.
 
 A few things you need to know before you read my book:
 
@@ -548,13 +550,19 @@ Fig. 1.16. Coin of Vercingetorix, a Gallic king and chieftain of the Arverni tri
 
 Fig. 1.17. Coin depicting Bogud, king of Mauretania (a territory that encompassed most of North Africa), who was a recorded ally of Julius Caesar.
 
+![Fig.1.18](/images/Archelaus.jpg){:width="400px"}
+
+Fig. 1.18. Coin depicting Archelaus, king of Caesarea, Cappadocia (modern-day Kayseri, Turkey).
+
+Archelaus of Cappadocia was married to  Pythodorida of Pontus (Cleopatra/Dynamis). Polemon Pythodoros (Julius Caesar/Asander) was also married to Pythodorida of Pontus.
+
 **5.2 Cleopatra VII aka Dynamis Ourania aka Pythodorida Philometor**
 
 Cleopatra VII was the archtype, not the avatar, for the "Jesus" figure. She was the living Soteira (feminine Soter), Thea (Goddess), and "Queen of Kings". She was the descendant of the Scythian Dracaena, or the snake-legged goddess who was the mother of the Scythians in mythology.
 
-![Fig.1.18](/images/Cleopatra%20VIIDynamis.png){:width="400px"}
+![Fig.1.19](/images/Cleopatra%20VIIDynamis.png){:width="400px"}
 
-Fig. 1.18. (L) Dynamis, Queen of Bosphorus, (R) Cleopatra VII. There were
+Fig. 1.19. (L) Dynamis, Queen of Bosphorus, (R) Cleopatra VII. There were
 obviously many years between the ages at which she was depicted,
 however, even in the elder Dynamis bust you can see her lazy eye and
 abnormally large eyes which she was reported to have had, possibly as a
@@ -562,9 +570,9 @@ consequence of inbreeding. The hat she is wearing is a Phrygian cap, a
 distinctivehat that is closely associated with the Roman god Mithras.
 Dynamis was recorded as being of "Sarmatian" ancestry.
 
-![Fig.1.19](/images/cleopatra.png){:width="400px"}
+![Fig.1.20](/images/cleopatra.png){:width="400px"}
 
-Fig. 1.19. (L) Julia Mamaea, Queen of Pontus (wife of Polemon II), (R)
+Fig. 1.20. (L) Julia Mamaea, Queen of Pontus (wife of Polemon II), (R)
 Cleopatra VII. Polemon Pythodoros, King of Pontus was a regional alias
 of Julius Caesar/Asander (as Asander and Polemon were both married to
 Dynamis), and if he also played the religious role of Gaius Julius
@@ -639,9 +647,9 @@ Boethus was another of Cleopatra's regional aliases?  If you identify
 King Herod as Mark Antony aka Tiberius Claudius Nero aka Phraates IV of
 Parthia's regional alias then the picture becomes clearer.
 
-![Fig.1.20](/images/PtolemyXII.jpeg){:width="400px"}
+![Fig.1.21](/images/PtolemyXII.jpeg){:width="400px"}
 
-Fig. 1.20. Ptolemy XII Auletes, king of Egypt, who was also Mithridates
+Fig. 1.21. Ptolemy XII Auletes, king of Egypt, who was also Mithridates
 VI Eupator, Ariarathes IX of Cappadocia, Simon Boethus/Magus/Ptolemy
 (Alexander) bar Menneus, et.al. Mithridates VI married his sister
 Laodice---just as Ptolemy XII married his sister Cleopatra V. Both had
@@ -666,26 +674,26 @@ even has a story about a 'spurious Alexander' that showed up in Rome
 claiming to be the son of Herod who faked his death [^14], so he was
 'resurrected' as Juba II, king of Numidia and Mauretania. 
 
-![Fig.1.21](/images/MithridatesVIEupator.png){:width="400px"}
+![Fig.1.22](/images/MithridatesVIEupator.png){:width="400px"}
 
-Fig. 1.21. Coin depicting Mithridates VI Eupator, father of Pharnaces II
+Fig. 1.22. Coin depicting Mithridates VI Eupator, father of Pharnaces II
 and Dynamis. Brother of Mithridates Chrestus. Notice the star and
 crescent that is visible in the Julius Caesar coin above and the winged
 Pegasus within a Dionysiac wreath of ivy and fruit that is seen in the
 Asander coin?
 
-![Fig.1.22](/images/AriarathesIX.jpg){:width="400px"}
+![Fig.1.23](/images/AriarathesIX.jpg){:width="400px"}
 
-Fig. 1.22. Coin depicting Ariarathes IX Eusebes Philopator, King of
+Fig. 1.23. Coin depicting Ariarathes IX Eusebes Philopator, King of
 Cappadocia. Notice the resemblance to Mithridates VI Eupator of Pontus?
 Cleopatra aka Dynamis's son with Julius Caesar aka Asander = Tiberius
 Julius Aspurgus Philoromaios (Aspurgus translates to "horseman-lord" in
 Thracian languages. Sabazios was a Thracian deity worshipped as a
 horseman.).
 
-![Fig.1.23](/images/PtolemyApion.jpg){:width="400px"}
+![Fig.1.24](/images/PtolemyApion.jpg){:width="400px"}
 
-Fig. 1.23. Coin depicting Ptolemy Apion, king of Kyrene, Kyrenaica, North Africa. 
+Fig. 1.24. Coin depicting Ptolemy Apion, king of Kyrene, Kyrenaica, North Africa. 
 
 **5.3.2. Amyntas Nikator aka Amyntas, King of Galatia**
 
@@ -722,9 +730,9 @@ The Celts in classical Galatia worshiped a deity called
 Aesus/Esus/Iesus. Amyntas, as the god king of Galatia would have been the personification of Esus. "Esus" from "Aisu" (Lord) is the Celtic pronunciation. The Scythian root is Aes-, the same as the Aesir and Aesar. "Iesus" is the Latin rendering of "Esus." There was no "J" sound. He was always called Ie-Sus (Yay-soos), "The Esus."
 
 ![Fig.
-1.24](/images/Esus.jpg){:width="400px"}
+1.25](/images/Esus.jpg){:width="400px"}
 
-Fig. 1.24. Statue from classical Anatolia that is dedicated to "Esumopas
+Fig. 1.25. Statue from classical Anatolia that is dedicated to "Esumopas
 Cnusticus". Esumopas means "Slave to Esus", and Esus means lord in
 Proto-Celtic. If you combine the Etruscan word "cnus" with the suffix
 "-ticus" or "-tic-" you get a word that translates to "anointed one" or
@@ -808,9 +816,9 @@ Theophilos in Greek. Around 26% of the New Testament was written to
 Theophilus in Luke and Acts of the Apostles).
 
 ![Fig.
-1.25](/images/AlexanderPhilo.jpg){:width="400px"}
+1.26](/images/AlexanderPhilo.jpg){:width="400px"}
 
-Fig. 1.25. (L) Alexander (grandson of King Herod) aka Gaius Julius
+Fig. 1.26. (L) Alexander (grandson of King Herod) aka Gaius Julius
 Alexander, Herodian Prince of Judaea aka Alexander the Alabarch aka
 (King/Tetrarch) Ptolemy (Alexander) bar Menneus aka Ptolemy of
 Mauretania aka "Jesus" in the bible. (R) Cleopatra (Thea Philopator) of
@@ -830,9 +838,9 @@ Adiabene/Edessa aka Ptolemy aka Yakov Zu Tolomoy aka Izates aka Jesus
 Emmanuel aka Monobazus of Adiabene [^12]
 
 ![Fig.
-1.26](/images/Josephus.jpg){:width="400px"}
+1.27](/images/Josephus.jpg){:width="400px"}
 
-Fig. 1.26. 'Josephus' bust which I identify as Tiberius Julius
+Fig. 1.27. 'Josephus' bust which I identify as Tiberius Julius
 Alexander. Compare it to Nerva's depictions. So, 'Josephus' was Philo of
 Alexandria's son. Tiberius Julius Alexander's son was named
 'Philopappos' and one of his mother's aliases was 'Alexandria bat
@@ -840,9 +848,9 @@ Matthias' which is where the pseudonym 'Joseph bar Matthias' comes from.
 Also, drop the initial b and final s in the name "Bar Mathias" and you
 get (Joseph of) Arimathea.
 
-![Fig. 1.27](/images/coin-abgar-phraates.png){:width="400px"}
+![Fig. 1.28](/images/coin-abgar-phraates.png){:width="400px"}
 
-Fig. 1.27. (L) and (R) show King Izates Monobazus of Edessa (known in
+Fig. 1.28. (L) and (R) show King Izates Monobazus of Edessa (known in
 Greek as the "Kingdom of Ourania" or in English as the "Kingdom of
 Heaven") wearing a crown of thorns. Izates or Izas is his title which is
 an ancient Greek translation of the Avestan word Yazatas (Persian:
@@ -853,9 +861,9 @@ source: The Alexander Mosaic, Huqoq, Israel.
 
 **5.3.6. Tiberius Julius Sauromates II**
 
-![Fig.1.28](/images/SauromatesII.jpg){:width="400px"}
+![Fig.1.29](/images/SauromatesII.jpg){:width="400px"}
 
-Fig. 1.28 Tiberius Julius Sauromates II, King of Bosphorus, who was the
+Fig. 1.29 Tiberius Julius Sauromates II, King of Bosphorus, who was the
 son of Tiberius Julius Cotys (aka Tiberius Julius Alexander aka Arrius
 Calpernius Piso aka Arrius Varus aka Emperor Nerva), great-grandson of
 Dynamis aka Cleopatra and Mark Antony. Does he look
@@ -866,13 +874,13 @@ means 'lizard' or 'reptile', and 'mates' means 'man' or 'warrior'.
 Therefore, translated literally ΒΑCΙΛΕΩC CΑVΡΟΜΑΤΟΥ means "King of the
 lizard people", or "king of the dragon people". He was the grandson (or great-grandson?) of Ptolemy XII Auletes aka Mark Antony aka Mithridates VI Eupator and his daughter Cleopatra aka Dynamis.
 
-![Fig.1.29](/images/Tamga.jpg){:width="400px"}
+![Fig.1.30](/images/Tamga.jpg){:width="400px"}
 
-Fig. 1.29 The royal Tamga (symbol/signature) of Tiberius Julius Sauromates II contains a cross and a Chi Rho.
+Fig. 1.30 The royal Tamga (symbol/signature) of Tiberius Julius Sauromates II contains a cross and a Chi Rho.
 
-![Fig.1.30](/images/SauromatesCross.jpg){:width="400px"}
+![Fig.1.31](/images/SauromatesCross.jpg){:width="400px"}
 
-Fig. 1.30 Coin of Tiberius Julius Sauromates II that displays a cross in the right corner.
+Fig. 1.31 Coin of Tiberius Julius Sauromates II that displays a cross in the right corner.
 
 Endnotes (Chapter 5)
 
@@ -925,9 +933,9 @@ King, and Pas means "all" as in Pan. "Vespasian" = "King of All", or "King of Ev
 'Flavius Scaevinus' the conspirator involved in Nero's assassination.
 
 ![Fig.
-1.31](/images/Vespasian.jpg){:width="400px"}
+1.32](/images/Vespasian.jpg){:width="400px"}
 
-Fig. 1.31. L. Vespasian. R. Herod Agrippa I
+Fig. 1.32. L. Vespasian. R. Herod Agrippa I
 
 'Antonia Caenis' was Vespassian's mistress who was his first cousin who
 was Cleopatra (Thea Philopator) of Mauretania aka Cleopatra IX aka
@@ -1624,7 +1632,7 @@ https://unz.com/article/how-fake-is-church-history by Laurent Guyénot
 
 [^16]: https://en.wikipedia.org/wiki/The_Secrets_of_Rabbi_Simon_ben_Yohai
 
-[^17]: Attila The Hun was actually Priscus Attalus, the Roman governor who led a revolt against Rome.
+[^17]: Attila the Hun = Flavius Aetius (Roman general) + Priscus Attalus (usurper). Attila’s campaign (5th century CE) is a retelling of Mithridatic Wars (1st century BCE). This is chronological duplication.
 
 [^18]: https://en.wikipedia.org/wiki/Claudius%27_expulsion_of_Jews_from_Rome
     ---https://en.wikipedia.org/wiki/Sabazios#Jewish_connection
