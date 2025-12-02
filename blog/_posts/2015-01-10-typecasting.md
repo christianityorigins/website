@@ -201,13 +201,3 @@ http://en.wikipedia.org/wiki/Lucius_Verginius_Rufus</p>
 
 <p><strong>Family 16:</strong><br>
 http://en.wikipedia.org/wiki/Pliny_the_Elder</p>
-
-<hr>
-
-<p style="text-align: center;">Return to <strong><a href="http://www.thenazareneway.com">The Nazarene Way</a></strong> main menu</p>
-
-<p style="text-align: center;"><strong><a href="http://www.thenazareneway.com">The Nazarene Way of Essenic Studies</a></strong><br>
-Email us at: <strong><a href="mailto:Comments@TheNazareneWay.com">Comments@TheNazareneWay.com</a></strong><br>
-Join our <strong><a href="http://groups.yahoo.com/group/communions">Essene Holy Communions</a></strong> email list<br>
-Visit <strong><a href="http://www.amazon.com/exec/obidos/external-search?tag=thenazarenewa-20&keyword=Essenes&mode=books">The Essene Book Store</a></strong><br>
-<strong><a href="guestbook/guestbook.html">Sign our Guest Book!</a></strong></p>
