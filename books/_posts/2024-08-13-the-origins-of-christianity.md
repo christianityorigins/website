@@ -1385,259 +1385,166 @@ https://unz.com/article/how-fake-is-church-history by Laurent Guyénot
 
 **Footnotes**
 
-[^1]: https://ranajitpal-jesus-from-asia-minor.blogspot.com/2011/06/jesus-christ-was-amyntas-of-galatia_20.html
-[^2]: https://web.archive.org/web/20240728150536/https://x.com/ralfellis/status/1809520320077803525
-[^3]: https://www.amazon.com/Jesus-Among-Julio-Claudians-Charles-Pope/dp/B08XL7Z118%3Fref_=ast_author_mpb
-[^4]: https://archive.org/details/joseph-raymond-herodian-messiah-case-for-jesus-as-grandson-of-herod-tower-grove-publishing-2010/page/n18/mode/1up
-[^5]: https://rpc.ashmus.ox.ac.uk/coins/1/1845
-[^6]: https://silver.kbr.be/3628_-_Panticapaeum%3F_(Asander)_(AE_Apollo/prow)_over_Pontic_type_(Perseus/Pegasus)_(Oxford,_AM)
-[^7]: https://henrydavis-cc.medium.com/the-royal-ancestry-of-the-roman-emperor-vespasian-72e144335299
-[^8]: https://en.wikipedia.org/wiki/Pythia
-[^9]: https://en.wikipedia.org/wiki/Hyperborea#Hyperboreans_in_Delos
-[^10]: The historical record from antiquity has a repeating narrative of jewish high priests being executed by a Roman prefect or governor: Roman Procurator of Judea Lucceius Albinus condeming Jesus ben Ananias to cruxification; Roman Procurator of Judea Quintus Tineius Rufus aka Turnus Rufus the Evil condeming Simon bar Kokhba to cruxification; Roman prefect (governor) of Roman Egypt Tiberius Julius Alexander condemining Judas the Gaulanite to death; Roman prefect of the Praetorian Guard Marcius Turbo condeming Lukuas Andreas to death; Roman prefect (governor) of Roman Egypt Aulus Avillius Flaccus crucifying many prominant jews in Alexandria, Roman prefect of Judea Pontius Pilate condeming Julius Archelaus Chelcias to death, etc. There was also people like Jesus ben Gamala/Gamaliel aka Jesus ben Sapphias, Jesus ben Fabus, Jesus ben Panthera, who fit the Jesus role. This is an archetype, or a story pattern for imperial fiction.
-[^11]: https://en.wikipedia.org/wiki/Targitaos who was associated with Hercules. In Scythian mythology Hercules (Targiatos) bred with a snake woman and this created the Scythians \
-    --https://en.wikipedia.org/wiki/Snake-Legged_Goddess (the ancestor-goddess of the Scythians according to the Scythian religion) \
-    --https://en.wikipedia.org/wiki/Serpents_in_the_Bible \
-    --Royal families of Europe descend from this Scythian line: Vlad
-    Dracula (Son of the Dragon) is an example of this bloodline in
-    Wallachia.\
-[^12]: You can read more about the Jew-Neanderthal connection here: (Humans
-    and Neanderthals likely interbred in the Middle East. Science
-    Magazine,
-    https://www.sciencemag.org/news/2015/01/humans-and-neandertals-likely-interbred-middle-east),
-    (Remains of hybrid Neanderthal-Sapiens population found in Israel.
-    Haaretz,
-    https://www.haaretz.com/israel-news/2019-11-08/ty-article-magazine/.premium/remains-of-hybrid-neanderthal-sapiens-population-found-in-israel/0000017f-dbcf-db5a-a57f-dbef18940000),
-    (Evidence of human-Neanderthal hybrids found in Israeli cave.
-    Forward,
-    https://forward.com/culture/434525/evidence-of-human-neanderthal-hybrids-found-in-israeli-cave),
-    (The Chosen People: Caucasus, Deceptions, and Historical. Amazon,
-    https://www.amazon.com/Chosen-People-Caucasus-Deceptions-Historical/dp/0883781476),
-    (Genetic studies of Jews. National Center for Biotechnology
-    Information, https://www.ncbi.nlm.nih.gov/pmc/articles/PMC6309227),
-    (Genetic studies of Jews. Wikipedia,
-    https://en.wikipedia.org/wiki/Genetic_studies_of_Jews),
-    (Ashkenazi Jewish population history revealed by ancient DNA
-    analysis. GenomeWeb,
-    https://www.genomeweb.com/sequencing/ashkenazi-jewish-population-history-revealed-ancient-dna-analysis),
-    (Ashkenazi gene increases schizophrenia. Haaretz,
-    https://www.haaretz.com/2013-11-26/ty-article/.premium/ashkenazi-gene-increases-schizophrenia/0000017f-e04b-d75c-a7ff-fccfa3e10000),
-    (Genetic studies of Jews. National Center for Biotechnology
-    Information, https://www.ncbi.nlm.nih.gov/pmc/articles/PMC7465115/),
-    (So, are the Neanderthals still Jews? Slate,
-    https://slate.com/news-and-politics/1997/08/so-are-the-neanderthals-still-jews.html),
-    (Did modern humans and Neanderthals really meet in the Negev?
-    Haaretz,
-    https://www.haaretz.com/archaeology/2021-06-21/ty-article/.premium/did-modern-humans-and-neanderthals-really-meet-in-the-negev/),
-    (BBC News, https://www.bbc.co.uk/news/science-environment-57586315),
-    (New America Government,
-    https://archive.ph/2024.02.24-211636/https://newamericangovernment.org/ailink/802/),
-    (Blogger, https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiyDzxbNmb6Oj5aDWOknO84-hwkdkoi)\
-[^13]: See: "History: Fiction or Science? Russia. Britain. Byzantium.
-    Rome. New Chronology Vol.IV" (2008) by Anatoly T. Fomenko, "Jesus
-    Among the Julio-Claudians" (2017) by Charles N. Pope
-    '[[link](https://books.google.se/books/about/Jesus_Among_the_Julio_Claudians.html?id=c7A3DwAAQBAJ&redir_esc=y)],
-    and "How Fake Is Roman Antiquity?"
-    https://www.unz.com/article/how-fake-is-roman-antiquity
-    [[link](https://www.unz.com/article/how-fake-is-roman-antiquity/)]
-    for a few authors who make the claim that the "first Rome" was based
-    out of Anatolia. I subscribe to this theory as well. The Latin
-    language likely derives from the Dacian language which was spoken by
-    the Thracians and Phrygians who hailed from the region of modern
-    Romania. Also, the word Byzantine is a modern invention and the area
-    of modern Byzantine (modern-day Istanbul) was once called "Basileía
-    tôn Rhômaíôn" ("Kingdom of the Romans"), the people of that region
-    called themsevles Rhōmaîoi (Romans), and they hailed from Romania
-    (meaning Romanus, or Roman). Most of the "new History" that we
-    accept as fact today was created by the Church Fathers, Jesuits
-    (including all non-European history), and Joseph Justus Scaliger.
-    --Sir Isaac Newton, in his book "The Chronology of Ancient Kingdoms
-    Amended" (1728), claimed that 711 years were added to our calender,
-    and that history was retrofitted to the bible. Anatoly Fomenko
-    increased this number to 1000 years in his books. Anatoly Fomenko
-    claims that all of chronology rests on one guy, Joseph Scaliger
-    (Scaligerian Chronology), the same guy is credited with re-descovery
-    of 80% of the ancient authors and literature, most of the time on
-    demand. Anatoly Fomenko also makes several other controversial
-    claims in his work, specifically that Plato and Gemistus Plethon were one
-    and the same person. Genghis Khan and Attila The Hun were the same
-    person. The Black Plague / Great Plague / Black Death / Bubonic
-    Plague (it's a copy to fill in the phantom 1000 years of supposed
-    "Dark Ages") is exactly the same event as the Justinian Plague. The
-    Trojan War and the Crusades were the same conflict. Also, that there
-    were multiple "Romes" and the major one was based out of Anatolia,
-    in an area that is modern Istanbul. The last point I independently
-    confirmed. Julius Caesar = Asander of Bosphorus, and all early
-    Christianity traces back to to the Bosphorus.\
-[^14]: Julius Caesar was his title (Caesar is etymologically similar to
-    the Indo-Aryan word for "king" and Julius (Iulius) is similar to
-    both (I)Jupiter and to the Indo-Aryan word for "sun"). Julius Caesar
-    was deified in two religions: in the Flamen Dialis cult (Dialis is
-    related to Diespiter, an Old Latin form of the name Jupiter) which
-    made him the claimed son of (I)Jupiter (There was no letter J in
-    Latin and (I)Jupiter is the Roman equivalent of Zeus and they both
-    derive from the Aryan allfather Dyeus Pter which translates to Sky
-    Father. The name Zeus comes from the pronunciation of "Dyeus", and
-    (I)Jupiter comes from the pronunciation of "Dyeus Pter" ->
-    Diespiter -> Iupiter), and he was deified posthumously in the Divus
-    Iulius cult (Divus is synonymous to Dyeus, and as aforemented,
-    Iulius derives from (I)Jupiter). He had a claimed divine birth, was
-    put on trial, betrayed, sacrificed, and was a pontifex maximus (high
-    priest) in his religion. --A statue from the Bosporan Kingdom, dated
-    to Asander's reign (ca. 47--17 BCE) refers to Asander/Asandros as
-    Asandros Philoromaios Soter and gives him the title "King of Kings".
-    So he was a "Soter"/Christ. Source: Corpus Inscriptionum Regni
-    Bosporani (CIRB 30)
-    https://www.researchgate.net/publication/333149205_CIRB_30_Asandros_and_Dynamis_CIRB_Corpus_Inscriptionum_Regni_Bospori\.
-[^15]: In many languages the word "As" is found as the designation of the
-    supreme deities. In the Messapic and Oscan languages Asa means god
-    or divine. In Norse mythology, the Aesir (or Asas) refer to the
-    principal gods, including Odin, Thor, and Freyja. In ancient Persian
-    mythology, "As" is associated with Mithras, but also with other
-    deities such as Ahura Mazda, who was the supreme god of the
-    Zoroastrians. In Egyptian mythology, the god Ash or As is a minor
-    deity associated with the sun and the pharaohs. In Greek mythology,
-    the Titan Atlas is sometimes referred to as "As" or "Aas," which may
-    be related to the ancient Greek word "axios," meaning "worthy" or
-    "divine.". "Asa" means "lord" in Thracian. Asus/Esus is a Celtic
-    deity. In Hindu mythology, the Asuras are a class of powerful beings
-    who are often depicted as gods or demigods. In Slavic mythology, the
-    god Perun is sometimes referred to as "As" or "Asa," which may be
-    related to the ancient Slavic word "asen," meaning "noble" or
-    "divine.". The Etruscan word "Aesar" (also spelled "Aeser" or
-    "Aisar") means "god" or "divine". As is at the root of Caesar.\
-[^16]: A coin of Dynamis, queen of Bosphorus, where she is depicted as
-    Aphrodite "Urania":
-    https://www.forumancientcoins.com/gallery/displayimage.php?album=880&pid=2383#top_display_media.
-    Dynamis carried the title Ouriana, refering to Aphrodite Urania
-    ("heavenly Aphrodite"), the Greek godess. Cleopatra also depicted
-    herself as Aphrodite. Cleopatra's daughter Cleopatra Selene II was
-    also Queen Thea Muse Ourania. --Another Dynamis coin depicting a
-    Star and Crescent which was also the symbol of the royal house of
-    Adiabene and later became a prominent symbol in Islam:
-    https://rpc.ashmus.ox.ac.uk/coins/1/1864.
-    In ancient
-    greek mythology Selene (meaning moon) is the goddess and
-    personification of the Moon. Her symbol is the cresent mon.
-    Cleopatra's daughter, Cleopatra Selene II of Mauretania, coins also
-    depict a star and crescent. --Julius Caesar also used the star and
-    crescent symbol: https://www.accla.org/actaaccla/juliuscaesar.html
-    https://auctions.stacksbowers.com/lots/view/3-US7SY/julius-caesar-ar-denarius-392-gms-rome-mint-l-aemilius-buca-moneyer-lifetime-issue-44-bc-ngc-au-strike-45-surface-45-e
-    --Juba II (Cleopatra VII and Mark Antony's son) also used the star
-    and crescent symbol:
-    https://www.vcoins.com/en/stores/den_of_antiquity/48/product/mauretania_juba_ii_ar_denarius/1952816/Default.aspx\
-[^17]: His name alludes to the Mithras cult. Mithraism was spread by
-    Tiridates of Armenia (alias of Alexander, grandson of King Herod,
-    Mithridates Chrestus descendant?) after Rome's defeat of Parthia
-    around 53 AD as a slave-morality religion to subjugate the
-    Parthians. Mithras is inspired from Zoroastrianism, the religion of
-    the Persians/Parthians, but Mithras is the same as Sabazios. It's a
-    solar son deity, a Jupiter (Mithridates Chrestus's descendant
-    carried the title Monobazus aka Manu-Sabazios). The Mithras cult has
-    many similarities to Christianity; Mithras was born of a virgin,
-    Mithras' birth was celebrated on December 25, Mithras was considered
-    a savior and redeemer, etc., although all these traits are "de jure"
-    of saviors in ancient religions, probably because they all came from
-    the "Alexandrian School" in Egypt. The Serapis cult, Gnosticism,
-    Valentinianism, Christianity, Hermeticism, Mithraism, Manichaeism,
-    Mandaeism, and many other religions came from the Alexandrian
-    School. The Sibylline Oracles were the blueprint for these
-    religions.\
-[^18]: Tiridates II, King of Parthia." Geni,
-    https://www.geni.com/people/Tiridates-II-king-of-Parthia/6000000019000945876\
-[^19]: Davis, Henry. "The Royal Ancestry of the Roman Emperor
-    Vespasian." Medium,
-    https://henrydavis-cc.medium.com/the-royal-ancestry-of-the-roman-emperor-vespasian-72e144335299.\
-[^20]: Josephus, "Antiquities of the Jews", Book 12
-    https://www.ccel.org/ccel/josephus/complete.ii.xviii.xii.html\
-[^21]: Jesus ben Fabus who was Isa Amen (Jesus Amen) of Rev. iii. 14 who
-    was also Amyntas (Amen(tas)) of Galatia who was also Amyntas Nikator
-    (the name Fabus may have been distorted by Josephus from Jesus ben
-    Bagus. Amyntas was the son of Bogitarus. In Persian "Bagus" means
-    god. "Boga" in Persian also means god and in the name Adobogiona
-    "Bog-" means god in Celtic. In Latin Nikator translates tro
-    Invictus). His palace at Iśauria reveals his name as Iśa. (See:
-    Jesus Christ Was Amyntas of Galatia (2010) by Ranajit Pal
-    [[link](https://ranajitpal-jesus-from-asia-minor.blogspot.com/2011/06/jesus-christ-was-amyntas-of-galatia_20.html)])\
-[^22]: The name Herod likely derives from the amalgamation of Horus and
-    Hercules (Herakles in Greek). Mark Antony claimed descent from
-    Hercules and declared himself an incarnation of Horus. Herod became
-    king of judaea around the time of Mark Antony's "suicide". This is
-    typical for these elites, they would kill off one character and then
-    assume another one in a different location as if they were actors in
-    a play.
-    --The Shekel of Tyre that King Herod minted depicts Mark Antony and
-    an image of Hercules:
-    https://www.forumancientcoins.com/numiswiki/view.asp?key=tyrian%20shekels.
-    Herod also built a number of temples and shrines dedicated to
-    Hercules, including one in Beirut and another in Tyre. He also
-    depicted himself as Hercules in his Herodian Cult. King Herod's son,
-    Herod Antipas, has the same name as Mark Antony's son, Antyllus,
-    King Herod's other son Antipater was Iullus Antonius, Mark Antony's
-    son with Fulvia. The wife of Iullus Antonius is called Marcella
-    daughter of Octavian/Augustus' sister Octavia. Fulvia and Antony
-    also are said to have had two daughters, Antonia I and Antonia II.
-    Caligula and Claudius were descendants of Antonia I. Probably
-    Antonia I and/or II was the sister of Herod the Great called Salome.
-    Probably there is also a connection between "Costabar" husband of
-    Salome and the Roman "Ahenobarbus" who married Antonia I.
-    --Mark Antony (King Herod) = Tiberius Claudius Nero. The way to make
-    this connection is through the equivalence of Doris the first wife
-    of Herod the Great and Livia Drusilla the second wife of
-    Octavius/Caesar Augustus. Augustus was first married to Scribonia,
-    but not happily. In 39 BC she gave birth to a daughter, Julia, but
-    was divorced by Augustus. In the same year he became engaged to
-    Livia Drusilla, who was at the time pregnant, not by Augustus but by
-    her own first husband. That husband was Tiberius Claudius Nero,
-    praetor of 41 BC and son of another Tiberius Claudius Nero, praetor
-    of 62 BC. Tiberius Claudius Nero and Livia Drusilla's son was
-    emperor Tiberius Julius Caesar Augustus.\
-[^23]: Jesus ben Gamala/Gamaliel aka Jesus ben Sapphias was also King
-    Izas Ma'nu (Jesus Emmanuel) Monobazus of Adiabene aka Yeshua
-    Cleopatros (Cantheras/Panthera) ben Josephus bar Menneus aka Ptolemy
-    aka Yakov Zu Tolomoy. (See: Jesus, King of Edessa (2012) by Ralph
-    Ellis
-    [[link](https://x.com/ralfellis/status/1809520320077803525)]).
-    King Izates of Monobazus was married to the sister of Dynamis's
-    mother.
-    --Cleopatros in Hebrew is QLPTRS and was shortened on inscriptions
-    to QTRS or Katros, later mistakenly recorded as Cantheras. So the
-    Jews for derogatory reasons called it as Panthera. ie. Jesus
-    Panthera.\
-[^24]: https://en.wikipedia.org/wiki/Apollonius_of_Tyre_(philosopher)\
-[^25]: https://en.wikipedia.org/wiki/Apollonius_of_Tyre\
-[^26]: Davis, Henry. "The Royal Ancestry of the Roman Emperor
-    Vespasian." Medium,
-    https://henrydavis-cc.medium.com/the-royal-ancestry-of-the-roman-emperor-vespasian-72e144335299.\
-[^27]: https://www.coinarchives.com/a/lotviewer.php?LotID=2528933&AucID=6356&Lot=485&Val=e5e4db7aa704d656893926a33a970991\
-[^28]: https://eurogenes.blogspot.com/2017/07/north-european-admixture-in-han-chinese.html\
-[^29]: https://www.livescience.com/archaeology/stunning-tang-dynasty-mural-in-tomb-unearthed-in-china-may-portray-a-westerner-man-with-blond-hair\
-[^30]: https://www.smithsonianmag.com/smart-news/did-greeks-help-sculpt-chinas-terracotta-warriors-180960771/
-    -https://www.independent.co.uk/news/science/china-terracotta-army-ancient-greek-sculptors-alexander-the-great-marco-polo-a7357606.html
-    -https://www.theguardian.com/science/2016/oct/12/ancient-greeks-may-have-inspired-china-terracotta-army-sculptors-ancient-dna
-    -https://www.history.com/news/greeks-may-have-influenced-chinas-terra-cotta-army
-    -https://en.wikipedia.org/wiki/Terracotta_Army\
-[^31]: https://desuarchive.org/his/thread/10105977/\
-[^32]: https://www.academia.edu/40074507/ALEXANDER_AND_CHANDRAGUPTA_IN_A_SANSKRIT_D\
-[^33]: https://www.academia.edu/695219/Diodotus_I_was_Ashoka_An_Altar_of_Alexander_Now_Standing_Near_Delhi\
-[^34]: https://en.wikipedia.org/wiki/Bubares\
-[^35]: https://en.wikipedia.org/wiki/Amyntas_(son_of_Bubares)\
-[^36]: https://web.archive.org/web/20240728150536/https://x.com/ralfellis/status/1809520320077803525\
-[^37]: https://www.eupedia.com/forum/threads/haplogroup-j2-romans-christianity-and-viticulture.28988/\
-[^38]: https://en.wikipedia.org/wiki/The_Secrets_of_Rabbi_Simon_ben_Yohai\
-[^39]: Attila the Hun = Flavius Aetius (Roman general) + Priscus Attalus (usurper). Attila’s campaign (5th century CE) is a retelling of Mithridatic Wars (1st century BCE). This is chronological duplication.
-[^40]: https://en.wikipedia.org/wiki/Marcus_%28Marcosian%29\
-[^41]: https://en.wikipedia.org/wiki/Claudius%27_expulsion_of_Jews_from_Rome\
-[^42]: https://en.wikipedia.org/wiki/Claudius%27_expulsion_of_Jews_from_Rome\
-    ---https://en.wikipedia.org/wiki/Sabazios#Jewish_connection
-    ---Emperor Caligula Brought an End to the Illustrious Ptolemies, but
-    Why?. Ancient Origins Reconstructing the Story of Humanity's Past.
-    www.ancient-origins.net/history-famous-people/emperor-caligula-brought-end-illustrious-ptolemies-why-007591
-    ---https://en.wikipedia.org/wiki/Sabazios#Jewish_connection
-    ---Emperor Caligula Brought an End to the Illustrious Ptolemies, but
-    Why?. Ancient Origins Reconstructing the Story of Humanity's Past.
-    www.ancient-origins.net/history-famous-people/emperor-caligula-brought-end-illustrious-ptolemies-why-007591\
-[^43]: https://www.google.com/books/edition/Cleopatra_to_Christ/T7sqfHyWPuQC?hl=en&gbpv=1&dq=cleopatra+to+christ&printsec=frontcover\
-[^44]: https://www.amazon.com/Following-Philo-Pallas-Freedman-Powerful-ebook/dp/B07PXKQGYG/\
-[^45]: https://web.archive.org/web/20240113043329/https://thenazareneway.com/MM%20Chart.htm\
-[^46]: https://books.google.se/books/about/Jesus_Among_the_Julio_Claudians.html?id=c7A3DwAAQBAJ&redir_esc=y
+[^1]: Ranajit Pal, "Jesus Christ Was Amyntas of Galatia," *Ranajit Pal Blog* (2011). Available at: https://ranajitpal-jesus-from-asia-minor.blogspot.com/2011/06/jesus-christ-was-amyntas-of-galatia_20.html
+
+[^2]: Ralph Ellis, *Jesus, King of Edessa* (2012). Archived at: https://web.archive.org/web/20240728150536/https://x.com/ralfellis/status/1809520320077803525
+
+[^3]: Charles N. Pope, *Jesus Among the Julio-Claudians* (Amazon Digital Services, 2021). Available at: https://www.amazon.com/Jesus-Among-Julio-Claudians-Charles-Pope/dp/B08XL7Z118
+
+[^4]: Joseph Raymond, *The Herodian Messiah: Case for Jesus as Grandson of Herod* (Tower Grove Publishing, 2010). Available at: https://archive.org/details/joseph-raymond-herodian-messiah-case-for-jesus-as-grandson-of-herod-tower-grove-publishing-2010/page/n18/mode/1up
+
+[^5]: "Coin: Asander, King of Bosporus," *Roman Provincial Coinage Online*. Available at: https://rpc.ashmus.ox.ac.uk/coins/1/1845
+
+[^6]: "Coin: Panticapaeum (Asander)," *KBR Silver Collection*. Available at: https://silver.kbr.be/3628_-_Panticapaeum%3F_(Asander)_(AE_Apollo/prow)_over_Pontic_type_(Perseus/Pegasus)_(Oxford,_AM)
+
+[^7]: Henry Davis, "The Royal Ancestry of the Roman Emperor Vespasian," *Medium* (2021). Available at: https://henrydavis-cc.medium.com/the-royal-ancestry-of-the-roman-emperor-vespasian-72e144335299
+
+[^8]: "Pythia," *Wikipedia*. Available at: https://en.wikipedia.org/wiki/Pythia
+
+[^9]: "Hyperborea: Hyperboreans in Delos," *Wikipedia*. Available at: https://en.wikipedia.org/wiki/Hyperborea#Hyperboreans_in_Delos
+
+[^10]: The historical record from antiquity has a repeating narrative of Jewish high priests being executed by a Roman prefect or governor: Roman Procurator of Judea Lucceius Albinus condemning Jesus ben Ananias to crucifixion; Roman Procurator of Judea Quintus Tineius Rufus (aka Turnus Rufus the Evil) condemning Simon bar Kokhba to crucifixion; Roman prefect (governor) of Roman Egypt Tiberius Julius Alexander condemning Judas the Gaulanite to death; Roman prefect of the Praetorian Guard Marcius Turbo condemning Lukuas Andreas to death; Roman prefect (governor) of Roman Egypt Aulus Avillius Flaccus crucifying many prominent Jews in Alexandria; Roman prefect of Judea Pontius Pilate condemning Julius Archelaus Chelcias to death, etc. There were also people like Jesus ben Gamala/Gamaliel (aka Jesus ben Sapphias), Jesus ben Fabus, Jesus ben Panthera, who fit the Jesus role. This is an archetype, or a story pattern for imperial fiction.
+
+[^11]: "Targitaos," *Wikipedia*. Targitaos was associated with Hercules. In Scythian mythology, Hercules (Targiatos) bred with a snake woman and this created the Scythians.
+    
+    See also: "Snake-Legged Goddess" (the ancestor-goddess of the Scythians according to Scythian religion), *Wikipedia*: https://en.wikipedia.org/wiki/Snake-Legged_Goddess
+    
+    "Serpents in the Bible," *Wikipedia*: https://en.wikipedia.org/wiki/Serpents_in_the_Bible
+    
+    Royal families of Europe descend from this Scythian line: Vlad Dracula (Son of the Dragon) is an example of this bloodline in Wallachia.
+
+[^12]: For more on the Jew-Neanderthal connection:
+    
+    - "Humans and Neanderthals likely interbred in the Middle East," *Science Magazine* (2015). Available at: https://www.sciencemag.org/news/2015/01/humans-and-neandertals-likely-interbred-middle-east
+    
+    - "Remains of hybrid Neanderthal-Sapiens population found in Israel," *Haaretz* (2019). Available at: https://www.haaretz.com/israel-news/2019-11-08/ty-article-magazine/.premium/remains-of-hybrid-neanderthal-sapiens-population-found-in-israel/0000017f-dbcf-db5a-a57f-dbef18940000
+    
+    - "Evidence of human-Neanderthal hybrids found in Israeli cave," *Forward* (2019). Available at: https://forward.com/culture/434525/evidence-of-human-neanderthal-hybrids-found-in-israeli-cave
+    
+    - *The Chosen People: Caucasus, Deceptions, and Historical* (Amazon, 1993). Available at: https://www.amazon.com/Chosen-People-Caucasus-Deceptions-Historical/dp/0883781476
+    
+    - "Genetic studies of Jews," *National Center for Biotechnology Information* (2018). Available at: https://www.ncbi.nlm.nih.gov/pmc/articles/PMC6309227
+    
+    - "Genetic studies of Jews," *Wikipedia*. Available at: https://en.wikipedia.org/wiki/Genetic_studies_of_Jews
+    
+    - "Ashkenazi Jewish population history revealed by ancient DNA analysis," *GenomeWeb* (2013). Available at: https://www.genomeweb.com/sequencing/ashkenazi-jewish-population-history-revealed-ancient-dna-analysis
+    
+    - "Ashkenazi gene increases schizophrenia," *Haaretz* (2013). Available at: https://www.haaretz.com/2013-11-26/ty-article/.premium/ashkenazi-gene-increases-schizophrenia/0000017f-e04b-d75c-a7ff-fccfa3e10000
+    
+    - "Genetic studies of Jews," *National Center for Biotechnology Information* (2020). Available at: https://www.ncbi.nlm.nih.gov/pmc/articles/PMC7465115/
+    
+    - "So, are the Neanderthals still Jews?" *Slate* (1997). Available at: https://slate.com/news-and-politics/1997/08/so-are-the-neanderthals-still-jews.html
+    
+    - "Did modern humans and Neanderthals really meet in the Negev?" *Haaretz* (2021). Available at: https://www.haaretz.com/archaeology/2021-06-21/ty-article/.premium/did-modern-humans-and-neanderthals-really-meet-in-the-negev/
+    
+    - "Neanderthals and humans lived side by side," *BBC News* (2021). Available at: https://www.bbc.co.uk/news/science-environment-57586315
+    
+    - Various additional sources available through New America Government and Blogger archives.
+
+[^13]: See: Anatoly T. Fomenko, *History: Fiction or Science? Russia. Britain. Byzantium. Rome. New Chronology Vol.IV* (2008); Charles N. Pope, *Jesus Among the Julio-Claudians* (2017); and "How Fake Is Roman Antiquity?" *The Unz Review* (2018). Available at: https://www.unz.com/article/how-fake-is-roman-antiquity/
+    
+    I subscribe to the theory that the "first Rome" was based in Anatolia. The Latin language likely derives from the Dacian language spoken by Thracians and Phrygians from modern Romania. The term "Byzantine" is a modern invention—the area was once called "Basileía tôn Rhômaíôn" (Kingdom of the Romans), and its inhabitants called themselves Rhōmaîoi (Romans), hailing from Romania (meaning Romanus, or Roman). Most "new History" accepted today was created by Church Fathers, Jesuits (including all non-European history), and Joseph Justus Scaliger.
+    
+    Sir Isaac Newton, in *The Chronology of Ancient Kingdoms Amended* (1728), claimed 711 years were added to our calendar, with history retrofitted to the Bible. Anatoly Fomenko increased this to 1000 years, arguing all chronology rests on Joseph Scaliger (Scaligerian Chronology), who is credited with rediscovering 80% of ancient authors and literature, often on demand.
+    
+    Fomenko makes other controversial claims: that Plato and Gemistus Plethon were the same person; Genghis Khan and Attila the Hun were the same person; the Black Death and Justinian Plague were the same event; the Trojan War and Crusades were the same conflict; and that there were multiple "Romes," with the major one in Anatolia (modern Istanbul). I independently confirmed Julius Caesar = Asander of Bosphorus, with all early Christianity tracing back to the Bosphorus.
+
+[^14]: Julius Caesar was a title (Caesar is etymologically similar to the Indo-Aryan word for "king," and Julius/Iulius is similar to both Jupiter and the Indo-Aryan word for "sun"). He was deified in two religions: the Flamen Dialis cult (making him the claimed son of Jupiter) and the Divus Iulius cult (posthumous deification). He had a claimed divine birth, was put on trial, betrayed, sacrificed, and was pontifex maximus (high priest).
+    
+    A statue from the Bosporan Kingdom dated to Asander's reign (ca. 47–17 BCE) refers to Asander/Asandros as "Asandros Philoromaios Soter" and gives him the title "King of Kings"—making him a "Soter"/Christ. Source: Corpus Inscriptionum Regni Bosporani (CIRB 30). Available at: https://www.researchgate.net/publication/333149205_CIRB_30_Asandros_and_Dynamis_CIRB_Corpus_Inscriptionum_Regni_Bospori
+
+[^15]: In many languages, "As" designates supreme deities: in Messapic and Oscan, Asa means god or divine; in Norse mythology, the Aesir (Asas) are principal gods (Odin, Thor, Freyja); in Persian mythology, "As" is associated with Mithras and Ahura Mazda; in Egyptian mythology, Ash/As is a minor sun deity; in Greek mythology, Atlas is sometimes "As"/"Aas" (related to "axios," meaning worthy/divine); "Asa" means "lord" in Thracian; Asus/Esus is a Celtic deity; in Hindu mythology, Asuras are powerful beings; in Slavic mythology, Perun is referred to as "As"/"Asa" (related to "asen," meaning noble/divine); in Etruscan, "Aesar" means god or divine. "As" is at the root of Caesar.
+
+[^16]: A coin of Dynamis, queen of Bosphorus, depicts her as Aphrodite "Urania." Available at: https://www.forumancientcoins.com/gallery/displayimage.php?album=880&pid=2383#top_display_media
+    
+    Dynamis carried the title Ouriana, referring to Aphrodite Urania ("heavenly Aphrodite"). Cleopatra also depicted herself as Aphrodite, and her daughter Cleopatra Selene II was Queen Thea Muse Ourania.
+    
+    Another Dynamis coin depicts a Star and Crescent, also the symbol of the royal house of Adiabene and later Islam. Available at: https://rpc.ashmus.ox.ac.uk/coins/1/1864
+    
+    In Greek mythology, Selene (moon) is the moon goddess; her symbol is the crescent. Cleopatra Selene II's coins also depict a star and crescent.
+    
+    Julius Caesar used the star and crescent symbol. Available at: https://www.accla.org/actaaccla/juliuscaesar.html and https://auctions.stacksbowers.com/lots/view/3-US7SY/julius-caesar-ar-denarius-392-gms-rome-mint-l-aemilius-buca-moneyer-lifetime-issue-44-bc-ngc-au-strike-45-surface-45-e
+    
+    Juba II (son of Cleopatra VII and Mark Antony) also used the symbol. Available at: https://www.vcoins.com/en/stores/den_of_antiquity/48/product/mauretania_juba_ii_ar_denarius/1952816/Default.aspx
+
+[^17]: His name alludes to the Mithras cult. Mithraism was spread by Tiridates of Armenia (alias of Alexander, grandson of King Herod, possibly Mithridates Chrestus descendant) after Rome's defeat of Parthia around 53 AD as a slave-morality religion to subjugate Parthians. Mithras is inspired by Zoroastrianism but is the same as Sabazios—a solar son deity, a Jupiter (Mithridates Chrestus's descendant carried the title Monobazus, aka Manu-Sabazios).
+    
+    Mithraism shares similarities with Christianity: Mithras was born of a virgin, celebrated December 25, and was a savior/redeemer. These traits are common to saviors in ancient religions, likely because they originated from the "Alexandrian School" in Egypt. The Serapis cult, Gnosticism, Valentinianism, Christianity, Hermeticism, Mithraism, Manichaeism, Mandaeism, and other religions came from the Alexandrian School. The Sibylline Oracles were the blueprint.
+
+[^18]: "Tiridates II, King of Parthia," *Geni*. Available at: https://www.geni.com/people/Tiridates-II-king-of-Parthia/6000000019000945876
+
+[^19]: Henry Davis, "The Royal Ancestry of the Roman Emperor Vespasian," *Medium* (2021). Available at: https://henrydavis-cc.medium.com/the-royal-ancestry-of-the-roman-emperor-vespasian-72e144335299
+
+[^20]: Josephus, *Antiquities of the Jews*, Book 12. Available at: https://www.ccel.org/ccel/josephus/complete.ii.xviii.xii.html
+
+[^21]: Jesus ben Fabus was Isa Amen (Jesus Amen) of Revelation 3:14, also Amyntas (Amen[tas]) of Galatia, also Amyntas Nikator. The name Fabus may be distorted from Jesus ben Bagus (Amyntas was son of Bogitarus; in Persian, "Bagus" means god; "Boga" in Persian/Celtic also means god; in Latin, Nikator translates to Invictus). His palace at Isauria reveals his name as Iśa. See: Ranajit Pal, *Jesus Christ Was Amyntas of Galatia* (2010).
+
+[^22]: The name Herod likely derives from Horus and Hercules (Herakles). Mark Antony claimed descent from Hercules and declared himself an incarnation of Horus. Herod became king of Judea around Mark Antony's "suicide"—typical of elites killing off one character and assuming another.
+    
+    The Shekel of Tyre minted by Herod depicts Mark Antony and Hercules. Available at: https://www.forumancientcoins.com/numiswiki/view.asp?key=tyrian%20shekels
+    
+    Herod built temples to Hercules in Beirut and Tyre, and depicted himself as Hercules in his Herodian Cult. Herod's son Herod Antipas shares the name of Mark Antony's son Antyllus; Herod's other son Antipater was Iullus Antonius (Mark Antony's son with Fulvia). Iullus Antonius married Marcella (daughter of Octavian's sister Octavia). Mark Antony and Fulvia had two daughters: Antonia I and II. Caligula and Claudius descended from Antonia I, who may have been Herod's sister Salome. There may be a connection between Salome's husband "Costabar" and the Roman "Ahenobarbus" who married Antonia I.
+    
+    Mark Antony (King Herod) = Tiberius Claudius Nero. This connection is made through the equivalence of Doris (Herod's first wife) and Livia Drusilla (Augustus's second wife). Augustus first married Scribonia (mother of Julia) but divorced her in 39 BC to marry Livia Drusilla, who was pregnant by her first husband Tiberius Claudius Nero. Their son was Emperor Tiberius.
+
+[^23]: Jesus ben Gamala/Gamaliel (aka Jesus ben Sapphias) was also King Izas Ma'nu (Jesus Emmanuel) Monobazus of Adiabene, aka Yeshua Cleopatros (Cantheras/Panthera) ben Josephus bar Menneus, aka Ptolemy, aka Yakov Zu Tolomoy. See: Ralph Ellis, *Jesus, King of Edessa* (2012).
+    
+    King Izates Monobazus married the sister of Dynamis's mother.
+    
+    Cleopatros in Hebrew is QLPTRS, shortened on inscriptions to QTRS or Katros, later mistakenly recorded as Cantheras. Jews derogatorily called it Panthera, i.e., Jesus Panthera.
+
+[^24]: "Apollonius of Tyre (philosopher)," *Wikipedia*. Available at: https://en.wikipedia.org/wiki/Apollonius_of_Tyre_(philosopher)
+
+[^25]: "Apollonius of Tyre," *Wikipedia*. Available at: https://en.wikipedia.org/wiki/Apollonius_of_Tyre
+
+[^26]: Henry Davis, "The Royal Ancestry of the Roman Emperor Vespasian," *Medium* (2021). Available at: https://henrydavis-cc.medium.com/the-royal-ancestry-of-the-roman-emperor-vespasian-72e144335299
+
+[^27]: "Coin: Antiochus IV of Commagene," *CoinArchives*. Available at: https://www.coinarchives.com/a/lotviewer.php?LotID=2528933&AucID=6356&Lot=485&Val=e5e4db7aa704d656893926a33a970991
+
+[^28]: "North European admixture in Han Chinese," *Eurogenes Blog* (2017). Available at: https://eurogenes.blogspot.com/2017/07/north-european-admixture-in-han-chinese.html
+
+[^29]: "Stunning Tang Dynasty mural in tomb unearthed in China may portray a Westerner man with blond hair," *Live Science* (2023). Available at: https://www.livescience.com/archaeology/stunning-tang-dynasty-mural-in-tomb-unearthed-in-china-may-portray-a-westerner-man-with-blond-hair
+
+[^30]: "Did Greeks help sculpt China's terracotta warriors?" *Smithsonian Magazine* (2016). Available at: https://www.smithsonianmag.com/smart-news/did-greeks-help-sculpt-chinas-terracotta-warriors-180960771/
+    
+    See also:
+    - https://www.independent.co.uk/news/science/china-terracotta-army-ancient-greek-sculptors-alexander-the-great-marco-polo-a7357606.html
+    - https://www.theguardian.com/science/2016/oct/12/ancient-greeks-may-have-inspired-china-terracotta-army-sculptors-ancient-dna
+    - https://www.history.com/news/greeks-may-have-influenced-chinas-terra-cotta-army
+    - "Terracotta Army," *Wikipedia*: https://en.wikipedia.org/wiki/Terracotta_Army
+
+[^31]: Various discussions on historical chronology, *Desuarchive*. Available at: https://desuarchive.org/his/thread/10105977/
+
+[^32]: "Alexander and Chandragupta in a Sanskrit Drama," *Academia.edu*. Available at: https://www.academia.edu/40074507/ALEXANDER_AND_CHANDRAGUPTA_IN_A_SANSKRIT_D
+
+[^33]: "Diodotus I was Ashoka: An Altar of Alexander Now Standing Near Delhi," *Academia.edu*. Available at: https://www.academia.edu/695219/Diodotus_I_was_Ashoka_An_Altar_of_Alexander_Now_Standing_Near_Delhi
+
+[^34]: "Bubares," *Wikipedia*. Available at: https://en.wikipedia.org/wiki/Bubares
+
+[^35]: "Amyntas (son of Bubares)," *Wikipedia*. Available at: https://en.wikipedia.org/wiki/Amyntas_(son_of_Bubares)
+
+[^36]: Ralph Ellis, *Jesus, King of Edessa* (2012). Archived at: https://web.archive.org/web/20240728150536/https://x.com/ralfellis/status/1809520320077803525
+
+[^37]: "Haplogroup J2: Romans, Christianity, and Viticulture," *Eupedia Forum*. Available at: https://www.eupedia.com/forum/threads/haplogroup-j2-romans-christianity-and-viticulture.28988/
+
+[^38]: "The Secrets of Rabbi Simon ben Yohai," *Wikipedia*. Available at: https://en.wikipedia.org/wiki/The_Secrets_of_Rabbi_Simon_ben_Yohai
+
+[^39]: Attila the Hun = Flavius Aetius (Roman general) + Priscus Attalus (usurper). Attila's campaign (5th century CE) is a retelling of the Mithridatic Wars (1st century BCE)—chronological duplication.
+
+[^40]: "Marcus (Marcosian)," *Wikipedia*. Available at: https://en.wikipedia.org/wiki/Marcus_%28Marcosian%29
+
+[^41]: "Claudius' expulsion of Jews from Rome," *Wikipedia*. Available at: https://en.wikipedia.org/wiki/Claudius%27_expulsion_of_Jews_from_Rome
+
+[^42]: "Claudius' expulsion of Jews from Rome," *Wikipedia*. Available at: https://en.wikipedia.org/wiki/Claudius%27_expulsion_of_Jews_from_Rome
+    
+    See also:
+    - "Sabazios: Jewish connection," *Wikipedia*: https://en.wikipedia.org/wiki/Sabazios#Jewish_connection
+    - "Emperor Caligula Brought an End to the Illustrious Ptolemies, but Why?" *Ancient Origins* (2015). Available at: https://www.ancient-origins.net/history-famous-people/emperor-caligula-brought-end-illustrious-ptolemies-why-007591
+
+[^43]: Ralph Ellis, *Cleopatra to Christ* (Edfu Books, 2012). Available at: https://www.google.com/books/edition/Cleopatra_to_Christ/T7sqfHyWPuQC?hl=en&gbpv=1&dq=cleopatra+to+christ&printsec=frontcover
+
+[^44]: "Following Philo: Pallas the Freedman, the Most Powerful Man in the Empire," *Amazon* (2019). Available at: https://www.amazon.com/Following-Philo-Pallas-Freedman-Powerful-ebook/dp/B07PXKQGYG/
+
+[^45]: "Magdalene's Men Chart," *The Nazarene Way* (archived 2024). Available at: https://web.archive.org/web/20240113043329/https://thenazareneway.com/MM%20Chart.htm
+
+[^46]: Charles N. Pope, *Jesus Among the Julio-Claudians* (2017). Available at: https://books.google.se/books/about/Jesus_Among_the_Julio_Claudians.html?id=c7A3DwAAQBAJ&redir_esc=y
