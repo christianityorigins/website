@@ -83,24 +83,24 @@ The people who assumed this role were the descendants of Mark Antony aka King He
 
 -   Amyntas Nikator aka Amyntas, King of Galatia, who was Mark Antony aka King Herod's son under his Mithridates VI Eupator of Pontus alias. He was also Jesus ben Fabus. (See:
     Jesus Christ Was Amyntas of Galatia (2010) by Ranajit Pal
-    [[link](https://ranajitpal-jesus-from-asia-minor.blogspot.com/2011/06/jesus-christ-was-amyntas-of-galatia_20.html)])
+    [^1])
 -   Alexander (son of King Herod) aka Alexander Helios aka Juba II. Was he Jesus ben Panthera? "Panthera" is a Hellenized corruption of "Ptolemaios" (Ptolem -> Ptol -> Panther). "Jesus, son of Ptolemy". The Talmud (Bereshit Rabbah 46:10) calls Izates and Monobazus the "Sons of Ptolemy".
 -   Alexander (grandson of King Herod) aka Ptolemy of Mauretania aka Monobazus I. Who was Jesus ben Sapphias?
 -   Izates II, King of Adiabene who was the son of Alexander (grandson of King Herod) and his sister-wife Cleopatra (Thea
 Philopator) of Mauretania. He was Mark Antony aka King Herod's great-grandson. He was was Jesus ben Gamala/Gamaliel (See: Cleopatra to Christ (2010) by Ralph Ellis
-[[link](https://web.archive.org/web/20240728150536/https://x.com/ralfellis/status/1809520320077803525)])
+[^2])
 -   Tiberius Julius Sauromates II
 
 It is likely that all the descendants of Mark Antony aka king Herod took on this role, or roles that may be similar. For example, see: Jesus Among the Julio-Claudians (2021) by Charles N. Pope
-[[link](https://www.amazon.com/Jesus-Among-Julio-Claudians-Charles-Pope/dp/B08XL7Z118%3Fref_=ast_author_mpb)]) who claims that Aristobulus V of Chalcis, grandson of king Herod aka Marcus Junius Silanus Torquatus was Jesus, or The Herodian Messiah Case For Jesus As Grandson Of Herod (2010) by Joseph Raymond
-[[link](https://archive.org/details/joseph-raymond-herodian-messiah-case-for-jesus-as-grandson-of-herod-tower-grove-publishing-2010/page/n18/mode/1up)])
+[^3]) who claims that Aristobulus V of Chalcis, grandson of king Herod aka Marcus Junius Silanus Torquatus was Jesus, or The Herodian Messiah Case For Jesus As Grandson Of Herod (2010) by Joseph Raymond
+[^4])
 
 Jesus Christ then became a composite literary character based on the defeated Satrap-King Izates II of Adiabene ("Kingdom of Heaven") and other Jesus-avatars after the First Jewish-Roman War (66–73 CE). The Flavian Dynasty weaponized his imperial cult and created a virus within the host: a "religion" that systematically inverted the original cult's power-worship into a slave morality, transforming the governing elite's title into the name of a sacrificial victim. What began in Alexandria as a system of control ended, in the hands of the Flavians, as history's most devastating psy-op—a forged testament used to shatter the very empire that authored it.
 
 A few things you need to know before you read my book:
 
 -   Much of what we know of ancient history is fabricated by the Flavian emperors, Jesuits, and the Vatican. The Egyptian-Persian-Indian-Greek-Roman elite were a Proto-Indo-European (PIE) Elite (Kurgan Culture) who were the horse-riding, chariot-inventing pastoralists from the Pontic-Caspian Steppe who, beginning around 4500 BC, began a systematic conquest of Europe, Anatolia, and the Indus Valley, and who ruled through proxy dynasties. Egypt, Persia, India, Greece, Rome,
-etc., were all at one point under the suzerainty of Aryan Iranian-Scythian elites and their base of operation was on the Cimmerian Bosphorus (Crimea–Kerch) river. Mainstream history presents a linear progression: Egypt -> Greece -> Persia -> Rome. This is a complete fabrication. The "ancient" civilizations of Egypt, Greece, Persia, and Rome were largely concurrent satrapies of the Scythian core. The Persian system of Satraps (Old Persian xšaçapāvan, "protector of the dominion") is the administrative blueprint of this hegemony. The title derives from Xšaya (to rule), which links to Roman Caesar and Sanskrit Kshatriya. Every Satrap was a regional "dragon-king" enforcing the center's will.
+etc., were all at one point under the suzerainty of Aryan Iranian-Scythian elites and their base of operation was on the Bosphorus river. Mainstream history presents a linear progression: Egypt -> Greece -> Persia -> Rome. This is a complete fabrication. The "ancient" civilizations of Egypt, Greece, Persia, and Rome were largely concurrent satrapies of the Scythian core. The Persian system of Satraps (Old Persian xšaçapāvan, "protector of the dominion") is the administrative blueprint of this hegemony. The title derives from Xšaya (to rule), which links to Roman Caesar and Sanskrit Kshatriya. Every Satrap was a regional "dragon-king" enforcing the center's will.
 -   Western Rome in Italy is a phantom empire that did not conquer the kingdoms of the East. The Bosphoran royal house created Western Rome as a military garrison. The original Rome (in Sarmatian, "Ruma" (Rome) = "Place of the Dragon" (Rhu-Ma, from Aži Dahāka, the Iranian dragon)) was located on the Bosphorus river which approximates to modern-day Crimea in southern Ukraine. There was a split between East and West during the Flavian period and the Flavians erased their Bosphoran origins.
 -   Asander, king of Bosphorus aka Julius Caesar was also Cleopatra's uncle Ptolemy of Cyprus (brother of Ptolemy XII Auletes and husband of "Mithridates") aka Mithridates Chrestus, King of Pontus VI (brother of Mithridates VI, king of Pontus), but he took on numerous other regional aliases. Cleopatra was also Dynamis, queen of Bosphorus. Mark
 Antony the Neos-Dionysos was Cleopatra's father Ptolemy XII Auletes (Auletes name adapts well to the
@@ -132,7 +132,7 @@ The Foundational Avatar: Julius Caesar is Asander, king of Bosporus
 ![Fig.1.1](/images/caesarstar.jpg){:width="400px"}\
 ![Fig.1.2](/images/asandernike.jpg){:width="400px"}
 
-Fig. 1.1 & 1.2. (L) Julius Caesar. (R) Asander, king of Bosphorus depicting a Nike which was the Greek goddess of victory and a close companion of Zeus. Other depictions of Asander show the star and cresent that is visible in the Julius Caesar coin above (https://rpc.ashmus.ox.ac.uk/coins/1/1845). Another coin of Asander depicts a Phrygian cap which is closely associated with the Roman god Mithras: https://silver.kbr.be/3628_-_Panticapaeum%3F_(Asander)_(AE_Apollo/prow)_over_Pontic_type_(Perseus/Pegasus)_(Oxford,_AM). This coin of Asander displays a prow (front of a ship) that is also seen in Julius Caesar coins. The star and crescent in above coins was the symbol of the city of Byzantium/Constantinople long before the Ottomans used it. The legend was that Byzas, the founder, chose the site based on a vision of a crescent moon and a star. This symbol represented the fusion of the lunar goddess (Hecate/Artemis, who was associated with snakes) and the solar god (Apollo). By using this symbol, Asander and Caesar were not just using a random symbol; they were explicitly claiming lordship over the Bosphorus.
+Fig. 1.1 & 1.2. (L) Julius Caesar. (R) Asander, king of Bosphorus depicting a Nike which was the Greek goddess of victory and a close companion of Zeus. Other depictions of Asander show the star and cresent that is visible in the Julius Caesar coin above [^5]. Another coin of Asander depicts a Phrygian cap which is closely associated with the Roman god Mithras: [^6]. This coin of Asander displays a prow (front of a ship) that is also seen in Julius Caesar coins. The star and crescent in above coins was the symbol of the city of Byzantium/Constantinople long before the Ottomans used it. The legend was that Byzas, the founder, chose the site based on a vision of a crescent moon and a star. This symbol represented the fusion of the lunar goddess (Hecate/Artemis, who was associated with snakes) and the solar god (Apollo). By using this symbol, Asander and Caesar were not just using a random symbol; they were explicitly claiming lordship over the Bosphorus.
 
 The Avatar Succession: Roman Emperors are Bosporan Kings
 
@@ -182,7 +182,7 @@ Mainstream history presents the Ptolemies, Seleucids, Attalids, and Romans as se
   Titles: Philocaesar Philoromaios, Soter, Great King of Kings, "As" in his name refers to Asar(Osiris)/Aesar/Aeser/Aisar/Ais/Is). Other suspected aliases: Akrosandros II, King of Scythia, Brogitarix, Idumean Antipater, Parthian Artavasdes (Greek Alex = Persian Arta) who was the brother of Tigranes II (Tigranes II/the Great was called Azhdahak proving Aži Dahāka was a royal Scythian title), and the Hasmonean Alexander II (son of king Aristobulus II son of Jannaeus Alexander also the nephew and son-in-law of king/high-priest Hyrcanus II. Also, Julius = Janneus? Or Janneus (Yannai) is related to the Roman name Gaius?). Bogud, King of Mauretania, Burebista, King of the Dacians, Atrebates, king of Britannia. Also Prince Jin Midi in China? Jin (金) means "Gold," a royal Scythian attribute. Mi (日) is "Sun." Di (磾) is a rare character meaning "black," but also a homophone for "Emperor" (帝). His story: A noble "barbarian" prince from the West (Xiongnu confederation, which included Saka/Scythians) is captured and rises to become the most powerful man in China, serving as regent to a child emperor. This is the exact same narrative archetype as a foreigner (Caesar) rising to power in Rome.
   - Spouse/Consort: Cleopatra VII (Isis who in mythology was the wife of Osiris and the mother of Horus): Dynamis Ourania (Aphrodite Urania). Aliases: Pythodorida Philometor (Pytho- from python, and -doria from the Dorian tribe who were Scythian Greeks). Also, Amanirenas ("Amon is Lord"), Kandake of Kush?
   - Children:
-    - Emperor Tiberius Julius Caesar Augustus. Alias: Tiberius Julius Aspurgus, king of Bosphorus (Aspurgos calls himself the son of "the great king of Asandrokhos" on inscriptions: https://www.researchgate.net/publication/390912485_Aspurgos_-_the_king_of_Bosporan_state_98_BC_-_AD_38). Also likely Kujula Kadphises, prince of Bactria. Also, was he the legendary Chinese emperor Yu the Great (original name "Aži" or "Yazhi" (亞茲))? Julius, from Ioulius, related to Iove (Jove). Iove is linguistically linked to the Scythian tribal name Yuehzi (Yuezhi). He is "The Jove/Yuezhi King"? Likely also Caesarion.
+    - Emperor Tiberius Julius Caesar Augustus. Alias: Tiberius Julius Aspurgus, king of Bosphorus. Also likely Kujula Kadphises, prince of Bactria. Also, was he the legendary Chinese emperor Yu the Great (original name "Aži" or "Yazhi" (亞茲))? Julius, from Ioulius, related to Iove (Jove). Iove is linguistically linked to the Scythian tribal name Yuehzi (Yuezhi). He is "The Jove/Yuezhi King"? Likely also Caesarion.
       - Spouse: Vipsania Agrippina. The name Vipsania is obscure, but Agrippina means "wild horse" (from agri- "wild" and -pina "mare"), and Tiberius Julius Aspurgus Philoromaios's wife, known only through numismatic evidence, was Gepae-pyris (Gepa- from hippos, "horse" in Greek, cf. Epona, Celtic horse goddess and -epyris (possibly "lady" or "queen"). Both names encode "Horse-Queen." This is a title for a Sarmatian noblewoman of the steppe horse-culture.
       - Children:
         - Tiberius Julius Mithridates III (Italian Avatar: Emperor Caligula)
@@ -201,7 +201,7 @@ Mainstream history presents the Ptolemies, Seleucids, Attalids, and Romans as se
 IV. Flavian Emperors
 
 - Vespasian
-  Aliases: Rhescuporis I, king of Bosphorus. Herod Agrippa I (See: The Royal Ancestry of Emperor Vespasian. Henry Davis, [https://www.henryhdavis.com/theroyalancestryofemperorvespasian](https://henrydavis-cc.medium.com/the-royal-ancestry-of-the-roman-emperor-vespasian-72e144335299)). Flavius Scaevinus
+  Aliases: Rhescuporis I, king of Bosphorus. Herod Agrippa I (See: The Royal Ancestry of Emperor Vespasian. Henry Davis, [^7]). Flavius Scaevinus
 - Titus. Aliases: Polemon II, Aulus Avillius Flaccus.
 
 V. Speculative
@@ -235,12 +235,11 @@ V. Speculative
     "Tale of the Shipwrecked Sailor". Josephus in Antiquities of the
     Jews, Book XX (Ch 9.4) refers to Paul (Saulus) as related to Herod
     Agrippa.
--  Pythagoras: Abaris the Hyperborean. The high priestess of the Temple of Apollo at Delphi was called Pythia https://en.wikipedia.org/wiki/Pythia \[[link](https://en.wikipedia.org/wiki/Pythia)\] who breathed serpent vapors (ethylene gas). Greek writers regarded the Hyperboreans as the mythical founders of Apollo's shrines at Delos and Delphi  https://en.wikipedia.org/wiki/Hyperborea#Hyperboreans_in_Delos \[[link](https://en.wikipedia.org/wiki/Hyperborea#Hyperboreans_in_Delos)\]. The name "Pythagoras" is derived from the Greek words "Pythios" (Πύθιος), meaning "of Pythia" or "belonging to the Pythia ("Pythoness"), and "Agoras" is a direct linguistic link to "Agaroi", the name of the Scythian snake-venom priesthood. Abaris was a Scythian and the Scythians worshiped snake deities. Pythia was probably Pythagoras' mother.
+-  Pythagoras: Abaris the Hyperborean. The high priestess of the Temple of Apollo at Delphi was called Pythia [^8] who breathed serpent vapors (ethylene gas). Greek writers regarded the Hyperboreans as the mythical founders of Apollo's shrines at Delos and Delphi  [^9]. The name "Pythagoras" is derived from the Greek words "Pythios" (Πύθιος), meaning "of Pythia" or "belonging to the Pythia ("Pythoness"), and "Agoras" is a direct linguistic link to "Agaroi", the name of the Scythian snake-venom priesthood. Abaris was a Scythian and the Scythians worshiped snake deities. Pythia was probably Pythagoras' mother.
 
 **2. Name and Title Meanings**
 
 -   Abraham: The father of Isaac (remove the Hebrew theophoric Y- = -tzak = Hebrew rendering of Sacae (Scythians)) is Abraham, the foundational patriarch. Ab = Father (Semitic). Raham = Arya (Sanskrit/Persian: "Noble"). Aram (the name for the land of the Arameans, a steppe-derived people). Abraham = Ab-Raham = "Father of the Aryans" or "Father of the Noble Ones". Related to Brahmin (Brahama) -> Ibrahim -> Abraham. A(Braha)m(in). Lord Rama (the greatest and seventh incarnation of God, hero of the Ramayana, protector of Dharma) in the ancient Vedas derives from this.
--   Augustus: Sebastos is Greek version of the Latin term Augustus. In the Nikēphorios Decree (Priene, 9 BCE) the Greek text does not use the Latin word "Augustus", it uses Σεβαστός (Sebastos).
 -   Azhi: Azhi = Až ("serpent") + Hi ("power, divine") in Avestan, meaning "mighty dragon". It extends Aži to signify divine authority across Indo-Iranian and Scythian cultures. Azhi = Asia (Azhi-A) = "land of the mighty dragon" (Aži is cognate with the Chinese Zhī (dragon)), a very similar name to Rome (Rhu-Ma) = "Place of the Dragon", Romania (Rhu-Ma + Na) = "dragon land", and Sarmatia (serpent) + ma (mother, land). Aži links to Aesir (Norse gods), Asar (Egyptian Osiris), and Ahura (Zoroastrian god). The root Az-/As- means both "divine power" and "serpent" in Indo-European and Scythian languages (Sanskrit asura, Hittite hasu = king). Aži Dahāka in Avestan = Aži (serpent) + Dahāka (man) which translates to "Serpent-Man". 
 -   Caesar: The Egyptian name "Asar" was another name for Osiris. "Ra"
     was the Egyptian deity of the Sun (Asar-Ra). Sar means king in Scythian. This title very likely
@@ -262,7 +261,7 @@ V. Speculative
     meaning "lord". In the Celtic languages the word "cottos" or
     "cottius" means "chieftain".
 -   Flavius: Flavus = yellow/golden is a deliberate Latin mistranslation of the Scythian root Pālava or Palavi (Pahlavi), the term for the Parthian/Iranian aristocracy. The "Flavian" line was a Parthian/Sarmatian proxy dynasty installed by the Bosphoran center (Julius Caesar/Asander's line) to enforce the new Christianized Imperial Cult. They claimed a 'Golden Age' (Flavius) when they were truly the Pahlavi (Parthians) rewriting the Roman lie. 
--   Izates or Izas: Ie- is a prefix denoting divinity (as in I-em-hotep in Egyptianm and IE in Indo-European is a divine prefix (as in Ie-ove/Jove)). -sous is a variant of Zeus (Zas or Dyas is a cognate of Izas). Iesous = "Divine Zeus." This connects directly to Iulius (from Jupiter/Zeus). This becomes Jesus [^1], Aesus (Etruscan god), and the Avestan word Yazatas (Persian: izad), meaning 'lord'. In the name "Yeshua Ben Panthera" the Panthera is a Hellenized form of Ptolemaios (Ptolem->Ptol->Panther). "Jesus, son of Ptolemy". This directly connects the "Jesus" figure to the Ptolemaic-Bosphoran royal house. Similar to "Iasus", a Greek figure associated with the Argonauts and "Iaso" the healing Greek goddess.
+-   Izates or Izas: Ie- is a prefix denoting divinity (as in I-em-hotep in Egyptianm and IE in Indo-European is a divine prefix (as in Ie-ove/Jove)). -sous is a variant of Zeus (Zas or Dyas is a cognate of Izas). Iesous = "Divine Zeus." This connects directly to Iulius (from Jupiter/Zeus). This becomes Jesus [^10], Aesus (Etruscan god), and the Avestan word Yazatas (Persian: izad), meaning 'lord'. In the name "Yeshua Ben Panthera" the Panthera is a Hellenized form of Ptolemaios (Ptolem->Ptol->Panther). "Jesus, son of Ptolemy". This directly connects the "Jesus" figure to the Ptolemaic-Bosphoran royal house. Similar to "Iasus", a Greek figure associated with the Argonauts and "Iaso" the healing Greek goddess.
 -    Jew: Iudaeus means "of Jove" which is Jupiter."Jupiter comes from Dyēus Pter ("Sky Father") which is the original name of the chief god for the Proto-Indo-Europeans on the Pontic-Caspian Steppe. His name means "Shining Sky Father". The name Zeus comes from the pronunciation of "Dyeus", and (I)Jupiter comes from the pronunciation of "Dyeus Pter" (Diespiter -> Iupiter). (J)upiter was also called Jove or Iove to the Romans. The Latin pronunciation of Iove would have been Yoh-Way, i.e., Yahweh/Yhwh. Dyēus -> Zeus -> Iove (Jove) -> Iud- (as in Iud-ii). The -ii suffix denotes "people of" or "tribe of". Iudii = "The People of Jove. "The Scythian elite, as part of their imperial cult, syncretized their primary deity with local dieities. In Anatolia and Thrace, this same god was worshipped as Sabazios, so Yahweh Saboath, the god of the Hebrew bible, is I(J)ove (Roman Zeus) Sabazios (Thracian Zeus). Dyēus Pter is also at the root of "Yuezhi" (月氏) who were a tribe of Scythians. It appears that ancient "Judaism" (Pre-70 AD) was a branch of the imperial cult centered on the god Jupiter-Sabazios (Yahweh Sabaoth) that local Canaanites, Edomites, and Levantine converts inherited. The term "Ashkenazi" (Ashkenaz means Scythian in Hebrew) confirms steppe origins. 
   - Lord: The term Kavi in Avestan texts (e.g., Yasna 10.6) denotes a divine ruler associated with Aži (dragon/serpent). Translating Kavi to Greek yields Kyrios ("lord"), a title used for Jesus in the New Testament (e.g., Kyrios Iesous). The Scythian title Xšaya (king) appears in Old Persian as Xšayathiya, phonetically linked to Kshatriya (Sanskrit: warrior-king) and Caesar via the Greek Kaesar. A kurgan inscription from Issyk (Kazakhstan, 4th century BCE) mentions a ruler named Ašakavi ("dragon-priest"), combining Aša (truth/order) and Kavi. This title parallels Asander (Thracian: Asa = "lord") and suggests a pan-steppe naming convention for dragon-kings. 
 -   Monobazus: Sabazios is the Phrygian and Thracian version of Zeus.
@@ -293,7 +292,7 @@ Their descendants were the Scythians. One offshot of the Scythians were a tribe 
 Sumerian "sar" (king) comes from) who were a nomadic Indo-Iranian warrior
 elite from the Pontic steppe (modern Ukraine/Russia). The domestication
 of the horse and invention of the chariot allowed them to travel vast
-distances and they spread their Draco (dragon/serpent) cult across Eurasia, encoded in snake-worshiping myths [^2] 
+distances and they spread their Draco (dragon/serpent) cult across Eurasia, encoded in snake-worshiping myths [^11] 
 
 The Aryan-Iranian-Scythians were the Egyptian-Persian-Indian-Greek-Roman elite. Egypt, Persia, India, Greece, Rome, etc., were all under the suzerainty of these elites since at least the 40th century BC and their base of operation was on the Bosphorus river.
 
@@ -362,7 +361,7 @@ Thracians/Dacians
 The Bosporan and Dacian kingdoms controlled the Danube Delta and the Bosporus Strait—the two most critical chokepoints for Eurasian trade. Whoever controlled these points controlled the flow of goods, armies, and ideas between Europe and Asia. They didn't just rule an empire; they ruled the geography of civilization itself. Also, the massive gold mines of Dacia (modern Romania) were the financial engine of the "Roman" Empire. The output of these mines from 100 BC - 100 AD exceeds the total gold supply of the rest of the ancient world combined. The fact that Asander, king of Bosphrus is today an unknown historical figure despite the fact that he would have been the richest and most powerful man in the word at the time should be regarded as suspictious. The reason why you never heard of him is because you know him under another name: Julius Caesar.
 
 ![Fig.1.10](/images/Skyles.jpg){:width="400px"}\
-Fig. 1.10. Coin of Skyles, a Scythian king who reigned from ca 470-460 BC displaying a Scythian Solar Wheel and the World Tree combined. The cross was prominant in ancient Europe. It was a sundial and every city would have had one to track the time, dates, and agricultural and lunar cycles. "Skylesis" a Greek mockery of Skuða-las (Scythian King). The owl on the reverse side shows up prominently in later Greek tetradrachms.
+Fig. 1.10. Coin of Skyles, a Scythian king who reigned from ca 470-460 BC displaying a Scythian Solar Wheel and the World Tree combined. The cross was prominant in ancient Europe. It was a sundial and every city would have had one to track the time, dates, and agricultural and lunar cycles. "Skylesis" a Greek mockery of Skuða-las (Scythian King). The owl on the reverse side is the Owl of Athena also known as the Owl of Minerva, a sacred bird in Greek mythology that accompanies Athena. It shows up prominently in later Greek tetradrachms connecting him to Greece. For a Scythian king to carry that iconography shows direct interaction (he was likely the Scythian satrap of ancient Greece).
 
 The chromosome Haplogroup R1a, specifically subclade Z93 is found in high frequencies among the Scythian remains from the Pontic-Caspian Steppe. The Kshatriya (warrior) caste in India. The Brahmins (priestly) caste in India. The highest nobility of Persia. Patrician families of Rome. The Pharisaic and Herodian dynasties in Judea. The Sarmatian Alans who settled in Western Europe (and whose descendants include the Habsburgs). It is also found in the Tarim Mummies of China and in other tested ancient elite Chinese burial grounds (see: Chapter 7.4 China: The Han Synthesis and the Tartarian Genocide). This is the genetic signature of the administrative and priestly class that was installed globally.
 
@@ -414,7 +413,7 @@ In Alexandria at the Alexandrian School is where the "Jewish" religion was codif
 
 Moses = Manes/Mannu-Kuras = Manu (Scythian Sage-King) = Menes (Egypt’s legendary founder), but this name/title was reappropriated for the Sarapis Cult as Moses = Osarseph (Osar (Osiris) and seph (son) = Son of Osirus). The Greek rendering of Moses and Osarseph is identical. Osarseph appears in accounts by the Egyptian priest Manetho, who described him as a renegade priest leading a group of lepers in rebellion, eventually adopting the name "Moses" (Josephus. 'Against Apion' discussing Manetho's account of Osarseph). Osarseph also = Serapis. The "Ser" symbol in Ser-apis is the same as seph meaning "son of". Serapis can be interpreted as "Son of Osiris-Apis", which evolved into "Son of Osiris". So, Serapis is just another word for Osarseph. Solomon = Sol-Amūn or "Sun of Amun" which is a direct parallel to "Zeus-Ammon", a title for Alexander the Great. Abraham: The father of Isaac is Abraham, the foundational patriarch. Ab = Father (Semitic). Raham = Arya (Sanskrit/Persian: "Noble"). Aram (the name for the land of the Arameans, a steppe-derived people). Abraham = Ab-Raham = "Father of the Aryans" or "Father of the Noble Ones". Related the Brahmin (Brahama) -> Ibrahim -> Abraham. A(Braha)m(in).
 
-These "Jewish" males mixed with Neolithic Anatolian women before their descendants moved into Egypt (Apiru or Habiru) and Caanan and then mixed with indigenous people in those places. These people then underwent a genetic bottleneck after the Bar Kokhba Revolt when Emperor Hadrian decimated their population. Modern Ashkenazi Jews are a hodgepodge of Neolithic (proto-Sicilian who originated in Anatolia), native Canaanites (who were literal human-neanderthal hybrids [^4]), proto-Arab Natufians (Natufians had ~20% higher Basal Eurasian -- Basal means with sub-Saharin African, North Africa was green/fertile so SSA's could cross the Sahara), and Celtic Galatians (Iudii tribe).
+These "Jewish" males mixed with Neolithic Anatolian women before their descendants moved into Egypt (Apiru or Habiru) and Caanan and then mixed with indigenous people in those places. These people then underwent a genetic bottleneck after the Bar Kokhba Revolt when Emperor Hadrian decimated their population. Modern Ashkenazi Jews are a hodgepodge of Neolithic (proto-Sicilian who originated in Anatolia), native Canaanites (who were literal human-neanderthal hybrids [^12]), proto-Arab Natufians (Natufians had ~20% higher Basal Eurasian -- Basal means with sub-Saharin African, North Africa was green/fertile so SSA's could cross the Sahara), and Celtic Galatians (Iudii tribe).
 
 The fact that Ptolemaic/Bosphoran/Roman kings, many who were Celtic Galatians and Aryan Sarmatians, called themselves jews, an irrelevant tribe, and israel
 was an irrelevant slice of land in the desert, makes the claim that modern jews (who are a mix of multitude of races including non-human Neanderthal) just inherited this imperial cult and they got their
@@ -445,8 +444,8 @@ Also, Carthage was not a Semitic power. The name "Carthage" comes from "Kar-Thag
 
 **5.1 Julius Caesar aka Asander, King of Bosphorus aka Mithridates Chrestus**
 
-There was a Bosphoran [^5] imperial cult where Julius Caesar [^6] took
-on the role of Asander (also Asandros), King of Bosphorus [^7] ("Asa"
+There was a Bosphoran [^13] imperial cult where Julius Caesar [^14] took
+on the role of Asander (also Asandros), King of Bosphorus [^15] ("Asa"
 means "lord" in Scythian/Thracian and serpent in Scythian (Scythian Assaioi: As-saioi = As is Scythian for "Serpent Lord", and Sai refers to clan/tribe. Sar means king in Scythian), and "andros" means "man" or "son of
 man" in Greek. Jesus is referred to as "the son of man" 81 times in the
 four canonical gospels. Asandros can also be interpreted as either "Dragon Man" (the same as Aži-ander, or Alexander), or "son of the
@@ -460,7 +459,7 @@ also possibly translate to either "son of god", or "son of Lord Aesar/Asar
 borrowed from other languages, so Aesar ("god") -> Greek Kaesar ->
 Latin Caesar. Both Asander and Caesar are titles meaning "Lord King" in their respective languages (Scythian and Latin) but deriving from the same Indo-European root for king.
 
-Cleopatra used the regional alias of Dynamis Ourania [^8]
+Cleopatra used the regional alias of Dynamis Ourania [^16]
 (translating to 'heavenly power'), queen of the Bosporus. Cimmerian
 Bosporus approximates to modern-day Crimea in southern Ukraine (see
 also: Jesus Christ Was Born in Crimea by Anatoly Fomenko).
@@ -586,7 +585,7 @@ Sampsiceramus I? The Bosphorus Kingdom, also known as the Kingdom of the
 Cimmerian Bosphorus, was located next to the Pontus Kingdom
 
 Dynamis's father was Mithridates VI Eupator who also carried the title
-"King of Kings". Her uncle was Mithridates "Chrestus" [^9]. The name
+"King of Kings". Her uncle was Mithridates "Chrestus" [^17]. The name
 Mithridates (more accurately, Mithradates) is the Hellenized form of the
 Indo-Aryan Mithra-Datt, meaning "One given by Mithra". Mithra is the
 Indo-Aryan sun-god and Datt ("given by") derives from the
@@ -642,7 +641,7 @@ Sabazios you get Zebedaios, sons of Zebedee.
 Ptolemy Menneus/Simon Boethus's son was named Philippion who I believe
 is a good candidate for Philip II Philoromaios and also Tiridates II of
 Parthia or Arsaces Philoromaios. Arsaces was the brother of Dynamis
-[^11]. So, Simon Boethus/Magus/Ptolemy (Alexander) bar Menneus, et.al.,
+[^18]. So, Simon Boethus/Magus/Ptolemy (Alexander) bar Menneus, et.al.,
 were the aliases of Ptolemy X Alexander I, king of Egypt, and Marriamme
 Boethus was another of Cleopatra's regional aliases?  If you identify
 King Herod as Mark Antony aka Tiberius Claudius Nero aka Phraates IV of
@@ -663,7 +662,7 @@ a source, Antipater the Idumean's son King Herod was married to Simon
 Boethus's daughter Mariamme and Antipater the Idumean saved Julius
 Caesar's life during the Battle of the Nile (47 BC). As a reward,
 Josephus claims that Julius Caesar adopted King Herod's sons (Simon
-Boethus's grandsons) Aristobulus IV (Vespasian's grandfather [^13],
+Boethus's grandsons) Aristobulus IV (Vespasian's grandfather [^19],
 Alexander (son of king Herod) aka Alexandros III aka Juba II, Herod
 Antipas the Tetrarch, Archelaus, and Philip and raised them in Rome, in
 the household of Gaius Asinius Pollio which was the same household that
@@ -672,7 +671,7 @@ Caesar Augustus was raised in (Josephus, "Antiquities of the Jews", Book
 untrue and those kids were his biological sons. It is also untrue that
 Alexander, son of King Herod, was killed by his father Herod, Josephus
 even has a story about a 'spurious Alexander' that showed up in Rome
-claiming to be the son of Herod who faked his death [^14], so he was
+claiming to be the son of Herod who faked his death [^20], so he was
 'resurrected' as Juba II, king of Numidia and Mauretania. 
 
 ![Fig.1.22](/images/MithridatesVIEupator.png){:width="400px"}
@@ -698,7 +697,7 @@ Fig. 1.24. Coin depicting Ptolemy Apion, king of Kyrene, Kyrenaica, North Africa
 
 **5.3.2. Amyntas Nikator aka Amyntas, King of Galatia**
 
-Amyntas Nikator (Latin Invictus which links him to Sol Invictus) aka Amyntas of Galatia [^10] aka Jesus ben Fabus aka Isa Amen (Jesus was named "Amen" in Rev. iii. 14 and Amen links to Egypt through the name of the pharaoh Amenhotep). Amyntas's father was not Bogitarus. That is a later, localized alias. His true father was Mithridates VI Eupator of Pontus (aka Ptolemy XII Auletes/Mark Antony/Herod). Mithridates VI Eupator's father was Mithridates V Euergetes. Mithridates V Euergetes's father was Pharnaces I of Pontus. Pharnaces I's brother was none other than... Amyntas of Pontus. The name "Amyntas" is a family heirloom, used for a brother of the king. For "Mithridates VI" to have a son named "Amyntas" is perfectly consistent with dynastic naming patterns. He was not the son of a minor chieftain; he was a scion of the primary Dragon Bloodline.
+Amyntas Nikator (Latin Invictus which links him to Sol Invictus) aka Amyntas of Galatia [^21] aka Jesus ben Fabus aka Isa Amen (Jesus was named "Amen" in Rev. iii. 14 and Amen links to Egypt through the name of the pharaoh Amenhotep). Amyntas's father was not Bogitarus. That is a later, localized alias. His true father was Mithridates VI Eupator of Pontus (aka Ptolemy XII Auletes/Mark Antony/Herod). Mithridates VI Eupator's father was Mithridates V Euergetes. Mithridates V Euergetes's father was Pharnaces I of Pontus. Pharnaces I's brother was none other than... Amyntas of Pontus. The name "Amyntas" is a family heirloom, used for a brother of the king. For "Mithridates VI" to have a son named "Amyntas" is perfectly consistent with dynastic naming patterns. He was not the son of a minor chieftain; he was a scion of the primary Dragon Bloodline.
 
 Amyntas of Galatia's mother was simply named Adobogiona. There was an "Adobogiona the Elder" who was a Galatian princess who was a recorded mistress of Mithridates VI Eupator, so it is safe to assume these two are the same woman. Her true imperial title was Cleopatra V Tryphaena of Egypt, the sister-wife of Mithridates VI/Ptolemy XII. This makes Amyntas of Galatia/Nikator the full brother of Cleopatra VII Philopator (Dynamis).
 
@@ -755,7 +754,7 @@ The "Esumopas Cnusticus" inscription proves this was a state-sponsored imperial 
 
 **5.3.3. Alexander, son of King Herod aka Alexander Helios aka Juba II**
 
-Cleopatra aka Dynamis's son with her father Mark Antony [^11] (aka Ptolemy XII Auletes aka Polemon Pythodoros, King of Pontus, prince of Pontus aka King Herod aka Tiberius
+Cleopatra aka Dynamis's son with her father Mark Antony [^22] (aka Ptolemy XII Auletes aka Polemon Pythodoros, King of Pontus, prince of Pontus aka King Herod aka Tiberius
 Claudius Nero aka Phraates IV of Parthia) was Alexander Helios aka
 Alexander (son of King Herod) aka Juba II who was married to his twin
 sister Cleopatra Selene II aka Queen Thea Muse Ourania. Juba II of
@@ -836,7 +835,7 @@ Thracian, 'Cotys' is related to the word 'kotys' which is a title that
 means 'lord') aka Emperor Nerva, and Marcus Julius Alexander aka Yeshua
 Cleopatros (Cantheras/Panthera) ben Josephus bar Menneus aka Ma'nu of
 Adiabene/Edessa aka Ptolemy aka Yakov Zu Tolomoy aka Izates aka Jesus
-Emmanuel aka Monobazus of Adiabene [^12]
+Emmanuel aka Monobazus of Adiabene [^23]
 
 ![Fig.
 1.27](/images/Josephus.jpg){:width="400px"}
@@ -903,8 +902,8 @@ Endnotes (Chapter 5)
     aka Tiberius Julius Alexander Major aka (King/Tetrarch) Ptolemy
     (Alexander) bar Menneus aka Ptolemy of Mauretania aka Phraates V
     (the "King of Kings") aka Monobazus I King of Adiabene).
-    https://en.wikipedia.org/wiki/Apollonius_of_Tyre_(philosopher)
-    https://en.wikipedia.org/wiki/Apollonius_of_Tyre
+    [^24]
+    [^25]
     So, Alexander aka Juba II was also Apollonius of Tyre. Juba II
     carried the title "Rex Literatissimus" which can be translated as
     "Most Learned King" or "The Most Scholarly King". He was known as a
@@ -930,7 +929,7 @@ Vespasian was also a great-grandson of Cleopatra and Mark Antony (King
 Herod). He was Herod Pollio aka Herod Agrippa I, grandson of King
 Herod's son Aristobulus IV. Vespasian was his title, not his name
 (Vas/Bas was the royal abbreviation for the Greek word Basilius which =
-King, and Pas means "all" as in Pan. "Vespasian" = "King of All", or "King of Everything" which is a claim to the title "King of Kings") [^15]. Another option: Vas/Bas = King, and -asian = "of Asia" or "the Asian". Vespasian = "The King of Asia". He was also
+King, and Pas means "all" as in Pan. "Vespasian" = "King of All", or "King of Everything" which is a claim to the title "King of Kings") [^26]. Another option: Vas/Bas = King, and -asian = "of Asia" or "the Asian". Vespasian = "The King of Asia". He was also
 'Flavius Scaevinus' the conspirator involved in Nero's assassination.
 
 ![Fig.
@@ -991,7 +990,7 @@ Endnotes (Chapter 6)
     the Persians/Parthians, but Mithras is the same as Sabazios. It's a
     solar son deity, a Jupiter.\
 (b) Coin of Vespasian depicitng "Zeus-Sarapis":
-    https://www.coinarchives.com/a/lotviewer.php?LotID=2528933&AucID=6356&Lot=485&Val=e5e4db7aa704d656893926a33a970991 \
+    [^27] \
 
 **7. Inventing History**
 
@@ -1031,10 +1030,10 @@ The Scythains ruled a Eurasian empire that stretched into China.
 
 Azhi = Asia (Azhi-A) = "land of the mighty dragon" (Aži is cognate with the Chinese Zhī (dragon)), a very similar name as Rome (Rhu-Ma) = "Place of the Dragon", Romania (Rhu-Ma + Na) = "dragon land", and Sarmatia (serpent) + ma (mother, land). The Chinese dragon, a symbol of imperial power, is a direct descendant of the Scythian Draco standard, carried by Sarmatian cavalry and adopted by the Han dynasty.
 
-The Tarim basin mummies are Tocharians, and the Kizilgaha cave portraits deprict redheaded “Chinese” people. Genetic studies show that indegenous people of Linzi in south east China were genetically more similar to Europeans than modern Chinese (https://eurogenes.blogspot.com/2017/07/north-european-admixture-in-han-chinese.html). Tang dynasty mural in tomb unearthed in China portrays a ‘Westerner’ man with blond hair (https://www.livescience.com/archaeology/stunning-tang-dynasty-mural-in-tomb-unearthed-in-china-may-portray-a-westerner-man-with-blond-hair).
+The Tarim basin mummies are Tocharians, and the Kizilgaha cave portraits deprict redheaded “Chinese” people. Genetic studies show that indegenous people of Linzi in south east China were genetically more similar to Europeans than modern Chinese [^28]. Tang dynasty mural in tomb unearthed in China portrays a ‘Westerner’ man with blond hair [^29].
 
 Alexander the Great = Qin Shi Huang (China’s First Emperor). Both "died" mysteriously at 33 (Alexander in 323 BC; Qin Shi Huang in 210 BC). Alakshandra (Sanskrit) → Qin Shi Huang (Chinese): The "-shandra" morpheme appears in "Shi Huang”" meaning "First Guardian". Qin was founded by Alexander, it starts right exactly around the Greco-Bactrian city states era in Central Asia, it was started by people coming from the West right exactly bordering Central Asia during Greco-Bactrian rule, DA-QIN meaning BIG OR GREATER QIN as a word name term was used to refer to the Roman empire during the "Han dynasty" that came after Qin dynasty which means the QIN people had to have been Greco-Bactrian Seleucids since they equated with Roman type people and they came from the farthest West direction. 
-Qin’s terracotta army has Caucasian features and Hellenistic armor. The character "Qin" (秦) is written with the radicals for "grain" and "man," but its Old Chinese pronunciation was Dzin. This is a direct phonetic match for the Latin Ianus (Janus) and the Sanskrit Yavana (Ionian Greek). The Qin were the Yavanas—the Greeks—from the West. Their sudden rise, standardization of weights/measures, and great wall-building are all hallmarks of an Alexandrian-style conquest state. Greek style coins and statues have been found from this time period, and the terracotta army was built by Greeks from Central Asia [^19], to this day the Chinese currency which came about formally during Qin dynasty era is called a YUAN which is another name for YON-IONIAN Greeks etc.
+Qin’s terracotta army has Caucasian features and Hellenistic armor. The character "Qin" (秦) is written with the radicals for "grain" and "man," but its Old Chinese pronunciation was Dzin. This is a direct phonetic match for the Latin Ianus (Janus) and the Sanskrit Yavana (Ionian Greek). The Qin were the Yavanas—the Greeks—from the West. Their sudden rise, standardization of weights/measures, and great wall-building are all hallmarks of an Alexandrian-style conquest state. Greek style coins and statues have been found from this time period, and the terracotta army was built by Greeks from Central Asia [^30], to this day the Chinese currency which came about formally during Qin dynasty era is called a YUAN which is another name for YON-IONIAN Greeks etc.
 
 Julius Caesar aka Asander, king of Bosphorus was Prince Jin Midi in China. Jin (金) means "Gold," a royal Scythian attribute. Mi (日) is "Sun." Di (磾) is a rare character meaning "black," but also a homophone for "Emperor" (帝). His story: A noble "barbarian" prince from the West (Xiongnu confederation, which included Saka/Scythians) is captured and rises to become the most powerful man in China, serving as regent to a child emperor. This is the exact same narrative archetype as a foreigner (Caesar) rising to power in Rome.
 
@@ -1048,7 +1047,7 @@ China had no chronology until the Jesuits came to the Emperor’s court. Their o
 
 The modern "Han Chinese" are not infact "Han" or "Chinese" ("Chinese" is an identity fabricated and conjured up by Jesuits) but are infact Miao-Hmong people. Han comes from Ahan (Aryans) of Buddhist texts who were related to the Scythian Yuezhi/Kushan rulers. The real Han = Yangshao R1a (90% steppe, 5000 BC), purged in An Lushan (Caucasoid genocide). Genetic studies show the Yangshao culture (5000 BC) had 90% European DNA (Haplogroup R1a). The modern Han are Miao who migrated from Vietnam after the Mongol invasions.
 
-The An Lushan rebellion was an ethnic war, mongoloids vs caucasoids which resulted the slaughter of millions of caucasians [^20]. The Xianbei were mongoloids and helped rape and sexually enslave Indo Europeans in China in the An Lushan rebellion. Goguryeo Korean general Gao Juren in the Tang dynasty committed genocide and rape against An Lushan’s community after defeating An Lushan at his headquarters in Fanyang (Beijing).
+The An Lushan rebellion was an ethnic war, mongoloids vs caucasoids which resulted the slaughter of millions of caucasians [^31]. The Xianbei were mongoloids and helped rape and sexually enslave Indo Europeans in China in the An Lushan rebellion. Goguryeo Korean general Gao Juren in the Tang dynasty committed genocide and rape against An Lushan’s community after defeating An Lushan at his headquarters in Fanyang (Beijing).
 
 Similarly, Ran Min slaughtered and committed genocide on the entire Caucasian Jie people who were native to Chin, and the Manchus had the Central Asian Indo-European children castrated. 
 
@@ -1088,8 +1087,7 @@ they were descended from Alexander -- a claim which becomes far more
 credible (and even inevitable) when one realizes that Alexander's life
 did not end in Babylon and his dynastic line did not actually die out
 (See also: "Alexander and Chandragupta in Sanskrit D" by Ranajit Pal
-https://www.academia.edu/40074507/ALEXANDER_AND_CHANDRAGUPTA_IN_A_SANSKRIT_D
-[[link](https://www.academia.edu/40074507/ALEXANDER_AND_CHANDRAGUPTA_IN_A_SANSKRIT_D)]).
+[32]).
 
 Chandragupta Maurya/Alexander's successor in India "Bindusara" (whose
 name derives from Vindusara (Sanskrit: "one whose essence is poison"), a
@@ -1101,8 +1099,7 @@ Ptolemy II Philadelphus (also Ariarathes III of Cappadocia? -
 Alexander's successor to Bactria, Diodotus I Soter, then became the
 successor to Bindusara and ruled India with the regional identity of
 Ashoka the Great (See: "Diodotus I was Ashoka" by Ranajit Pal
-https://www.academia.edu/695219/Diodotus_I_was_Ashoka_An_Altar_of_Alexander_Now_Standing_Near_Delhi
-[[link](https://www.academia.edu/695219/Diodotus_I_was_Ashoka_An_Altar_of_Alexander_Now_Standing_Near_Delhi)]).
+[^33]).
 
 Mithridates I Ctistes (also known as Mithridates III of Cius) was a son
 of Alexander's son Heracles/Helios, who was born to Alexander and his
@@ -1111,9 +1108,9 @@ mistress Barsine.
 Antiochus I Soter = Darius III, Alexander/Artaxerxes II
 Memnon/Chandragupta's brother.
 
-Bubares (https://en.wikipedia.org/wiki/Bubares) was a Persian prince who
+Bubares [^34] was a Persian prince who
 married Alexander's sister. They had a son named Amyntas (son of
-Bubares) (https://en.wikipedia.org/wiki/Amyntas_(son_of_Bubares)). He
+Bubares) [^35]. He
 was the king of the city Phrygia that was located in Galatia in
 classical Anatolia. Bubares, the Persian prince, was Alexander's Persian
 identity. Amyntas (son of Bubares) (born around 350 BCE) =
@@ -1141,13 +1138,13 @@ Lost in history is that the greatest slave trade wasn't the Trans-Atlanic one, b
 
 The Flavian dynasty (Vespasian, Titus, Domitian) and their court historians (Josephus, Pliny, Tacitus) were the ones who forged history. They created a "Roman" history to legitimize their new dynasty and obscure their Bosphoran/Herodian origins. Josephus aka Tiberius Julius Alexander was prefect (governor) of Roman Egypt and had control of the Library of Alexandria, and likely was the one responsible for buring it down. 
 
-According to the book 'Jesus, King of Edessa' (2012) by Ralph  Ellis [[link](https://web.archive.org/web/20240728150536/https://x.com/ralfellis/status/1809520320077803525)] Jesus ben Gamala/Gamaliel who led the First Jewish–Roman War (66-70 AD) against Rome was also Jesus ben Sapphias and Izas Ma'nu (Jesus Emmanuel) Monobazus of Adiabene aka Yeshua Cleopatros (Cantheras/Panthera) ben Josephus bar Menneus aka Ptolemy aka Yakov Zu Tolomoy. King Izates of Monobazus was a descendant of the dragon bloodline and was married to the sister of Dynamis's mother. Tiberius Julius Sauromates II could have also been Simon bar Kokhba (Bar Kokhba means "Son of the Star" which directly links to the "Star and Crescent" symbolism on the coins of Asander/Julius Caesar and Dynamis/Cleopatra) who led the Bar Kokhba revolt (132-136 AD) against Rome. 
+According to the book 'Jesus, King of Edessa' (2012) by Ralph  Ellis [^36] Jesus ben Gamala/Gamaliel who led the First Jewish–Roman War (66-70 AD) against Rome was also Jesus ben Sapphias and Izas Ma'nu (Jesus Emmanuel) Monobazus of Adiabene aka Yeshua Cleopatros (Cantheras/Panthera) ben Josephus bar Menneus aka Ptolemy aka Yakov Zu Tolomoy. King Izates of Monobazus was a descendant of the dragon bloodline and was married to the sister of Dynamis's mother. Tiberius Julius Sauromates II could have also been Simon bar Kokhba (Bar Kokhba means "Son of the Star" which directly links to the "Star and Crescent" symbolism on the coins of Asander/Julius Caesar and Dynamis/Cleopatra) who led the Bar Kokhba revolt (132-136 AD) against Rome. 
 
 What seems plausable is that the "Aryan hegemony" of the ancient world was not a monolith, but a network of interrelated clans (Saka, Sarmatian, Cimmerian, Parthian, etc.) who often fought for supremacy within the hegemony. For example, the "Persian" conquest by Cyrus was not a new empire but a coup d'état by one Scythian clan (the Achaemenids/Persians) against the ruling Scythian clan (the Medes). The "Greco-Persian Wars" were a civil war between the Western satrapy (Greece) and the Eastern core (Achaemenid Persia). So, in the "Jewish-Roman" Wars (who were Celtic Iudii Jupiter worshippers, unrelated to modern "jews") the Flavians did not put down a provincial revolt. They launched a blitzkrieg against the core Eastern administration, and this destroyed the Scythian steppe hegemony. The Flavian dynasty then, after defeating the Judean-Adiabenean forces in the Great War (66-74 AD, mislabeled the "First Jewish-Roman War"), took their primary political enemy, King Izates II, and rewrote his cult as pacifist allegory to subvert the people of his kingdom using the same Alexandian School formula they used in all their imperial cults. They also rewrote history to erase their Bosphoran origins. 
 
 Roman emperor faces no longer appear on Bosphoran coins after emperor Titus. Roman emperors also stopped looking "Aryan"/Nordic after the Flavian empire.
 
-The Flavians could have been mixed with proto-Jewish in the modern sense. The name Flavius could be connected to Shabbos, and then later to “Phlabios”. Also, the haplotype R1a (the famed "Arya" gene) was the dominant haplogroup of the Roman elite before the Flavian empire. After the Flavian reign the haplotype J1 (commonly associated with Jewish people) became the dominant haplogroup among the Roman elite (https://www.eupedia.com/forum/threads/haplogroup-j2-romans-christianity-and-viticulture.28988/).
+The Flavians could have been mixed with proto-Jewish in the modern sense. The name Flavius could be connected to Shabbos, and then later to “Phlabios”. Also, the haplotype R1a (the famed "Arya" gene) was the dominant haplogroup of the Roman elite before the Flavian empire. After the Flavian reign the haplotype J1 (commonly associated with Jewish people) became the dominant haplogroup among the Roman elite [^37].
 
 This is why they erased the Scythian origins of ancient civilizations and painted the Scythians (R1a) as monstrous foreigners. 
 
@@ -1275,7 +1272,7 @@ The name of the "Quraysh" tribe of Mecca derives from Quresh (Cyrus) and "Ta-Rex
 
 King Izates of Monobazus's (Isa in the Quran) son was named Zamaris (Zamaris the Babylonian jew) and Zamaris has the same meaning as Muhammad.
 
-In the book 'Hagarism: The Making of the Islamic World' (1977) by Patricia Crone and Michael Cook they trace the origins of Islam to 'The Secrets of Shimon bar Yochai' [^16] which is a record of the "divine visions" of the 2nd-century rabbi, Simon ben Yohai aka Simon Peter (Shimon bar Yonah) who was a student of rabbi Akiva, to his students. They theorize that Islam was started as a psy-op to weaponize the Arabs to attack the Byzantine empire (eastern Rome) to free judea. 
+In the book 'Hagarism: The Making of the Islamic World' (1977) by Patricia Crone and Michael Cook they trace the origins of Islam to 'The Secrets of Shimon bar Yochai' [^38] which is a record of the "divine visions" of the 2nd-century rabbi, Simon ben Yohai aka Simon Peter (Shimon bar Yonah) who was a student of rabbi Akiva, to his students. They theorize that Islam was started as a psy-op to weaponize the Arabs to attack the Byzantine empire (eastern Rome) to free judea. 
 
 Shimon bar Yohai wrote that his "secrets" were revealed to him when he was hiding in a cave on account of the persecutions of Caesar king of Edom (Rome). His secrets were his blueprint for the destruction of Rome (Esau/Edom) and all western "gyrwn" (Aramic form of goyim) through using "Ishmael" (Arabs) and "four-arms" (Indians).
 
@@ -1283,7 +1280,7 @@ According to his prophecy, after Ishmael weakens Edom (Rome) and then "dies a no
 
 In Jerusalem Talmud Kiddushin, Rabbi Shimon bar Yochai stated: "Kill the best of Gentiles, smash the head of the best of snakes". He was the biggest proponent of the belief that Rome was Edom.
 
-Allah and Muhammad the red-headed warlord then became parodies of Attila the Hun [^17] and his uncle Ruglia waging war against Rome (Edom) because they wanted the Arabs to attack eastern Rome. 
+Allah and Muhammad the red-headed warlord then became parodies of Attila the Hun [^39] and his uncle Ruglia waging war against Rome (Edom) because they wanted the Arabs to attack eastern Rome. 
 
 So, Talmudic jews who were hiding out in the Himyarite Kingdom after
 Emperor Hadrian kicked them out of judea, and who were students of Rabbi Akiva, basically just cut-and-pasted
@@ -1307,7 +1304,7 @@ Endnotes (Chapter 9)
 (b) There was a Marcus who founded the Marcosian Gnostic sect. He was a
     teacher of Bishop Irenaeus and a friend of Clement of Alexandria.
     Was he also Marcion of Sinope aka Markianos of Alexandria?
-    (https://en.wikipedia.org/wiki/Marcus_%28Marcosian%29). St. Jerome
+    [^40]. St. Jerome
     in "Against Jovinian" describes Mark as a disciple of the Gnostic
     teacher Basilides. Here is a list of "Marks" who were active around
     the same time: Mark, the Evangelist, John Mark, Mark of Apollonias,
@@ -1322,7 +1319,7 @@ Endnotes (Chapter 9)
     1912), where he described them as "the fomenters of a universal
     plague throughout the civilized world.". He eventually expelled them
     from Rome:
-    https://en.wikipedia.org/wiki/Claudius'_expulsion_of_Jews_from_Rome
+    [^41]
     In the Acts of the Apostles (Acts 18:1-18) it explains how the
     Apostle Paul met Priscilla and Aquila and mentions in passing an
     expulsion of Jews from Rome. "Paul" was Rabbi Akiva and Aquila of
@@ -1331,7 +1328,7 @@ Endnotes (Chapter 9)
     Valerius Maximus, in his work 'Facta ac dicta memorabilia', mentions
     the expulsion of Jews from Rome in 139 BCE by the praetor peregrinus
     Cn. Cornelius Hispalus for attempting to currupt the cult of
-    Jupiter.[^17]\
+    Jupiter.[^42]\
 (d) Quintus Tineius Sacerdos, the brother of Quintus Tinnius Rufus, was
     the governor of Pontus in Anatolia, so the family likely derived
     from there. Pilate means the temperament of a warrior I.e., famously
@@ -1342,14 +1339,14 @@ Endnotes (Chapter 9)
 **Bibliography**
 
 *Cleopatra to Christ* (2010) by Ralph Ellis
-[[link](https://www.google.com/books/edition/Cleopatra_to_Christ/T7sqfHyWPuQC?hl=en&gbpv=1&dq=cleopatra+to+christ&printsec=frontcover)]
+[^43]
 (*reveals that the biblical Jesus was based on King Izates of Adiabene
 who was directly descended from Cleopatra VII*)
 
 *Following Philo to Pallas (the Freedman): The Most Powerful Man in
 First Century Rome, also known as Goddess (the Mother)* (2019) by P.J.
 Gott
-[[link](https://www.amazon.com/Following-Philo-Pallas-Freedman-Powerful-ebook/dp/B07PXKQGYG/)]
+[^44]
 (*reveals that Philo of Alexandria was a pen-name for Cleopatra of
 Mauretania who was married to her brother Alexander (grandson of King
 Herod)/Ptolemy of Mauretania, therefore, she was the mother of Tiberius
@@ -1359,7 +1356,7 @@ Caenis.*)
 
 *Magdalene's Men. The historic identities of the many men in Mary
 Magdalene's life.* by P.J Gott
-[[link](https://web.archive.org/web/20240113043329/https://thenazareneway.com/MM%20Chart.htm)]
+[45]
 (*reference guide to the many aliases of Alexander (grandson of King
 Herod) aka Gaius Julius Alexander, Herodian Prince of Judaea aka
 Alexander Lysimachus aka Alexander the Alabarch aka Ptolemy (Alexander)
@@ -1375,7 +1372,7 @@ but it was my starting point to understanding the many aliases this
 family used*)
 
 *Jesus Among the Julio-Claudians* (2021) by Charles N. Pope
-[[link](./%5Bhttps://www.amazon.com/Jesus-Among-Julio-Claudians-Charles-Pope/dp/B08XL7Z118%3Fref_=ast_author_mpb)]
+[^46]
 (*Author who came to similar conclusions as me*)
 
 *Byzantine revisionism unlocks world history* (2023).
@@ -1387,16 +1384,23 @@ https://unz.com/article/how-fake-is-church-history by Laurent Guyénot
 
 **Footnotes**
 
-[^1]: The historical record from antiquity has a repeating narrative of jewish high priests being executed by a Roman prefect or governor: Roman Procurator of Judea Lucceius Albinus condeming Jesus ben Ananias to cruxification; Roman Procurator of Judea Quintus Tineius Rufus aka Turnus Rufus the Evil condeming Simon bar Kokhba to cruxification; Roman prefect (governor) of Roman Egypt Tiberius Julius Alexander condemining Judas the Gaulanite to death; Roman prefect of the Praetorian Guard Marcius Turbo condeming Lukuas Andreas to death; Roman prefect (governor) of Roman Egypt Aulus Avillius Flaccus crucifying many prominant jews in Alexandria, Roman prefect of Judea Pontius Pilate condeming Julius Archelaus Chelcias to death, etc. There was also people like Jesus ben Gamala/Gamaliel aka Jesus ben Sapphias, Jesus ben Fabus, Jesus ben Panthera, who fit the Jesus role. This is an archetype, or a story pattern for imperial fiction.
- 
-[^2]: https://en.wikipedia.org/wiki/Targitaos who was associated with Hercules. In Scythian mythology Hercules (Targiatos) bred with a snake woman and this created the Scythians \
+[^1]: https://ranajitpal-jesus-from-asia-minor.blogspot.com/2011/06/jesus-christ-was-amyntas-of-galatia_20.html
+[^2]: https://web.archive.org/web/20240728150536/https://x.com/ralfellis/status/1809520320077803525
+[^3]: https://www.amazon.com/Jesus-Among-Julio-Claudians-Charles-Pope/dp/B08XL7Z118%3Fref_=ast_author_mpb
+[^4]: https://archive.org/details/joseph-raymond-herodian-messiah-case-for-jesus-as-grandson-of-herod-tower-grove-publishing-2010/page/n18/mode/1up
+[^5]: https://rpc.ashmus.ox.ac.uk/coins/1/1845
+[^6]: https://silver.kbr.be/3628_-_Panticapaeum%3F_(Asander)_(AE_Apollo/prow)_over_Pontic_type_(Perseus/Pegasus)_(Oxford,_AM)
+[^7]: https://henrydavis-cc.medium.com/the-royal-ancestry-of-the-roman-emperor-vespasian-72e144335299
+[^8]: https://en.wikipedia.org/wiki/Pythia
+[^9]: https://en.wikipedia.org/wiki/Hyperborea#Hyperboreans_in_Delos
+[^10]: The historical record from antiquity has a repeating narrative of jewish high priests being executed by a Roman prefect or governor: Roman Procurator of Judea Lucceius Albinus condeming Jesus ben Ananias to cruxification; Roman Procurator of Judea Quintus Tineius Rufus aka Turnus Rufus the Evil condeming Simon bar Kokhba to cruxification; Roman prefect (governor) of Roman Egypt Tiberius Julius Alexander condemining Judas the Gaulanite to death; Roman prefect of the Praetorian Guard Marcius Turbo condeming Lukuas Andreas to death; Roman prefect (governor) of Roman Egypt Aulus Avillius Flaccus crucifying many prominant jews in Alexandria, Roman prefect of Judea Pontius Pilate condeming Julius Archelaus Chelcias to death, etc. There was also people like Jesus ben Gamala/Gamaliel aka Jesus ben Sapphias, Jesus ben Fabus, Jesus ben Panthera, who fit the Jesus role. This is an archetype, or a story pattern for imperial fiction.
+[^11]: https://en.wikipedia.org/wiki/Targitaos who was associated with Hercules. In Scythian mythology Hercules (Targiatos) bred with a snake woman and this created the Scythians \
     --https://en.wikipedia.org/wiki/Snake-Legged_Goddess (the ancestor-goddess of the Scythians according to the Scythian religion) \
     --https://en.wikipedia.org/wiki/Serpents_in_the_Bible \
     --Royal families of Europe descend from this Scythian line: Vlad
     Dracula (Son of the Dragon) is an example of this bloodline in
     Wallachia.
-    
-[^3]: You can read more about the Jew-Neanderthal connection here: (Humans
+[^12]: You can read more about the Jew-Neanderthal connection here: (Humans
     and Neanderthals likely interbred in the Middle East. Science
     Magazine,
     https://www.sciencemag.org/news/2015/01/humans-and-neandertals-likely-interbred-middle-east),
@@ -1427,9 +1431,8 @@ https://unz.com/article/how-fake-is-church-history by Laurent Guyénot
     (BBC News, https://www.bbc.co.uk/news/science-environment-57586315),
     (New America Government,
     https://archive.ph/2024.02.24-211636/https://newamericangovernment.org/ailink/802/),
-    (Blogger, https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiyDzxbNmb6Oj5aDWOknO84-hwkdkoi) \
-
-[^4]: See: "History: Fiction or Science? Russia. Britain. Byzantium.
+    (Blogger, https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiyDzxbNmb6Oj5aDWOknO84-hwkdkoi)
+[^13]: See: "History: Fiction or Science? Russia. Britain. Byzantium.
     Rome. New Chronology Vol.IV" (2008) by Anatoly T. Fomenko, "Jesus
     Among the Julio-Claudians" (2017) by Charles N. Pope
     '[[link](https://books.google.se/books/about/Jesus_Among_the_Julio_Claudians.html?id=c7A3DwAAQBAJ&redir_esc=y)],
@@ -1465,8 +1468,7 @@ https://unz.com/article/how-fake-is-church-history by Laurent Guyénot
     in an area that is modern Istanbul. The last point I independently
     confirmed. Julius Caesar = Asander of Bosphorus, and all early
     Christianity traces back to to the Bosphorus.
-
-[^5]: Julius Caesar was his title (Caesar is etymologically similar to
+[^14]: Julius Caesar was his title (Caesar is etymologically similar to
     the Indo-Aryan word for "king" and Julius (Iulius) is similar to
     both (I)Jupiter and to the Indo-Aryan word for "sun"). Julius Caesar
     was deified in two religions: in the Flamen Dialis cult (Dialis is
@@ -1486,16 +1488,7 @@ https://unz.com/article/how-fake-is-church-history by Laurent Guyénot
     So he was a "Soter"/Christ. Source: Corpus Inscriptionum Regni
     Bosporani (CIRB 30)
     https://www.researchgate.net/publication/333149205_CIRB_30_Asandros_and_Dynamis_CIRB_Corpus_Inscriptionum_Regni_Bospori.
-
-[^6]: "The Gospel of Jesus' Wife Papyrus." The Nazarene Way,
-    https://www.thenazareneway.com/Gospel%20of%20Jesus%20Wife%20Papyrus.htm.[[link](https://www.thenazareneway.com/Gospel%20of%20Jesus%20Wife%20Papyrus.htm)]
-    --Asander and Julius Caesar both used the Nike crescent. Nike is the
-    goddess who personifies victory in Greek mythology.
-    https://www.britishmuseum.org/collection/object/C_1987-0649-62
-    [[link](https://www.britishmuseum.org/collection/object/C_1987-0649-62)]
-    https://www.britishmuseum.org/collection/object/C_RPK-p137A-1-Nic
-    [[link](https://www.britishmuseum.org/collection/object/C_RPK-p137A-1-Nic)]
-    --In many languages the word "As" is found as the designation of the
+[^15]: In many languages the word "As" is found as the designation of the
     supreme deities. In the Messapic and Oscan languages Asa means god
     or divine. In Norse mythology, the Aesir (or Asas) refer to the
     principal gods, including Odin, Thor, and Freyja. In ancient Persian
@@ -1512,33 +1505,27 @@ https://unz.com/article/how-fake-is-church-history by Laurent Guyénot
     related to the ancient Slavic word "asen," meaning "noble" or
     "divine.". The Etruscan word "Aesar" (also spelled "Aeser" or
     "Aisar") means "god" or "divine". As is at the root of Caesar.
-
-[^7]: A coin of Dynamis, queen of Bosphorus, where she is depicted as
+[^16]: A coin of Dynamis, queen of Bosphorus, where she is depicted as
     Aphrodite "Urania":
-    https://www.forumancientcoins.com/gallery/displayimage.php?album=880&pid=2383#top_display_media
-    [[link](https://www.forumancientcoins.com/gallery/displayimage.php?album=880&pid=2383#top_display_media)].
+    https://www.forumancientcoins.com/gallery/displayimage.php?album=880&pid=2383#top_display_media.
     Dynamis carried the title Ouriana, refering to Aphrodite Urania
     ("heavenly Aphrodite"), the Greek godess. Cleopatra also depicted
     herself as Aphrodite. Cleopatra's daughter Cleopatra Selene II was
     also Queen Thea Muse Ourania. --Another Dynamis coin depicting a
     Star and Crescent which was also the symbol of the royal house of
     Adiabene and later became a prominent symbol in Islam:
-    https://rpc.ashmus.ox.ac.uk/coins/1/1864
-    [[link](https://rpc.ashmus.ox.ac.uk/coins/1/1864)]. In ancient
+    https://rpc.ashmus.ox.ac.uk/coins/1/1864.
+    In ancient
     greek mythology Selene (meaning moon) is the goddess and
     personification of the Moon. Her symbol is the cresent mon.
     Cleopatra's daughter, Cleopatra Selene II of Mauretania, coins also
     depict a star and crescent. --Julius Caesar also used the star and
     crescent symbol: https://www.accla.org/actaaccla/juliuscaesar.html
-    [[link](https://www.accla.org/actaaccla/juliuscaesar.html)]
     https://auctions.stacksbowers.com/lots/view/3-US7SY/julius-caesar-ar-denarius-392-gms-rome-mint-l-aemilius-buca-moneyer-lifetime-issue-44-bc-ngc-au-strike-45-surface-45-e
-    [[link](https://auctions.stacksbowers.com/lots/view/3-US7SY/julius-caesar-ar-denarius-392-gms-rome-mint-l-aemilius-buca-moneyer-lifetime-issue-44-bc-ngc-au-strike-45-surface-45-e)]
     --Juba II (Cleopatra VII and Mark Antony's son) also used the star
     and crescent symbol:
     https://www.vcoins.com/en/stores/den_of_antiquity/48/product/mauretania_juba_ii_ar_denarius/1952816/Default.aspx
-    [[link](https://www.vcoins.com/en/stores/den_of_antiquity/48/product/mauretania_juba_ii_ar_denarius/1952816/Default.aspx)]
-
-[^8]: His name alludes to the Mithras cult. Mithraism was spread by
+[^17]: His name alludes to the Mithras cult. Mithraism was spread by
     Tiridates of Armenia (alias of Alexander, grandson of King Herod,
     Mithridates Chrestus descendant?) after Rome's defeat of Parthia
     around 53 AD as a slave-morality religion to subjugate the
@@ -1554,9 +1541,15 @@ https://unz.com/article/how-fake-is-church-history by Laurent Guyénot
     Valentinianism, Christianity, Hermeticism, Mithraism, Manichaeism,
     Mandaeism, and many other religions came from the Alexandrian
     School. The Sibylline Oracles were the blueprint for these
-    religions./
-
-[^9]: Jesus ben Fabus who was Isa Amen (Jesus Amen) of Rev. iii. 14 who
+    religions.
+[^18]: Tiridates II, King of Parthia." Geni,
+    https://www.geni.com/people/Tiridates-II-king-of-Parthia/6000000019000945876
+[^19]: Davis, Henry. "The Royal Ancestry of the Roman Emperor
+    Vespasian." Medium,
+    https://henrydavis-cc.medium.com/the-royal-ancestry-of-the-roman-emperor-vespasian-72e144335299.
+[^20]: Josephus, "Antiquities of the Jews", Book 12
+    https://www.ccel.org/ccel/josephus/complete.ii.xviii.xii.html
+[^21]: Jesus ben Fabus who was Isa Amen (Jesus Amen) of Rev. iii. 14 who
     was also Amyntas (Amen(tas)) of Galatia who was also Amyntas Nikator
     (the name Fabus may have been distorted by Josephus from Jesus ben
     Bagus. Amyntas was the son of Bogitarus. In Persian "Bagus" means
@@ -1565,8 +1558,7 @@ https://unz.com/article/how-fake-is-church-history by Laurent Guyénot
     Invictus). His palace at Iśauria reveals his name as Iśa. (See:
     Jesus Christ Was Amyntas of Galatia (2010) by Ranajit Pal
     [[link](https://ranajitpal-jesus-from-asia-minor.blogspot.com/2011/06/jesus-christ-was-amyntas-of-galatia_20.html)])
-
-[^10]: The name Herod likely derives from the amalgamation of Horus and
+[^22]: The name Herod likely derives from the amalgamation of Horus and
     Hercules (Herakles in Greek). Mark Antony claimed descent from
     Hercules and declared himself an incarnation of Horus. Herod became
     king of judaea around the time of Mark Antony's "suicide". This is
@@ -1575,8 +1567,7 @@ https://unz.com/article/how-fake-is-church-history by Laurent Guyénot
     a play.
     --The Shekel of Tyre that King Herod minted depicts Mark Antony and
     an image of Hercules:
-    https://www.forumancientcoins.com/numiswiki/view.asp?key=tyrian%20shekels
-    [[link](https://www.forumancientcoins.com/numiswiki/view.asp?key=tyrian%20shekels)].
+    https://www.forumancientcoins.com/numiswiki/view.asp?key=tyrian%20shekels.
     Herod also built a number of temples and shrines dedicated to
     Hercules, including one in Beirut and another in Tyre. He also
     depicted himself as Hercules in his Herodian Cult. King Herod's son,
@@ -1600,8 +1591,7 @@ https://unz.com/article/how-fake-is-church-history by Laurent Guyénot
     praetor of 41 BC and son of another Tiberius Claudius Nero, praetor
     of 62 BC. Tiberius Claudius Nero and Livia Drusilla's son was
     emperor Tiberius Julius Caesar Augustus.
-
-[^11]: Jesus ben Gamala/Gamaliel aka Jesus ben Sapphias was also King
+[^23]: Jesus ben Gamala/Gamaliel aka Jesus ben Sapphias was also King
     Izas Ma'nu (Jesus Emmanuel) Monobazus of Adiabene aka Yeshua
     Cleopatros (Cantheras/Panthera) ben Josephus bar Menneus aka Ptolemy
     aka Yakov Zu Tolomoy. (See: Jesus, King of Edessa (2012) by Ralph
@@ -1613,29 +1603,31 @@ https://unz.com/article/how-fake-is-church-history by Laurent Guyénot
     to QTRS or Katros, later mistakenly recorded as Cantheras. So the
     Jews for derogatory reasons called it as Panthera. ie. Jesus
     Panthera.
-
-[^12]: Tiridates II, King of Parthia." Geni,
-    https://www.geni.com/people/Tiridates-II-king-of-Parthia/6000000019000945876
-    [[link](https://www.geni.com/people/Tiridates-II-king-of-Parthia/6000000019000945876)]
-
-[^13]: Davis, Henry. "The Royal Ancestry of the Roman Emperor
+[^24]: https://en.wikipedia.org/wiki/Apollonius_of_Tyre_(philosopher)
+[^25]: https://en.wikipedia.org/wiki/Apollonius_of_Tyre
+[^26]: Davis, Henry. "The Royal Ancestry of the Roman Emperor
     Vespasian." Medium,
     https://henrydavis-cc.medium.com/the-royal-ancestry-of-the-roman-emperor-vespasian-72e144335299.
-    [[link](https://henrydavis-cc.medium.com/the-royal-ancestry-of-the-roman-emperor-vespasian-72e144335299)]
-
-[^14]: Josephus, "Antiquities of the Jews", Book 12
-    [[link](https://www.ccel.org/ccel/josephus/complete.ii.xviii.xii.html)]
-
-[^15]: Davis, Henry. "The Royal Ancestry of the Roman Emperor
-    Vespasian." Medium,
-    https://henrydavis-cc.medium.com/the-royal-ancestry-of-the-roman-emperor-vespasian-72e144335299.
-    [[link](https://henrydavis-cc.medium.com/the-royal-ancestry-of-the-roman-emperor-vespasian-72e144335299)]
-
-[^16]: https://en.wikipedia.org/wiki/The_Secrets_of_Rabbi_Simon_ben_Yohai
-
-[^17]: Attila the Hun = Flavius Aetius (Roman general) + Priscus Attalus (usurper). Attila’s campaign (5th century CE) is a retelling of Mithridatic Wars (1st century BCE). This is chronological duplication.
-
-[^18]: https://en.wikipedia.org/wiki/Claudius%27_expulsion_of_Jews_from_Rome
+[^27]: https://www.coinarchives.com/a/lotviewer.php?LotID=2528933&AucID=6356&Lot=485&Val=e5e4db7aa704d656893926a33a970991
+[^28]: https://eurogenes.blogspot.com/2017/07/north-european-admixture-in-han-chinese.html
+[^29]: https://www.livescience.com/archaeology/stunning-tang-dynasty-mural-in-tomb-unearthed-in-china-may-portray-a-westerner-man-with-blond-hair
+[^30]: https://www.smithsonianmag.com/smart-news/did-greeks-help-sculpt-chinas-terracotta-warriors-180960771/
+    -https://www.independent.co.uk/news/science/china-terracotta-army-ancient-greek-sculptors-alexander-the-great-marco-polo-a7357606.html
+    -https://www.theguardian.com/science/2016/oct/12/ancient-greeks-may-have-inspired-china-terracotta-army-sculptors-ancient-dna
+    -https://www.history.com/news/greeks-may-have-influenced-chinas-terra-cotta-army
+    -https://en.wikipedia.org/wiki/Terracotta_Army
+[^31]: https://desuarchive.org/his/thread/10105977/
+[^32]: https://www.academia.edu/40074507/ALEXANDER_AND_CHANDRAGUPTA_IN_A_SANSKRIT_D
+[^33]: https://www.academia.edu/695219/Diodotus_I_was_Ashoka_An_Altar_of_Alexander_Now_Standing_Near_Delhi
+[^34]: https://en.wikipedia.org/wiki/Bubares
+[^35]: https://en.wikipedia.org/wiki/Amyntas_(son_of_Bubares)
+[^36]: https://web.archive.org/web/20240728150536/https://x.com/ralfellis/status/1809520320077803525
+[^37]: https://www.eupedia.com/forum/threads/haplogroup-j2-romans-christianity-and-viticulture.28988/
+[^38]: https://en.wikipedia.org/wiki/The_Secrets_of_Rabbi_Simon_ben_Yohai
+[^39]: Attila the Hun = Flavius Aetius (Roman general) + Priscus Attalus (usurper). Attila’s campaign (5th century CE) is a retelling of Mithridatic Wars (1st century BCE). This is chronological duplication.
+[^40]: https://en.wikipedia.org/wiki/Marcus_%28Marcosian%29
+[^41]: https://en.wikipedia.org/wiki/Claudius%27_expulsion_of_Jews_from_Rome
+[^42]: https://en.wikipedia.org/wiki/Claudius%27_expulsion_of_Jews_from_Rome
     ---https://en.wikipedia.org/wiki/Sabazios#Jewish_connection
     ---Emperor Caligula Brought an End to the Illustrious Ptolemies, but
     Why?. Ancient Origins Reconstructing the Story of Humanity's Past.
@@ -1644,14 +1636,7 @@ https://unz.com/article/how-fake-is-church-history by Laurent Guyénot
     ---Emperor Caligula Brought an End to the Illustrious Ptolemies, but
     Why?. Ancient Origins Reconstructing the Story of Humanity's Past.
     www.ancient-origins.net/history-famous-people/emperor-caligula-brought-end-illustrious-ptolemies-why-007591
-
-[^19]: Gmirkin, Russell (2016). Plato and the Creation of the Hebrew
-    Bible.
-
-[^20]: <a href="https://www.smithsonianmag.com/smart-news/did-greeks-help-sculpt-chinas-terracotta-warriors-180960771/">https://www.smithsonianmag.com/smart-news/did-greeks-help-sculpt-chinas-terracotta-warriors-180960771/</a>\ 
-     -<a href="https://www.independent.co.uk/news/science/china-terracotta-army-ancient-greek-sculptors-alexander-the-great-marco-polo-a7357606.html">https://www.independent.co.uk/news/science/china-terracotta-army-ancient-greek-sculptors-alexander-the-great-marco-polo-a7357606.html</a> \
-     -<a href="https://www.theguardian.com/science/2016/oct/12/ancient-greeks-may-have-inspired-china-terracotta-army-sculptors-ancient-dna">https://www.theguardian.com/science/2016/oct/12/ancient-greeks-may-have-inspired-china-terracotta-army-sculptors-ancient-dna</a> \
-     -<a href="https://www.history.com/news/greeks-may-have-influenced-chinas-terra-cotta-army">https://www.history.com/news/greeks-may-have-influenced-chinas-terra-cotta-army</a>\
-     -<a href="https://en.wikipedia.org/wiki/Terracotta_Army">https://en.wikipedia.org/wiki/Terracotta_Army</a>
-
-[^21]: https://desuarchive.org/his/thread/10105977/
+[^43]: https://www.google.com/books/edition/Cleopatra_to_Christ/T7sqfHyWPuQC?hl=en&gbpv=1&dq=cleopatra+to+christ&printsec=frontcover
+[^44]: https://www.amazon.com/Following-Philo-Pallas-Freedman-Powerful-ebook/dp/B07PXKQGYG/
+[^45]: https://web.archive.org/web/20240113043329/https://thenazareneway.com/MM%20Chart.htm
+[^46]: https://books.google.se/books/about/Jesus_Among_the_Julio_Claudians.html?id=c7A3DwAAQBAJ&redir_esc=y
