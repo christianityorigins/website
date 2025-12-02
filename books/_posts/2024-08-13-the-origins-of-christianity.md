@@ -1400,7 +1400,7 @@ https://unz.com/article/how-fake-is-church-history by Laurent Guyénot
     --https://en.wikipedia.org/wiki/Serpents_in_the_Bible \
     --Royal families of Europe descend from this Scythian line: Vlad
     Dracula (Son of the Dragon) is an example of this bloodline in
-    Wallachia.
+    Wallachia.\
 [^12]: You can read more about the Jew-Neanderthal connection here: (Humans
     and Neanderthals likely interbred in the Middle East. Science
     Magazine,
@@ -1432,7 +1432,7 @@ https://unz.com/article/how-fake-is-church-history by Laurent Guyénot
     (BBC News, https://www.bbc.co.uk/news/science-environment-57586315),
     (New America Government,
     https://archive.ph/2024.02.24-211636/https://newamericangovernment.org/ailink/802/),
-    (Blogger, https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiyDzxbNmb6Oj5aDWOknO84-hwkdkoi)
+    (Blogger, https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEiyDzxbNmb6Oj5aDWOknO84-hwkdkoi)\
 [^13]: See: "History: Fiction or Science? Russia. Britain. Byzantium.
     Rome. New Chronology Vol.IV" (2008) by Anatoly T. Fomenko, "Jesus
     Among the Julio-Claudians" (2017) by Charles N. Pope
@@ -1468,7 +1468,7 @@ https://unz.com/article/how-fake-is-church-history by Laurent Guyénot
     were multiple "Romes" and the major one was based out of Anatolia,
     in an area that is modern Istanbul. The last point I independently
     confirmed. Julius Caesar = Asander of Bosphorus, and all early
-    Christianity traces back to to the Bosphorus.
+    Christianity traces back to to the Bosphorus.\
 [^14]: Julius Caesar was his title (Caesar is etymologically similar to
     the Indo-Aryan word for "king" and Julius (Iulius) is similar to
     both (I)Jupiter and to the Indo-Aryan word for "sun"). Julius Caesar
@@ -1488,7 +1488,7 @@ https://unz.com/article/how-fake-is-church-history by Laurent Guyénot
     Asandros Philoromaios Soter and gives him the title "King of Kings".
     So he was a "Soter"/Christ. Source: Corpus Inscriptionum Regni
     Bosporani (CIRB 30)
-    https://www.researchgate.net/publication/333149205_CIRB_30_Asandros_and_Dynamis_CIRB_Corpus_Inscriptionum_Regni_Bospori.
+    https://www.researchgate.net/publication/333149205_CIRB_30_Asandros_and_Dynamis_CIRB_Corpus_Inscriptionum_Regni_Bospori\.
 [^15]: In many languages the word "As" is found as the designation of the
     supreme deities. In the Messapic and Oscan languages Asa means god
     or divine. In Norse mythology, the Aesir (or Asas) refer to the
@@ -1505,7 +1505,7 @@ https://unz.com/article/how-fake-is-church-history by Laurent Guyénot
     god Perun is sometimes referred to as "As" or "Asa," which may be
     related to the ancient Slavic word "asen," meaning "noble" or
     "divine.". The Etruscan word "Aesar" (also spelled "Aeser" or
-    "Aisar") means "god" or "divine". As is at the root of Caesar.
+    "Aisar") means "god" or "divine". As is at the root of Caesar.\
 [^16]: A coin of Dynamis, queen of Bosphorus, where she is depicted as
     Aphrodite "Urania":
     https://www.forumancientcoins.com/gallery/displayimage.php?album=880&pid=2383#top_display_media.
@@ -1525,7 +1525,7 @@ https://unz.com/article/how-fake-is-church-history by Laurent Guyénot
     https://auctions.stacksbowers.com/lots/view/3-US7SY/julius-caesar-ar-denarius-392-gms-rome-mint-l-aemilius-buca-moneyer-lifetime-issue-44-bc-ngc-au-strike-45-surface-45-e
     --Juba II (Cleopatra VII and Mark Antony's son) also used the star
     and crescent symbol:
-    https://www.vcoins.com/en/stores/den_of_antiquity/48/product/mauretania_juba_ii_ar_denarius/1952816/Default.aspx
+    https://www.vcoins.com/en/stores/den_of_antiquity/48/product/mauretania_juba_ii_ar_denarius/1952816/Default.aspx\
 [^17]: His name alludes to the Mithras cult. Mithraism was spread by
     Tiridates of Armenia (alias of Alexander, grandson of King Herod,
     Mithridates Chrestus descendant?) after Rome's defeat of Parthia
@@ -1542,14 +1542,14 @@ https://unz.com/article/how-fake-is-church-history by Laurent Guyénot
     Valentinianism, Christianity, Hermeticism, Mithraism, Manichaeism,
     Mandaeism, and many other religions came from the Alexandrian
     School. The Sibylline Oracles were the blueprint for these
-    religions.
+    religions.\
 [^18]: Tiridates II, King of Parthia." Geni,
-    https://www.geni.com/people/Tiridates-II-king-of-Parthia/6000000019000945876
+    https://www.geni.com/people/Tiridates-II-king-of-Parthia/6000000019000945876\
 [^19]: Davis, Henry. "The Royal Ancestry of the Roman Emperor
     Vespasian." Medium,
-    https://henrydavis-cc.medium.com/the-royal-ancestry-of-the-roman-emperor-vespasian-72e144335299.
+    https://henrydavis-cc.medium.com/the-royal-ancestry-of-the-roman-emperor-vespasian-72e144335299.\
 [^20]: Josephus, "Antiquities of the Jews", Book 12
-    https://www.ccel.org/ccel/josephus/complete.ii.xviii.xii.html
+    https://www.ccel.org/ccel/josephus/complete.ii.xviii.xii.html\
 [^21]: Jesus ben Fabus who was Isa Amen (Jesus Amen) of Rev. iii. 14 who
     was also Amyntas (Amen(tas)) of Galatia who was also Amyntas Nikator
     (the name Fabus may have been distorted by Josephus from Jesus ben
@@ -1558,7 +1558,7 @@ https://unz.com/article/how-fake-is-church-history by Laurent Guyénot
     "Bog-" means god in Celtic. In Latin Nikator translates tro
     Invictus). His palace at Iśauria reveals his name as Iśa. (See:
     Jesus Christ Was Amyntas of Galatia (2010) by Ranajit Pal
-    [[link](https://ranajitpal-jesus-from-asia-minor.blogspot.com/2011/06/jesus-christ-was-amyntas-of-galatia_20.html)])
+    [[link](https://ranajitpal-jesus-from-asia-minor.blogspot.com/2011/06/jesus-christ-was-amyntas-of-galatia_20.html)])\
 [^22]: The name Herod likely derives from the amalgamation of Horus and
     Hercules (Herakles in Greek). Mark Antony claimed descent from
     Hercules and declared himself an incarnation of Horus. Herod became
@@ -1591,7 +1591,7 @@ https://unz.com/article/how-fake-is-church-history by Laurent Guyénot
     her own first husband. That husband was Tiberius Claudius Nero,
     praetor of 41 BC and son of another Tiberius Claudius Nero, praetor
     of 62 BC. Tiberius Claudius Nero and Livia Drusilla's son was
-    emperor Tiberius Julius Caesar Augustus.
+    emperor Tiberius Julius Caesar Augustus.\
 [^23]: Jesus ben Gamala/Gamaliel aka Jesus ben Sapphias was also King
     Izas Ma'nu (Jesus Emmanuel) Monobazus of Adiabene aka Yeshua
     Cleopatros (Cantheras/Panthera) ben Josephus bar Menneus aka Ptolemy
@@ -1603,32 +1603,32 @@ https://unz.com/article/how-fake-is-church-history by Laurent Guyénot
     --Cleopatros in Hebrew is QLPTRS and was shortened on inscriptions
     to QTRS or Katros, later mistakenly recorded as Cantheras. So the
     Jews for derogatory reasons called it as Panthera. ie. Jesus
-    Panthera.
-[^24]: https://en.wikipedia.org/wiki/Apollonius_of_Tyre_(philosopher)
-[^25]: https://en.wikipedia.org/wiki/Apollonius_of_Tyre
+    Panthera.\
+[^24]: https://en.wikipedia.org/wiki/Apollonius_of_Tyre_(philosopher)\
+[^25]: https://en.wikipedia.org/wiki/Apollonius_of_Tyre\
 [^26]: Davis, Henry. "The Royal Ancestry of the Roman Emperor
     Vespasian." Medium,
-    https://henrydavis-cc.medium.com/the-royal-ancestry-of-the-roman-emperor-vespasian-72e144335299.
-[^27]: https://www.coinarchives.com/a/lotviewer.php?LotID=2528933&AucID=6356&Lot=485&Val=e5e4db7aa704d656893926a33a970991
-[^28]: https://eurogenes.blogspot.com/2017/07/north-european-admixture-in-han-chinese.html
-[^29]: https://www.livescience.com/archaeology/stunning-tang-dynasty-mural-in-tomb-unearthed-in-china-may-portray-a-westerner-man-with-blond-hair
+    https://henrydavis-cc.medium.com/the-royal-ancestry-of-the-roman-emperor-vespasian-72e144335299.\
+[^27]: https://www.coinarchives.com/a/lotviewer.php?LotID=2528933&AucID=6356&Lot=485&Val=e5e4db7aa704d656893926a33a970991\
+[^28]: https://eurogenes.blogspot.com/2017/07/north-european-admixture-in-han-chinese.html\
+[^29]: https://www.livescience.com/archaeology/stunning-tang-dynasty-mural-in-tomb-unearthed-in-china-may-portray-a-westerner-man-with-blond-hair\
 [^30]: https://www.smithsonianmag.com/smart-news/did-greeks-help-sculpt-chinas-terracotta-warriors-180960771/
     -https://www.independent.co.uk/news/science/china-terracotta-army-ancient-greek-sculptors-alexander-the-great-marco-polo-a7357606.html
     -https://www.theguardian.com/science/2016/oct/12/ancient-greeks-may-have-inspired-china-terracotta-army-sculptors-ancient-dna
     -https://www.history.com/news/greeks-may-have-influenced-chinas-terra-cotta-army
-    -https://en.wikipedia.org/wiki/Terracotta_Army
-[^31]: https://desuarchive.org/his/thread/10105977/
-[^32]: https://www.academia.edu/40074507/ALEXANDER_AND_CHANDRAGUPTA_IN_A_SANSKRIT_D
-[^33]: https://www.academia.edu/695219/Diodotus_I_was_Ashoka_An_Altar_of_Alexander_Now_Standing_Near_Delhi
-[^34]: https://en.wikipedia.org/wiki/Bubares
-[^35]: https://en.wikipedia.org/wiki/Amyntas_(son_of_Bubares)
-[^36]: https://web.archive.org/web/20240728150536/https://x.com/ralfellis/status/1809520320077803525
-[^37]: https://www.eupedia.com/forum/threads/haplogroup-j2-romans-christianity-and-viticulture.28988/
-[^38]: https://en.wikipedia.org/wiki/The_Secrets_of_Rabbi_Simon_ben_Yohai
+    -https://en.wikipedia.org/wiki/Terracotta_Army\
+[^31]: https://desuarchive.org/his/thread/10105977/\
+[^32]: https://www.academia.edu/40074507/ALEXANDER_AND_CHANDRAGUPTA_IN_A_SANSKRIT_D\
+[^33]: https://www.academia.edu/695219/Diodotus_I_was_Ashoka_An_Altar_of_Alexander_Now_Standing_Near_Delhi\
+[^34]: https://en.wikipedia.org/wiki/Bubares\
+[^35]: https://en.wikipedia.org/wiki/Amyntas_(son_of_Bubares)\
+[^36]: https://web.archive.org/web/20240728150536/https://x.com/ralfellis/status/1809520320077803525\
+[^37]: https://www.eupedia.com/forum/threads/haplogroup-j2-romans-christianity-and-viticulture.28988/\
+[^38]: https://en.wikipedia.org/wiki/The_Secrets_of_Rabbi_Simon_ben_Yohai\
 [^39]: Attila the Hun = Flavius Aetius (Roman general) + Priscus Attalus (usurper). Attila’s campaign (5th century CE) is a retelling of Mithridatic Wars (1st century BCE). This is chronological duplication.
-[^40]: https://en.wikipedia.org/wiki/Marcus_%28Marcosian%29
-[^41]: https://en.wikipedia.org/wiki/Claudius%27_expulsion_of_Jews_from_Rome
-[^42]: https://en.wikipedia.org/wiki/Claudius%27_expulsion_of_Jews_from_Rome
+[^40]: https://en.wikipedia.org/wiki/Marcus_%28Marcosian%29\
+[^41]: https://en.wikipedia.org/wiki/Claudius%27_expulsion_of_Jews_from_Rome\
+[^42]: https://en.wikipedia.org/wiki/Claudius%27_expulsion_of_Jews_from_Rome\
     ---https://en.wikipedia.org/wiki/Sabazios#Jewish_connection
     ---Emperor Caligula Brought an End to the Illustrious Ptolemies, but
     Why?. Ancient Origins Reconstructing the Story of Humanity's Past.
@@ -1636,8 +1636,8 @@ https://unz.com/article/how-fake-is-church-history by Laurent Guyénot
     ---https://en.wikipedia.org/wiki/Sabazios#Jewish_connection
     ---Emperor Caligula Brought an End to the Illustrious Ptolemies, but
     Why?. Ancient Origins Reconstructing the Story of Humanity's Past.
-    www.ancient-origins.net/history-famous-people/emperor-caligula-brought-end-illustrious-ptolemies-why-007591
-[^43]: https://www.google.com/books/edition/Cleopatra_to_Christ/T7sqfHyWPuQC?hl=en&gbpv=1&dq=cleopatra+to+christ&printsec=frontcover
-[^44]: https://www.amazon.com/Following-Philo-Pallas-Freedman-Powerful-ebook/dp/B07PXKQGYG/
-[^45]: https://web.archive.org/web/20240113043329/https://thenazareneway.com/MM%20Chart.htm
+    www.ancient-origins.net/history-famous-people/emperor-caligula-brought-end-illustrious-ptolemies-why-007591\
+[^43]: https://www.google.com/books/edition/Cleopatra_to_Christ/T7sqfHyWPuQC?hl=en&gbpv=1&dq=cleopatra+to+christ&printsec=frontcover\
+[^44]: https://www.amazon.com/Following-Philo-Pallas-Freedman-Powerful-ebook/dp/B07PXKQGYG/\
+[^45]: https://web.archive.org/web/20240113043329/https://thenazareneway.com/MM%20Chart.htm\
 [^46]: https://books.google.se/books/about/Jesus_Among_the_Julio_Claudians.html?id=c7A3DwAAQBAJ&redir_esc=y
