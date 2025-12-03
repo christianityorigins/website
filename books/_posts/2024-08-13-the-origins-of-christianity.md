@@ -10,8 +10,7 @@ category: books
 
 **By Ralph Perrier**  
 
-![](/images/titlepage.png)
-
+<img src="/images/titlepage.png" alt="Title Page" style="max-width:100%; height:auto; display:block; margin:0 auto;">
 
 Copyright © 2025 Ralph Perrier\
 All rights reserved. No part of this publication may be reproduced or transmitted in any form without written permission from the publisher, except for brief quotations in reviews or scholarly works.
