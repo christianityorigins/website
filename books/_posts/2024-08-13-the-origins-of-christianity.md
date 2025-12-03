@@ -20,15 +20,19 @@ ISBN: 978-1-0696862-0-6 \
 Library of Congress Control Number: 2025917902\
 Published by Heretical Books
 
-**Epigraph**  
+**Prolegomenon: Methodology and Historiographical Approach**  
 
-*And as Moses lifted up the serpent in the wilderness, even so must the Son of man be lifted up.*— John 3:14 (The New Testament connecting Jesus directly to the serpent)
+This book traces Christianity back to its foundations — from the mythemes of Scythian snake-worshiping cults, to the Alexandrian School in Egypt and the Sarapis cult, to the Roman (Bosphoran) imperial cult — and then finishes with the subversion of the Bosphoran cult by the Flavian Dynasty (Vespasian, Titus).
+
+In contrast to conventional narratives, this work directly challenges mainstream historiography. My methodologies are:
+numismatic and onomastic evidence, and historical correlation and timeline analysis. The sources that inspired my work are listed in the 'Bibliography' section at the
+end of the book.
 
 **Table of Contents**
 
 Introduction\
-Part 1: Rome Was Located On the Bosphorus River in Crimea\
-1\. Numismatic Proof and Alias List\
+Part 1: Rome Was Located On the Cimmerian Bosphorus (Crimea–Kerch) River in Crimea\
+1\. The Evidence: Numismatic Proof and Alias List\
 1.1\. The Numismatic Key: Coins of a Global Empire\
 1.2\. The Ancient Alias Names List\
 2\. Name and Title Meanings\
@@ -72,7 +76,7 @@ Footnotes
 
 **Introduction**
  
-Christianity is a Flavian Dynasty (Vespasian, Titus) hijacking of one of the religions that were invented at the Alexandrian School in Egypt. The Alexandrian School was a religion-making factory that was set up by Ptolemy Soter. The Serapis cult, Judaism, Gnosticism, Valentinianism, Christianity, Hermeticism, Mithraism, Manichaeism, Mandaeism, and many other religions originated from there. 
+Christianity is a Flavian Dynasty hijacking of one of the religions that were invented at the Alexandrian School in Egypt. The Alexandrian School was a religion-making factory that was set up by Ptolemy Soter. The Serapis cult, Judaism, Gnosticism, Valentinianism, Christianity, Hermeticism, Mithraism, Manichaeism, Mandaeism, and many other religions originated from there. 
 
 Religion was the technology that the Ptolemaic dynasty used to control the vast and disparate populations they ruled and they created religions in every single conquered land. They would take local customs and create a syncretic man-god representing the Ptolemaic pharaoh. This system had one primary function: to psychologically pacify conquered populations and prevent unified rebellion. They would package these religions as sects of local religions because getting people to abandon their religions for a new one is an impossible task. However, there are thousands of sects of major religions today, many with different prophets. 
 
@@ -113,12 +117,6 @@ Philopator, derives from the Ancient Greek 'Φιλοπάτωρ' meaning "the one
 who loves her father", or simply "father-loving". She was also married
 to two of her brothers and her uncle as listed previously. This is how
 incestuous this family was.
-
-This book traces Christianity back to its foundations — from the mythemes of Scythian snake-worshiping cults, to the Alexandrian School in Egypt and the Sarapis cult, to the Roman (Bosphoran) imperial cult — and then finishes with the subversion of the Bosphoran cult.
-
-In contrast to conventional narratives, this work directly challenges mainstream historiography. My methodologies are:
-numismatic and onomastic evidence, and historical correlation and timeline analysis. The sources that inspired my work are listed in the 'Bibliography' section at the
-end of the book.
 
 **1 The Imperial Avatar System: Numismatic Proof and Aliases**
 
