@@ -158,7 +158,7 @@ Fig. 1.8. L. Polemon II, king of Bosphorus. R. Emperor Titus.
 1.2 Ancient Alias Names List
 
 Note on Aliases: I believe that the Ptolemaic elites in antiquity employed an incredible number of regional aliases, locations, fictional stories, faked adoptions, and fabricated deaths for themselves and their family members as a way to control the
-population. They role-played as deities, religious figures, and various characters as if they were actors in a play. This was done partially for obscuration, but also because people wouldn't accept foreign kings or kings with foreign names, and also, for theological requirements: a god-king had to manifest in different regions according to local religious expectations. However, as their names were mastly job titles an etymology across languages (Latin, Greek, "Old Persian," Sanskrit, Aramaic) reveals a unified administrative lexicon, and you can also expound their aliases through spouses. For example, the governor of Roman Egypt from 33 CE to 38, Aulus Avillius Flaccus, was also Polemon II of Pontus, who was
+population. They role-played as deities, religious figures, and various characters as if they were actors in a play. This was done partially for obscuration, but also because people wouldn't accept foreign kings or kings with foreign names, and also, for theological requirements: a god-king had to manifest in different regions according to local religious expectations. However, as their names were mostly job titles an etymology across languages (Latin, Greek, "Old Persian," Sanskrit, Aramaic) reveals a unified administrative lexicon, and you can also expound their aliases through spouses. For example, the governor of Roman Egypt from 33 CE to 38, Aulus Avillius Flaccus, was also Polemon II of Pontus, who was
 the prince of the Bosporan, Pontus, Cilicia, and Cappadocia, which was
 the regional alias of Emperor Titus. The character of Aulus Avillius
 Flaccus dies at the same time Polemon II of Pontus takes power, and then
@@ -258,7 +258,7 @@ V. Speculative
     meaning "lord". In the Celtic languages the word "cottos" or
     "cottius" means "chieftain".
 -   Flavius: Flavus = yellow/golden is a deliberate Latin mistranslation of the Scythian root Pālava or Palavi (Pahlavi), the term for the Parthian/Iranian aristocracy. The "Flavian" line was a Parthian/Sarmatian proxy dynasty installed by the Bosphoran center (Julius Caesar/Asander's line) to enforce the new Christianized Imperial Cult. They claimed a 'Golden Age' (Flavius) when they were truly the Pahlavi (Parthians) rewriting the Roman lie. 
--   Izates or Izas: Ie- is a prefix denoting divinity (as in I-em-hotep in Egyptianm and IE in Indo-European is a divine prefix (as in Ie-ove/Jove)). -sous is a variant of Zeus (Zas or Dyas is a cognate of Izas). Iesous = "Divine Zeus." This connects directly to Iulius (from Jupiter/Zeus). This becomes Jesus [^10], Aesus (Etruscan god), and the Avestan word Yazatas (Persian: izad), meaning 'lord'. In the name "Yeshua Ben Panthera" the Panthera is a Hellenized form of Ptolemaios (Ptolem->Ptol->Panther). "Jesus, son of Ptolemy". This directly connects the "Jesus" figure to the Ptolemaic-Bosphoran royal house. Similar to "Iasus", a Greek figure associated with the Argonauts and "Iaso" the healing Greek goddess.
+-   Izates or Izas: Ie- is a prefix denoting divinity (as in I-em-hotep in Egyptian and IE in Indo-European is a divine prefix (as in Ie-ove/Jove)). -sous is a variant of Zeus (Zas or Dyas is a cognate of Izas). Iesous = "Divine Zeus." This connects directly to Iulius (from Jupiter/Zeus). This becomes Jesus [^10], Aesus (Etruscan god), and the Avestan word Yazatas (Persian: izad), meaning 'lord'. In the name "Yeshua Ben Panthera" the Panthera is a Hellenized form of Ptolemaios (Ptolem->Ptol->Panther). "Jesus, son of Ptolemy". This directly connects the "Jesus" figure to the Ptolemaic-Bosphoran royal house. Similar to "Iasus", a Greek figure associated with the Argonauts and "Iaso" the healing Greek goddess.
 -    Jew: Iudaeus means "of Jove" which is Jupiter."Jupiter comes from Dyēus Pter ("Sky Father") which is the original name of the chief god for the Proto-Indo-Europeans on the Pontic-Caspian Steppe. His name means "Shining Sky Father". The name Zeus comes from the pronunciation of "Dyeus", and (I)Jupiter comes from the pronunciation of "Dyeus Pter" (Diespiter -> Iupiter). (J)upiter was also called Jove or Iove to the Romans. The Latin pronunciation of Iove would have been Yoh-Way, i.e., Yahweh/Yhwh. Dyēus -> Zeus -> Iove (Jove) -> Iud- (as in Iud-ii). The -ii suffix denotes "people of" or "tribe of". Iudii = "The People of Jove. "The Scythian elite, as part of their imperial cult, syncretized their primary deity with local dieities. In Anatolia and Thrace, this same god was worshipped as Sabazios, so Yahweh Saboath, the god of the Hebrew bible, is I(J)ove (Roman Zeus) Sabazios (Thracian Zeus). Dyēus Pter is also at the root of "Yuezhi" (月氏) who were a tribe of Scythians. It appears that ancient "Judaism" (Pre-70 AD) was a branch of the imperial cult centered on the god Jupiter-Sabazios (Yahweh Sabaoth) that local Canaanites, Edomites, and Levantine converts inherited. The term "Ashkenazi" (Ashkenaz means Scythian in Hebrew) confirms steppe origins. 
   - Lord: The term Kavi in Avestan texts (e.g., Yasna 10.6) denotes a divine ruler associated with Aži (dragon/serpent). Translating Kavi to Greek yields Kyrios ("lord"), a title used for Jesus in the New Testament (e.g., Kyrios Iesous). The Scythian title Xšaya (king) appears in Old Persian as Xšayathiya, phonetically linked to Kshatriya (Sanskrit: warrior-king) and Caesar via the Greek Kaesar. A kurgan inscription from Issyk (Kazakhstan, 4th century BCE) mentions a ruler named Ašakavi ("dragon-priest"), combining Aša (truth/order) and Kavi. This title parallels Asander (Thracian: Asa = "lord") and suggests a pan-steppe naming convention for dragon-kings. 
 -   Monobazus: Sabazios is the Phrygian and Thracian version of Zeus.
@@ -358,7 +358,7 @@ Thracians/Dacians
 The Bosporan and Dacian kingdoms controlled the Danube Delta and the Bosporus Strait—the two most critical chokepoints for Eurasian trade. Whoever controlled these points controlled the flow of goods, armies, and ideas between Europe and Asia. They didn't just rule an empire; they ruled the geography of civilization itself. Also, the massive gold mines of Dacia (modern Romania) were the financial engine of the "Roman" Empire. The output of these mines from 100 BC - 100 AD exceeds the total gold supply of the rest of the ancient world combined. The fact that Asander, king of Bosphrus is today an unknown historical figure despite the fact that he would have been the richest and most powerful man in the word at the time should be regarded as suspictious. The reason why you never heard of him is because you know him under another name: Julius Caesar.
 
 ![Fig.1.10](/images/Skyles.jpg){:width="400px"}\
-Fig. 1.10. Coin of Skyles, a Scythian king who reigned from ca 470-460 BC displaying a Scythian Solar Wheel and the World Tree combined. The cross was prominant in ancient Europe. It was a sundial and every city would have had one to track the time, dates, and agricultural and lunar cycles. "Skylesis" a Greek mockery of Skuða-las (Scythian King). The owl on the reverse side is the Owl of Athena also known as the Owl of Minerva, a sacred bird in Greek mythology that accompanies Athena. It shows up prominently in later Greek tetradrachms connecting him to Greece. For a Scythian king to carry that iconography shows direct interaction (he was likely the Scythian satrap of ancient Greece).
+Fig. 1.10. Coin of Skyles, a Scythian king who reigned from ca 470-460 BC displaying a Scythian Solar Wheel and the World Tree combined. The cross was prominant in ancient Europe. It was a sundial and every city would have had one to track the time, dates, and agricultural and lunar cycles. "Skylesis" a Greek mockery of Skuða-las (Scythian King). The owl on the reverse side is the Owl of Athena also known as the Owl of Minerva, a sacred bird in Greek mythology that accompanies Athena. It shows up prominently in later Greek tetradrachms connecting him to Greece. For a Scythian king to carry that iconography shows direct interaction (*most ancient Scythian coins are crude, this one looks too polished, especially for one that is over 800 years old. I cannot trace it and it could be a forgery, but still posted here in the odd chace that it is legitimate).
 
 The chromosome Haplogroup R1a, specifically subclade Z93 is found in high frequencies among the Scythian remains from the Pontic-Caspian Steppe. The Kshatriya (warrior) caste in India. The Brahmins (priestly) caste in India. The highest nobility of Persia. Patrician families of Rome. The Pharisaic and Herodian dynasties in Judea. The Sarmatian Alans who settled in Western Europe (and whose descendants include the Habsburgs). It is also found in the Tarim Mummies of China and in other tested ancient elite Chinese burial grounds (see: Chapter 7.4 China: The Han Synthesis and the Tartarian Genocide). This is the genetic signature of the administrative and priestly class that was installed globally.
 
@@ -614,8 +614,15 @@ brother-husband.
 
 **5.3.1 Ptolemy XII Auletes aka Mark Antony aka Mithridates VI Eupator**
 
-One name that shows up in the family trees of all the people listed
-above is Simon Boethus who I identify as (king/Tetrarch) Ptolemy
+The throne name of Ptolemy Philometer was Ir-maat-en-amun-re. This
+    would strengthen the word play between the names Philo-meter,
+    Mithra-dates, and Matthath-ius. (The Egyptian Maat-en transliterates
+    to the Hebrew Mattan/Mattath and the name "metor" transliterates
+    into Parthian Mithra). Philometer then corresponds to Mithradates of
+    Parthia and Mattathius the Hasmonean. (Mattath is the Hebrew
+    feminine form of Mattan).\
+    
+He was also likely Simon Boethus who I identify as (king/Tetrarch) Ptolemy
 (Alexander) bar Menneus aka Simon Magus. The name Boethus comes from
 Sabazios which is a translation of Zeus (Jupiter to the Romans) in the
 dialect and tradition of Phrygians and Thracians of Anatolia. Ma'nu is
@@ -889,14 +896,7 @@ Fig. 1.33 Coin of Tiberius Julius Sauromates II that displays a cross in the rig
 
 Endnotes (Chapter 5)
 
-(a) The throne name of Ptolemy Philometer was Ir-maat-en-amun-re. This
-    would strengthen the word play between the names Philo-meter,
-    Mithra-dates, and Matthath-ius. (The Egyptian Maat-en transliterates
-    to the Hebrew Mattan/Mattath and the name "metor" transliterates
-    into Parthian Mithra). Philometer then corresponds to Mithradates of
-    Parthia and Mattathius the Hasmonean. (Mattath is the Hebrew
-    feminine form of Mattan).\
-(b) Apollonius of Tyre was married to the daughter of a king of Libya
+(a) Apollonius of Tyre was married to the daughter of a king of Libya
     ("Historia Apollonii Regis Tyri" or "The Story of Apollonius, King
     of Tyre"), who was Cleopatra Selene aka Drusilla (aka Cleopatra
     (Thea Philopator) of Mauretania aka Cleopatra IX aka Helene aka
@@ -916,7 +916,7 @@ Endnotes (Chapter 5)
     Tyana? This would make Apollonius of Tyana the brother-husband of
     Philo of Alexandria and the father of Josephus. These three created
     the core of Christianity.\
-(c) Gautama Buddha was Gaumata Bardya, the son of Cyrus the Great.
+(b) Gautama Buddha was Gaumata Bardya, the son of Cyrus the Great.
     Ptolemy I Soter and his successors were closely associated with
     Serapis. "Jesus" was an avatar for the Bosphioran royal family.
     Apollonius of Tyana was king Juba II, the grandson of Julius
