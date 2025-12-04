@@ -241,14 +241,11 @@ V. Speculative
 -   Abraham: The father of Isaac (remove the Hebrew theophoric Y- = -tzak = Hebrew rendering of Sacae (Scythians)) is Abraham, the foundational patriarch. Ab = Father (Semitic). Raham = Arya (Sanskrit/Persian: "Noble"). Aram (the name for the land of the Arameans, a steppe-derived people). Abraham = Ab-Raham = "Father of the Aryans" or "Father of the Noble Ones". Related to Brahmin (Brahama) -> Ibrahim -> Abraham. A(Braha)m(in). Lord Rama (the greatest and seventh incarnation of God, hero of the Ramayana, protector of Dharma) in the ancient Vedas derives from this.
 -   Azhi: Azhi = Až ("serpent") + Hi ("power, divine") in Avestan, meaning "mighty dragon". It extends Aži to signify divine authority across Indo-Iranian and Scythian cultures. Azhi = Asia (Azhi-A) = "land of the mighty dragon" (Aži is cognate with the Chinese Zhī (dragon)), a very similar name to Rome (Rhu-Ma) = "Place of the Dragon", Romania (Rhu-Ma + Na) = "dragon land", and Sarmatia (serpent) + ma (mother, land). Aži links to Aesir (Norse gods), Asar (Egyptian Osiris), and Ahura (Zoroastrian god). The root Az-/As- means both "divine power" and "serpent" in Indo-European and Scythian languages (Sanskrit asura, Hittite hasu = king). Aži Dahāka in Avestan = Aži (serpent) + Dahāka (man) which translates to "Serpent-Man".
 -   Augustus: Augustus translates to Sebastos in Greek. Augustus was also refered to as Sebastos in several inscriptions. This directly connects to Sabazios the Thracian/Phrygian deity and Monobazus which was a title that was held by several Adiabene kings.
--   Caesar: The Egyptian name "Asar" was another name for Osiris. "Ra"
-    was the Egyptian deity of the Sun (Asar-Ra). Sar means king in Scythian. This title very likely
-    connects to "Asar-Hapi" (Osiris-Apis), another name for the
-    Graeco-Egyptian god Serapis (Osiris + Apis = Osorapis). The Etruscan
-    word "Aesar" (also spelled "Aeser" or "Aisar"), meaning god or
+-   Caesar: Core root is AS/AZ/AŠ which means "divine power". Its primary zoomorphic association is with the Serpent/Dragon (Aži, Azhi, Aži Dahāka). It is derived from the Scytho-Hurrian expression Kur-Sar (Sun King). The Egyptian expression was Asar (Wsir/Osiris). "Asar" was another name for Osiris. "Ra" was the Egyptian deity of the Sun (Asar-Ra). Sar means king in Scythian. This title connects to "Asar-Hapi" (Osiris-Apis), another name for the
+    Graeco-Egyptian god Serapis (Osiris + Apis = Osorapis). The Etruscan-Mediterranean expression "Aesar" (also spelled "Aeser" or "Aisar"), meaning god or
     divine, likely derives from the Egyptian Asar. The Greek language
     adds a "K" to foreign words, so Aesar -> Greek Kaesar -> Latin
-    Caesar. This title also resembles the Scythian/Hurrian "Kur-Sar" (Sun King), the Phoenician "Kosar" (sun god), Assyrian "Aššur" (god), Germanic Æsir (the Norse gods, like Odin), Sanskrit Kesari (lion), Persian Kesar (king), Scythian "As" (lord) and Scythian Sar (king), Kšar (from the Old Persian Xšaya = king), and also Cyrus the Great's title (Kuruš (Cyrus) = Khur (Sun) + -uš (lord)).
+    Caesar. Related to the Phoenician "Kosar" (sun god), Assyrian "Aššur" (god), Germanic Æsir (the Norse gods, like Odin), Sanskrit Kesari (lion), Persian Kesar (king), Scythian "As" (lord) and Scythian Sar (king), Kšar (from the Old Persian Xšaya = king), and also Cyrus the Great's title (Kuruš (Cyrus) = Khur (Sun) + -uš (lord)). "Caesar" = "Asander" = "Kesari" = "Xerxes".
 -   Christ: Scythian Xšaθra (power, dominion) -> Kšatrapati" (Satrap, Governor) in Persian -> Hyksos "Khasut" in Egypt -> Kshatriya (Warrior-King) in Sanskrit (which also = Vedic "Krishna" (the dark god of Hinduism. Krishna is an avatar of Vishnu, and his name means "dark" or "black")) -> Christos. The title "Christ" did not mean a meek "anointed one" in the original context. It meant "the Satrap"—the imperial governor of the Dragon Kingdom. Jesus Christ was, in the original Bosporan cult, the title for the ruling Satrap of Judea, who was a member of the Bosporan royal house. The Flavian revision turned this title of worldly power into one of spiritual suffering. This title links India, Egypt, and Judea to a Scythian elite. Christ is identical to the title Soter. Several historical figures were
     Christs/Soters. In Isaiah 45:1 the jews called Cyrus the Great "The
     Anointed One". Alexander the Great was also a Chréstos/Soter
@@ -311,7 +308,7 @@ The Proto-Indo-European (Aryan) Hegemony
 -4500 BC: Kurgan (Yamnaya) culture begin expansions. These are the ancestors of many Indo-European groups. They are the first horse riders. Inventors of the chariot.\
 -3000 BC: Aryan elites establish proxy rule in Sumer (Sargon of Akkad) and Egypt (Scorpion I).\
 -2150 BC: Gutian Dynasty. First Aryan rulers of Mesopotamia. Guti = Goth = Scythian.\
--1650-1500 BC: The Hyksos. Aryan Pharaohs of Egypt (Heka-Khasut means "Rulers of Foreign Lands" and Khasut is a cognate of Scythian/Saka, Scyth, Scoloti).\
+-1650-1500 BC: The Hyksos. Aryan Pharaohs of Egypt (Heka-Khasut means "Rulers of Foreign Lands" and Khasut is a cognate of Scythian/Saka, Scyth, Scoloti. Hyksos is the exact Egyptian rendering of Xšaθra).\
 -1600-1200 BC: The Hittites. Aryan in Anatolia. Enforcement arm of the Mitanni\
 -1595–1155 BC: Kassite Dynasty. Aryan rulers of Babylon after Hittites sacked it.\
 -1500 BC: The Mitanni. Aryan horse lords in Syria. Their ruling class has pure Vedic (Aryan) names—Mitra, Varuna, Indra. They are the ultimate horse-lords, and their empire stretches from the Mediterranean to the Indus. The Kassites in Babylon are their vassals.\
@@ -425,18 +422,18 @@ Much of the history of the Western Roman Empire was conjured up by the Flavians,
 either to retrofit history to align with the Bible, due to conflicts
 between the Vatican and the Eastern Byzantine Church, or for profit.
 
+'Ῥούμα (Rhouma) is documented district in Crimea during the Byzantine period. This is not a coincidence. This is the core toponym. The root of Rome is not Latin. It is the Greek letter Rho (Ῥ), often used to transcribe foreign "R-" sounds, particularly from Iranian/Scythian languages. "Ruma" (Rome) = "Place of the Dragon". This is seen in the Rha (Volga) river which was seen as a great serpent of the earth to the Scythians. 
+
+Rhouma in Crimea was the original power center. Rome on the Tiber in Italy was a Western military-administrative garrison named after the core. Then the Roman (Constantinople-on-the-Bosporus), centered on Constantinople/Bosporus river in modern day Istanbul, was the "third Rome" (Basileía Rhōmaíōn).
+
 The area of modern-day Istanbul was once called 'Basileía tôn Rhômaíôn'
 ('Kingdom of the Romans') and the people of that region called
-themselves Rhōmaîoi (Romans). Historians assume that region got it's
-name after Roman colonization, but why? Every romance language based on
+themselves Rhōmaîoi (Romans). This is why the Ottomans called themselves "Rum" (Rhome). They knew exactly what they were the heirs to. The Ottomans also called the Balkans "Rumeli", or "Land of the Romans". This is also why every romance language based on
 Latin underwent a linguistic evolution except Romanian, which is the
-closest language to classical Latin. Could it be that the original
-Romans hailed from Romania and then moved south to Anatolia? A
-substantial part of Byzantine coinage from two millennia ago boasts
+closest language to classical Latin. Bwcause it was the original
+"Latin". A substantial part of Byzantine coinage from two millennia ago boasts
 inscriptions in Latin and not in Greek, including the Asander of
 Bosphorus coin above.
-
-This is why the Ottomans called themselves "Rum" (Rome). They knew exactly what they were the heirs to. The Ottomans also called the Balkans "Rumeli", or "Land of the Romans".
 
 Rome in Italy was real, but it was a province, a frontier military district (Limes) of the true Empire based on the Bosphorus. It was never the center of power it was made out to be. Its "fall" was the loss of central control from the East and the rise of local Gothic/Sarmatian warlords (Theodoric, etc.) who still tried to cloak themselves in the legitimacy of the Eastern Koryllis.
 
@@ -560,9 +557,9 @@ Fig. 1.18. Coin depicting Archelaus, king of Caesarea, Cappadocia (modern-day Ka
 
 Fig. 1.19. Coin depicting Kanites, King of Scythia. The root comes from "Khan" = supreme steppe ruler. "-it": A Sarmatian suffix denoting "belonging to" or "descendant of.". "Khanites" = "He who is of the Khan / The Khan's Scion."
 .
-![Fig.1.20](/images/ObodasI.png){:width="400px"}
+![Fig.1.20](/images/AretasIII.jpg){:width="400px"}
 
-Fig. 1.20. Coin depicting Obodas I, king of the Nabataeans (modern northern Arabia and the southern Levant. The capital was Petra).
+Fig. 1.20. Coin depicting Aretas III, king of the Nabataeans (modern northern Arabia and the southern Levant. The capital was Petra).
 
 **5.2 Cleopatra VII aka Dynamis Ourania aka Pythodorida Philometor**
 
@@ -1007,6 +1004,8 @@ Mainstream history presents a linear progression: Egypt -> Greece -> Rome. This 
 **7.1 Inventing Classical Greece**
 
 Not only is Western Rome a phantom empire, so was the "Classical Greece" of Pericles, Plato, and Aristotle. It is a literary and philosophical back-projection, created by the Flavians and later Renaissance humanists. Its purpose was to provide a "noble pedigree" for the Western Roman Empire, separating it from its "barbaric" Scythian roots. The works of Plato and Aristotle are not the products of a 5th-4th century BC Athenian democracy. They are the synthesized theological and political philosophy of the Alexandrian/Bosphoran intellectual elite, likely compiled between the 1st century BC and 2nd century AD at the Alexandrian School in Egypt, and then retroactively attributed to fictional "Greek" sages.
+
+There is no physical manuscript of any Greek classic (Plato, Aristotle, Sophocles) that predates the 9th century AD. The earliest fragments are papyri from Roman Egypt (1st-3rd c. AD). The entire corpus was "preserved" by Byzantine monks and then "rediscovered" by Italian humanists like Poggio Bracciolini in the 15th century. Bracciolini was a known forger and had both motive (Medici patronage) and opportunity (access to the Vatican's scriptorium) to produce these texts.
 
 Plato's "Academy" was the Alexandrian School. "Plato" is not a man. The name is a title. "Plato" (Πλάτων) derives from "Plouton" (Πλούτων), an alias for Hades, the god of the underworld who possessed the riches of the earth. "Ptolemy" (Πτολεμαῖος) derives from Ptole- (war) but is phonetically and functionally identical to "Plouton-Maios" (The Rich One).
 
