@@ -239,13 +239,13 @@ V. Speculative
 **2. Name and Title Meanings**
 
 -   Abraham: The father of Isaac (remove the Hebrew theophoric Y- = -tzak = Hebrew rendering of Sacae (Scythians)) is Abraham, the foundational patriarch. Ab = Father (Semitic). Raham = Arya (Sanskrit/Persian: "Noble"). Aram (the name for the land of the Arameans, a steppe-derived people). Abraham = Ab-Raham = "Father of the Aryans" or "Father of the Noble Ones". Related to Brahmin (Brahama) -> Ibrahim -> Abraham. A(Braha)m(in). Lord Rama (the greatest and seventh incarnation of God, hero of the Ramayana, protector of Dharma) in the ancient Vedas derives from this.
--   Azhi: Azhi = Až ("serpent") + Hi ("power, divine") in Avestan, meaning "mighty dragon". It extends Aži to signify divine authority across Indo-Iranian and Scythian cultures. Azhi = Asia (Azhi-A) = "land of the mighty dragon" (Aži is cognate with the Chinese Zhī (dragon)), a very similar name to Rome (Rhu-Ma) = "Place of the Dragon", Romania (Rhu-Ma + Na) = "dragon land", and Sarmatia (serpent) + ma (mother, land). Aži links to Aesir (Norse gods), Asar (Egyptian Osiris), and Ahura (Zoroastrian god). The root Az-/As- means both "divine power" and "serpent" in Indo-European and Scythian languages (Sanskrit asura, Hittite hasu = king). Aži Dahāka in Avestan = Aži (serpent) + Dahāka (man) which translates to "Serpent-Man".
+-   Azhi: Azhi = Až ("serpent") + Hi ("power, divine") in Avestan, meaning "mighty dragon". It extends Aži to signify divine authority across Indo-Iranian and Scythian cultures. Azhi = Asia (Azhi-A) = "land of the mighty dragon" (Aži is cognate with the Chinese Zhī (dragon)), a very similar name to Rome (Rhu-Ma) = "Place of the Dragon", Romania (Rhu-Ma + Na) = "dragon land", and Sarmatia (serpent) + ma (mother, land). Aži links to "Asa" the core Indo-European divine root which Aesir (Norse gods), Asar (Egyptian Osiris), Ahura (Zoroastrian god) and Osiris derive. The root Az-/As- means both "divine power" and "serpent" in Indo-European and Scythian languages (Sanskrit asura, Hittite hasu = king). Aži Dahāka in Avestan = Aži (serpent) + Dahāka (man) which translates to "Serpent-Man".
 -   Augustus: Augustus translates to Sebastos in Greek. Augustus was also refered to as Sebastos in several inscriptions. This directly connects to Sabazios the Thracian/Phrygian deity and Monobazus which was a title that was held by several Adiabene kings.
 -   Caesar: Core root is AS/AZ/AŠ which means "divine power". Its primary zoomorphic association is with the Serpent/Dragon (Aži, Azhi, Aži Dahāka). It is derived from the Scytho-Hurrian expression Kur-Sar (Sun King). The Egyptian expression was Asar (Wsir/Osiris). "Asar" was another name for Osiris. "Ra" was the Egyptian deity of the Sun (Asar-Ra). Sar means king in Scythian. This title connects to "Asar-Hapi" (Osiris-Apis), another name for the
     Graeco-Egyptian god Serapis (Osiris + Apis = Osorapis). The Etruscan-Mediterranean expression "Aesar" (also spelled "Aeser" or "Aisar"), meaning god or
     divine, likely derives from the Egyptian Asar. The Greek language
     adds a "K" to foreign words, so Aesar -> Greek Kaesar -> Latin
-    Caesar. Related to the Phoenician "Kosar" (sun god), Assyrian "Aššur" (god), Germanic Æsir (the Norse gods, like Odin), Sanskrit Kesari (lion), Persian Kesar (king), Scythian "As" (lord) and Scythian Sar (king), Kšar (from the Old Persian Xšaya = king), and also Cyrus the Great's title (Kuruš (Cyrus) = Khur (Sun) + -uš (lord)). "Caesar" = "Asander" = "Kesari" = "Xerxes".
+    Caesar. Related to the Phoenician "Kosar" (sun god), Assyrian "Aššur" (god), Germanic Æsir (the Norse gods, like Odin), Sanskrit Kesari (lion), Persian Kesar (king), Scythian "As" (lord) and Scythian Sar (king), Kšar (from the Old Persian Xšaya = king), and also Cyrus the Great's title (Kuruš (Cyrus) = Khur (Sun) + -uš (lord)). "Caesar" = "Asander" = "Kesari" = "Xerxes". Also, Caesar is at the root of the title "Khan" (Aesar -> Aesar -> A'sar -> Ha'sar -> Kha'sar -> Khan). This proves that Genghis Khan was not a Mongol upstart. He was a later avatar of the Dragon King title, consciously restoring the global hegemony from its Central Asian core. The Mongol court called itself the "Great Yuan" (Great Ion/Janus)
 -   Christ: Scythian Xšaθra (power, dominion) -> Kšatrapati" (Satrap, Governor) in Persian -> Hyksos "Khasut" in Egypt -> Kshatriya (Warrior-King) in Sanskrit (which also = Vedic "Krishna" (the dark god of Hinduism. Krishna is an avatar of Vishnu, and his name means "dark" or "black")) -> Christos. The title "Christ" did not mean a meek "anointed one" in the original context. It meant "the Satrap"—the imperial governor of the Dragon Kingdom. Jesus Christ was, in the original Bosporan cult, the title for the ruling Satrap of Judea, who was a member of the Bosporan royal house. The Flavian revision turned this title of worldly power into one of spiritual suffering. This title links India, Egypt, and Judea to a Scythian elite. Christ is identical to the title Soter. Several historical figures were
     Christs/Soters. In Isaiah 45:1 the jews called Cyrus the Great "The
     Anointed One". Alexander the Great was also a Chréstos/Soter
@@ -545,29 +545,33 @@ Fig. 1.15. Coin depicting Atrebates, king of Britannia who Julius Caesar was rec
 
 Fig. 1.16. Coin of Vercingetorix, a Gallic king and chieftain of the Arverni tribe who united the Gauls in a failed revolt against Julius Caesar in the Gallic Wars.
 
-![Fig.1.17](/images/Bogud.jpg){:width="400px"}
+![Fig.1.17](/images/Diviciacus.jpg){:width="400px"}
 
-Fig. 1.17. Coin depicting Bogud, king of Mauretania (a territory that encompassed most of North Africa), who was a recorded ally of Julius Caesar.
+Fig. 1.17. Coin of Diviciacus (Aedui). A Druid and chieftain of the Aedu tribe. He was a leader of the pro-Roman faction, and was recorded to have aided Julius Caesar in his conquest of Gaul.
 
-![Fig.1.18](/images/Archelaus.jpg){:width="400px"}
+![Fig.1.18](/images/Bogud.jpg){:width="400px"}
 
-Fig. 1.18. Coin depicting Archelaus, king of Caesarea, Cappadocia (modern-day Kayseri, Turkey). Archelaus of Cappadocia was married to  Pythodorida of Pontus (Cleopatra/Dynamis). Polemon Pythodoros (Julius Caesar/Asander) was also married to Pythodorida of Pontus.
+Fig. 1.18. Coin depicting Bogud, king of Mauretania (a territory that encompassed most of North Africa), who was a recorded ally of Julius Caesar.
 
-![Fig.1.19](/images/Kanites.jpg){:width="400px"}
+![Fig.1.19](/images/Archelaus.jpg){:width="400px"}
 
-Fig. 1.19. Coin depicting Kanites, King of Scythia. The root comes from "Khan" = supreme steppe ruler. "-it": A Sarmatian suffix denoting "belonging to" or "descendant of.". "Khanites" = "He who is of the Khan / The Khan's Scion."
+Fig. 1.19. Coin depicting Archelaus, king of Caesarea, Cappadocia (modern-day Kayseri, Turkey). Archelaus of Cappadocia was married to  Pythodorida of Pontus (Cleopatra/Dynamis). Polemon Pythodoros (Julius Caesar/Asander) was also married to Pythodorida of Pontus.
+
+![Fig.1.20](/images/Kanites.jpg){:width="400px"}
+
+Fig. 1.20. Coin depicting Kanites, King of Scythia. The root comes from "Khan" = supreme steppe ruler. "-it": A Sarmatian suffix denoting "belonging to" or "descendant of.". "Khanites" = "He who is of the Khan / The Khan's Scion."
 .
-![Fig.1.20](/images/AretasIII.jpg){:width="400px"}
+![Fig.1.21](/images/AretasIII.jpg){:width="400px"}
 
-Fig. 1.20. Coin depicting Aretas III, king of the Nabataeans (modern northern Arabia and the southern Levant. The capital was Petra).
+Fig. 1.21. Coin depicting Aretas III, king of the Nabataeans (modern northern Arabia and the southern Levant. The capital was Petra).
 
 **5.2 Cleopatra VII aka Dynamis Ourania aka Pythodorida Philometor**
 
 Cleopatra VII was the archtype, not the avatar, for the "Jesus" figure. She was the living Soteira (feminine Soter), Thea (Goddess), and "Queen of Kings". She was the descendant of the Scythian Dracaena, or the snake-legged goddess who was the mother of the Scythians in mythology.
 
-![Fig.1.21](/images/Cleopatra%20VIIDynamis.png){:width="400px"}
+![Fig.1.22](/images/Cleopatra%20VIIDynamis.png){:width="400px"}
 
-Fig. 1.21. (L) Dynamis, Queen of Bosphorus, (R) Cleopatra VII. There were
+Fig. 1.22. (L) Dynamis, Queen of Bosphorus, (R) Cleopatra VII. There were
 obviously many years between the ages at which she was depicted,
 however, even in the elder Dynamis bust you can see her lazy eye and
 abnormally large eyes which she was reported to have had, possibly as a
@@ -575,9 +579,9 @@ consequence of inbreeding. The hat she is wearing is a Phrygian cap, a
 distinctivehat that is closely associated with the Roman god Mithras.
 Dynamis was recorded as being of "Sarmatian" ancestry.
 
-![Fig.1.22](/images/cleopatra.png){:width="400px"}
+![Fig.1.23](/images/cleopatra.png){:width="400px"}
 
-Fig. 1.22. (L) Julia Mamaea, Queen of Pontus (wife of Polemon II), (R)
+Fig. 1.23. (L) Julia Mamaea, Queen of Pontus (wife of Polemon II), (R)
 Cleopatra VII. Polemon Pythodoros, King of Pontus was a regional alias
 of Julius Caesar/Asander (as Asander and Polemon were both married to
 Dynamis), and if he also played the religious role of Gaius Julius
@@ -659,9 +663,9 @@ Boethus was another of Cleopatra's regional aliases?  If you identify
 King Herod as Mark Antony aka Tiberius Claudius Nero aka Phraates IV of
 Parthia's regional alias then the picture becomes clearer.
 
-![Fig.1.23](/images/PtolemyXII.jpeg){:width="400px"}
+![Fig.1.24](/images/PtolemyXII.jpeg){:width="400px"}
 
-Fig. 1.23. Ptolemy XII Auletes, king of Egypt, who was also Mithridates
+Fig. 1.24. Ptolemy XII Auletes, king of Egypt, who was also Mithridates
 VI Eupator, Ariarathes IX of Cappadocia, Simon Boethus/Magus/Ptolemy
 (Alexander) bar Menneus, et.al. Mithridates VI married his sister
 Laodice---just as Ptolemy XII married his sister Cleopatra V. Both had
@@ -686,26 +690,26 @@ even has a story about a 'spurious Alexander' that showed up in Rome
 claiming to be the son of Herod who faked his death [^20], so he was
 'resurrected' as Juba II, king of Numidia and Mauretania. 
 
-![Fig.1.24](/images/MithridatesVIEupator.png){:width="400px"}
+![Fig.1.25](/images/MithridatesVIEupator.png){:width="400px"}
 
-Fig. 1.24. Coin depicting Mithridates VI Eupator, father of Pharnaces II
+Fig. 1.25. Coin depicting Mithridates VI Eupator, father of Pharnaces II
 and Dynamis. Brother of Mithridates Chrestus. Notice the star and
 crescent that is visible in the Julius Caesar coin above and the winged
 Pegasus within a Dionysiac wreath of ivy and fruit that is seen in the
 Asander coin?
 
-![Fig.1.25](/images/AriarathesIX.jpg){:width="400px"}
+![Fig.1.26](/images/AriarathesIX.jpg){:width="400px"}
 
-Fig. 1.25. Coin depicting Ariarathes IX Eusebes Philopator, King of
+Fig. 1.26. Coin depicting Ariarathes IX Eusebes Philopator, King of
 Cappadocia. Notice the resemblance to Mithridates VI Eupator of Pontus?
 Cleopatra aka Dynamis's son with Julius Caesar aka Asander = Tiberius
 Julius Aspurgus Philoromaios (Aspurgus translates to "horseman-lord" in
 Thracian languages. Sabazios was a Thracian deity worshipped as a
 horseman.).
 
-![Fig.1.26](/images/PtolemyApion.jpg){:width="400px"}
+![Fig.1.27](/images/PtolemyApion.jpg){:width="400px"}
 
-Fig. 1.26. Coin depicting Ptolemy Apion, king of Kyrene, Kyrenaica, North Africa. 
+Fig. 1.27. Coin depicting Ptolemy Apion, king of Kyrene, Kyrenaica, North Africa. 
 
 **5.3.2. Amyntas Nikator aka Amyntas, King of Galatia**
 
@@ -742,9 +746,9 @@ The Celts in classical Galatia worshiped a deity called
 Aesus/Esus/Iesus. Amyntas, as the god king of Galatia would have been the personification of Esus. "Esus" from "Aisu" (Lord) is the Celtic pronunciation. The Scythian root is Aes-, the same as the Aesir and Aesar. "Iesus" is the Latin rendering of "Esus." There was no "J" sound. He was always called Ie-Sus (Yay-soos), "The Esus."
 
 ![Fig.
-1.27](/images/Esus.jpg){:width="400px"}
+1.28](/images/Esus.jpg){:width="400px"}
 
-Fig. 1.27. Statue from classical Anatolia that is dedicated to "Esumopas
+Fig. 1.28. Statue from classical Anatolia that is dedicated to "Esumopas
 Cnusticus". Esumopas means "Slave to Esus", and Esus means lord in
 Proto-Celtic. If you combine the Etruscan word "cnus" with the suffix
 "-ticus" or "-tic-" you get a word that translates to "anointed one" or
@@ -772,7 +776,7 @@ Alexander (son of King Herod) aka Juba II who was married to his twin
 sister Cleopatra Selene II aka Queen Thea Muse Ourania. Juba II of
 Mauritania's full name was Gaius Iulius Iuba, prenomen and nomen after
 his adopted father Gaius Iulius Caesar, and 'Iuba' is likely a
-diminutive of 'Iehuva'. He was the claimed royal heir of the Massylii
+diminutive of 'Iehuva' which tracea to Jove/Jupiter. He was the claimed royal heir of the Massylii
 tribe, which is the 'Messiah' lineage from David's firstborn son with
 Saul's daughter Michal (one way to prove that Mark Antony was also King
 Herod is through the equivalence of Alexander Helios aka Alexander (son
@@ -828,9 +832,9 @@ Theophilos in Greek. Around 26% of the New Testament was written to
 Theophilus in Luke and Acts of the Apostles).
 
 ![Fig.
-1.28](/images/AlexanderPhilo.jpg){:width="400px"}
+1.29](/images/AlexanderPhilo.jpg){:width="400px"}
 
-Fig. 1.28. (L) Alexander (grandson of King Herod) aka Gaius Julius
+Fig. 1.29. (L) Alexander (grandson of King Herod) aka Gaius Julius
 Alexander, Herodian Prince of Judaea aka Alexander the Alabarch aka
 (King/Tetrarch) Ptolemy (Alexander) bar Menneus aka Ptolemy of
 Mauretania aka "Jesus" in the bible. (R) Cleopatra (Thea Philopator) of
@@ -850,9 +854,9 @@ Adiabene/Edessa aka Ptolemy aka Yakov Zu Tolomoy aka Izates aka Jesus
 Emmanuel aka Monobazus of Adiabene [^23]
 
 ![Fig.
-1.29](/images/Josephus.jpg){:width="400px"}
+1.30](/images/Josephus.jpg){:width="400px"}
 
-Fig. 1.29. 'Josephus' bust which I identify as Tiberius Julius
+Fig. 1.30. 'Josephus' bust which I identify as Tiberius Julius
 Alexander. Compare it to Nerva's depictions. So, 'Josephus' was Philo of
 Alexandria's son. Tiberius Julius Alexander's son was named
 'Philopappos' and one of his mother's aliases was 'Alexandria bat
@@ -860,9 +864,9 @@ Matthias' which is where the pseudonym 'Joseph bar Matthias' comes from.
 Also, drop the initial b and final s in the name "Bar Mathias" and you
 get (Joseph of) Arimathea.
 
-![Fig. 1.30](/images/coin-abgar-phraates.png){:width="400px"}
+![Fig. 1.31](/images/coin-abgar-phraates.png){:width="400px"}
 
-Fig. 1.30. (L) and (R) show King Izates Monobazus of Edessa (known in
+Fig. 1.31. (L) and (R) show King Izates Monobazus of Edessa (known in
 Greek as the "Kingdom of Ourania" or in English as the "Kingdom of
 Heaven") wearing a crown of thorns. Izates or Izas is his title which is
 an ancient Greek translation of the Avestan word Yazatas (Persian:
@@ -873,9 +877,9 @@ source: The Alexander Mosaic, Huqoq, Israel.
 
 **5.3.6. Tiberius Julius Sauromates II**
 
-![Fig.1.31](/images/SauromatesII.jpg){:width="400px"}
+![Fig.1.32](/images/SauromatesII.jpg){:width="400px"}
 
-Fig. 1.31 Tiberius Julius Sauromates II, King of Bosphorus, who was the
+Fig. 1.32 Tiberius Julius Sauromates II, King of Bosphorus, who was the
 son of Tiberius Julius Cotys (aka Tiberius Julius Alexander aka Arrius
 Calpernius Piso aka Arrius Varus aka Emperor Nerva), great-grandson of
 Dynamis aka Cleopatra and Mark Antony. Does he look
@@ -886,13 +890,13 @@ means 'lizard' or 'reptile', and 'mates' means 'man' or 'warrior'.
 Therefore, translated literally ΒΑCΙΛΕΩC CΑVΡΟΜΑΤΟΥ means "King of the
 lizard people", or "king of the dragon people". He was the grandson (or great-grandson?) of Ptolemy XII Auletes aka Mark Antony aka Mithridates VI Eupator and his daughter Cleopatra aka Dynamis.
 
-![Fig.1.32](/images/Tamga.jpg){:width="400px"}
+![Fig.1.33](/images/Tamga.jpg){:width="400px"}
 
-Fig. 1.32 The royal Tamga (symbol/signature) of Tiberius Julius Sauromates II contains a cross and a Chi Rho.
+Fig. 1.33 The royal Tamga (symbol/signature) of Tiberius Julius Sauromates II contains a cross and a Chi Rho.
 
-![Fig.1.33](/images/SauromatesCross.jpg){:width="400px"}
+![Fig.1.34](/images/SauromatesCross.jpg){:width="400px"}
 
-Fig. 1.33 Coin of Tiberius Julius Sauromates II that displays a cross in the right corner.
+Fig. 1.34 Coin of Tiberius Julius Sauromates II that displays a cross in the right corner.
 
 Endnotes (Chapter 5)
 
@@ -916,17 +920,6 @@ Endnotes (Chapter 5)
     Tyana? This would make Apollonius of Tyana the brother-husband of
     Philo of Alexandria and the father of Josephus. These three created
     the core of Christianity.\
-(b) Gautama Buddha was Gaumata Bardya, the son of Cyrus the Great.
-    Ptolemy I Soter and his successors were closely associated with
-    Serapis. "Jesus" was an avatar for the Bosphioran royal family.
-    Apollonius of Tyana was king Juba II, the grandson of Julius
-    Caesar/Asander and Cleopatra/Dynamis. All these aristocrats/kings
-    took on religious personas and preached syncretic versions of
-    Greco-Buddhism to the public: monotheism, renounce worldy
-    possessions, asceticism, shame and guilt, you will be rewarded in
-    the afterlife for your earthly suffering, etc. These cults were by
-    design slave moralities to strip the will to power from the
-    population to prevent rebellions.
 
 **6 Flavian Dynasty**
 
@@ -938,9 +931,9 @@ King, and Pas means "all" as in Pan. "Vespasian" = "King of All", or "King of Ev
 'Flavius Scaevinus' the conspirator involved in Nero's assassination.
 
 ![Fig.
-1.34](/images/Vespasian.jpg){:width="400px"}
+1.35](/images/Vespasian.jpg){:width="400px"}
 
-Fig. 1.34. L. Vespasian. R. Herod Agrippa I
+Fig. 1.35. L. Vespasian. R. Herod Agrippa I
 
 'Antonia Caenis' was Vespassian's mistress who was his first cousin who
 was Cleopatra (Thea Philopator) of Mauretania aka Cleopatra IX aka
@@ -1046,9 +1039,9 @@ Julius Caesar aka Asander, king of Bosphorus was Prince Jin Midi in China. Jin (
 
 Emperor Tiberius aka Tiberius Julius Aspurgus I, king of Bosphorus was the Chinese emperor Yu the Great. He was also Kadphises, prince of the Kushan Empire. Kujula Kadphises unifies the Yuezhi tribes and establishes the Kushan Empire right after the "death" of Julius Caesar/Asander. The "Yuezhi" are the "Iudii"/"Jove" tribe—the same Scythian-Celtic priestly class. "Yazhi" (亞茲)) = Julius, from Ioulius, related to Iove (Jove). Iove is linguistically linked to the Scythian tribal name Yuehzi (Yuezhi). He is "The Jove/Yuezhi King".
 
-![Fig.1.35](/images/KadphisesTiberius.jpg){:width="400px"}
+![Fig.1.36](/images/KadphisesTiberius.jpg){:width="400px"}
 
-Fig. 1.35. Tiberius Julius Aspurgus I, king of Bosphorus aka Emperor Tiberius Caesar Augustus was also Kujula Kadphises, prince of the Kushan Empire (a vast territory stretching from Central Asia into northern India). Kujula Kadphises unifies the Yuezhi tribes and establishes the Kushan Empire right after the "death" of Julius Caesar/Asander. This is not a successor state; it is the same ruler shifting his primary administrative center to Central Asia to manage the Silk Road. The "Yuezhi" are the "Iudii"/"Jove" tribe—the same Scythian-Celtic priestly class. This regional avatar also connects to the legendary Chinese emperor Yu the Great (original name "Aži" or "Yazhi" (亞茲))? Julius, from Ioulius, related to Iove (Jove).
+Fig. 1.36. Tiberius Julius Aspurgus I, king of Bosphorus aka Emperor Tiberius Caesar Augustus was also Kujula Kadphises, prince of the Kushan Empire (a vast territory stretching from Central Asia into northern India). Kujula Kadphises unifies the Yuezhi tribes and establishes the Kushan Empire right after the "death" of Julius Caesar/Asander. This is not a successor state; it is the same ruler shifting his primary administrative center to Central Asia to manage the Silk Road. The "Yuezhi" are the "Iudii"/"Jove" tribe—the same Scythian-Celtic priestly class. This regional avatar also connects to the legendary Chinese emperor Yu the Great (original name "Aži" or "Yazhi" (亞茲))? Julius, from Ioulius, related to Iove (Jove).
 
 China had no chronology until the Jesuits came to the Emperor’s court. Their oldest "ancient" records date from this period. Stone inscriptions and bronze engravings and a few bamboo slips survive from older times, but they were never arranged into a consistent chronology. If you read the Bellum Tartaricum, a pre-edit Jesuit source, it gives a very different chronology as well as info about the white Slav-like race known as the Tartarians, their rulers and their wars with China. The Jesuits essentially wrote early Chinese history for them. They "reconstructed" the Xia and Shang dynasties based on fragmentary records, arranging them to fit the Biblical timeline. Mateo Ricci invented Confucius and was the one who  retroactively attributed The Art of War to Sun Tzu. The Art of War was originally a Flavian-era strategic treatise on psychological warfare and systems control (the exact principles the Synarchy used to manage its global hegemony).
 
@@ -1267,9 +1260,9 @@ Capitolina after the Bar Kokhba revolt (the city was named after Hadrian's famil
 that Aquila of Sinope and his wife Prisca or Priscilla lived with Paul
 the Apostle and Paul called them "my fellow workers in Christ Jesus"
 
-![Fig.1.36](/images/Antinous.jpg){:width="400px"}
+![Fig.1.37](/images/Antinous.jpg){:width="400px"}
 
-Fig. 1.36. Steel relief that shows Antinous holding the grapes of Dionysus in one-hand and a cross in the other.
+Fig. 1.37. Steel relief that shows Antinous holding the grapes of Dionysus in one-hand and a cross in the other.
 
 **9.3 Islam**
 
