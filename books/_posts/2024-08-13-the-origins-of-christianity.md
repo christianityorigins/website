@@ -140,20 +140,24 @@ The following side-by-side comparisons prove that the Julio-Claudian and Flavian
 ![Fig.1.3](/images/RhoemetalcesOctavian.jpg){:width="400px"}\
 Fig. 1.3. L. Rhoemetalces I, king of Bosphorus. R. Emperor Augustus (Octavian). Talces = the Thracian word for "king" or "ruler". Rhoemetalces = "king of Rhome", or "king of Rome" in ancient Thracian.
 
-![Fig.1.4](/images/AspurgusTiberius.jpg){:width="400px"}\
-Fig. 1.4. L. Tiberius Julius Aspurgus I, king of Bosphorus. R. Emperor Tiberius Caesar Augustus.
+![Fig.1.4](/images/PtolemyXIIIArchelaus.jpg){:width="400px"}
 
-![Fig.1.5](/images/MithridatesIIICaligula.jpg){:width="400px"}\
-Fig. 1.5. L. Mithridates III, king of Bosphorus. R. Emperor Caligula.
+Fig. 1.4. L. Coin depicting Ptolemy XIII Theos Philopator the brother-husband of Cleopatra. Compare it to the Rhoemetalces I, king of Bosphorus aka Emperor Augustus (Octavian) coin above. R. Coin depicting Archelaus, king of Caesarea, Cappadocia (modern-day Kayseri, Turkey). Archelaus of Cappadocia was married to  Pythodorida of Pontus (Cleopatra/Dynamis). Polemon Pythodoros (Julius Caesar/Asander) was also married to Pythodorida of Pontus.
 
-![Fig.1.6](/images/CotysIClaudius.jpg){:width="400px"}\
-Fig. 1.6. L. Cotys I, king of Bosphorus. R. Emperor Claudius.
+![Fig.1.5](/images/AspurgusTiberius.jpg){:width="400px"}\
+Fig. 1.5. L. Tiberius Julius Aspurgus I, king of Bosphorus. R. Emperor Tiberius Caesar Augustus.
 
-![Fig.1.7](/images/RhescuporisIVespasian.jpg){:width="400px"}\
-Fig. 1.7. L. Rhescuporis I, king of Bosphorus. R. Emperor Vespasian.
+![Fig.1.6](/images/MithridatesIIICaligula.jpg){:width="400px"}\
+Fig. 1.6. L. Mithridates III, king of Bosphorus. R. Emperor Caligula.
 
-![Fig.1.8](/images/PolemonIITitus.jpg){:width="400px"}\
-Fig. 1.8. L. Polemon II, king of Bosphorus. R. Emperor Titus.
+![Fig.1.7](/images/CotysIClaudius.jpg){:width="400px"}\
+Fig. 1.7. L. Cotys I, king of Bosphorus. R. Emperor Claudius.
+
+![Fig.1.8](/images/RhescuporisIVespasian.jpg){:width="400px"}\
+Fig. 1.8. L. Rhescuporis I, king of Bosphorus. R. Emperor Vespasian.
+
+![Fig.1.9](/images/PolemonIITitus.jpg){:width="400px"}\
+Fig. 1.9. L. Polemon II, king of Bosphorus. R. Emperor Titus.
 
 1.2 Ancient Alias Names List
 
@@ -326,8 +330,8 @@ The Final Consolidation
 -600-500 BC: The Akrosander hegemony begins to fragment, leading to civil wars between his descendant lines.\
 -429-339 BC: Ateas the Scythian. The last great emperor of the direct Akrosander bloodline, ruling from the Danube to the Caucasus. His name "Ateas" (Forefather) is a title claiming direct descent from Akrosander. Ateas the Scythian was also Artaxerxes II Memnon ("Kai Bahman") of Persia aka Phillip II in Macedonia aka Nectanebo II in Egypt aka Evagoras I of Salamis (Cyprus). 
 
-![Fig.1.9](/images/AteasPhillipAlexander.jpg){:width="400px"}\
-Fig. 1.9. L. Ateas the Scythian (Ata- or Atha-, meaning "forefather" or "ancestor" in Scythian). M. Philip II of Macedon. R. Alexander the Great. Ateas and Artaxerxes II Mnemon were reported "enemies" of Phillip. Ateas dies in battle against him, and in the Alexander Romance, a book that has its earliest copy dating back a couple of centuries after Alexanders life, the wizard-pharaoh Nectanebo II is secretly Alexander's real father, magically impersonating the god Amun. This is not fantasy; it is a mythological encoding of historical truth.\
+![Fig.1.10](/images/AteasPhillipAlexander.jpg){:width="400px"}\
+Fig. 1.10. L. Ateas the Scythian (Ata- or Atha-, meaning "forefather" or "ancestor" in Scythian). M. Philip II of Macedon. R. Alexander the Great. Ateas and Artaxerxes II Mnemon were reported "enemies" of Phillip. Ateas dies in battle against him, and in the Alexander Romance, a book that has its earliest copy dating back a couple of centuries after Alexanders life, the wizard-pharaoh Nectanebo II is secretly Alexander's real father, magically impersonating the god Amun. This is not fantasy; it is a mythological encoding of historical truth.\
 
 -356 BC: Ateas/Phillip II/Artaxerxes's son Alexander the Great: Alexander was his title. "Aži-ander" = Aži
     (Avestan "dragon") + Andros (Greek "man") = "Dragon-Man", the same as Akrosander/Akrosas. Alaksandu
@@ -357,8 +361,8 @@ Thracians/Dacians
 
 The Bosporan and Dacian kingdoms controlled the Danube Delta and the Bosporus Strait—the two most critical chokepoints for Eurasian trade. Whoever controlled these points controlled the flow of goods, armies, and ideas between Europe and Asia. They didn't just rule an empire; they ruled the geography of civilization itself. Also, the massive gold mines of Dacia (modern Romania) were the financial engine of the "Roman" Empire. The output of these mines from 100 BC - 100 AD exceeds the total gold supply of the rest of the ancient world combined. The fact that Asander, king of Bosphrus is today an unknown historical figure despite the fact that he would have been the richest and most powerful man in the word at the time should be regarded as suspictious. The reason why you never heard of him is because you know him under another name: Julius Caesar.
 
-![Fig.1.10](/images/Skyles.jpg){:width="400px"}\
-Fig. 1.10. Coin of Skyles, a Scythian king who reigned from ca 470-460 BC displaying a Scythian Solar Wheel and the World Tree combined. The cross was prominant in ancient Europe. It was a sundial and every city would have had one to track the time, dates, and agricultural and lunar cycles. "Skylesis" a Greek mockery of Skuða-las (Scythian King). The owl on the reverse side is the Owl of Athena also known as the Owl of Minerva, a sacred bird in Greek mythology that accompanies Athena. It shows up prominently in later Greek tetradrachms connecting him to Greece. For a Scythian king to carry that iconography shows direct interaction (*most ancient Scythian coins are crude, this one looks too polished, especially for one that is over 800 years old. I cannot trace it and it could be a forgery, but still posted here in the odd chace that it is legitimate).
+![Fig.1.11](/images/Skyles.jpg){:width="400px"}\
+Fig. 1.11. Coin of Skyles, a Scythian king who reigned from ca 470-460 BC displaying a Scythian Solar Wheel and the World Tree combined. The cross was prominant in ancient Europe. It was a sundial and every city would have had one to track the time, dates, and agricultural and lunar cycles. "Skylesis" a Greek mockery of Skuða-las (Scythian King). The owl on the reverse side is the Owl of Athena also known as the Owl of Minerva, a sacred bird in Greek mythology that accompanies Athena. It shows up prominently in later Greek tetradrachms connecting him to Greece. For a Scythian king to carry that iconography shows direct interaction (*most ancient Scythian coins are crude, this one looks too polished, especially for one that is over 800 years old. I cannot trace it and it could be a forgery, but still posted here in the odd chace that it is legitimate).
 
 The chromosome Haplogroup R1a, specifically subclade Z93 is found in high frequencies among the Scythian remains from the Pontic-Caspian Steppe. The Kshatriya (warrior) caste in India. The Brahmins (priestly) caste in India. The highest nobility of Persia. Patrician families of Rome. The Pharisaic and Herodian dynasties in Judea. The Sarmatian Alans who settled in Western Europe (and whose descendants include the Habsburgs). It is also found in the Tarim Mummies of China and in other tested ancient elite Chinese burial grounds (see: Chapter 7.4 China: The Han Synthesis and the Tartarian Genocide). This is the genetic signature of the administrative and priestly class that was installed globally.
 
@@ -370,9 +374,9 @@ Footnotes (Chapter 3)
 
 In Egypt, Ptolemy I Soter, who was a Scythian continuation of the Sarmatian snake/serpent kings line, used religion to subjugate the vast and disparate peoples he ruled. This was likely inspired by Plato's noble lie which is a concept from his work "The Republic" where he suggests that a myth or falsehood can be used by rulers to maintain social order and promote the common good. The Alexandrian School (Mouseion of Alexandria) then became his religion making factory. He was in the process of creating a universal religion and this was being achieved by gradual syncretism using local identities and blending local deities into syncretic universal savior archetypes (Interpretatio Graecae) as a transitional phase toward a universal monotheism. The Ptolemaic elites were conditioning the disparate populations they ruled into accepting the Serapis cult (sarp- is a Proto-Indo-European root meaning "serpent" as seen in Sanskrit sarpa, "snake". "Sar-Ap" translates to "Serpent-Lord" in Scythian).
 
-![Fig.1.11](/images/SarapisAmunAgathodaemon.jpg){:width="400px"}
+![Fig.1.12](/images/SarapisAmunAgathodaemon.jpg){:width="400px"}
 
-Fig. 1.11 Copper statuette of the god Sarapis Amun Agathodaemon depicted as half-deity. half-snake (Egypt late Hellenistic/early Roman period 1st century BC - 1st century AD).
+Fig. 1.12 Copper statuette of the god Sarapis Amun Agathodaemon depicted as half-deity. half-snake (Egypt late Hellenistic/early Roman period 1st century BC - 1st century AD).
 
 The Sarapis Cult eventually evolved into Christianity, which was repackaged Serapis cult and targeted at local populations (the Christogram symbolizing Jesus Christ (IHS) = "Isis-Horus-Serapis"). Religion was the technology that the empire used to subjugate the people they ruled.
 
@@ -523,39 +527,35 @@ of Bosphorus. After Mithridates Chrestus's loss to Asander he was
 imprisoned and executed by his elder brother, Mithridates VI Eupator,
 who had previously beat him in war.
 
-![Fig.1.12](/images/MithridatesChrestus.jpg){:width="400px"}
+![Fig.1.13](/images/MithridatesChrestus.jpg){:width="400px"}
 
-Fig. 1.12. Mithridates Chrestus aka Ptolemy of Cyprus aka Asander, king of
+Fig. 1.13. Mithridates Chrestus aka Ptolemy of Cyprus aka Asander, king of
 Bosphorus, etc. The names Asander and Caesar both derive from the Etruscan word "Aesar" (also spelled "Aeser" or "Aisar" which likely derives from the Egyptian "Asar" which was another name for Osiris - there was no J in ancient Latin, so it was pronounced ah-soos). He would have been the first person to take on the title Iesus Christ. Asander is recorded to have beat Mithridates Chrestus in battle to become the king of the Bosphorus.
 
-![Fig.1.13](/images/PharnacesII.jpg){:width="400px"}
+![Fig.1.14](/images/PharnacesII.jpg){:width="400px"}
 
-Fig. 1.13. Coin depicting Pharnaces II who was the king of the Bosporan Kingdom and the Kingdom of Pontus. At the Battle of Zela (47 BC) Julius Caesar defeats Pharnaces II and coins the phrase "Veni, Vidi, Vici". Pharnaces II flees and is killed by his own governor, Asander, who then becomes King of the Bosporus. This was not a succession; it was an avatar switch. Pharnaces II
+Fig. 1.14. Coin depicting Pharnaces II who was the king of the Bosporan Kingdom and the Kingdom of Pontus. At the Battle of Zela (47 BC) Julius Caesar defeats Pharnaces II and coins the phrase "Veni, Vidi, Vici". Pharnaces II flees and is killed by his own governor, Asander, who then becomes King of the Bosporus. This was not a succession; it was an avatar switch. Pharnaces II
 called himself "King of Kings" on coinsas Asander did.
 
-![Fig.1.14](/images/Burebista.jpg){:width="400px"}
+![Fig.1.15](/images/Burebista.jpg){:width="400px"}
 
-Fig. 1.14. Coin depicting Burebista, king of the Dacians, who was an alleged enemy of Julius Caesar. He was assasinated in 44 BC, the same year as Julius Caesar.
+Fig. 1.15. Coin depicting Burebista, king of the Dacians, who was an alleged enemy of Julius Caesar. He was assasinated in 44 BC, the same year as Julius Caesar.
 
-![Fig.1.15](/images/Atrebates.jpg){:width="400px"}
+![Fig.1.16](/images/Atrebates.jpg){:width="400px"}
 
-Fig. 1.15. Coin depicting Atrebates, king of Britannia who Julius Caesar was recorded to have defeated in battle.
+Fig. 1.16. Coin depicting Atrebates, king of Britannia who Julius Caesar was recorded to have defeated in battle.
 
-![Fig.1.16](/images/Vercingetorix.jpg){:width="400px"}
+![Fig.1.17](/images/Vercingetorix.jpg){:width="400px"}
 
-Fig. 1.16. Coin of Vercingetorix, a Gallic king and chieftain of the Arverni tribe who united the Gauls in a failed revolt against Julius Caesar in the Gallic Wars.
+Fig. 1.17. Coin of Vercingetorix, a Gallic king and chieftain of the Arverni tribe who united the Gauls in a failed revolt against Julius Caesar in the Gallic Wars.
 
-![Fig.1.17](/images/Diviciacus.jpg){:width="400px"}
+![Fig.1.18](/images/Diviciacus.jpg){:width="400px"}
 
-Fig. 1.17. Coin of Diviciacus (Aedui). A Druid and chieftain of the Aedu tribe. He was a leader of the pro-Roman faction, and was recorded to have aided Julius Caesar in his conquest of Gaul.
+Fig. 1.18. Coin of Diviciacus (Aedui). A Druid and chieftain of the Aedu tribe. He was a leader of the pro-Roman faction, and was recorded to have aided Julius Caesar in his conquest of Gaul.
 
-![Fig.1.18](/images/Bogud.jpg){:width="400px"}
+![Fig.1.19](/images/Bogud.jpg){:width="400px"}
 
-Fig. 1.18. Coin depicting Bogud, king of Mauretania (a territory that encompassed most of North Africa), who was a recorded ally of Julius Caesar.
-
-![Fig.1.19](/images/Archelaus.jpg){:width="400px"}
-
-Fig. 1.19. Coin depicting Archelaus, king of Caesarea, Cappadocia (modern-day Kayseri, Turkey). Archelaus of Cappadocia was married to  Pythodorida of Pontus (Cleopatra/Dynamis). Polemon Pythodoros (Julius Caesar/Asander) was also married to Pythodorida of Pontus.
+Fig. 1.19. Coin depicting Bogud, king of Mauretania (a territory that encompassed most of North Africa), who was a recorded ally of Julius Caesar.
 
 ![Fig.1.20](/images/Kanites.jpg){:width="400px"}
 
