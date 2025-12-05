@@ -748,7 +748,7 @@ of the Celtes Trocmii which refers to the Trocmi, a Celtic tribe that lived in a
 **5.3.2.1 Was Amyntas Nikator aka Amyntas, King of Galatia the Living Esus?**
 
 The Celts in classical Galatia worshiped a deity called
-Aesus/Esus/Iesus. Amyntas, as the god king of Galatia would have been the personification of Esus. "Esus" from "Aisu" (Lord) is the Celtic pronunciation. The Scythian root is Aes-, the same as the Aesir and Aesar. "Iesus" is the Latin rendering of "Esus." There was no "J" sound. He was always called Ie-Sus (Yay-soos), "The Esus."
+Aesus/Esus/Iesus. Amyntas, as the god king of Galatia would have been the personification of Esus. "Esus" from "Aisus (Thracian Jove-variant). Esus is the Celtic pronunciation of Aisus. The Scythian root is Aes-, the same as the Aesir and Aesar. "Iesus" is the Latin rendering of "Esus." There was no "J" sound. He was always called Ie-Sus (Yay-soos), "The Esus."
 
 ![Fig.
 1.29](/images/Esus.jpg){:width="400px"}
