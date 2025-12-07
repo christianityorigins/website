@@ -57,16 +57,20 @@ Part 4: The Bosphoran Connection\
 5.3.6. Tiberius Julius Sauromates II\
 Part 5: From Imperial Cult to Christianity\
 6\. Flavian Dynasty\
-Part 6: Rewriting History\
-7\. Inventing History\
-7.1 Inventing Classical Greece\
-7.2 The 'Achaemenid' Empire is the Parthian Empire\
-7.3 Fabricating 'Ancient' Egypt\
-7.4 China: The Han Synthesis and the Tartarian Genocide\
-7.5 India: The Mauryan Mirage\
-8\. Who Forged History?\
+Part 6: What Happened to the Scythians?\
+7\. The Demographic Erasure of the Scythian-Aryan Hegemony\
+7.1 The Flavians (c. 50 BCE – 300 CE)\
+7.2 China: The Han Synthesis and the Tartarian Genocide\
+7.3. Ancient India: The Mauryan Mirage\
+7.4 The Middle East and North Africa: Invasions and Slave Colonization (250 - 650 CE)\
+7.5 Where Did The Scythian Aryans Go? The Refugia.\
+8\. Rewriting History\
+8.1 Inventing Ancient Greece\
+8.2 The 'Achaemenid' Empire is the Parthian Empire\
+8.3 Fabricating 'Ancient' Egypt\
+8.4 The Church Fathers\
 Part 7. Sects of the Imperial Cult\
-9\. Sects of the Imperial Cult\
+9\. Identifying the Flavian Scribes\
 9.1 Christianity\
 9.2. The Cult of Antinous\
 9.3. Islam\
@@ -183,7 +187,7 @@ Mainstream history presents the Ptolemies, Seleucids, Attalids, and Romans as se
   Aliases: Mark Antony (Marcus Antonius = Mar (Phoenician "lord") + Anton (from Antaeus, giant son of Gaia)), King Herod (Heru (Horus) + Ud (divine) = Herud -> Herod. "The Divine Horus". The "Slaughter of the Innocents" is a mythological trope attached to the birth of every Horus-figure who must overcome a threat (against Set). It is not history; it is theological propaganda asserting Herod's/Mark Antony's legitimacy as the living god-king against the resurrected one. This is also attached to the Indian god Krishna (against Kamsa)), Polemon Pythodoros, King of Pontus, prince of Pontus  (Polemos -> Ptolemy) aka Pharnaces II ("Pharao-Nikes", or "Victorious Pharaoh"), Tiberius Claudius Nero, Phraates IV of Parthia (Per-aa or Per-Nesu is a corruption of Pharaoh). Ariarathes IX (Arya-Ratha". Sanskrit:"Noble Charioteer") Eusebes Philopator, King of Cappadocia. Was he also Ptolemy X Alexander I aka Simon Boethus aka Simon Magus?
   - Spouse: Wife/sister: Laodice (in Pontus) = Cleopatra V Tryphaena (in Egypt)
   - Children:
-    - Cleopatra VII Thea Philopator aka Dynamis, queen of Bosphorus
+    - Cleopatra VII Thea Philopator aka Dynamis, queen of Bosphorus, Cleopatra of Pontus, Pythodorida, queen of Pontus.
     - Ptolemy XIII Theos Philopator aka Gaius Octavius (Emperor Augustus). Aliases: Polemon I of Pontus. Gaius Julius Sohaemus of Emesa. Rhoemetalces I (a classic Thracian royal name, linking to the "Rome" = "Ruma" etymology. Rhoemetalces = "king of Rhome", or "king of Rome" in ancient Thracian), king of Bosphorus. Rhoemetalces Philocaesar of Pontus was the son of Marcus Antonius Polemon Pythodoros was married to Pythodoris I (Cleopatra). Polemon I of Pontus was married to Dynamis (Cleopatra). Cleopatra was married to her brother Ptolemy XIII Theos Philopator who was born at the same time as Augustus. He was her brother husband. Asander was also married to Pythodoris I and Dynamis proving these were Cleopatra's aliases.
 
 - Julius Caesar = Asander, King of Bosporus aka Ptolemy of Cyprus (brother of Ptolemy XII Auletes and husband of "Mithridates") aka Mithridates Chrestus, King of Pontus VI (brother of Mithridates VI, king of Pontus).
@@ -995,41 +999,21 @@ Endnotes (Chapter 6)
 (b) Coin of Vespasian depicitng "Zeus-Sarapis":
     [^27] \
 
-**7. Inventing History**
+**7. The Demographic Erasure of the Scythian-Aryan Hegemony**
 
-Mainstream history presents a linear progression: Egypt -> Greece -> Rome. This is a complete fabrication. The "ancient" civilizations of Egypt, Greece, and Persia were largely concurrent satrapies of the Scythian core. 
+If the Scythian R1a-Z93 "Dragon Kings" controlled a global empire, why are their genetic descendants not dominant from Britain to China today? The answer reveals the most successful geno-political engineering campaign in history: a multi-phase protocol of systematic replacement that was the true purpose behind the Flavian historical forgery.
 
-**7.1 Inventing Classical Greece**
+**7.1 The Flavians (c. 50 BCE – 300 CE)**
 
-Not only is Western Rome a phantom empire, so was the "Classical Greece" of Pericles, Plato, and Aristotle. It is a literary and philosophical back-projection, created by the Flavians and later Renaissance humanists. Its purpose was to provide a "noble pedigree" for the Western Roman Empire, separating it from its "barbaric" Scythian roots. The works of Plato and Aristotle are not the products of a 5th-4th century BC Athenian democracy. They are the synthesized theological and political philosophy of the Alexandrian/Bosphoran intellectual elite, likely compiled between the 1st century BC and 2nd century AD at the Alexandrian School in Egypt, and then retroactively attributed to fictional "Greek" sages.
+What seems plausable is that the "Aryan hegemony" of the ancient world was not a monolith, but a network of interrelated clans (Saka, Sarmatian, Cimmerian, Parthian, etc.) who often fought for supremacy within the hegemony. For example, the "Persian" conquest by Cyrus was not a new empire but a coup d'état by one Scythian clan (the Achaemenids/Persians) against the ruling Scythian clan (the Medes). The "Greco-Persian Wars" were a civil war between the Western satrapy (Greece) and the Eastern core (Achaemenid Persia). So, in the "Jewish-Roman" Wars (who were Celtic Iudii Jupiter worshippers, unrelated to modern "jews") the Flavians did not put down a provincial revolt. They launched a blitzkrieg against the core Eastern administration, and this destroyed the Scythian steppe hegemony. The Flavian dynasty then, after defeating the Judean-Adiabenean forces in the Great War (66-74 AD, mislabeled the "First Jewish-Roman War"), took their primary political enemy, King Izates II, and rewrote his cult as pacifist allegory to subvert the people of his kingdom using the same Alexandian School formula they used in all their imperial cults. They also rewrote history to erase their Bosphoran origins. 
 
-There is no physical manuscript of any Greek classic (Plato, Aristotle, Sophocles) that predates the 9th century AD. The earliest fragments are papyri from Roman Egypt (1st-3rd c. AD). The entire corpus was "preserved" by Byzantine monks and then "rediscovered" by Italian humanists like Poggio Bracciolini in the 15th century. Bracciolini was a known forger and had both motive (Medici patronage) and opportunity (access to the Vatican's scriptorium) to produce these texts.
+Roman emperor faces no longer appear on Bosphoran coins after emperor Titus. Roman emperors also stopped looking "Aryan"/Nordic after the Flavian empire.
 
-Plato's "Academy" was the Alexandrian School. "Plato" is not a man. The name is a title. "Plato" (Πλάτων) derives from "Plouton" (Πλούτων), an alias for Hades, the god of the underworld who possessed the riches of the earth. "Ptolemy" (Πτολεμαῖος) derives from Ptole- (war) but is phonetically and functionally identical to "Plouton-Maios" (The Rich One).
+The Flavians (Pālava or Palavi/Pahlavi, which was the term for the Parthian/Iranian aristocracy) were a Sauromatian clan who broke away from the old R1a-Z93 royal Bosphoran line (the Sauromatians proper) and introduced a heavy J2/J1 (Jewish haplogroup) admixture from the Adiabene–Osrhoene region. The haplotype R1a (the famed "Arya" gene) was the dominant haplogroup of the Roman elite before the Flavian empire. After the Flavian reign the haplotype J2/J1 became the dominant haplogroup among the Roman elite [^37]. This drop in R1a correlates with the rise of "Eastern" (Anatolian/Syrian) emperor origins.
 
-**7.2 The 'Achaemenid' Empire is the Parthian Empire**
+This is why they erased the Scythian origins of ancient civilizations and painted the Scythians (R1a) as monstrous foreigners. 
 
-In Persia, the "Achaemenid Empire" is a phantom, a Flavian-era literary creation designed to provide a grandiose, conquered enemy for "Alexander the Great", and push the "center" of ancient power further east, away from the Bosphoran core. There are no coins issued in the name of "Cyrus the Great", "Darius I", or "Xerxes". The entire empire, supposedly the largest in the world, allegedly functioned for centuries without a coinage system. The coins we attribute to them are misdated Greco-Bactrian and Parthian issues. Cyrus the Great is a mythological amalgamation of several Scythian warlords, including the historical Mithridates I of Parthia and earlier Saka kings like Megabyzus. There are no contemporary records of Cyrus.
-
-The "Achaemenid" Empire perfectly mirrors the Arsacid Parthian empire if you factor in "phantom time".
-
-Cyrus the Great (c. 550 BC) = Mithridates I of Parthia (c. 171 BC) - Founder of the Parthian Empire.	Both were "Great Kings" who establish a vast Persian empire from a minor satrapy.
-
-Darius I (c. 522 BC) = Mithridates II of Parthia (c. 124 BC) - Consolidated the empire and organized it.	Both are master administrators who create the classic "Persian" imperial structure.
-
-Xerxes I (c. 486 BC) = Salamis	Orodes II of Parthia (c. 57 BC) - His general Surena annihilates the Roman army at Carrhae.	Both launch massive, failed invasions of "the West" (Greece/Rome). The "Persian Wars" are the Mithridatic Wars.
-
-Zoroastrianism was invented by the Sasanian Empire (3rd-7th C. AD). They needed a state religion to rival Christianity and legitimize their rule. They systematically compiled older Iranian oral traditions and created the Avesta as a "holy book". To give it antiquity, they back-dated Zoroaster to a mythical past (6000 BC). In doing so, they plagiarized the life story of a real person: Pythagoras (Both Pythagoras and the Zoroaster of legend are said to have traveled to Egypt and Babylon for wisdom. Both are masters of occult knowledge and ritual purity. Both believe in the transmigration of souls).
-
-**7.3 Fabricating 'Ancient' Egypt**
-
-In Egypt the "5000-year" history of Egypt is a Flavian-era fabrication to provide a deep, mystical past for the Serapis cult.
-
-The "Pharaohs" of the Old and Middle Kingdoms are fictional proto-avatars, backdated to create a lineage for the living god-kings like the Ptolemies and Caesars.
-
-The "Old Kingdom" is a fictional pre-history for the Serapis Cult. The Pyramids are not 2500 BC tombs. They were built in the 3rd-2nd Century BC. The Scythian Kurgan is the architectural and theological prototype for the Egyptian Pyramid. The reason carbon dating gives older dates for the mortar is because they used fossilized limestone as a key ingredient, a technology now lost, which throws the isotopic readings wildly out of sync.
-
-**7.4 China: The Han Synthesis and the Tartarian Genocide**
+**7.2 China: The Han Synthesis and the Tartarian Genocide**
 
 The Scythains ruled a Eurasian empire that stretched into China. 
 
@@ -1054,7 +1038,7 @@ Similarly, Ran Min slaughtered and committed genocide on the entire Caucasian Ji
 
 Then Mao-tse Dong used artificial weaponized famines and outright direct purges to direct human wave attacks in the Korean war to mass kill off original Scythian Tartar Turanian stock authentic real “Chinese” populations which is continuing today with the genocide and ethnic cleansing of the Uighurs and Mongolians whom are far more genetically ancestrally connected and linked to the original real actual ancient “Chinese” rather than a vast majority of modern “Han Chinese” whom are actually Miao-Hmong or Miao-Tse or Hmong or Yao or other southern origin non-“Chinese” group pretending to be "Chinese".
 
-**Ancient 7.5. India: The Mauryan Mirage**
+**7.3. Ancient India: The Mauryan Mirage**
 
 The "Mauryan" Empire is a Flavian/Vatican fabrication. Chandragupta Maurya is Alexander the Great.
 
@@ -1135,7 +1119,43 @@ Lost in history is that the greatest slave trade wasn't the Trans-Atlanic one, b
     Ethiopian slaves then mixed with indigenous Australoid/Denisovans
     who were similar to Australian Aborigines. Eventually they mixed with the indigenous Scythians (likely by force and genocide run by the Calami).
 
-**8. Who Forged History?**
+**7.4 The Middle East and North Africa: Invasions and Slave Colonization (250 - 650 CE)**
+
+The destruction of the Aryans in the Middle East and North Africa was done in three phases:
+
+1 The Goths were not primitive invaders. They were a Scythian remnant group (Goths = Getae = Scythians) weaponized by the Eastern Empire (Constantinople/Adiabene faction) to destroy the Western R1a aristocracy. The sack of Rome (410 CE) and the conquest of North Africa by the Vandals (a Sarmatian elite leading a mixed army) were false-flag operations to clear the land.
+    
+2 The "Justinianic Plague" (541-549 CE) was a Bioweapon: Recent genomic analysis shows the 'Yersinia pestis' strain was not endemic to Europe. It was introduced via the Egyptian grain trade, controlled from Constantinople/Alexandria. It disproportionately ravaged the densely populated, still-R1a-heavy cities and army camps of the old empire. This was a demographic reset.
+    
+3 The "Arab Conquests". The armies were multi-ethnic slave-soldier forces (Ghilmān), but their core leadership was not "Arab." It was the J2/J1 Adiabene-Makkedan nobility (the "Quraysh")—the same priestly-financier class that had served the Flavians.
+
+Their primary targets were not cities, but the countryside—the latifundia estates still held by the old R1a landowning families. Systematic slaughter of adult males, enslavement of women and children.
+
+The Arabs also engaged in slave breeding. Cities like Basra and Kufa were not military camps; they were human hatcheries. The scale is understated. Estimates based on tax records suggest 5-7 million East African (Zanj) and Caucasian slaves were imported into Mesopotamia and the Levant between 700-900 CE. The "Arabization" was, in fact, the 'Zanj-ization' of the population base.
+
+Genetic Table (with specific subclades):
+
+| Region          | Pre-Purge Elite HG (Dragon Caste) | Post-Replacement Dominant HG (Post-900 CE)                             | Key Replacement Vector                                                                                               |
+|------------------|------------------------------------|-------------------------------------------------------------------------|----------------------------------------------------------------------------------------------------------------------|
+| **Egypt (Delta)**| **R1a-Z93** (Pharaohic guard), R1b-V88 | **E-V22/E-M78** (NE African), **J1-FGC12** (Arabized), **E-M2** (Zanj) | Alexandria grain doles to landless poor (imported), Fatimid mass purchases of Sudanese slave women for troops.        |
+| **Mesopotamia**  | **R1a-Z93** (Mitanni/Kassite), **R1b-Z2103** | **J1-L222** ("Bedouin"), **J2-M67** (Highland), **E-M2** (Basra Zanj) | Abbasid "Zanj Rebellion" (869-883 CE) was not a rebellion; it was a **failed slave genocide** against the *replaced* population that had become too numerous. |
+| **Anatolia**     | **R1a-Z93**, **R1b-Z2103** (Hittite/Luwian elite) | **J2-M172**, **R1b-M269** (Armenian/Greek), later **Turkic Q**        | The "Byzantine-Arab" wars were a **demographic pump**, clearing the plateau for later Turkic settlement. Theme system broke old land patterns. |
+| **North Africa** | **R1b-V88** (Garamantes), **R1a-Z93** (Numidian cavalry elite) | **E-M81** (Berber), **J1-M267**                                        | **Vandal kingdom was the last R1a elite.** Its destruction by Byzantium (534 CE) was the key event. Subsequent "Arab" invasions were clean-up operations. |
+
+**7.5 Where Did The Scythian Aryans Go? The Refugia.**
+
+The Scythians did not completely vanish. Some were pushed to the geographic and social margins:
+
+1  Mountain Refugia: The Pashtuns (R1a-Z93 >40%), Pamiri peoples, Kalash, Druze, Maronites, Kabyles, Basques (high R1b, but of the older, non-steppe variant). These groups often have oral traditions of "fleeing the lowlands".
+2  Caste Systems: In India, the Brahmins and Kshatriyas retain significantly higher R1a-Z93 frequencies than lower castes. The caste system fossilized the genetic hierarchy just as the replacement wave hit.
+3  The European Nobility: A fraction fled west, becoming the nucleus of the "Gothic" and later "Frankish" nobility. Their "divine right of kings" was a corrupted memory of the Dragon King mandate. This explains why medieval European royal lineages are obsessed with Trojan (i.e., Anatolian) and Scythian origins.
+4  The Ghetto and the Diaspora: Some of the defeated R1a elite were absorbed into the Jewish communities of the Diaspora as converts, explaining the presence of R1a lineages (like R1a-YP263) in Ashkenazi Levites—a conquered priesthood absorbed by the victorious priestly class.
+
+The "Great Replacement" is not a modern theory. It is an ancient, completed historical fact. The peoples now called "Arabs," "Turks," and "Middle Easterners" are largely the successful result of this replacement—a slave-soldier derived population ruled by a priest-financier elite that orchestrated the downfall of its former Scythian masters.
+
+The victors then wrote the history, claiming the cultural achievements of the defeated (Pyramids, Philosophy, Law) as their own, and painting the Scythians as barbarian nomads or mythological monsters (Aži Dahāka, Gog and Magog).
+
+**8. Rewriting History?**
 
 The Flavian dynasty (Vespasian, Titus, Domitian) and their court historians (Josephus, Pliny, Tacitus) were the ones who forged history. They created a "Roman" history to legitimize their new dynasty and obscure their Bosphoran/Herodian origins. Josephus aka Tiberius Julius Alexander was prefect (governor) of Roman Egypt and had control of the Library of Alexandria, and likely was the one responsible for buring it down. 
 
@@ -1149,6 +1169,38 @@ The Flavians (Pālava or Palavi/Pahlavi, which was the term for the Parthian/Ira
 
 This is why they erased the Scythian origins of ancient civilizations and painted the Scythians (R1a) as monstrous foreigners. 
 
+**8.1 Ancient Greece**
+
+Not only is Western Rome a phantom empire, so was the "Classical Greece" of Pericles, Plato, and Aristotle. It is a literary and philosophical back-projection, created by the Flavians and later Renaissance humanists. Its purpose was to provide a "noble pedigree" for the Western Roman Empire, separating it from its "barbaric" Scythian roots. The works of Plato and Aristotle are not the products of a 5th-4th century BC Athenian democracy. They are the synthesized theological and political philosophy of the Alexandrian/Bosphoran intellectual elite, likely compiled between the 1st century BC and 2nd century AD at the Alexandrian School in Egypt, and then retroactively attributed to fictional "Greek" sages.
+
+There is no physical manuscript of any Greek classic (Plato, Aristotle, Sophocles) that predates the 9th century AD. The earliest fragments are papyri from Roman Egypt (1st-3rd c. AD). The entire corpus was "preserved" by Byzantine monks and then "rediscovered" by Italian humanists like Poggio Bracciolini in the 15th century. Bracciolini was a known forger and had both motive (Medici patronage) and opportunity (access to the Vatican's scriptorium) to produce these texts.
+
+Plato's "Academy" was the Alexandrian School. "Plato" is not a man. The name is a title. "Plato" (Πλάτων) derives from "Plouton" (Πλούτων), an alias for Hades, the god of the underworld who possessed the riches of the earth. "Ptolemy" (Πτολεμαῖος) derives from Ptole- (war) but is phonetically and functionally identical to "Plouton-Maios" (The Rich One).
+
+**8.2 The 'Achaemenid' Empire is the Parthian Empire**
+
+In Persia, the "Achaemenid Empire" is a phantom, a Flavian-era literary creation designed to provide a grandiose, conquered enemy for "Alexander the Great", and push the "center" of ancient power further east, away from the Bosphoran core. There are no coins issued in the name of "Cyrus the Great", "Darius I", or "Xerxes". The entire empire, supposedly the largest in the world, allegedly functioned for centuries without a coinage system. The coins we attribute to them are misdated Greco-Bactrian and Parthian issues. Cyrus the Great is a mythological amalgamation of several Scythian warlords, including the historical Mithridates I of Parthia and earlier Saka kings like Megabyzus. There are no contemporary records of Cyrus.
+
+The "Achaemenid" Empire perfectly mirrors the Arsacid Parthian empire if you factor in "phantom time".
+
+Cyrus the Great (c. 550 BC) = Mithridates I of Parthia (c. 171 BC) - Founder of the Parthian Empire.	Both were "Great Kings" who establish a vast Persian empire from a minor satrapy.
+
+Darius I (c. 522 BC) = Mithridates II of Parthia (c. 124 BC) - Consolidated the empire and organized it.	Both are master administrators who create the classic "Persian" imperial structure.
+
+Xerxes I (c. 486 BC) = Salamis	Orodes II of Parthia (c. 57 BC) - His general Surena annihilates the Roman army at Carrhae.	Both launch massive, failed invasions of "the West" (Greece/Rome). The "Persian Wars" are the Mithridatic Wars.
+
+Zoroastrianism was invented by the Sasanian Empire (3rd-7th C. AD). They needed a state religion to rival Christianity and legitimize their rule. They systematically compiled older Iranian oral traditions and created the Avesta as a "holy book". To give it antiquity, they back-dated Zoroaster to a mythical past (6000 BC). In doing so, they plagiarized the life story of a real person: Pythagoras (Both Pythagoras and the Zoroaster of legend are said to have traveled to Egypt and Babylon for wisdom. Both are masters of occult knowledge and ritual purity. Both believe in the transmigration of souls).
+
+**8.3 Fabricating 'Ancient' Egypt**
+
+In Egypt the "5000-year" history of Egypt is a Flavian-era fabrication to provide a deep, mystical past for the Serapis cult.
+
+The "Pharaohs" of the Old and Middle Kingdoms are fictional proto-avatars, backdated to create a lineage for the living god-kings like the Ptolemies and Caesars.
+
+The "Old Kingdom" is a fictional pre-history for the Serapis Cult. The Pyramids are not 2500 BC tombs. They were built in the 3rd-2nd Century BC. The Scythian Kurgan is the architectural and theological prototype for the Egyptian Pyramid. The reason carbon dating gives older dates for the mortar is because they used fossilized limestone as a key ingredient, a technology now lost, which throws the isotopic readings wildly out of sync.
+
+**8.4 The Church Fathers**
+
 Then the Church Fathers (4th-5th Centuries AD) and the Vatican played a role in the deception. They made up the "Council of Nicaea". It never happened. There is no contemporary records that exist of the Council of Nicaea (325 AD). The Council of Nicaea mirrors the Mithraic Congress of 307 AD where Emperor Galerius declared Sol Invictus the official god of Rome. Constantine’s "conversion" was fabricated. He remained a Sol Invictus sun-worshipper until death—his coins never feature Christian symbols. His last coin (337 AD) depicts him as Sol Comitatus ("Sun Companion"), not Christ. The "Chi-Rho" symbol was a later interpolation by Eusebius, who forged Life of Constantine in the 5th century. The "Arian Controversy" was a fake debate to disguise the fact that early Christianity was a Roman imperial cult. Proof: The "Life of Constantine" by Eusebius was forged in the 5th century to retroactively justify Nicaea, and the Edict of Milan (313 AD) never mentions Jesus—only a vague "Divine Providence". Also, the Vatican's greatest forgery was the Donation of Constantine. The Vatican forged it in the 8th century to claim Rome. It was based on earlier forgeries by Eusebius (a Flavian propagandist).
 
 The Vatican had a motive for erasing the Eastern origins of Rome because of their conflicts with the Eastern Byzantine Church, which eventually fell to Islam.
@@ -1161,7 +1213,9 @@ There was a Jesuit named Jean Hardouin who said that a 14th Century Jesuit consp
 
 Isaac Newton wrote a book called "The Chronology Of Ancient Kingdoms Amended" where he analysed the eclipses recorded in ancient times and showed that 753 years (the exact number of years between the founding of Rome, or specifically the birth of the Roman deity Romulus and the birth of Jesus), was added in to the first "millennium". This would line up with the gaps of time found across European and world history, oddities like the invention of paper taking 700 years to travel across the Silk Road, or the 1st century Mexican deity Quetzalcoatl being temporarily forgotten til the 8th century.
 
-**9 Sects of the Imperial Cult**
+**9 9\. Identifying the Flavian Scribes**
+
+If it possible to identify who wrote the bible by looking at sects of the Imperial cult. 
 
 **9.1 Christianity**
 
