@@ -201,7 +201,7 @@ Mainstream history presents the Ptolemies, Seleucids, Attalids, and Romans as se
     - Ptolemy XIII Theos Philopator aka Gaius Octavius (Emperor Augustus). Aliases: Polemon I of Pontus. Gaius Julius Sohaemus of Emesa. Rhoemetalces I (a classic Thracian royal name, linking to the "Rome" = "Ruma" etymology. Rhoemetalces = "king of Rhome", or "king of Rome" in ancient Thracian), king of Bosphorus. Rhoemetalces Philocaesar of Pontus was the son of Marcus Antonius Polemon Pythodoros was married to Pythodoris I (Cleopatra). Polemon I of Pontus was married to Dynamis (Cleopatra). Cleopatra was married to her brother Ptolemy XIII Theos Philopator who was born at the same time as Augustus. He was her brother husband. Asander was also married to Pythodoris I and Dynamis proving these were Cleopatra's aliases.
 
 - Julius Caesar = Asander, King of Bosporus aka Ptolemy of Cyprus (brother of Ptolemy XII Auletes and husband of "Mithridates") aka Mithridates Chrestus, King of Pontus VI (brother of Mithridates VI, king of Pontus).
-  Titles: Philocaesar Philoromaios, Soter, Great King of Kings, "As" in his name refers to Asar(Osiris)/Aesar/Aeser/Aisar/Ais/Is). Other suspected aliases: Akrosandros II, King of Scythia, Brogitarix, Idumean Antipater, Parthian Artavasdes (Greek Alex = Persian Arta) who was the brother of Tigranes II (Tigranes II/the Great was called Azhdahak proving Aži Dahāka was a royal Scythian title), and the Hasmonean Alexander II (son of king Aristobulus II son of Jannaeus Alexander also the nephew and son-in-law of king/high-priest Hyrcanus II. Also, Julius = Janneus? Or Janneus (Yannai) is related to the Roman name Gaius?). Bogud, King of Mauretania, Burebista, King of the Dacians, Atrebates, king of Britannia. Also Prince Jin Midi in China? Jin (金) means "Gold," a royal Scythian attribute. Mi (日) is "Sun." Di (磾) is a rare character meaning "black," but also a homophone for "Emperor" (帝). His story: A noble "barbarian" prince from the West (Xiongnu confederation, which included Saka/Scythians) is captured and rises to become the most powerful man in China, serving as regent to a child emperor. This is the exact same narrative archetype as a foreigner (Caesar) rising to power in Rome.
+  Titles: Philocaesar Philoromaios, Soter, Great King of Kings, "As" in his name refers to Asar(Osiris)/Aesar/Aeser/Aisar/Ais/Is). Other suspected aliases: Akrosandros II, King of Scythia, Brogitarix, Idumean Antipater, Parthian Artavasdes (Greek Alex = Persian Arta) who was the brother of Tigranes II (Tigranes II/the Great was called Azhdahak proving Aži Dahāka was a royal Scythian title), and the Hasmonean Alexander II (son of king Aristobulus II son of Jannaeus Alexander also the nephew and son-in-law of king/high-priest Hyrcanus II. Also, Julius = Janneus? Or Janneus (Yannai) is related to the Roman name Gaius?). juba I, King of Mauretania, Burebista, King of the Dacians, Atrebates, king of Britannia. Also Prince Jin Midi in China? Jin (金) means "Gold," a royal Scythian attribute. Mi (日) is "Sun." Di (磾) is a rare character meaning "black," but also a homophone for "Emperor" (帝). His story: A noble "barbarian" prince from the West (Xiongnu confederation, which included Saka/Scythians) is captured and rises to become the most powerful man in China, serving as regent to a child emperor. This is the exact same narrative archetype as a foreigner (Caesar) rising to power in Rome.
   - Spouse/Consort: Cleopatra VII (Isis who in mythology was the wife of Osiris and the mother of Horus): Dynamis Ourania (Aphrodite Urania). Aliases: Pythodorida Philometor (Pytho- from python, and -doria from the Dorian tribe who were Scythian Greeks). Also, Amanirenas ("Amon is Lord"), Kandake of Kush?
   - Children:
     - Emperor Tiberius Julius Caesar Augustus. Alias: Tiberius Julius Aspurgus, king of Bosphorus (Aspurgos calls himself the son of "the great king of Asandrokhos" in an inscription. https://www.researchgate.net/publication/390912485_Aspurgos_-_the_king_of_Bosporan_state_98_BC_-_AD_38). Also likely Kujula Kadphises, prince of Bactria. Also, was he the legendary Chinese emperor Yu the Great (original name "Aži" or "Yazhi" (亞茲))? Julius, from Ioulius, related to Iove (Jove). Iove is linguistically linked to the Scythian tribal name Yuehzi (Yuezhi). He is "The Jove/Yuezhi King"?
@@ -578,9 +578,12 @@ Fig. 1.19. Coin of Vercingetorix, a Gallic king and chieftain of the Arverni tri
 
 Fig. 1.20. Coin of Diviciacus (Aedui). A Druid and chieftain of the Aedu tribe. He was a leader of the pro-Roman faction, and was recorded to have aided Julius Caesar in his conquest of Gaul.
 
-![Fig.1.21](/images/Bogud.jpg){:width="400px"}
+![Fig.1.21](/images/JubaI.jpg){:width="400px"}
 
-Fig. 1.21. Coin depicting Bogud, king of Mauretania (a territory that encompassed most of North Africa), who was a recorded ally of Julius Caesar.
+Fig. 1.21. Coin depicting Iuba I, king of Mauretania (a territory that encompassed most of North Africa). Julius Caesar "adopted" his son Juba II who's full name was Gaius Iulius Iuba, prenomen and nomen after Gaius Iulius Caesar, and 'Iuba' is likely a
+diminutive of 'Iehuva' which traces to Jove/Jupiter. Juba I was the claimed royal heir of the Massylii
+tribe, which is the 'Messiah' lineage from David's firstborn son with
+Saul's daughter Michal
 
 ![Fig.1.22](/images/Kanites.jpg){:width="400px"}
 
@@ -805,7 +808,7 @@ Alexander (son of King Herod) aka Juba II who was married to his twin
 sister Cleopatra Selene II aka Queen Thea Muse Ourania. Juba II of
 Mauritania's full name was Gaius Iulius Iuba, prenomen and nomen after
 his adopted father Gaius Iulius Caesar, and 'Iuba' is likely a
-diminutive of 'Iehuva' which tracea to Jove/Jupiter. He was the claimed royal heir of the Massylii
+diminutive of 'Iehuva' which traces to Jove/Jupiter. He was the claimed royal heir of the Massylii
 tribe, which is the 'Messiah' lineage from David's firstborn son with
 Saul's daughter Michal (one way to prove that Mark Antony was also King
 Herod is through the equivalence of Alexander Helios aka Alexander (son
