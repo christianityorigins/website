@@ -86,7 +86,17 @@ Religion was the technology that the Ptolemaic dynasty used to control the vast 
 
 Beyond the surface-level imperial fiction, all these Alexandrian School religions contained the same psychological weapon at their core: centralized texts and priesthoods which makes a population easier to control through proxy, moral codes like submission, self-sacrifice, obedience, loyalty, divine judgment, the concept of hell, and monotheism which divides the population through binary thinking, ie., the opposition between good and evil, us vs them, left vs right, etc., which destroys tribalism/collectivism by splitting the population into two groups. These religions were also likely designed to segment the populations by class, culture, and region to prevent unified resistance. For example, Mithraism was for military elites (requiring blood oaths, with a Mithraic initiate caste system and hierarchical structure). Serapism was for civilians (promising afterlife salvation). Christianity was for slaves ("turn the other cheek").
 
-"Jesus Christ" was originally a rank, not a name. It was the title for the Satrap-Soter (Governor-Savior) of the Levant-Judea sector, a high-level administrative and priestly position within the Ptolemaic/Bosphoran imperial structure, often filled by a bloodline prince, much like 'Pharaoh' or 'Caesar'. Jesus Christ = "Divine Zeus, the Anointed Governor". Ie-Zeus (Divine Zeus) + "Kristos" which was the job title for the Governor (Satrap) of Judea who was a member of the Bosporan royal house, equivalent to Scythian Xšaθra, Persian "Kšatrapati", Hyksos "Khasut" in Egypt, Kshatriya in Sanskrit which also = Vedic "Krishna", etc.
+"Jesus Christ" was originally a rank, not a name. It was the title for the Satrap-Soter (Governor-Savior) of the Levant-Judea sector, a high-level administrative and priestly position within the Ptolemaic/Bosphoran imperial structure, often filled by a bloodline prince, much like 'Pharaoh' or 'Caesar'. 
+
+"Ie-Zeus" = "Divine Zeus". But Zeus = Dyēus = Jupiter = Jove (Iove). Jupiter comes from Dyēus Pter ("Sky Father") which is the original name of the chief god for the Proto-Indo-Europeans on the Pontic-Caspian Steppe. His name means "Shining Sky Father". The name Zeus comes from the pronunciation of "Dyeus", and (I)Jupiter comes from the pronunciation of "Dyeus Pter" (Diespiter -> Iupiter). (J)upiter was also called Jove or Iove to the Romans. The Latin pronunciation of Iove would have been Yoh-Way, i.e., Yahweh/Yhwh. Therefore, "Jesus" (Yahweh-Zeus) = "The Jovian One" or "The Jupiterian King". "Ioudaioi" means "People of Jove".
+
+Christios/Kristos was the job title for the Governor (Satrap) of Judea who was a member of the Bosporan royal house, equivalent to Scythian Xšaθra, Persian "Kšatrapati", Hyksos "Khasut" in Egypt, Kshatriya in Sanskrit which also = Vedic "Krishna", etc.
+
+The name Julius Caesar "Julius" comes from Iovilius (of Jove) and in the Flamen Dialis cult Julius Caesar was the high priest of Jupiter Optimus Maximus.
+
+Judaism was their cult for the Levant-Judea sector of their empire. They just took the existing local deity, El or El Elyon (The Most High God), and syncretized them with the attributes and name of Iove/Jupiter. Ancient Judaism was simply the Roman imperial cult synchronized with Cannonite beliefs. 
+
+"Jesus Christ" = "The Jupiterian King, the Anointed Governor", or Yahweh-Zeus, the Anointed Governor"
 
 The people who assumed this role were the descendants of Mark Antony aka King Herod (aka Mithridates VI Eupator of Pontus aka Ptolemy XII Auletes of Egypt):
 
@@ -218,8 +228,9 @@ IV. Flavian Emperors
 
 V. Speculative
 
-- Ateas the Scythian was also Artaxerxes II Memnon ("Kai Bahman") of Persia aka Phillip II in Macedonia aka Nectanebo II in Egypt aka Evagoras I of Salamis (Cyprus). 
-  - Son 1: Alexander the Great: Alexander was his title. "Aži-ander" = Aži
+- Ateas the Scythian = Amyntas III of Macedon (d. 370 BC) = Artaxerxes I of Persia (d. 424 BC) = Nepherites I of Egypt (d. 393 BC). aka Evagoras I of Salamis (Cyprus). 
+  - Son: Philip II of Macedon. Philip was a title (Philippos (Lover of Horses) is a direct Greek translation of the Scythian royal title Pharnavaz (Horse-Lord)). 
+  - Grandson: Alexander the Great: Alexander was his title. "Aži-ander" = Aži
     (Avestan "dragon") + Andros (Greek "man") = "Dragon-Man", the same as Akrosander/Akrosas. Alaksandu
     of Wilusa, a Hittie king of Wilusa (Troy) (Alaksandu = Alak-San-Du
     (Hurrian: "Ruler-Dragon-Son")), who predates Alexander by 800 years,
@@ -236,8 +247,8 @@ V. Speculative
     posthumous birth/'resurrection'.He resurrected in India with the
     regional alias of Chandragupta. Alexander's mother Olympias (Ol or ophis + Pias = "serpent queen"), who was a Scythian princess of the
     Molossian tribe, claimed to have been impregnated by the god Zeus
-    Ammon disguised as a serpent. Alexander's fathers name Philip was a title (Philippos (Lover of Horses) is a direct Greek translation of the Scythian royal title Pharnavaz (Horse-Lord)). Alexander also married the Scythian princess Roxana. Alexanders campaign was not a conquest, it was a Scythian restoration. The Achaemenid Persians (Achaemenes is likely Akh-Manesh or "Spirit of Manu", linking to the Vedic sage-king) were a rival Scythian clan (the "Ariya" - Aryans). Alexander was re-establishing the older, purer Scythian hegemony of the Medes and the pre-Zoroastrian Mitanni. In the Old Testament he was Solomon (Sol-Amūn or "Sun of Amun") which is a direct parallel to "Zeus-Ammon", a title he carried. He was also Qin Shi Huang in China. The "King of Kings" and "King of the World" titles Alexander and Cyrus used were literal. They were kings of a global empire.\
-  - Son 2: Darius III ("Darab") of Persia? Half brother of Alexander.
+    Ammon disguised as a serpent. Alexander also married the Scythian princess Roxana. Alexanders campaign was not a conquest, it was a Scythian restoration. The Achaemenid Persians (Achaemenes is likely Akh-Manesh or "Spirit of Manu", linking to the Vedic sage-king) were a rival Scythian clan (the "Ariya" - Aryans). Alexander was re-establishing the older, purer Scythian hegemony of the Medes and the pre-Zoroastrian Mitanni. In the Old Testament he was Solomon (Sol-Amūn or "Sun of Amun") which is a direct parallel to "Zeus-Ammon", a title he carried. He was also Qin Shi Huang in China. The "King of Kings" and "King of the World" titles Alexander and Cyrus used were literal. They were kings of a global empire.\
+  - Grandson: Darius III ("Darab") of Persia? Half brother of Alexander.
 -  Gautama Buddha: Bardiya (Smerdis)/Gaumata (Cyrus the Great's son who was satrap (governor) of the Persian province of Bactria (modern day Afghanistan)). He was of the Śākya tribe which is the Sanskrit equivalent of Saka (Scythian). Buddhism was a syncretic pacifist religion to subdue the population of the Indian subcontinent. The doctrine of renunciation (non-attachment to the material world) is the precise Eastern equivalent of the Serapis/Christian "turn the other cheek". Buddhism was a control mechanism designed by the same Dragon Empire.
 -  Moses = Manes/Mannu-Kuras = Manu (Scythian Sage-King) = Menes (Egypt’s legendary founder). Also appears in "Monobazus" → “Manu Bazus” → Sarmatian-Mythological Sage King. The Iranian Manu is a legendary civilizer, and in India he becomes the first Lawgiver (the Manu Smriti = Scythian governance code). The biblical Moses defeats Pharaoh (actually Mitanni elite), parts waters with a serpent-staff—obvious encoding of dragon-kingship (Aži Dahāka). Moses takes on different masks: M enes – the first official Pharaoh (not real, a compilation of conquerors). Menes – the semi-mythical Median king, founder of the priest-class. Mannu-kuras – Proto-Mede, whose name becomes Cyrus. The name Kur-Ash = "Sun Man". The Exodus is not Judaic memory: it's a political memory of Mitanni-Scythian expulsion from Egypt after the religious revolution of Thutmose III → Horemheb wiped them out with a new priest-kingship in Amarna. He shows up in a number of religions: In Zoroastrianism he is Manushchihr, in Hinuduisn he is Manu, in Judaism he is Moses, in Norse mythology he is Mannus, etc.
 -  Paul the Apostle = likely a composite character or an avatar/cipher. Two suspects for having taken on the character are: 1) Saulus ben Antipater who was the
@@ -281,6 +292,7 @@ V. Speculative
     "Bar Izates" shortened to "baYZTus" (or bar YZT) through frequent
     oral repetition which then becomes "bOETHus". The Boethusians were a
     jewish priestly sect.
+    Pharaoh: not "great house". The root is the ancient Indo-Iranian (Scythian) concept of farnah- (Avestan: xᵛarənah). It means Divine Royal Glory. Phraates (Parthia) and Pharnaces (Pontus/Bosporus) are regional linguistic variants of the this tile (farnah-bearer, or god-king).
 -   Piso cognomen: "Appius" is a cognomen (personal name) of the
     Claudian family. Appius and Piso are synonymous (In Greek, Appius is
     rendered as Appios, from there Piso). The name Piso itself would be
@@ -340,9 +352,9 @@ The Final Consolidation
 -429-339 BC: Ateas the Scythian. The last great emperor of the direct Akrosander bloodline, ruling from the Danube to the Caucasus. His name "Ateas" (Forefather) is a title claiming direct descent from Akrosander. Ateas the Scythian was also Artaxerxes II Memnon ("Kai Bahman") of Persia aka Phillip II in Macedonia aka Nectanebo II in Egypt aka Evagoras I of Salamis (Cyprus). 
 
 ![Fig.1.11](/images/AteasPhillipAlexander.jpg){:width="400px"}\
-Fig. 1.11. L. Ateas the Scythian (Ata- or Atha-, meaning "forefather" or "ancestor" in Scythian). M. Philip II of Macedon. R. Alexander the Great. Ateas and Artaxerxes II Mnemon were reported "enemies" of Phillip. Ateas dies in battle against him, and in the Alexander Romance, a book that has its earliest copy dating back a couple of centuries after Alexanders life, the wizard-pharaoh Nectanebo II is secretly Alexander's real father, magically impersonating the god Amun. This is not fantasy; it is a mythological encoding of historical truth.\
+Fig. 1.11. Showing three generations. L. Ateas the Scythian (Ata- or Atha-, meaning "forefather" or "ancestor" in Scythian). M. Philip II of Macedon. R. Alexander the Great. Ateas and Artaxerxes II Mnemon were reported "enemies" of Phillip. Ateas dies in battle against him, and in the Alexander Romance, a book that has its earliest copy dating back a couple of centuries after Alexanders life, the wizard-pharaoh Nectanebo II is secretly Alexander's real father, magically impersonating the god Amun. This is not fantasy; it is a mythological encoding of historical truth.\
 
--356 BC: Ateas/Phillip II/Artaxerxes's son Alexander the Great: Alexander was his title. "Aži-ander" = Aži
+-356 BC: Ateas/Amyntas III/Artaxerxes's grandson Alexander the Great: Alexander was his title. "Aži-ander" = Aži
     (Avestan "dragon") + Andros (Greek "man") = "Dragon-Man", the same as Akrosander/Akrosas. Alaksandu
     of Wilusa, a Hittie king of Wilusa (Troy) (Alaksandu = Alak-San-Du
     (Hurrian: "Ruler-Dragon-Son")), who predates Alexander by 800 years,
@@ -554,33 +566,37 @@ Fig. 1.16. Coin depicting Burebista, king of the Dacians, who was an alleged ene
 
 Fig. 1.17. Coin depicting Atrebates, king of Britannia who Julius Caesar was recorded to have defeated in battle.
 
-![Fig.1.18](/images/Vercingetorix.jpg){:width="400px"}
+![Fig.1.18](/images/Cunobeline.jpg){:width="400px"}
 
-Fig. 1.18. Coin of Vercingetorix, a Gallic king and chieftain of the Arverni tribe who united the Gauls in a failed revolt against Julius Caesar in the Gallic Wars.
+Fig. 1.18. Coin depicting Cunobeline a king in Britannia whose tribe was allied with Julius Caesar.
 
-![Fig.1.19](/images/Diviciacus.jpg){:width="400px"}
+![Fig.1.19](/images/Vercingetorix.jpg){:width="400px"}
 
-Fig. 1.19. Coin of Diviciacus (Aedui). A Druid and chieftain of the Aedu tribe. He was a leader of the pro-Roman faction, and was recorded to have aided Julius Caesar in his conquest of Gaul.
+Fig. 1.19. Coin of Vercingetorix, a Gallic king and chieftain of the Arverni tribe who united the Gauls in a failed revolt against Julius Caesar in the Gallic Wars.
 
-![Fig.1.20](/images/Bogud.jpg){:width="400px"}
+![Fig.1.20](/images/Diviciacus.jpg){:width="400px"}
 
-Fig. 1.20. Coin depicting Bogud, king of Mauretania (a territory that encompassed most of North Africa), who was a recorded ally of Julius Caesar.
+Fig. 1.20. Coin of Diviciacus (Aedui). A Druid and chieftain of the Aedu tribe. He was a leader of the pro-Roman faction, and was recorded to have aided Julius Caesar in his conquest of Gaul.
 
-![Fig.1.21](/images/Kanites.jpg){:width="400px"}
+![Fig.1.21](/images/Bogud.jpg){:width="400px"}
 
-Fig. 1.21. Coin depicting Kanites, King of Scythia. The root comes from "Khan" = supreme steppe ruler. "-it": A Sarmatian suffix denoting "belonging to" or "descendant of.". "Khanites" = "He who is of the Khan / The Khan's Scion."
+Fig. 1.21. Coin depicting Bogud, king of Mauretania (a territory that encompassed most of North Africa), who was a recorded ally of Julius Caesar.
+
+![Fig.1.22](/images/Kanites.jpg){:width="400px"}
+
+Fig. 1.2. Coin depicting Kanites, King of Scythia. The root comes from "Khan" = supreme steppe ruler. "-it": A Sarmatian suffix denoting "belonging to" or "descendant of.". "Khanites" = "He who is of the Khan / The Khan's Scion."
 .
-![Fig.1.22](/images/AretasIII.jpg){:width="400px"}
+![Fig.1.23](/images/AretasIII.jpg){:width="400px"}
 
-Fig. 1.22. Coin depicting Aretas III, king of the Nabataeans (modern northern Arabia and the southern Levant. The capital was Petra).
+Fig. 1.23. Coin depicting Aretas III, king of the Nabataeans (modern northern Arabia and the southern Levant. The capital was Petra).
 
 **5.2 Cleopatra VII aka Dynamis Ourania aka Pythodorida Philometor**
 
 Cleopatra VII was the archtype, not the avatar, for the "Jesus" figure. She was the living Soteira (feminine Soter), Thea (Goddess), and "Queen of Kings". She was the descendant of the Scythian Dracaena, or the snake-legged goddess who was the mother of the Scythians in mythology.
 
-![Fig.1.23](/images/Cleopatra%20VIIDynamis.png){:width="400px"}
+![Fig.1.24](/images/Cleopatra%20VIIDynamis.png){:width="400px"}
 
-Fig. 1.23. (L) Dynamis, Queen of Bosphorus, (R) Cleopatra VII. There were
+Fig. 1.24. (L) Dynamis, Queen of Bosphorus, (R) Cleopatra VII. There were
 obviously many years between the ages at which she was depicted,
 however, even in the elder Dynamis bust you can see her lazy eye and
 abnormally large eyes which she was reported to have had, possibly as a
@@ -588,9 +604,9 @@ consequence of inbreeding. The hat she is wearing is a Phrygian cap, a
 distinctivehat that is closely associated with the Roman god Mithras.
 Dynamis was recorded as being of "Sarmatian" ancestry.
 
-![Fig.1.24](/images/cleopatra.png){:width="400px"}
+![Fig.1.25](/images/cleopatra.png){:width="400px"}
 
-Fig. 1.24. (L) Julia Mamaea, Queen of Pontus (wife of Polemon II), (R)
+Fig. 1.25. (L) Julia Mamaea, Queen of Pontus (wife of Polemon II), (R)
 Cleopatra VII. Polemon Pythodoros, King of Pontus was a regional alias
 of Julius Caesar/Asander (as Asander and Polemon were both married to
 Dynamis), and if he also played the religious role of Gaius Julius
@@ -672,9 +688,9 @@ Boethus was another of Cleopatra's regional aliases?  If you identify
 King Herod as Mark Antony aka Tiberius Claudius Nero aka Phraates IV of
 Parthia's regional alias then the picture becomes clearer.
 
-![Fig.1.25](/images/PtolemyXII.jpeg){:width="400px"}
+![Fig.1.26](/images/PtolemyXII.jpeg){:width="400px"}
 
-Fig. 1.25. Ptolemy XII Auletes, king of Egypt, who was also Mithridates
+Fig. 1.26. Ptolemy XII Auletes, king of Egypt, who was also Mithridates
 VI Eupator, Ariarathes IX of Cappadocia, Simon Boethus/Magus/Ptolemy
 (Alexander) bar Menneus, et.al. Mithridates VI married his sister
 Laodice---just as Ptolemy XII married his sister Cleopatra V. Both had
@@ -699,30 +715,30 @@ even has a story about a 'spurious Alexander' that showed up in Rome
 claiming to be the son of Herod who faked his death [^20], so he was
 'resurrected' as Juba II, king of Numidia and Mauretania. 
 
-![Fig.1.26](/images/MithridatesVIEupator.jpg){:width="400px"}
+![Fig.1.27](/images/MithridatesVIEupator.jpg){:width="400px"}
 
-Fig. 1.26. Coin depicting Mithridates VI Eupator, father of Pharnaces II
+Fig. 1.27. Coin depicting Mithridates VI Eupator, father of Pharnaces II
 and Dynamis. Brother of Mithridates Chrestus. Notice the star and
 crescent that is visible in the Julius Caesar coin above and the winged
 Pegasus within a Dionysiac wreath of ivy and fruit that is seen in the
 Asander coin?
 
-![Fig.1.27](/images/PairisadesVofBosporus.jpg){:width="400px"}
+![Fig.1.28](/images/PairisadesVofBosporus.jpg){:width="400px"}
 
-Fig. 1.27. Coin depicting Pairisades V, king of Bosporus
+Fig. 1.28. Coin depicting Pairisades V, king of Bosporus
 
-![Fig.1.28](/images/AriarathesIX.jpg){:width="400px"}
+![Fig.1.29](/images/AriarathesIX.jpg){:width="400px"}
 
-Fig. 1.28. Coin depicting Ariarathes IX Eusebes Philopator, King of
+Fig. 1.29. Coin depicting Ariarathes IX Eusebes Philopator, King of
 Cappadocia (Central Anatolia/modern Turkey). Notice the resemblance to Mithridates VI Eupator of Pontus?
 Cleopatra aka Dynamis's son with Julius Caesar aka Asander = Tiberius
 Julius Aspurgus Philoromaios (Aspurgus translates to "horseman-lord" in
 Thracian languages. Sabazios was a Thracian deity worshipped as a
 horseman.).
 
-![Fig.1.29](/images/PtolemyApion.jpg){:width="400px"}
+![Fig.1.30](/images/PtolemyApion.jpg){:width="400px"}
 
-Fig. 1.29. Coin depicting Ptolemy Apion, king of Kyrene, Kyrenaica, North Africa. 
+Fig. 1.30. Coin depicting Ptolemy Apion, king of Kyrene, Kyrenaica, North Africa. 
 
 **5.3.2. Amyntas Nikator aka Amyntas, King of Galatia**
 
@@ -759,9 +775,9 @@ The Celts in classical Galatia worshiped a deity called
 Aesus/Esus/Iesus. Amyntas, as the god king of Galatia would have been the personification of Esus. "Esus" from "Aisus (Thracian Jove-variant). Esus is the Celtic pronunciation of Aisus. The Scythian root is Aes-, the same as the Aesir and Aesar. "Iesus" is the Latin rendering of "Esus." There was no "J" sound. He was always called Ie-Sus (Yay-soos), "The Esus."
 
 ![Fig.
-1.30](/images/Esus.jpg){:width="400px"}
+1.31](/images/Esus.jpg){:width="400px"}
 
-Fig. 1.30. Statue from classical Anatolia that is dedicated to "Esumopas
+Fig. 1.31. Statue from classical Anatolia that is dedicated to "Esumopas
 Cnusticus". Esumopas means "Slave to Esus", and Esus means lord in
 Proto-Celtic. If you combine the Etruscan word "cnus" with the suffix
 "-ticus" or "-tic-" you get a word that translates to "anointed one" or
@@ -845,9 +861,9 @@ Theophilos in Greek. Around 26% of the New Testament was written to
 Theophilus in Luke and Acts of the Apostles).
 
 ![Fig.
-1.31](/images/AlexanderPhilo.jpg){:width="400px"}
+1.32](/images/AlexanderPhilo.jpg){:width="400px"}
 
-Fig. 1.31. (L) Alexander (grandson of King Herod) aka Gaius Julius
+Fig. 1.32. (L) Alexander (grandson of King Herod) aka Gaius Julius
 Alexander, Herodian Prince of Judaea aka Alexander the Alabarch aka
 (King/Tetrarch) Ptolemy (Alexander) bar Menneus aka Ptolemy of
 Mauretania aka "Jesus" in the bible. (R) Cleopatra (Thea Philopator) of
@@ -867,9 +883,9 @@ Adiabene/Edessa aka Ptolemy aka Yakov Zu Tolomoy aka Izates aka Jesus
 Emmanuel aka Monobazus of Adiabene [^23]
 
 ![Fig.
-1.32](/images/Josephus.jpg){:width="400px"}
+1.33](/images/Josephus.jpg){:width="400px"}
 
-Fig. 1.32. 'Josephus' bust which I identify as Tiberius Julius
+Fig. 1.33. 'Josephus' bust which I identify as Tiberius Julius
 Alexander. Compare it to Nerva's depictions. So, 'Josephus' was Philo of
 Alexandria's son. Tiberius Julius Alexander's son was named
 'Philopappos' and one of his mother's aliases was 'Alexandria bat
@@ -877,9 +893,9 @@ Matthias' which is where the pseudonym 'Joseph bar Matthias' comes from.
 Also, drop the initial b and final s in the name "Bar Mathias" and you
 get (Joseph of) Arimathea.
 
-![Fig. 1.33](/images/coin-abgar-phraates.png){:width="400px"}
+![Fig. 1.34](/images/coin-abgar-phraates.png){:width="400px"}
 
-Fig. 1.33. (L) and (R) show King Izates Monobazus of Edessa (known in
+Fig. 1.34. (L) and (R) show King Izates Monobazus of Edessa (known in
 Greek as the "Kingdom of Ourania" or in English as the "Kingdom of
 Heaven") wearing a crown of thorns. Izates or Izas is his title which is
 an ancient Greek translation of the Avestan word Yazatas (Persian:
@@ -890,9 +906,9 @@ source: The Alexander Mosaic, Huqoq, Israel.
 
 **5.3.6. Tiberius Julius Sauromates II**
 
-![Fig.1.34](/images/SauromatesII.jpg){:width="400px"}
+![Fig.1.35](/images/SauromatesII.jpg){:width="400px"}
 
-Fig. 1.34 Tiberius Julius Sauromates II, King of Bosphorus, who was the
+Fig. 1.35 Tiberius Julius Sauromates II, King of Bosphorus, who was the
 son of Tiberius Julius Cotys (aka Tiberius Julius Alexander aka Arrius
 Calpernius Piso aka Arrius Varus aka Emperor Nerva), great-grandson of
 Dynamis aka Cleopatra and Mark Antony. Does he look
@@ -903,13 +919,13 @@ means 'lizard' or 'reptile', and 'mates' means 'man' or 'warrior'.
 Therefore, translated literally ΒΑCΙΛΕΩC CΑVΡΟΜΑΤΟΥ means "King of the
 lizard people", or "king of the dragon people". He was the grandson (or great-grandson?) of Ptolemy XII Auletes aka Mark Antony aka Mithridates VI Eupator and his daughter Cleopatra aka Dynamis.
 
-![Fig.1.35](/images/Tamga.jpg){:width="400px"}
+![Fig.1.36](/images/Tamga.jpg){:width="400px"}
 
-Fig. 1.35 The royal Tamga (symbol/signature) of Tiberius Julius Sauromates II contains a cross and a Chi Rho.
+Fig. 1.36 The royal Tamga (symbol/signature) of Tiberius Julius Sauromates II contains a cross and a Chi Rho.
 
-![Fig.1.36](/images/SauromatesCross.jpg){:width="400px"}
+![Fig.1.37](/images/SauromatesCross.jpg){:width="400px"}
 
-Fig. 1.36 Coin of Tiberius Julius Sauromates II that displays a cross in the right corner.
+Fig. 1.37 Coin of Tiberius Julius Sauromates II that displays a cross in the right corner.
 
 Endnotes (Chapter 5)
 
@@ -944,9 +960,9 @@ King, and Pas means "all" as in Pan. "Vespasian" = "King of All", or "King of Ev
 'Flavius Scaevinus' the conspirator involved in Nero's assassination.
 
 ![Fig.
-1.37](/images/Vespasian.jpg){:width="400px"}
+1.38](/images/Vespasian.jpg){:width="400px"}
 
-Fig. 1.37. L. Vespasian. R. Herod Agrippa I
+Fig. 1.38. L. Vespasian. R. Herod Agrippa I
 
 'Antonia Caenis' was Vespassian's mistress who was his first cousin who
 was Cleopatra (Thea Philopator) of Mauretania aka Cleopatra IX aka
@@ -1046,7 +1062,7 @@ Then Mao-tse Dong used artificial weaponized famines and outright direct purges 
 
 The "Mauryan" Empire is a Flavian/Vatican fabrication. Chandragupta Maurya is Alexander the Great.
 
-Alexander was an Aryan dragon-king who was the son of Ateas the Scythian aka Artaxerxes
+Alexander was an Aryan dragon-king who was the grandson of Ateas the Scythian aka Artaxerxes
     II Memnon ("Kai Bahman") and half-brother of Darius III ("Darab").
     In India he took the regional aliases of Chandragupta Maurya
     ("Chandragupta" = "Sander-Gupta" (Scythian "Sander" = Alexander. "Aleks" = Greekization of "Alakh" which means "not seen" or "unseen" in Sanskrit/Hindi. "Gupta" = Hidden)). Greek sources (Megasthenes) refer to Chandragupta Maurya as "Sandrokottos" with the Sandro- deriving from Alexandros). "Aži-ander": Aži
@@ -1322,9 +1338,9 @@ Capitolina after the Bar Kokhba revolt (the city was named after Hadrian's famil
 that Aquila of Sinope and his wife Prisca or Priscilla lived with Paul
 the Apostle and Paul called them "my fellow workers in Christ Jesus"
 
-![Fig.1.38](/images/Antinous.jpg){:width="400px"}
+![Fig.1.39](/images/Antinous.jpg){:width="400px"}
 
-Fig. 1.38. Steel relief that shows Antinous holding the grapes of Dionysus in one-hand and a cross in the other.
+Fig. 1.39. Steel relief that shows Antinous holding the grapes of Dionysus in one-hand and a cross in the other.
 
 **9.3 Islam**
 
