@@ -63,7 +63,7 @@ Part 6: What Happened to the Scythians?\
 7.2 China: The Han Synthesis and the Tartarian Genocide\
 7.3. Ancient India: The Mauryan Mirage\
 7.4 The Middle East and North Africa: Invasions and Slave Colonization (250 - 650 CE)\
-7.5 Where Did The Scythian Aryans Go? The Refugia.\
+7.5 Where Did The Scythian Aryans Go? The Refugia\
 8\. Rewriting History\
 8.1 Inventing Ancient Greece\
 8.2 The 'Achaemenid' Empire is the Parthian Empire\
@@ -371,7 +371,7 @@ Thracians/Dacians
 The Bosporan and Dacian kingdoms controlled the Danube Delta and the Bosporus Strait—the two most critical chokepoints for Eurasian trade. Whoever controlled these points controlled the flow of goods, armies, and ideas between Europe and Asia. They didn't just rule an empire; they ruled the geography of civilization itself. Also, the massive gold mines of Dacia (modern Romania) were the financial engine of the "Roman" Empire. The output of these mines from 100 BC - 100 AD exceeds the total gold supply of the rest of the ancient world combined. The fact that Asander, king of Bosphrus is today an unknown historical figure despite the fact that he would have been the richest and most powerful man in the word at the time should be regarded as suspictious. The reason why you never heard of him is because you know him under another name: Julius Caesar.
 
 ![Fig.1.12](/images/Skyles.jpg){:width="400px"}\
-Fig. 1.12. Coin of Skyles, a Scythian king who reigned from ca 470-460 BC displaying a Scythian Solar Wheel and the World Tree combined. The cross was prominant in ancient Europe. It was a sundial and every city would have had one to track the time, dates, and agricultural and lunar cycles. "Skylesis" a Greek mockery of Skuða-las (Scythian King). The owl on the reverse side is the Owl of Athena also known as the Owl of Minerva, a sacred bird in Greek mythology that accompanies Athena. It shows up prominently in later Greek tetradrachms connecting him to Greece. For a Scythian king to carry that iconography shows direct interaction (*most ancient Scythian coins are crude, this one looks too polished, especially for one that is over 800 years old. I cannot trace it and it could be a forgery, but still posted here in the odd chace that it is legitimate).
+Fig. 1.12. Coin of Skyles, a Scythian king who reigned from ca 470-460 BC displaying a Scythian Solar Wheel and the World Tree combined. The cross was prominant in ancient Europe. It was a sundial and every city would have had one to track the time, dates, and agricultural and lunar cycles. "Skylesis" a Greek mockery of Skuða-las (Scythian King). The owl on the reverse side is the Owl of Athena also known as the Owl of Minerva, a sacred bird in Greek mythology that accompanies Athena. It shows up prominently in later Greek tetradrachms connecting him to Greece. For a Scythian king to carry that iconography shows direct interaction.
 
 The chromosome Haplogroup R1a, specifically subclade Z93 is found in high frequencies among the Scythian remains from the Pontic-Caspian Steppe. The Kshatriya (warrior) caste in India. The Brahmins (priestly) caste in India. The highest nobility of Persia. Patrician families of Rome. The Pharisaic and Herodian dynasties in Judea. The Sarmatian Alans who settled in Western Europe (and whose descendants include the Habsburgs). It is also found in the Tarim Mummies of China and in other tested ancient elite Chinese burial grounds (see: Chapter 7.4 China: The Han Synthesis and the Tartarian Genocide). This is the genetic signature of the administrative and priestly class that was installed globally.
 
@@ -707,18 +707,22 @@ crescent that is visible in the Julius Caesar coin above and the winged
 Pegasus within a Dionysiac wreath of ivy and fruit that is seen in the
 Asander coin?
 
-![Fig.1.27](/images/AriarathesIX.jpg){:width="400px"}
+![Fig.1.27](/images/PairisadesVofBosporus.jpg){:width="400px"}
 
-Fig. 1.27. Coin depicting Ariarathes IX Eusebes Philopator, King of
-Cappadocia. Notice the resemblance to Mithridates VI Eupator of Pontus?
+Fig. 1.27. Coin depicting Pairisades V, king of Bosporus
+
+![Fig.1.28](/images/AriarathesIX.jpg){:width="400px"}
+
+Fig. 1.28. Coin depicting Ariarathes IX Eusebes Philopator, King of
+Cappadocia (Central Anatolia/modern Turkey). Notice the resemblance to Mithridates VI Eupator of Pontus?
 Cleopatra aka Dynamis's son with Julius Caesar aka Asander = Tiberius
 Julius Aspurgus Philoromaios (Aspurgus translates to "horseman-lord" in
 Thracian languages. Sabazios was a Thracian deity worshipped as a
 horseman.).
 
-![Fig.1.28](/images/PtolemyApion.jpg){:width="400px"}
+![Fig.1.29](/images/PtolemyApion.jpg){:width="400px"}
 
-Fig. 1.28. Coin depicting Ptolemy Apion, king of Kyrene, Kyrenaica, North Africa. 
+Fig. 1.29. Coin depicting Ptolemy Apion, king of Kyrene, Kyrenaica, North Africa. 
 
 **5.3.2. Amyntas Nikator aka Amyntas, King of Galatia**
 
@@ -755,9 +759,9 @@ The Celts in classical Galatia worshiped a deity called
 Aesus/Esus/Iesus. Amyntas, as the god king of Galatia would have been the personification of Esus. "Esus" from "Aisus (Thracian Jove-variant). Esus is the Celtic pronunciation of Aisus. The Scythian root is Aes-, the same as the Aesir and Aesar. "Iesus" is the Latin rendering of "Esus." There was no "J" sound. He was always called Ie-Sus (Yay-soos), "The Esus."
 
 ![Fig.
-1.29](/images/Esus.jpg){:width="400px"}
+1.30](/images/Esus.jpg){:width="400px"}
 
-Fig. 1.29. Statue from classical Anatolia that is dedicated to "Esumopas
+Fig. 1.30. Statue from classical Anatolia that is dedicated to "Esumopas
 Cnusticus". Esumopas means "Slave to Esus", and Esus means lord in
 Proto-Celtic. If you combine the Etruscan word "cnus" with the suffix
 "-ticus" or "-tic-" you get a word that translates to "anointed one" or
@@ -841,9 +845,9 @@ Theophilos in Greek. Around 26% of the New Testament was written to
 Theophilus in Luke and Acts of the Apostles).
 
 ![Fig.
-1.30](/images/AlexanderPhilo.jpg){:width="400px"}
+1.31](/images/AlexanderPhilo.jpg){:width="400px"}
 
-Fig. 1.30. (L) Alexander (grandson of King Herod) aka Gaius Julius
+Fig. 1.31. (L) Alexander (grandson of King Herod) aka Gaius Julius
 Alexander, Herodian Prince of Judaea aka Alexander the Alabarch aka
 (King/Tetrarch) Ptolemy (Alexander) bar Menneus aka Ptolemy of
 Mauretania aka "Jesus" in the bible. (R) Cleopatra (Thea Philopator) of
@@ -863,9 +867,9 @@ Adiabene/Edessa aka Ptolemy aka Yakov Zu Tolomoy aka Izates aka Jesus
 Emmanuel aka Monobazus of Adiabene [^23]
 
 ![Fig.
-1.31](/images/Josephus.jpg){:width="400px"}
+1.32](/images/Josephus.jpg){:width="400px"}
 
-Fig. 1.31. 'Josephus' bust which I identify as Tiberius Julius
+Fig. 1.32. 'Josephus' bust which I identify as Tiberius Julius
 Alexander. Compare it to Nerva's depictions. So, 'Josephus' was Philo of
 Alexandria's son. Tiberius Julius Alexander's son was named
 'Philopappos' and one of his mother's aliases was 'Alexandria bat
@@ -873,9 +877,9 @@ Matthias' which is where the pseudonym 'Joseph bar Matthias' comes from.
 Also, drop the initial b and final s in the name "Bar Mathias" and you
 get (Joseph of) Arimathea.
 
-![Fig. 1.32](/images/coin-abgar-phraates.png){:width="400px"}
+![Fig. 1.33](/images/coin-abgar-phraates.png){:width="400px"}
 
-Fig. 1.32. (L) and (R) show King Izates Monobazus of Edessa (known in
+Fig. 1.33. (L) and (R) show King Izates Monobazus of Edessa (known in
 Greek as the "Kingdom of Ourania" or in English as the "Kingdom of
 Heaven") wearing a crown of thorns. Izates or Izas is his title which is
 an ancient Greek translation of the Avestan word Yazatas (Persian:
@@ -886,9 +890,9 @@ source: The Alexander Mosaic, Huqoq, Israel.
 
 **5.3.6. Tiberius Julius Sauromates II**
 
-![Fig.1.33](/images/SauromatesII.jpg){:width="400px"}
+![Fig.1.34](/images/SauromatesII.jpg){:width="400px"}
 
-Fig. 1.33 Tiberius Julius Sauromates II, King of Bosphorus, who was the
+Fig. 1.34 Tiberius Julius Sauromates II, King of Bosphorus, who was the
 son of Tiberius Julius Cotys (aka Tiberius Julius Alexander aka Arrius
 Calpernius Piso aka Arrius Varus aka Emperor Nerva), great-grandson of
 Dynamis aka Cleopatra and Mark Antony. Does he look
@@ -899,13 +903,13 @@ means 'lizard' or 'reptile', and 'mates' means 'man' or 'warrior'.
 Therefore, translated literally ΒΑCΙΛΕΩC CΑVΡΟΜΑΤΟΥ means "King of the
 lizard people", or "king of the dragon people". He was the grandson (or great-grandson?) of Ptolemy XII Auletes aka Mark Antony aka Mithridates VI Eupator and his daughter Cleopatra aka Dynamis.
 
-![Fig.1.34](/images/Tamga.jpg){:width="400px"}
+![Fig.1.35](/images/Tamga.jpg){:width="400px"}
 
-Fig. 1.34 The royal Tamga (symbol/signature) of Tiberius Julius Sauromates II contains a cross and a Chi Rho.
+Fig. 1.35 The royal Tamga (symbol/signature) of Tiberius Julius Sauromates II contains a cross and a Chi Rho.
 
-![Fig.1.35](/images/SauromatesCross.jpg){:width="400px"}
+![Fig.1.36](/images/SauromatesCross.jpg){:width="400px"}
 
-Fig. 1.35 Coin of Tiberius Julius Sauromates II that displays a cross in the right corner.
+Fig. 1.36 Coin of Tiberius Julius Sauromates II that displays a cross in the right corner.
 
 Endnotes (Chapter 5)
 
@@ -940,9 +944,9 @@ King, and Pas means "all" as in Pan. "Vespasian" = "King of All", or "King of Ev
 'Flavius Scaevinus' the conspirator involved in Nero's assassination.
 
 ![Fig.
-1.36](/images/Vespasian.jpg){:width="400px"}
+1.37](/images/Vespasian.jpg){:width="400px"}
 
-Fig. 1.36. L. Vespasian. R. Herod Agrippa I
+Fig. 1.37. L. Vespasian. R. Herod Agrippa I
 
 'Antonia Caenis' was Vespassian's mistress who was his first cousin who
 was Cleopatra (Thea Philopator) of Mauretania aka Cleopatra IX aka
@@ -1142,13 +1146,16 @@ Genetic Table (with specific subclades):
 | **Anatolia**     | **R1a-Z93**, **R1b-Z2103** (Hittite/Luwian elite) | **J2-M172**, **R1b-M269** (Armenian/Greek), later **Turkic Q**        | The "Byzantine-Arab" wars were a **demographic pump**, clearing the plateau for later Turkic settlement. Theme system broke old land patterns. |
 | **North Africa** | **R1b-V88** (Garamantes), **R1a-Z93** (Numidian cavalry elite) | **E-M81** (Berber), **J1-M267**                                        | **Vandal kingdom was the last R1a elite.** Its destruction by Byzantium (534 CE) was the key event. Subsequent "Arab" invasions were clean-up operations. |
 
-**7.5 Where Did The Scythian Aryans Go? The Refugia.**
+**7.5 Where Did The Scythian Aryans Go? The Refugia**
 
 The Scythians did not completely vanish. Some were pushed to the geographic and social margins:
 
 1  Mountain Refugia: The Pashtuns (R1a-Z93 >40%), Pamiri peoples, Kalash, Druze, Maronites, Kabyles, Basques (high R1b, but of the older, non-steppe variant). These groups often have oral traditions of "fleeing the lowlands".
+
 2  Caste Systems: In India, the Brahmins and Kshatriyas retain significantly higher R1a-Z93 frequencies than lower castes. The caste system fossilized the genetic hierarchy just as the replacement wave hit.
+
 3  The European Nobility: A fraction fled west, becoming the nucleus of the "Gothic" and later "Frankish" nobility. Their "divine right of kings" was a corrupted memory of the Dragon King mandate. This explains why medieval European royal lineages are obsessed with Trojan (i.e., Anatolian) and Scythian origins.
+
 4  The Ghetto and the Diaspora: Some of the defeated R1a elite were absorbed into the Jewish communities of the Diaspora as converts, explaining the presence of R1a lineages (like R1a-YP263) in Ashkenazi Levites—a conquered priesthood absorbed by the victorious priestly class.
 
 The "Great Replacement" is not a modern theory. It is an ancient, completed historical fact. The peoples now called "Arabs," "Turks," and "Middle Easterners" are largely the successful result of this replacement—a slave-soldier derived population ruled by a priest-financier elite that orchestrated the downfall of its former Scythian masters.
@@ -1315,9 +1322,9 @@ Capitolina after the Bar Kokhba revolt (the city was named after Hadrian's famil
 that Aquila of Sinope and his wife Prisca or Priscilla lived with Paul
 the Apostle and Paul called them "my fellow workers in Christ Jesus"
 
-![Fig.1.37](/images/Antinous.jpg){:width="400px"}
+![Fig.1.38](/images/Antinous.jpg){:width="400px"}
 
-Fig. 1.37. Steel relief that shows Antinous holding the grapes of Dionysus in one-hand and a cross in the other.
+Fig. 1.38. Steel relief that shows Antinous holding the grapes of Dionysus in one-hand and a cross in the other.
 
 **9.3 Islam**
 
