@@ -1074,9 +1074,9 @@ did not end in Babylon and his dynastic line did not actually die out
 (See also: "Alexander and Chandragupta in Sanskrit D" by Ranajit Pal
 [32]).
 
-Chandragupta Maurya/Alexander's successor in India "Bindusara" (whose
-name derives from Vindusara (Sanskrit: "one whose essence is poison"), a
-nod to the Mithridatic lineage) was either Heracles/Helios, Alexander's
+Chandragupta Maurya/Alexander's successor in India was "Bindusara" (whose
+name derives from Vindusara (Sanskrit: "one whose essence is poison", a
+nod to the Mithridatic lineage. Also, Bindusara was called "Amitrachates". This name connect to Mithridates (Amitra (A-Mitra) + -chates which is a direct phonetic variant of -dates)) who was either Heracles/Helios, Alexander's
 son by Barsine, or Alexander IV, Alexander's son by Roxana. Bindusara =
 Ptolemy II Philadelphus (also Ariarathes III of Cappadocia? -
 "Arya-Ratha". Sanskrit: "Noble Charioteer").
