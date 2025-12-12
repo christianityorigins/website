@@ -45,12 +45,12 @@ Part 4: The Bosphoran Connection\
 5\. Rome On the Bosphorus River\
 5.1\. Julius Caesar aka Asander, King of Bosphorus aka Mithridates Chrestus\
 5.1.1\. Julius Caesar was a Title\
-5.1.2 Julius Caesar aka Asander's Suspected Aliases\
-5.2 Cleopatra VII aka Dynamis Ourania aka Pythodorida Philometor\
+5.1.2. Julius Caesar aka Asander's Suspected Aliases\
+5.2. Cleopatra VII aka Dynamis Ourania aka Pythodorida Philometor\
 5.3. Dragon Bloodline Descendants\
 5.3.1. Ptolemy XII Auletes aka Mark Antony aka Mithridates VI Eupator\
 5.3.2. Amyntas Nikator aka Amyntas, King of Galatia\
-5.3.2.1 Was Amyntas Nikator aka Amyntas, King of Galatia the Living Esus?\
+5.3.2.1. Was Amyntas Nikator aka Amyntas, King of Galatia the Living Esus?\
 5.3.3. Alexander, son of King Herod aka Alexander Helios aka Juba II\
 5.3.4. Aliases and Avatars of the Bloodline\
 5.3.5. Izates II, King of Adiabene\
@@ -59,19 +59,19 @@ Part 5: From Imperial Cult to Christianity\
 6\. Flavian Dynasty\
 Part 6: What Happened to the Scythians?\
 7\. The Demographic Erasure of the Scythian-Aryan Hegemony\
-7.1 The Flavians (c. 50 BCE – 300 CE)\
-7.2 China: The Han Synthesis and the Tartarian Genocide\
+7.1. The Flavians (c. 50 BCE – 300 CE)\
+7.2. China: The Han Synthesis and the Tartarian Genocide\
 7.3. Ancient India: The Mauryan Mirage\
-7.4 The Middle East and North Africa: Invasions and Slave Colonization (250 - 650 CE)\
-7.5 Where Did The Scythian Aryans Go? The Refugia\
+7.4. The Middle East and North Africa: Invasions and Slave Colonization (250 - 650 CE)\
+7.5. Where Did The Scythian Aryans Go? The Refugia\
 8\. Rewriting History\
-8.1 Inventing Ancient Greece\
-8.2 The 'Achaemenid' Empire is the Parthian Empire\
-8.3 Fabricating 'Ancient' Egypt\
-8.4 The Church Fathers\
+8.1. Inventing Ancient Greece\
+8.2. The 'Achaemenid' Empire is the Parthian Empire\
+8.3. Fabricating 'Ancient' Egypt\
+8.4. The Church Fathers\
 Part 7. Sects of the Imperial Cult\
 9\. Identifying the Flavian Scribes\
-9.1 Christianity\
+9.1. Christianity\
 9.2. The Cult of Antinous\
 9.3. Islam\
 Conclusion\
@@ -194,14 +194,14 @@ I. The Ptolemaic, Julio-Claudian & Bosphoran Bloodline
 Mainstream history presents the Ptolemies, Seleucids, Attalids, and Romans as separate, often warring entities. This is a Flavian-Vatican fabrication. In reality, they were four branches of a single Scythian-Sarmatian dynasty, a "Tetrarchy", administering different sectors of the empire from the Bosphoran center.
 
 - Mithridates VI Eupator of Pontus = Ptolemy XII Auletes of Egypt
-  Aliases: Mark Antony (Marcus Antonius = Mar (Phoenician "lord") + Anton (from Antaeus, giant son of Gaia)), King Herod (Heru (Horus) + Ud (divine) = Herud -> Herod. "The Divine Horus". The "Slaughter of the Innocents" is a mythological trope attached to the birth of every Horus-figure who must overcome a threat (against Set). It is not history; it is theological propaganda asserting Herod's/Mark Antony's legitimacy as the living god-king against the resurrected one. This is also attached to the Indian god Krishna (against Kamsa)), Polemon Pythodoros, King of Pontus, prince of Pontus  (Polemos -> Ptolemy) aka Pharnaces II ("Pharao-Nikes", or "Victorious Pharaoh"), Tiberius Claudius Nero, Phraates IV of Parthia (Per-aa or Per-Nesu is a corruption of Pharaoh). Ariarathes IX (Arya-Ratha". Sanskrit:"Noble Charioteer") Eusebes Philopator, King of Cappadocia. Was he also Ptolemy X Alexander I aka Simon Boethus aka Simon Magus? Hyspaosines of Characene?
+  Aliases: Mark Antony (Marcus Antonius = Mar (Phoenician "lord") + Anton (from Antaeus, giant son of Gaia)), King Herod (Heru (Horus) + Ud (divine) = Herud -> Herod. "The Divine Horus". The "Slaughter of the Innocents" is a mythological trope attached to the birth of every Horus-figure who must overcome a threat (against Set). It is not history; it is theological propaganda asserting Herod's/Mark Antony's legitimacy as the living god-king against the resurrected one. This is also attached to the Indian god Krishna (against Kamsa)), Polemon Pythodoros, King of Pontus, prince of Pontus  (Polemos -> Ptolemy) aka Pharnaces II ("Pharao-Nikes", or "Victorious Pharaoh"), Tiberius Claudius Nero, Phraates IV of Parthia (Per-aa or Per-Nesu is a corruption of Pharaoh). Ariarathes IX (Arya-Ratha". Sanskrit:"Noble Charioteer") Eusebes Philopator, King of Cappadocia. Was he also Ptolemy X Alexander I aka Simon Boethus aka Simon Magus? Hyspaosines of Characene? Mithridates VI Eupator and Mark Antony are both recorded as marrying a sister-wife named Cleopatra (Antony to Cleopatra VII; Mithridates to Laodice, who used "Cleopatra" as a throne name). The Shekel of Tyre minted by Herod depicts Mark Antony and Hercules and Herod built temples to Hercules in Beirut and Tyre, and depicted himself as Hercules in his Herodian Cult. Herod's son Herod Antipas shares the name of Mark Antony's son Antyllus; Herod's other son Antipater was Iullus Antonius (Mark Antony's son with Fulvia).
   - Spouse: Wife/sister: Laodice (in Pontus) = Cleopatra V Tryphaena (in Egypt)
   - Children:
     - Cleopatra VII Thea Philopator aka Dynamis, queen of Bosphorus, Cleopatra of Pontus, Pythodorida, queen of Pontus, Musa Thea Urania of Parthia (Parthian queen mother, same "Heavenly Goddess" title). Also, Amanirenas ("Amon is Lord"), Kandake of Kush?
-    - Ptolemy XIII Theos Philopator aka Gaius Octavius (Emperor Augustus). Aliases: Polemon I of Pontus. Gaius Julius Sohaemus of Emesa. Rhoemetalces I (a classic Thracian royal name, linking to the "Rome" = "Ruma" etymology. Rhoemetalces = "king of Rhome", or "king of Rome" in ancient Thracian), king of Bosphorus. Rhoemetalces Philocaesar of Pontus was the son of Marcus Antonius Polemon Pythodoros was married to Pythodoris I (Cleopatra). Polemon I of Pontus was married to Dynamis (Cleopatra). Cleopatra was married to her brother Ptolemy XIII Theos Philopator who was born at the same time as Augustus. He was her brother husband. Asander was also married to Pythodoris I and Dynamis proving these were Cleopatra's aliases.
+    - Ptolemy XIII Theos Philopator aka Gaius Octavius (Emperor Augustus). Aliases: Polemon I of Pontus. Gaius Julius Sohaemus of Emesa. Rhoemetalces I (a classic Thracian royal name, linking to the "Rome" = "Ruma" etymology. Rhoemetalces = "king of Rhome", or "king of Rome" in ancient Thracian), king of Bosphorus. Rhoemetalces Philocaesar of Pontus was the son of Marcus Antonius Polemon Pythodoros was married to Pythodoris I (Cleopatra). Polemon I of Pontus was married to Dynamis (Cleopatra). Cleopatra was married to her brother Ptolemy XIII Theos Philopator who was born at the same time as Augustus. He was her brother husband. Asander was also married to Pythodoris I and Dynamis proving these were Cleopatra's aliases. Both Cleopatra and Dynamis are recorded as the mother of a king named Ptolemy Philadelphus.
 
 - Julius Caesar = Asander, King of Bosporus aka Ptolemy of Cyprus (brother of Ptolemy XII Auletes and husband of "Mithridates") aka Mithridates Chrestus, King of Pontus VI (brother of Mithridates VI, king of Pontus).
-  Titles: Philocaesar Philoromaios, Soter, Great King of Kings, "As" in his name refers to Asar(Osiris)/Aesar/Aeser/Aisar/Ais/Is). Other suspected aliases: Akrosandros II, King of Scythia, Brogitarix, Idumean Antipater, Parthian Artavasdes (Greek Alex = Persian Arta) who was the brother of Tigranes II (Tigranes II/the Great was called Azhdahak proving Aži Dahāka was a royal Scythian title), and the Hasmonean Alexander II (son of king Aristobulus II son of Jannaeus Alexander also the nephew and son-in-law of king/high-priest Hyrcanus II. Also, Julius = Janneus? Or Janneus (Yannai) is related to the Roman name Gaius?). juba I, King of Mauretania, Burebista, King of the Dacians, Atrebates, king of Britannia. Also Prince Jin Midi in China? Jin (金) means "Gold," a royal Scythian attribute. Mi (日) is "Sun." Di (磾) is a rare character meaning "black," but also a homophone for "Emperor" (帝). His story: A noble "barbarian" prince from the West (Xiongnu confederation, which included Saka/Scythians) is captured and rises to become the most powerful man in China, serving as regent to a child emperor. This is the exact same narrative archetype as a foreigner (Caesar) rising to power in Rome.
+  Titles: Philocaesar Philoromaios, Soter, Great King of Kings, "As" in his name refers to Asar(Osiris)/Aesar/Aeser/Aisar/Ais/Is). Other suspected aliases: Akrosandros II, King of Scythia, Brogitarix, Idumean Antipater, Parthian Artavasdes (Greek Alex = Persian Arta) who was the brother of Tigranes II (Tigranes II/the Great was called Azhdahak proving Aži Dahāka was a royal Scythian title), and the Hasmonean Alexander II (son of king Aristobulus II son of Jannaeus Alexander also the nephew and son-in-law of king/high-priest Hyrcanus II. Also, Julius = Janneus? Or Janneus (Yannai) is related to the Roman name Gaius?). juba I, King of Mauretania, Burebista, King of the Dacians, Atrebates, king of Britannia. Also Prince Jin Midi in China? Jin (金) means "Gold," a royal Scythian attribute. Mi (日) is "Sun." Di (磾) is a rare character meaning "black," but also a homophone for "Emperor" (帝). His story: A noble "barbarian" prince from the West (Xiongnu confederation, which included Saka/Scythians) is captured and rises to become the most powerful man in China, serving as regent to a child emperor. This is the exact same narrative archetype as a foreigner (Caesar) rising to power in Rome. Caesar's heir is Augustus. Asander's named successor is Aspurgus.
   - Spouse/Consort: Cleopatra VII (Isis who in mythology was the wife of Osiris and the mother of Horus): Dynamis Ourania (Aphrodite Urania). Aliases: Pythodorida Philometor (Pytho- from python, and -doria from the Dorian tribe who were Scythian Greeks). Also, Amanirenas ("Amon is Lord"), Kandake of Kush?
   - Children:
     - Emperor Tiberius Julius Caesar Augustus. Alias: Tiberius Julius Aspurgus, king of Bosphorus (Aspurgos calls himself the son of "the great king of Asandrokhos" in an inscription. https://www.researchgate.net/publication/390912485_Aspurgos_-_the_king_of_Bosporan_state_98_BC_-_AD_38). Also likely Kujula Kadphises, prince of Bactria. Also, was he the legendary Chinese emperor Yu the Great (original name "Aži" or "Yazhi" (亞茲))? Julius, from Ioulius, related to Iove (Jove). Iove is linguistically linked to the Scythian tribal name Yuehzi (Yuezhi). He is "The Jove/Yuezhi King"?
@@ -211,10 +211,10 @@ Mainstream history presents the Ptolemies, Seleucids, Attalids, and Romans as se
         - Tiberius Julius Cotys I. Italian Avatar: Emperor Claudius = Rhoemetalces II of Bosporus (Reigns are nearly perfectly co-terminus. Polemon Pythodoros (Julius Caesar/Asander) and Pythodorida of Pontus (Cleopatra/Dynamis) had a daughter Antonia Tryphaena. Her son was Rhoemetalces II whose reign coincided with emperor Claudius)
 
 - Child of Antony/Herod & Dynamis/Cleopatra:
-  - Alexander (son of King Herod). Aliases: Alexander Helios, Juba II of Mauretania. Also, Apollonius of Tyana?
+  - Alexander (son of King Herod). Aliases: Alexander Helios, Juba II of Mauretania. Juba II is titled "Ptolemy" upon accession in Mauretania. Also, Apollonius of Tyana?
     - Spouse: Cleopatra Selene II (twin sister)
     - Children:
-      - Alexander (grandson of King Herod). Aliases: (King/Tetrarch) Ptolemy (Alexander) bar Menneus, Ptolemy of Mauretania (aka  Panthera, the name for jesus's father in the Talmud; Panthera is a corruption of Cantheras, or Cleopatros. Also, Panthera = Ptolemy in Hebrew), Tiberius Julius Alexander Major, Alexander the Alabarch
+      - Alexander (grandson of King Herod). Aliases: (King/Tetrarch) Ptolemy (Alexander) bar Menneus, Ptolemy of Mauretania (aka  Panthera, the name for jesus's father in the Talmud; Panthera is a corruption of Cantheras, or Cleopatros. Also, Panthera = Ptolemy in Hebrew), Tiberius Julius Alexander Major, Alexander the Alabarch. Also, Gondophares, Indo-Parthian King?
         - Spouse: Cleopatra (Thea Philopator) of Mauretania. Aliases: Cleopatra IX, Helene, Drusilla of Mauretania, Julia Ourania of Parthia, Philo of Alexandria. She was also Claudius and Nero's secretary "Pallas", and "Antonia Caenis" who was Vespasian's first cousin and mistress (the full name of Pallas was Marcus Antonius Pallas, with the Antonius part being an obvious sign of descent from Mark Antony and that Pallas wasn’t a random slave. Caenis was the Greek goddess who was transformed into a man, and she role-played as two men: Marcus Antonius Pallas and Philo).
         - Children:
           - Tiberius Julius Alexander: Emperor Nerva, Arrius Piso, Josephus
@@ -583,7 +583,7 @@ Fig. 1.20. Coin of Diviciacus (Aedui). A Druid and chieftain of the Aedu tribe. 
 Fig. 1.21. Coin depicting Iuba I, king of Mauretania (a territory that encompassed most of North Africa). Julius Caesar adopted his son Juba II who's full name was Gaius Iulius Iuba, prenomen and nomen after Gaius Iulius Caesar, and 'Iuba' is likely a
 diminutive of 'Iehuva' which traces to Jove/Jupiter. Juba I was the claimed royal heir of the Massylii
 tribe, which is the 'Messiah' lineage from David's firstborn son with
-Saul's daughter Michal. Juba II was the biological son of Cleopatra aka Dynamis and her father Ptolemy XII Auletes aka Mark Antony aka Mithridates VI Eupator.
+Saul's daughter Michal. Juba II was the biological son of Cleopatra aka Dynamis and her father Ptolemy XII Auletes aka Mark Antony aka Mithridates VI Eupator. Juba II is titled "Ptolemy" upon accession in Mauretania.
 
 ![Fig.1.22](/images/Kanites.jpg){:width="400px"}
 
@@ -593,13 +593,18 @@ Fig. 1.2. Coin depicting Kanites, King of Scythia. The root comes from "Khan" = 
 
 Fig. 1.23. Coin depicting Obodas II, king of the Nabataeans (modern northern Arabia and the southern Levant. The capital was Petra).
 
+![Fig.1.24](/images/PacorusIofParthia.jpg){:width="400px"}
+
+Fig. 1.24. Coin depicting Pacorus I of Parthia. Brother of Phraates IV of Parthia (Ptolemy XII Auletes aka Mark Antony aka Mithridates VI Eupator).
+
+
 **5.2 Cleopatra VII aka Dynamis Ourania aka Pythodorida Philometor**
 
 Cleopatra VII was the archtype, not the avatar, for the "Jesus" figure. She was the living Soteira (feminine Soter), Thea (Goddess), and "Queen of Kings". She was the descendant of the Scythian Dracaena, or the snake-legged goddess who was the mother of the Scythians in mythology.
 
-![Fig.1.24](/images/Cleopatra%20VIIDynamis.png){:width="400px"}
+![Fig.1.25](/images/Cleopatra%20VIIDynamis.png){:width="400px"}
 
-Fig. 1.24. (L) Dynamis, Queen of Bosphorus, (R) Cleopatra VII. There were
+Fig. 1.25. (L) Dynamis, Queen of Bosphorus, (R) Cleopatra VII. There were
 obviously many years between the ages at which she was depicted,
 however, even in the elder Dynamis bust you can see her lazy eye and
 abnormally large eyes which she was reported to have had, possibly as a
@@ -607,9 +612,9 @@ consequence of inbreeding. The hat she is wearing is a Phrygian cap, a
 distinctivehat that is closely associated with the Roman god Mithras.
 Dynamis was recorded as being of "Sarmatian" ancestry.
 
-![Fig.1.25](/images/cleopatra.png){:width="400px"}
+![Fig.1.26](/images/cleopatra.png){:width="400px"}
 
-Fig. 1.25. (L) Julia Mamaea, Queen of Pontus (wife of Polemon II), (R)
+Fig. 1.26. (L) Julia Mamaea, Queen of Pontus (wife of Polemon II), (R)
 Cleopatra VII. Polemon Pythodoros, King of Pontus was a regional alias
 of Julius Caesar/Asander (as Asander and Polemon were both married to
 Dynamis), and if he also played the religious role of Gaius Julius
@@ -691,9 +696,9 @@ Boethus was another of Cleopatra's regional aliases?  If you identify
 King Herod as Mark Antony aka Tiberius Claudius Nero aka Phraates IV of
 Parthia's regional alias then the picture becomes clearer.
 
-![Fig.1.26](/images/PtolemyXII.jpeg){:width="400px"}
+![Fig.1.27](/images/PtolemyXII.jpeg){:width="400px"}
 
-Fig. 1.26. Ptolemy XII Auletes, king of Egypt, who was also Mithridates
+Fig. 1.27. Ptolemy XII Auletes, king of Egypt, who was also Mithridates
 VI Eupator, Ariarathes IX of Cappadocia, Simon Boethus/Magus/Ptolemy
 (Alexander) bar Menneus, et.al. Mithridates VI married his sister
 Laodice---just as Ptolemy XII married his sister Cleopatra V. Both had
@@ -718,30 +723,30 @@ even has a story about a 'spurious Alexander' that showed up in Rome
 claiming to be the son of Herod who faked his death [^20], so he was
 'resurrected' as Juba II, king of Numidia and Mauretania. 
 
-![Fig.1.27](/images/MithridatesVIEupator.jpg){:width="400px"}
+![Fig.1.28](/images/MithridatesVIEupator.jpg){:width="400px"}
 
-Fig. 1.27. Coin depicting Mithridates VI Eupator, father of Pharnaces II
+Fig. 1.28. Coin depicting Mithridates VI Eupator, father of Pharnaces II
 and Dynamis. Brother of Mithridates Chrestus. Notice the star and
 crescent that is visible in the Julius Caesar coin above and the winged
 Pegasus within a Dionysiac wreath of ivy and fruit that is seen in the
 Asander coin?
 
-![Fig.1.28](/images/PairisadesVofBosporus.jpg){:width="400px"}
+![Fig.1.29](/images/PairisadesVofBosporus.jpg){:width="400px"}
 
-Fig. 1.28. Coin depicting Pairisades V, king of Bosporus
+Fig. 1.29. Coin depicting Pairisades V, king of Bosporus
 
-![Fig.1.29](/images/AriarathesIX.jpg){:width="400px"}
+![Fig.1.30](/images/AriarathesIX.jpg){:width="400px"}
 
-Fig. 1.29. Coin depicting Ariarathes IX Eusebes Philopator, King of
+Fig. 1.30. Coin depicting Ariarathes IX Eusebes Philopator, King of
 Cappadocia (Central Anatolia/modern Turkey). Notice the resemblance to Mithridates VI Eupator of Pontus?
 Cleopatra aka Dynamis's son with Julius Caesar aka Asander = Tiberius
 Julius Aspurgus Philoromaios (Aspurgus translates to "horseman-lord" in
 Thracian languages. Sabazios was a Thracian deity worshipped as a
 horseman.).
 
-![Fig.1.30](/images/PtolemyApion.jpg){:width="400px"}
+![Fig.1.31](/images/PtolemyApion.jpg){:width="400px"}
 
-Fig. 1.30. Coin depicting Ptolemy Apion, king of Kyrene, Kyrenaica, North Africa. 
+Fig. 1.31. Coin depicting Ptolemy Apion, king of Kyrene, Kyrenaica, North Africa. 
 
 **5.3.2. Amyntas Nikator aka Amyntas, King of Galatia**
 
@@ -778,9 +783,9 @@ The Celts in classical Galatia worshiped a deity called
 Aesus/Esus/Iesus. Amyntas, as the god king of Galatia would have been the personification of Esus. "Esus" from "Aisus (Thracian Jove-variant). Esus is the Celtic pronunciation of Aisus. The Scythian root is Aes-, the same as the Aesir and Aesar. "Iesus" is the Latin rendering of "Esus." There was no "J" sound. He was always called Ie-Sus (Yay-soos), "The Esus."
 
 ![Fig.
-1.31](/images/Esus.jpg){:width="400px"}
+1.32](/images/Esus.jpg){:width="400px"}
 
-Fig. 1.31. Statue from classical Anatolia that is dedicated to "Esumopas
+Fig. 1.32. Statue from classical Anatolia that is dedicated to "Esumopas
 Cnusticus". Esumopas means "Slave to Esus", and Esus means lord in
 Proto-Celtic. If you combine the Etruscan word "cnus" with the suffix
 "-ticus" or "-tic-" you get a word that translates to "anointed one" or
@@ -864,9 +869,9 @@ Theophilos in Greek. Around 26% of the New Testament was written to
 Theophilus in Luke and Acts of the Apostles).
 
 ![Fig.
-1.32](/images/AlexanderPhilo.jpg){:width="400px"}
+1.33](/images/AlexanderPhilo.jpg){:width="400px"}
 
-Fig. 1.32. (L) Alexander (grandson of King Herod) aka Gaius Julius
+Fig. 1.33. (L) Alexander (grandson of King Herod) aka Gaius Julius
 Alexander, Herodian Prince of Judaea aka Alexander the Alabarch aka
 (King/Tetrarch) Ptolemy (Alexander) bar Menneus aka Ptolemy of
 Mauretania aka "Jesus" in the bible. (R) Cleopatra (Thea Philopator) of
@@ -886,9 +891,9 @@ Adiabene/Edessa aka Ptolemy aka Yakov Zu Tolomoy aka Izates aka Jesus
 Emmanuel aka Monobazus of Adiabene [^23]
 
 ![Fig.
-1.33](/images/Josephus.jpg){:width="400px"}
+1.34](/images/Josephus.jpg){:width="400px"}
 
-Fig. 1.33. 'Josephus' bust which I identify as Tiberius Julius
+Fig. 1.34. 'Josephus' bust which I identify as Tiberius Julius
 Alexander. Compare it to Nerva's depictions. So, 'Josephus' was Philo of
 Alexandria's son. Tiberius Julius Alexander's son was named
 'Philopappos' and one of his mother's aliases was 'Alexandria bat
@@ -896,9 +901,9 @@ Matthias' which is where the pseudonym 'Joseph bar Matthias' comes from.
 Also, drop the initial b and final s in the name "Bar Mathias" and you
 get (Joseph of) Arimathea.
 
-![Fig. 1.34](/images/coin-abgar-phraates.png){:width="400px"}
+![Fig. 1.35](/images/coin-abgar-phraates.png){:width="400px"}
 
-Fig. 1.34. (L) and (R) show King Izates Monobazus of Edessa (known in
+Fig. 1.35. (L) and (R) show King Izates Monobazus of Edessa (known in
 Greek as the "Kingdom of Ourania" or in English as the "Kingdom of
 Heaven") wearing a crown of thorns. Izates or Izas is his title which is
 an ancient Greek translation of the Avestan word Yazatas (Persian:
@@ -909,9 +914,9 @@ source: The Alexander Mosaic, Huqoq, Israel.
 
 **5.3.6. Tiberius Julius Sauromates II**
 
-![Fig.1.35](/images/SauromatesII.jpg){:width="400px"}
+![Fig.1.36](/images/SauromatesII.jpg){:width="400px"}
 
-Fig. 1.35 Tiberius Julius Sauromates II, King of Bosphorus, who was the
+Fig. 1.36 Tiberius Julius Sauromates II, King of Bosphorus, who was the
 son of Tiberius Julius Cotys (aka Tiberius Julius Alexander aka Arrius
 Calpernius Piso aka Arrius Varus aka Emperor Nerva), great-grandson of
 Dynamis aka Cleopatra and Mark Antony. Does he look
@@ -922,17 +927,17 @@ means 'lizard' or 'reptile', and 'mates' means 'man' or 'warrior'.
 Therefore, translated literally ΒΑCΙΛΕΩC CΑVΡΟΜΑΤΟΥ means "King of the
 lizard people", or "king of the dragon people". But note that at the root is "ROM"? If Sauromatians or Sauromates originally connotated Rome/Rhome/Rum (Sauro-mates -> Rhomo-mates -> Romani?) then this would prove my theories beyond any doubt. He was the grandson (or great-grandson?) of Ptolemy XII Auletes aka Mark Antony aka Mithridates VI Eupator and his daughter Cleopatra aka Dynamis.
 
-![Fig.1.36](/images/Tamga.jpg){:width="400px"}
+![Fig.1.37](/images/Tamga.jpg){:width="400px"}
 
-Fig. 1.36 The royal Tamga (symbol/signature) of Tiberius Julius Sauromates II contains a cross and a Chi Rho.
+Fig. 1.37 The royal Tamga (symbol/signature) of Tiberius Julius Sauromates II contains a cross and a Chi Rho.
 
-![Fig.1.37](/images/SauromatesCross.jpg){:width="400px"}
+![Fig.1.38](/images/SauromatesCross.jpg){:width="400px"}
 
-Fig. 1.37 Coin of Tiberius Julius Sauromates II that displays a cross in the right corner.
+Fig. 1.38 Coin of Tiberius Julius Sauromates II that displays a cross in the right corner.
 
-![Fig.1.38](/images/SauromatesBust.jpg){:width="400px"}
+![Fig.1.39](/images/SauromatesBust.jpg){:width="400px"}
 
-Fig. 1.38 Bust of Tiberius Julius Sauromates II found at the theatre of Dionysos, Athens. The bust depicts him emerging from a cluster of acanthus leaves at the base symbolizing resurrection. Acanthus leaves are one of the most potent symbols of resurrection in ancient Mediterranean art. Acanthus leaves symbolize rebirth, immortality, and the cyclical nature of life in art and architecture. Acanthus leaves are often used in Christian art to depict the resurrection of Jesus Christ.
+Fig. 1.39 Bust of Tiberius Julius Sauromates II found at the theatre of Dionysos, Athens. The bust depicts him emerging from a cluster of acanthus leaves at the base symbolizing resurrection. Acanthus leaves are one of the most potent symbols of resurrection in ancient Mediterranean art. Acanthus leaves symbolize rebirth, immortality, and the cyclical nature of life in art and architecture. Acanthus leaves are often used in Christian art to depict the resurrection of Jesus Christ.
 
 Endnotes (Chapter 5)
 
@@ -967,9 +972,9 @@ King, and Pas means "all" as in Pan. "Vespasian" = "King of All", or "King of Ev
 'Flavius Scaevinus' the conspirator involved in Nero's assassination.
 
 ![Fig.
-1.39](/images/Vespasian.jpg){:width="400px"}
+1.40](/images/Vespasian.jpg){:width="400px"}
 
-Fig. 1.98. L. Vespasian. R. Herod Agrippa I
+Fig. 1.40. L. Vespasian. R. Herod Agrippa I
 
 'Antonia Caenis' was Vespassian's mistress who was his first cousin who
 was Cleopatra (Thea Philopator) of Mauretania aka Cleopatra IX aka
@@ -1345,9 +1350,9 @@ Capitolina after the Bar Kokhba revolt (the city was named after Hadrian's famil
 that Aquila of Sinope and his wife Prisca or Priscilla lived with Paul
 the Apostle and Paul called them "my fellow workers in Christ Jesus"
 
-![Fig.1.40](/images/Antinous.jpg){:width="400px"}
+![Fig.1.41](/images/Antinous.jpg){:width="400px"}
 
-Fig. 1.40. Steel relief that shows Antinous holding the grapes of Dionysus in one-hand and a cross in the other.
+Fig. 1.41. Steel relief that shows Antinous holding the grapes of Dionysus in one-hand and a cross in the other.
 
 **9.3 Islam**
 
