@@ -917,10 +917,10 @@ Calpernius Piso aka Arrius Varus aka Emperor Nerva), great-grandson of
 Dynamis aka Cleopatra and Mark Antony. Does he look
 familiar? ΒΑCΙΛΕΩC CΑVΡΟΜΑΤΟΥ in the above coin translates to "King of
 the Sauromatians". Sauromates is a Greek rendering of 'Sarmatian',
-referring to the Scythian tribe who came from the Pontic steppe. 'Saur'
+referring to the Scythian tribe who came from the Pontic steppe. Taken literally 'Saur'
 means 'lizard' or 'reptile', and 'mates' means 'man' or 'warrior'.
 Therefore, translated literally ΒΑCΙΛΕΩC CΑVΡΟΜΑΤΟΥ means "King of the
-lizard people", or "king of the dragon people". He was the grandson (or great-grandson?) of Ptolemy XII Auletes aka Mark Antony aka Mithridates VI Eupator and his daughter Cleopatra aka Dynamis.
+lizard people", or "king of the dragon people". But note that at the root is "ROM"? If Sauromatians or Sauromates originally connotated Rome/Rhome/Rum then this would prove my theories beyond any doubt. He was the grandson (or great-grandson?) of Ptolemy XII Auletes aka Mark Antony aka Mithridates VI Eupator and his daughter Cleopatra aka Dynamis.
 
 ![Fig.1.36](/images/Tamga.jpg){:width="400px"}
 
