@@ -146,7 +146,7 @@ The Foundational Avatar: Julius Caesar is Asander, king of Bosporus
 ![Fig.1.1](/images/caesarstar.jpg){:width="400px"}\
 ![Fig.1.2](/images/asandernike.jpg){:width="400px"}
 
-Fig. 1.1 & 1.2. (L) Julius Caesar. (R) Asander, king of Bosphorus depicting a Nike which was the Greek goddess of victory and a close companion of Zeus. Other depictions of Asander show the star and cresent that is visible in the Julius Caesar coin above [^5]. Another coin of Asander depicts a Phrygian cap which is closely associated with the Roman god Mithras: [^6]. This coin of Asander displays a prow (front of a ship) that is also seen in Julius Caesar coins. The star and crescent in above coins was the symbol of the city of Byzantium/Constantinople long before the Ottomans used it. The legend was that Byzas, the founder, chose the site based on a vision of a crescent moon and a star. This symbol represented the fusion of the lunar goddess (Hecate/Artemis, who was associated with snakes) and the solar god (Apollo). By using this symbol, Asander and Caesar were not just using a random symbol; they were explicitly claiming lordship over the Bosphorus.
+Fig. 1.1 & 1.2. (L) Julius Caesar. (R) Asander, king of Bosphorus depicting a Nike which was the Greek goddess of victory and a close companion of Zeus. Other depictions of Asander show the star and cresent that is visible in the Julius Caesar coin above [^5]. Another coin of Asander depicts a Phrygian cap which is closely associated with the Roman god Mithras: [^6]. This (https://bosporan-kingdom.com/224-3094/) coin of Asander displays a prow (front of a ship) that is also seen in Julius Caesar coins. The star and crescent in above coins was the symbol of the city of Byzantium/Constantinople long before the Ottomans used it. The legend was that Byzas, the founder, chose the site based on a vision of a crescent moon and a star. This symbol represented the fusion of the lunar goddess (Hecate/Artemis, who was associated with snakes) and the solar god (Apollo). By using this symbol, Asander and Caesar were not just using a random symbol; they were explicitly claiming lordship over the Bosphorus.
 
 The Avatar Succession: Roman Emperors are Bosporan Kings
 
@@ -930,6 +930,10 @@ Fig. 1.36 The royal Tamga (symbol/signature) of Tiberius Julius Sauromates II co
 
 Fig. 1.37 Coin of Tiberius Julius Sauromates II that displays a cross in the right corner.
 
+![Fig.1.38](/images/SauromatesBust.jpg){:width="400px"}
+
+Fig. 1.38 Bust of Tiberius Julius Sauromates II found at the theatre of Dionysos, Athens. The bust depicts him emerging from a cluster of acanthus leaves at the base symbolizing resurrection. Acanthus leaves are one of the most potent symbols of resurrection in ancient Mediterranean art. Acanthus leaves symbolize rebirth, immortality, and the cyclical nature of life in art and architecture. Acanthus leaves are often used in Christian art to depict the resurrection of Jesus Christ.
+
 Endnotes (Chapter 5)
 
 (a) Apollonius of Tyre was married to the daughter of a king of Libya
@@ -963,9 +967,9 @@ King, and Pas means "all" as in Pan. "Vespasian" = "King of All", or "King of Ev
 'Flavius Scaevinus' the conspirator involved in Nero's assassination.
 
 ![Fig.
-1.38](/images/Vespasian.jpg){:width="400px"}
+1.39](/images/Vespasian.jpg){:width="400px"}
 
-Fig. 1.38. L. Vespasian. R. Herod Agrippa I
+Fig. 1.98. L. Vespasian. R. Herod Agrippa I
 
 'Antonia Caenis' was Vespassian's mistress who was his first cousin who
 was Cleopatra (Thea Philopator) of Mauretania aka Cleopatra IX aka
@@ -1341,9 +1345,9 @@ Capitolina after the Bar Kokhba revolt (the city was named after Hadrian's famil
 that Aquila of Sinope and his wife Prisca or Priscilla lived with Paul
 the Apostle and Paul called them "my fellow workers in Christ Jesus"
 
-![Fig.1.39](/images/Antinous.jpg){:width="400px"}
+![Fig.1.40](/images/Antinous.jpg){:width="400px"}
 
-Fig. 1.39. Steel relief that shows Antinous holding the grapes of Dionysus in one-hand and a cross in the other.
+Fig. 1.40. Steel relief that shows Antinous holding the grapes of Dionysus in one-hand and a cross in the other.
 
 **9.3 Islam**
 
@@ -1474,6 +1478,8 @@ https://unz.com/article/how-fake-is-church-history by Laurent Guyénot
 [^4]: Joseph Raymond, *The Herodian Messiah: Case for Jesus as Grandson of Herod* (Tower Grove Publishing, 2010). Available at: https://archive.org/details/joseph-raymond-herodian-messiah-case-for-jesus-as-grandson-of-herod-tower-grove-publishing-2010/page/n18/mode/1up
 
 [^5]: "Coin: Asander, King of Bosporus," *Roman Provincial Coinage Online*. Available at: https://rpc.ashmus.ox.ac.uk/coins/1/1845
+
+    This website is a good respository for Bosporan coins: https://bosporan-kingdom.com/
 
 [^6]: "Coin: Panticapaeum (Asander)," *KBR Silver Collection*. Available at: https://silver.kbr.be/3628_-_Panticapaeum%3F_(Asander)_(AE_Apollo/prow)_over_Pontic_type_(Perseus/Pegasus)_(Oxford,_AM)
 
