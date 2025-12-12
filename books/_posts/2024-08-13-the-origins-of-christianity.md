@@ -589,9 +589,9 @@ Saul's daughter Michal. Juba II was the biological son of Cleopatra aka Dynamis 
 
 Fig. 1.2. Coin depicting Kanites, King of Scythia. The root comes from "Khan" = supreme steppe ruler. "-it": A Sarmatian suffix denoting "belonging to" or "descendant of.". "Khanites" = "He who is of the Khan / The Khan's Scion."
 .
-![Fig.1.23](/images/AretasIII.jpg){:width="400px"}
+![Fig.1.23](/images/ObodasII.jpg){:width="400px"}
 
-Fig. 1.23. Coin depicting Aretas III, king of the Nabataeans (modern northern Arabia and the southern Levant. The capital was Petra).
+Fig. 1.23. Coin depicting Obodas II, king of the Nabataeans (modern northern Arabia and the southern Levant. The capital was Petra).
 
 **5.2 Cleopatra VII aka Dynamis Ourania aka Pythodorida Philometor**
 
@@ -1241,7 +1241,7 @@ Isaac Newton wrote a book called "The Chronology Of Ancient Kingdoms Amended" wh
 
 **9 9\. Identifying the Flavian Scribes**
 
-If it possible to identify who wrote the bible by looking at sects of the Imperial cult. 
+It is possible to identify who wrote the bible by looking at sects of the Imperial cult. 
 
 **9.1 Christianity**
 
