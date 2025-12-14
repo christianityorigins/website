@@ -443,7 +443,7 @@ entire identity and history from here more plausable. "Jewish" in the classical 
 
 **5 Rome On the Bosphorus River**
 
-Much of the history of the Western Roman Empire was conjured up by the Flavians, Church Fathers, Jesuits, Joseph Justus Scaliger, and medieval forgers,
+Much of the history of the Western Roman Empire was conjured up by the Flavians, Church Fathers, Jesuits, Poggio Bracciolini, and medieval forgers,
 either to retrofit history to align with the Bible, due to conflicts
 between the Vatican and the Eastern Byzantine Church, or for profit.
 
@@ -1239,7 +1239,7 @@ Then the Church Fathers (4th-5th Centuries AD) and the Vatican played a role in 
 
 The Vatican had a motive for erasing the Eastern origins of Rome because of their conflicts with the Eastern Byzantine Church, which eventually fell to Islam.
 
-Two other men are responsible for most of what we know about the rest of European history from the Middle Ages and before: Poggio Bracciolini who held the position of Apostolic Secretary to the Pope which gave him access to the Vatican Library and is who is the one creditied with "rediscovering" most ancient manuscricts from antiquity. He was also working for the wealthy Italian aristocrat Cosimo de Medici (look up the similarities between Plato and Gemistus Plethon whose patron was also Cosimo de Medici), and then Joseph Justus Scaliger.
+One man was responsible for most of what we know about the rest of European history from the Middle Ages and before: Poggio Bracciolini who held the position of Apostolic Secretary to the Pope which gave him access to the Vatican Library and is who is the one creditied with "rediscovering" most ancient manuscricts from antiquity. He was also working for the wealthy Italian aristocrat Cosimo de Medici (look up the similarities between Plato and Gemistus Plethon whose patron was also Cosimo de Medici).
 
 The Jesuits also played a huge role in this. The Jesuits, upon arriving in China, found a civilization with no coherent linear chronology. They took fragmentary records, king lists, and bronze inscriptions and arranged them to fit the Biblical timeline provided by the Septuagint.
 
@@ -1533,7 +1533,7 @@ https://unz.com/article/how-fake-is-church-history by Laurent Guyénot
 
 [^13]: See: Anatoly T. Fomenko, *History: Fiction or Science? Russia. Britain. Byzantium. Rome. New Chronology Vol.IV* (2008); Charles N. Pope, *Jesus Among the Julio-Claudians* (2017); and "How Fake Is Roman Antiquity?" *The Unz Review* (2018). Available at: https://www.unz.com/article/how-fake-is-roman-antiquity/
     
-    I subscribe to the theory that the "first Rome" was based in Anatolia. The Latin language likely derives from the Dacian language spoken by Thracians and Phrygians from modern Romania. The term "Byzantine" is a modern invention—the area was once called "Basileía tôn Rhômaíôn" (Kingdom of the Romans), and its inhabitants called themselves Rhōmaîoi (Romans), hailing from Romania (meaning Romanus, or Roman). Most "new History" accepted today was created by Church Fathers, Jesuits (including all non-European history), and Joseph Justus Scaliger.
+    I subscribe to the theory that the "first Rome" was based in Anatolia. The Latin language likely derives from the Dacian language spoken by Thracians and Phrygians from modern Romania. The term "Byzantine" is a modern invention—the area was once called "Basileía tôn Rhômaíôn" (Kingdom of the Romans), and its inhabitants called themselves Rhōmaîoi (Romans), hailing from Romania (meaning Romanus, or Roman). Most "new History" accepted today was created by Church Fathers, Jesuits (including all non-European history), and Poggio Bracciolini .
     
     Sir Isaac Newton, in *The Chronology of Ancient Kingdoms Amended* (1728), claimed 711 years were added to our calendar, with history retrofitted to the Bible. Anatoly Fomenko increased this to 1000 years, arguing all chronology rests on Joseph Scaliger (Scaligerian Chronology), who is credited with rediscovering 80% of ancient authors and literature, often on demand.
     
