@@ -587,7 +587,7 @@ Saul's daughter Michal. Juba II was the biological son of Cleopatra aka Dynamis 
 
 ![Fig.1.22](/images/Kanites.jpg){:width="400px"}
 
-Fig. 1.2. Coin depicting Kanites, King of Scythia. The root comes from "Khan" = supreme steppe ruler. "-it": A Sarmatian suffix denoting "belonging to" or "descendant of.". "Khanites" = "He who is of the Khan / The Khan's Scion."
+Fig. 1.2. Coin depicting Kanites, King of Scythia. The root comes from "Khan" = supreme steppe ruler. "-it": A Sarmatian suffix denoting "belonging to" or "descendant of.". "Khanites" = "He who is of the Khan/The Khan's Scion".
 .
 ![Fig.1.23](/images/ObodasII.jpg){:width="400px"}
 
@@ -595,7 +595,7 @@ Fig. 1.23. Coin depicting Obodas II, king of the Nabataeans (modern northern Ara
 
 ![Fig.1.24](/images/ApollodotusII.jpg){:width="400px"}
 
-Fig. 1.24. Coin depicting Apollodotus (Apollodotos) II, king of Bactria. He carried the title "Soter" and the ptolemaic "Philopator". He was a descendant of Menander I, since he used their typical deity Athena Alkidemos on most of his silver, and was the father of Amyntas Nikator (see: Chapter 5.3.2. Amyntas Nikator aka Amyntas, King of Galatia).
+Fig. 1.24. Coin depicting Apollodotus (Apollodotos) II, king of Bactria. He carried the title "Soter" and the ptolemaic "Philopator". He was a descendant of Menander I, since he used their typical deity Athena Alkidemos on most of his silver. Wikipedia says that he was the son of Amyntas Nikator, but Amyntas Nikator was the son of Ptolemy XII Auletes aka Mark Antony aka Mithridates VI Eupator and his sister-wife Cleopatra V Tryphaena of Egypt, so Apollodotus was his uncle. (see: Chapter 5.3.2. Amyntas Nikator aka Amyntas, King of Galatia).
 
 ![Fig.1.25](/images/ArtavasdesII.png){:width="400px"}
 
@@ -761,6 +761,8 @@ Islamic tradition holds that Jesus (Isa) was a prophet born of the virgin Maryam
 
 Amyntas's mother Adobogiona was a "Jewish Queen" and the "Celtic Goddess-Queen" at the same time, proving Jew: Iudii -> Ioudaioi -> Jew. The Iudii were originally Scythian-Celtic priests from Galatia who later became "Jews" under Alexandrian syncretism. 
 
+Amyntas was the brother of Alexander, son of King Herod aka Alexander Helios aka Juba II (Amyntas was a title for the brother of the king).
+
 Amyntas ruled an empire that stretched from modern-day Turkey through India, but likely further as his reign coicides with the "Yellow Emperor" Zhao of Han, an archetype that he fits perfectly with.
 
 His palace at Isauria refers to Isis (also known as Isa or Aset) who was the mother of Horus (Cleopatra identified herself with the Greco-Egyptian goddess Isis and in Egyptian mythology the son of Isis was Horus), and Jesus is called Isa in the Quran. -Ura is a city suffix so this makes "Isaura" (Isa-Ura) literally "Jesus City".
@@ -820,7 +822,7 @@ of King Herod) aka Juba II).
 
 Alexander Helios's father was  Mark Antony who officially was declared Neos Dionysus (the "New Dionysus"), a dying-and-reviving god. His mother, Cleopatra VII, was the New Isis, the mother goddess. Therefore, Alexander Helios was, in the state religion of the Ptolemaic-Roman East, the literal divine son of a god and a goddess. This is the precise theological template for the Christian "Son of God".
 
-Alexander, son of King Herod and Juba II were married to Glaphyra of Cappadocia. Alexander Helios was married to his twin sister Cleopatra Selene II, Queen of Mauretania, who was also married to Juba II.
+Alexander, son of King Herod and Juba II were both married to Glaphyra of Cappadocia. Alexander Helios was married to his twin sister Cleopatra Selene II, Queen of Mauretania, who was also married to Juba II.
 
 Alexander, son of King Herod, was allegedly killed by his father Herod, but Josephus
 even has a story about a 'spurious Alexander' that showed up in Rome
