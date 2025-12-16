@@ -501,7 +501,7 @@ level of prestige and power to be placed alongside those two. Julius
 Caesar is the only historical figure who had a comparable level of
 prestige as Cyrus and Alexander.
 
-Asander was also called Asandrokhos (https://www.researchgate.net/publication/390912485Aspurgos-the_king_of_Bosporan_state_98_BC-_AD_38). The -Khos in Scythian is xsha/khsha which means "power, dominion, rule". It is the direct root of Xšayathiya (Persian "King"), Kshatriya (Sanskrit "Warrior-King"), and Caesar (via Kaisar). The suffix -khos is a Hellenized form of this root. The Kushan Empire (1st-3rd c. CE) claimed descent from the Yuezhi (Jove/Jupiter). Tiberius Julius Aspurgus, king of Bosphorus aka Emperor Tiberius calls himself the son of "the great king of Asandrokhos" in an inscription. He was Kujula Kadphises, prince of the Kushans in Bactria, so that would make Julius Caesar aka Asander also Heraios (Hero-Xšaya) king of Kushans. Asandrokhos is also related to Ardoksho the Iranic goddess of wealth who was a female deity of the Kushan Empire, in Central and South Asia during the early part of the 1st millennium CE who would have been Cleopatra aka Dynamis.
+Asander was also called Asandrokhos (https://www.researchgate.net/publication/390912485Aspurgos-the_king_of_Bosporan_state_98_BC-_AD_38). The -Khos in Scythian is xsha/khsha which means "power, dominion, rule". It is the direct root of Xšayathiya (Persian "King"), Kshatriya (Sanskrit "Warrior-King"), and Caesar (via Kaisar). The suffix -khos is a Hellenized form of this root. The Kushan Empire (1st-3rd c. CE) claimed descent from the Yuezhi (Jove/Jupiter). Tiberius Julius Aspurgus, king of Bosphorus aka Emperor Tiberius calls himself the son of "the great king of Asandrokhos" in an inscription. He was Kujula Kadphises, prince of the Kushans in Bactria.
 
 One of the main conspirators in the assassination of Julius Caesar was named Gaius Trebonius. In the Bosporus, the historical record states that around 17 BCE, a usurper named Scribonius appeared, claiming to be a relative of Asander's wife, Dynamis. He seizes power and Asander, in despair, commits suicide. "Trebonius" and "Scribonius" are linguistically congruent. This is obviously a literary trope, or imperial fiction. 
 
@@ -593,9 +593,9 @@ Fig. 1.2. Coin depicting Kanites, King of Scythia. The root comes from "Khan" = 
 
 Fig. 1.23. Coin depicting Obodas II, king of the Nabataeans (modern northern Arabia and the southern Levant. The capital was Petra).
 
-![Fig.1.24](/images/HelioclesII.jpg){:width="400px"}
+![Fig.1.24](/images/ApollodotusII.jpg){:width="400px"}
 
-Fig. 1.24. Coin depicting Heliocles II Dicaeus, king of Bactria (modern day Afganistan). Tiberius Julius Aspurgus, king of Bosphorus aka Emperor Tiberius calls himself the son of "the great king of Asandrokhos" in an inscription. He was Kujula Kadphises, prince of the Kushans in Bactria, so that would make Julius Caesar aka Asander also Heraios (Hero-Xšaya) king of Kushans. Asandrokhos is also related to Ardoksho the Iranic goddess of wealth who was a female deity of the Kushan Empire, in Central and South Asia during the early part of the 1st millennium CE who would have been Cleopatra aka Dynamis.
+Fig. 1.24. Coin depicting Apollodotus (Apollodotos) II, king of Bactria. He carried the title "Soter" and the ptolemaic "Philopator". He was a descendant of Menander I, since he used their typical deity Athena Alkidemos on most of his silver, and was the father of Amyntas Nikator (see: Chapter 5.3.2. Amyntas Nikator aka Amyntas, King of Galatia).
 
 ![Fig.1.25](/images/ArtavasdesII.png){:width="400px"}
 
