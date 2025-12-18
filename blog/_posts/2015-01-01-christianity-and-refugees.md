@@ -74,4 +74,4 @@ The narrative of "Jewish-led replacement" is not just false; it is an **inversio
 2.  **Overwhelmingly Christian** in organizational leadership and theological motivation.
 3.  **Massively funded by government contracts** from the sovereign nations purportedly under attack.
 
-We must cease debating this antisemitic fantasy on its own terms. Instead, we must insist on the facts: **The organized resettlement of refugees in the West is a project led, executed, and funded primarily by Christian organizations in partnership with Western governments.** Any claim to the contrary is not an "alternative viewpoint"—it is a baseless, hateful libel with a bloody historical pedigree.
+We must cease debating this antisemitic fantasy on its own terms. Instead, we must insist on the facts: **The organized resettlement of refugees in the West is a project led, executed, and funded primarily by Christian organizations in partnership with Western governments.** Any claim to the contrary is not an "alternative viewpoint"—it is baseless!
