@@ -10,11 +10,7 @@ Data Debunks the Myth: How Christian Groups Lead Refugee Resettlement
 
 **By Ralph Perrier**
 
-![Fig.1.1](/images/Migrants1.jpeg){:width="400px"}\
-![Fig.1.2](/images/Migrants1.jpeg){:width="400px"}\
-
-
-A toxic conspiracy theory, repackaged for the modern age, claims that shadowy Jewish elites are orchestrating mass migration to replace and undermine Western populations. This article confronts that falsehood with irrefutable public data. The evidence reveals a startling truth: the organized infrastructure for refugee resettlement in the West is overwhelmingly—and often officially—**Christian**.
+A conspiracy theory, repackaged for the modern age, claims that shadowy Jewish elites are orchestrating mass migration to replace and undermine Western populations. This article confronts that falsehood with irrefutable public data. The evidence reveals a startling truth: the organized infrastructure for refugee resettlement in the West is overwhelmingly—and often officially—**Christian**.
 
 ### The Official U.S. Framework: Ten Agencies, Seven Christian Partners
 
