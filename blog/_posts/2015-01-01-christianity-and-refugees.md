@@ -31,7 +31,7 @@ The current list is publicly available from the U.S. Department of State and Ref
 | **International Rescue Committee** | **Secular** | Founded in 1933 at the suggestion of Albert Einstein. |
 | **U.S. Committee for Refugees & Immigrants** | **Secular** | Founded in 1911. |
 
-**The math is definitive: 9 of the 10 primary U.S. resettlement agencies are explicitly Christian.** They are not fringe players; they are the system's pillars. According to annual State Department data, these Christian VOLAGs, through their local affiliates like Catholic Charities and Lutheran Social Services, resettle **approximately 75-90%** of all refugees admitted to the United States in any given year. HIAS, the single Jewish agency, typically resettles **2-5%**.
+**The math is definitive: 7 of the 10 primary U.S. resettlement agencies are explicitly Christian.** They are not fringe players; they are the system's pillars. According to annual State Department data, these Christian VOLAGs, through their local affiliates like Catholic Charities and Lutheran Social Services, resettle **approximately 75-90%** of all refugees admitted to the United States in any given year. HIAS, the single Jewish agency, typically resettles **2-5%**.
 
 ### The Financial Scale: Billions in (Mostly Government) Funding
 
