@@ -112,7 +112,7 @@ Philopator) of Mauretania. He was Mark Antony aka King Herod's great-grandson. H
 
 It is likely that all the descendants of Mark Antony aka king Herod took on this role, or roles that may be similar. For example, see: Jesus Among the Julio-Claudians (2021) by Charles N. Pope
 [^3]) who claims that Aristobulus V of Chalcis, grandson of king Herod aka Marcus Junius Silanus Torquatus was Jesus, or The Herodian Messiah Case For Jesus As Grandson Of Herod (2010) by Joseph Raymond
-[^4])
+[^4]
 
 Jesus Christ then became a composite literary character based on the defeated Satrap-King Izates II of Adiabene ("Kingdom of Heaven") and other Jesus-avatars after the First Jewish-Roman War (66–73 CE). The Flavian Dynasty weaponized his imperial cult and created a virus within the host: a "religion" that systematically inverted the original cult by transforming the governing elite's title into the name of a sacrificial victim. Tiberius Julius Alexander aka "Josephus", who was the Flavian court historian, was the prefect of Egypt at this time and had control of the Library of Alexandria and the Alexandrian School, and with the help of Alexandrian School scribes, is likely who was responsible for creating history's most devastating psy-op—a forged testament that was later used to shatter the very empire that authored it. He was also likely the one who burned down the Library of Alexandria soon after to cover up the tracks of his conspiracy. (Ironically, Tiberius Julius Alexander aka "Josephus" was the brother of Izates II who was Marcus Julius Alexander).
 
@@ -1366,8 +1366,6 @@ Fig. 1.43. Steel relief that shows Antinous holding the grapes of Dionysus in on
 **9.3 Islam**
 
 Islam is a surviving (albeit subverted) sect of the original Bosphoran Imperial Cult.
-
-The name of the "Quraysh" tribe of Mecca derives from Quresh (Cyrus) and "Ta-Rex" (Royal One). They were a Scythian-Arabian noble clan.
 
 King Izates of Monobazus's (Isa in the Quran) son was named Zamaris (Zamaris the Babylonian jew) and Zamaris has the same meaning as Muhammad.
 
