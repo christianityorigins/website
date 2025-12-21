@@ -68,7 +68,8 @@ Part 6: What Happened to the Scythians?\
 8.1. Inventing Ancient Greece\
 8.2. The 'Achaemenid' Empire is the Parthian Empire\
 8.3. Fabricating 'Ancient' Egypt\
-8.4. The Church Fathers\
+8.4 The Vatican-Medici-Jesuit Forgery (14th - 18th centuries)\
+8.5 The Jesuit Operation (16th-18th c.)\
 Part 7. Sects of the Imperial Cult\
 9\. Identifying the Flavian Scribes\
 9.1. Christianity\
@@ -1203,7 +1204,9 @@ The victors then wrote the history, claiming the cultural achievements of the de
 
 **8. Rewriting History?**
 
-The Flavian dynasty (Vespasian, Titus, Domitian) and their court historians (Josephus, Pliny, Tacitus) were the ones who forged history. They created a "Roman" history to legitimize their new dynasty and obscure their Bosphoran/Herodian origins. Josephus aka Tiberius Julius Alexander was prefect (governor) of Roman Egypt and had control of the Library of Alexandria, and likely was the one responsible for buring it down. 
+The Alexandrian School moved history back 300-500 years. They invented the ‘Achaemenid’ Empire as a mirror of the Parthian Empire. Then they invented Egyptian history to give their satrapy a pedigee. 
+
+Then the Flavian dynasty (Vespasian, Titus, Domitian) and their court historians (Josephus, Pliny, Tacitus) created a "Roman" history to legitimize their new dynasty and obscure their Bosphoran/Herodian origins. Josephus aka Tiberius Julius Alexander was prefect (governor) of Roman Egypt and had control of the Library of Alexandria, and likely was the one responsible for buring it down. 
 
 According to the book 'Jesus, King of Edessa' (2012) by Ralph  Ellis [^36] Jesus ben Gamala/Gamaliel who led the First Jewish–Roman War (66-70 AD) against Rome was also Jesus ben Sapphias and Izas Ma'nu (Jesus Emmanuel) Monobazus of Adiabene aka Yeshua Cleopatros (Cantheras/Panthera) ben Josephus bar Menneus aka Ptolemy aka Yakov Zu Tolomoy. King Izates of Monobazus was a descendant of the dragon bloodline and was married to the sister of Dynamis's mother. Tiberius Julius Sauromates II could have also been Simon bar Kokhba (Bar Kokhba means "Son of the Star" which directly links to the "Star and Crescent" symbolism on the coins of Asander/Julius Caesar and Dynamis/Cleopatra) who led the Bar Kokhba revolt (132-136 AD) against Rome. 
 
@@ -1245,19 +1248,25 @@ The "Pharaohs" of the Old and Middle Kingdoms are fictional proto-avatars, backd
 
 The "Old Kingdom" is a fictional pre-history for the Serapis Cult. The Pyramids are not 2500 BC tombs. They were built in the 3rd-2nd Century BC. The Scythian Kurgan is the architectural and theological prototype for the Egyptian Pyramid. The reason carbon dating gives older dates for the mortar is because they used fossilized limestone as a key ingredient, a technology now lost, which throws the isotopic readings wildly out of sync.
 
-**8.4 The Church Fathers**
+**8.4 The Vatican-Medici-Jesuit Forgery (14th - 18th centuries)**
 
-Then the Church Fathers (4th-5th Centuries AD) and the Vatican played a role in the deception. They made up the "Council of Nicaea". It never happened. There is no contemporary records that exist of the Council of Nicaea (325 AD). The Council of Nicaea mirrors the Mithraic Congress of 307 AD where Emperor Galerius declared Sol Invictus the official god of Rome. Constantine’s "conversion" was fabricated. He remained a Sol Invictus sun-worshipper until death—his coins never feature Christian symbols. His last coin (337 AD) depicts him as Sol Comitatus ("Sun Companion"), not Christ. The "Chi-Rho" symbol was a later interpolation by Eusebius, who forged Life of Constantine in the 5th century. The "Arian Controversy" was a fake debate to disguise the fact that early Christianity was a Roman imperial cult. Proof: The "Life of Constantine" by Eusebius was forged in the 5th century to retroactively justify Nicaea, and the Edict of Milan (313 AD) never mentions Jesus—only a vague "Divine Providence". Also, the Vatican's greatest forgery was the Donation of Constantine. The Vatican forged it in the 8th century to claim Rome. It was based on earlier forgeries by Eusebius (a Flavian propagandist).
+A clandestine cartel of Venetian and Genoese merchant-banking families, in collaboration with certain Vatican factions, orchestrated the bulk of the "rediscovery" of antiquity in the 15th-16th centuries.
 
-The Vatican had a motive for erasing the Eastern origins of Rome because of their conflicts with the Eastern Byzantine Church, which eventually fell to Islam.
+They didn't just forge texts; they forged entire material cultures. They employed networks of artisans in Crete, Cyprus, and Alexandria to mass-produce "ancient" sculptures, coins, and artifacts, which were then "discovered" in orchestrated digs. The famous "Cabinet of Curiosities" of wealthy patrons like the Cosimo de Medici were their primary market. The purpose was twofold: financial profit and the creation of a "classical pedigree" for the rising Western European powers, deliberately severing them from their true Scythian-Bosporan (Crimean) and Byzantine roots. This is why "Roman" artifacts suspiciously multiply after the 15th century.
 
-One man was responsible for most of what we know about the rest of European history from the Middle Ages and before: Poggio Bracciolini who held the position of Apostolic Secretary to the Pope which gave him access to the Vatican Library and is who is the one creditied with "rediscovering" most ancient manuscricts from antiquity. He was also working for the wealthy Italian aristocrat Cosimo de Medici (look up the similarities between Plato and Gemistus Plethon whose patron was also Cosimo de Medici).
+The Medici did not create the foundational lie, but they financed, refined, and physically produced the "ancient" manuscripts that cemented it into Western consciousness (look up the similarities between Plato and Gemistus Plethon whose patron was also Cosimo de Medici). Their forger-in-chief was Poggio Bracciolini. Poggio Bracciolini who held the position of Apostolic Secretary to the Pope which gave him access to the Vatican Library and is who is the one creditied with "rediscovering" most ancient manuscricts from antiquity. He was also working for the wealthy Italian aristocrat Cosimo de Medici (look up the similarities between Plato and Gemistus Plethon whose patron was also Cosimo de Medici).
 
-The Jesuits also played a huge role in this. The Jesuits, upon arriving in China, found a civilization with no coherent linear chronology. They took fragmentary records, king lists, and bronze inscriptions and arranged them to fit the Biblical timeline provided by the Septuagint.
+**8.5 The Jesuit Operation (16th-18th c.)**
+
+Joseph Justus Scaliger (a Jesuit-trained scholar) created the entire BC/AD chronology in 1583.
+
+Athanasius Kircher (Jesuit) "reconstructed" Egyptian history from fragments.
+
+Jesuits in China found a civilization with no coherent linear chronology. They took fragmentary records, king lists, and bronze inscriptions and arranged them to fit the Biblical timeline provided by the Septuagint.
+
+Jesuits in India back-dated Sanskrit texts by 1,500+ years.
 
 There was a Jesuit named Jean Hardouin who said that a 14th Century Jesuit conspiracy forged practically all literature traditionally believed to have been written before that era. He was the official librarian to the King of France. He published a book called the Prolegomena where his thesis was that the works of Cicero, Virgil, Tacitus, Plutarch, and even the Church Fathers were not rediscovered by Bracciolini. They were written by him and his team, under the patronage of the Medici and the Vatican. His book caused such controversy that the Pope and the King had him come before them and explain himself. He defended his work, and refused to retract it, so they threw him in prison.
-
-Isaac Newton wrote a book called "The Chronology Of Ancient Kingdoms Amended" where he analysed the eclipses recorded in ancient times and showed that 753 years (the exact number of years between the founding of Rome, or specifically the birth of the Roman deity Romulus and the birth of Jesus), was added in to the first "millennium". This would line up with the gaps of time found across European and world history, oddities like the invention of paper taking 700 years to travel across the Silk Road, or the 1st century Mexican deity Quetzalcoatl being temporarily forgotten til the 8th century.
 
 **9 9\. Identifying the Flavian Scribes**
 
