@@ -64,13 +64,14 @@ Part 6: What Happened to the Scythians?\
 7.3. Ancient India: The Mauryan Mirage\
 7.4. The Middle East and North Africa: Invasions and Slave Colonization (250 - 650 CE)\
 7.5. Where Did The Scythian Aryans Go? The Refugia\
+Part 7. Rewriting History
 8\. Rewriting History\
 8.1. Inventing Ancient Greece\
 8.2. The 'Achaemenid' Empire is the Parthian Empire\
 8.3. Fabricating 'Ancient' Egypt\
 8.4 The Vatican-Medici-Jesuit Forgery (14th - 18th centuries)\
 8.5 The Jesuit Operation (16th-18th c.)\
-Part 7. Sects of the Imperial Cult\
+Part 8. Sects of the Imperial Cult\
 9\. Identifying the Flavian Scribes\
 9.1. Christianity\
 9.2. The Cult of Antinous\
