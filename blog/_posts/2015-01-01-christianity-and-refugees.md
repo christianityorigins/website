@@ -10,7 +10,7 @@ Data Debunks the Myth: How Christian Groups Lead Refugee Resettlement
 
 **By Ralph Perrier**
 
-A conspiracy theory, repackaged for the modern age, that claims a shadowy Jewish elites are orchestrating mass migration to replace and undermine Western populations. This article confronts that falsehood with irrefutable public data. The evidence reveals a startling truth: the organized infrastructure for refugee resettlement in the West is overwhelmingly—and often officially—**Christian**.
+A conspiracy theory, repackaged for the modern age, claims a shadowy Jewish elites are orchestrating mass migration to replace and undermine Western populations. This article confronts that falsehood with irrefutable public data. The evidence reveals a startling truth: the organized infrastructure for refugee resettlement in the West is overwhelmingly—and often officially—**Christian**.
 
 ### The Official U.S. Framework: Ten Agencies, Seven Christian Partners
 
@@ -65,7 +65,7 @@ For Christian agencies, this work is a non-negotiable tenet of faith:
 
 The presence of HIAS, the Hebrew Immigrant Aid Society, on the VOLAG list is often seized upon by conspiracy theorists as "proof." In reality, its story underscores the falsity of the trope.
 
-HIAS was founded in 1881 **to rescue Jewish refugees fleeing pogroms in Eastern Europe**. For most of its history, its work was almost exclusively dedicated to saving Jewish lives—from the Holocaust to the Soviet Refusenik movement. Its evolution into a general refugee resettlement agency is a modern development, a humanitarian response based on the Jewish experience of persecution and the commandment to "not oppress the stranger" (Exodus 23:9). Its relatively small caseload percentage demonstrates that it is a respected but minor player within a **system built, funded, and operated by Christian institutions**.
+HIAS was founded in 1881 **to rescue Jewish refugees fleeing pogroms in Eastern Europe**. For most of its history, its work was almost exclusively dedicated to setteling Jewish people. Its evolution into a general refugee resettlement agency is a modern development. Its relatively small caseload percentage demonstrates that it is a respected but minor player within a **system built, funded, and operated by Christian institutions**.
 
 ### Conclusion: Unassailable Facts
 
