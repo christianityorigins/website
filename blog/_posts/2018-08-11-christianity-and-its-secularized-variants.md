@@ -4,7 +4,7 @@ open_links_in_new_tab: true
 title:  "The Legacy of Slave Morality: Leftism as Christianity's Secular Heir"
 date:   2018-11-12 09:00:00 +0200
 updated: 2024-08-11 19:46:50 +0200
-category: books
+category: blog
 ---
 
 The Legacy of Slave Morality: Leftism as Christianity's Secular Heir
