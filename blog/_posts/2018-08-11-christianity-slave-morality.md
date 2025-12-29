@@ -24,7 +24,7 @@ Part 1: The Theoretical Framework\
 Part 2: Christianity as the Engine of Domestication\
 4 Survival of the Weakest: Inverting Natural Selection \
 5 Tools of Herd Domestication\
-Footnotes (1-15)
+Footnotes
 
 ---
 
@@ -37,16 +37,6 @@ Christianity culminated from centuries of scribal work by imperial elites, who b
 **Introduction**
 
 Every single species on earth works towards the preservation and strengthening of its bloodline, from bonobos to pin oaks to jellyfish. Every single one. It is only through the domesticating forces of universal religions (Buddhism, Christianity, and Islam) that man has been able to 'overcome' these natural and deep biological drives and act in ways that are neutral or actually harm the reproductive success of his genes and offspring. Because of these universalizing religions, western man is an animal in the process of domestication. 
-
-This book is divided into three parts:
-
-1.   The Theoretical Framework (how Christianity weaponizes the weak, debased, and the traitorous to become the nobility. Weaponizing the outcastes to police the higher castes through the concepts of universalism and sin is how the system becomes self-regulating).
-
-2.    The Tools of Domestication (applies Nietzsche’s concepts to reveal how these mechanisms act as domestication system that subverts the strong).
-
-3.    The Secular Legacy (traces Marxism’s inheritance of Christian ethics).
-
-By the end, you will see the 2,000-year arc of this psychological warfare.
 
 **Part 1: The Theoretical Framework**
 
