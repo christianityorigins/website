@@ -24,6 +24,7 @@ Part 1: The Theoretical Framework\
 Part 2: Christianity as the Engine of Domestication\
 4 Survival of the Weakest: Inverting Natural Selection \
 5 Tools of Herd Domestication\
+6 Conclusion\
 Footnotes
 
 ---
@@ -111,6 +112,11 @@ Themes and symbols that parallel an animal being domesticated also fill the bibl
 
 See also: [Tschandala](https://en.wikipedia.org/wiki/Tschandala), [Master–slave morality](https://en.wikipedia.org/wiki/Master%E2%80%93slave_morality), and [Transvaluation of values](https://en.wikipedia.org/wiki/Transvaluation_of_values)  
 
+**Conclusion**
+
+In conclusion, it took 1000 years of domestication to reach the point where Europeans would sacrifice their nations and the future of their children on the altar of equality, but the seeds for this was inculcated through this system. 1000 years of being born into, an raised in, a domestication system created a domestication human who champions their own extintion just so long as it makes them feel morally and socially superior to the other half. This relict of monotheism and the concept of sin. This is Nietzsche called the "Last Man"; .the domesticated European slaves of today. He is 'tolerant,' but this is less a principle than a need to feel uniquely ethical compared to the other half of his tribe he judges as bigoted. He feels guilty for his ancestors' achievements, a guilt that ironically confirms his own social sophistication. He believes in nothing except his own comfort and the dogmas of universal equality handed down to him, because adhering to them unquestioningly grants him a sense of being on the right side of history. He is a hollowed-out shell, incapable of producing the culture, art, or heroes of his forebears because the very wellspring of that vitality—the will to power, the loyalty to kin, the pride in self—has been systematically poisoned for generations. He doesn't defend his borders because "all are one in Christ." He doesn't have children because the world is a "vale of tears" and his body is a source of sin. He surrenders his sovereignty to globalist entities because he yearns for the universal peace of the Second Coming, now in the secular form of a world government. \
+   &nbsp;&nbsp; &nbsp;&nbsp;&nbsp;&nbsp;Abandoning Christianity doesn’t save anyone from its psychological wreckage—it just strips away the rituals while leaving the rot untouched. The guilt, the martyr complex, the need to be seen as "good" by some higher power—those don’t die when God does. They sink deeper. The ex-Christian leftist atheist still flinches at judgment, still needs to be told they’re righteous, still sees sacrifice as virtue. They just shift the stage. Instead of churches, it’s activism. Instead of priests, it’s influencers, scientists, political leaders. The same wiring remains: obey, repent, be validated. The names change, the neurosis doesn't. It's not just belief that traps them—it’s the need for submission, the craving for punishment, the addiction to external meaning. Without confronting that, they'll keep dressing up their servitude as enlightenment. It's not liberation. It’s just a new leash.
+   
 ---
 
 **Footnotes*
