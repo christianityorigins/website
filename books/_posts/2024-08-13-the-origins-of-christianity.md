@@ -942,7 +942,7 @@ the Sauromatians". Sauromates is a Greek rendering of 'Sarmatian',
 referring to the Scythian tribe who came from the Pontic steppe. 'Saur'
 means 'lizard' or 'reptile', and 'mates' means 'man' or 'warrior'.
 Therefore, translated literally ΒΑCΙΛΕΩC CΑVΡΟΜΑΤΟΥ means "King of the
-lizard people", or "king of the dragon people". But note that at the root is "ROM"? If Sauromatians or Sauromates originally connotated Rome/Rhome/Rum (Sauro-mates -> Rhomo-mates -> Romani?) then this would prove my theories beyond any doubt. He was the grandson (or great-grandson?) of Ptolemy XII Auletes aka Mark Antony aka Mithridates VI Eupator and his daughter Cleopatra aka Dynamis.
+lizard people", or "king of the dragon people". But note that his father was Tiberius Julius Rhoemetalces and Rhoemetalces translates to "King of Rhome" in ancient Tracian. Also, at the root of Sauromates is "ROM"? If Sauromatians or Sauromates originally connotated Rome/Rhome/Rum (Sauro-mates -> Rhomo-mates -> Romani?) then this would prove my theories beyond any doubt. He was the grandson (or great-grandson?) of Ptolemy XII Auletes aka Mark Antony aka Mithridates VI Eupator and his daughter Cleopatra aka Dynamis.
 
 ![Fig.1.40](/images/Tamga.jpg){:width="400px"}
 
