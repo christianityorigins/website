@@ -90,7 +90,7 @@ Beyond the surface-level imperial fiction, all these Alexandrian School religion
 
 "Jesus Christ" was originally a rank, not a name. It was the title for the Satrap-Soter (Governor-Savior) of the Levant-Judea sector, a high-level administrative and priestly position within the Ptolemaic/Bosphoran imperial structure, often filled by a bloodline prince, much like 'Pharaoh' or 'Caesar'. 
 
-"Ie-Zeus" = Ie- means "divine" in Proto-Indo-European languages, and Ie- (or Ia-) means "Lord" in Anatolian Hieroglyphic Luwian and is used for deified kings. Ie-Zeus means "Divine Zeus", or "Lord Zeus". But Zeus = Dyēus = Jupiter = Jove (Iove). Jupiter comes from Dyēus Pter ("Sky Father") which is the original name of the chief god for the Proto-Indo-Europeans on the Pontic-Caspian Steppe. His name means "Shining Sky Father". The name Zeus comes from the pronunciation of "Dyeus", and (I)Jupiter comes from the pronunciation of "Dyeus Pter" (Diespiter -> Iupiter). (J)upiter was also called Jove or Iove to the Romans. The Latin pronunciation of Iove would have been Yoh-Way, i.e., Yahweh/Yhwh. Therefore, "Jesus" (Yahweh-Zeus) = "The Jovian One" or "The Jupiterian King". "Ioudaioi" means "People of Jove".
+"Ie-Zeus" = Ie- means "divine" in Proto-Indo-European languages, and Ie- (or Ia-) means "Lord" in Anatolian Hieroglyphic Luwian and is used for deified kings. Iza‑ / Izad‑ = "lord" in Iranian, and Isa means lord in Sanskrit. Ie-Zeus means "Divine Zeus", or "Lord Zeus". But Zeus = Dyēus = Jupiter = Jove (Iove). Jupiter comes from Dyēus Pter ("Sky Father") which is the original name of the chief god for the Proto-Indo-Europeans on the Pontic-Caspian Steppe. His name means "Shining Sky Father". The name Zeus comes from the pronunciation of "Dyeus", and (I)Jupiter comes from the pronunciation of "Dyeus Pter" (Diespiter -> Iupiter). (J)upiter was also called Jove or Iove to the Romans. The Latin pronunciation of Iove would have been Yoh-Way, i.e., Yahweh/Yhwh. Therefore, "Jesus" (Yahweh-Zeus) = "The Jovian One" or "The Jupiterian King". "Ioudaioi" means "People of Jove".
 
 Christios/Kristos was the job title for the Governor (Satrap) of Judea who was a member of the Bosporan royal house, equivalent to Scythian Xšaθra, Persian "Kšatrapati", Hyksos "Khasut" in Egypt, Kshatriya in Sanskrit which also = Vedic "Krishna", etc.
 
@@ -108,7 +108,7 @@ The people who assumed this role were the descendants of Mark Antony aka King He
 -   Alexander (son of King Herod) aka Alexander Helios aka Juba II. Was he Jesus ben Panthera? "Panthera" is a Hellenized corruption of "Ptolemaios" (Ptolem -> Ptol -> Panther). "Jesus, son of Ptolemy". The Talmud (Bereshit Rabbah 46:10) calls Izates and Monobazus the "Sons of Ptolemy".
 -   Alexander (grandson of King Herod) aka Ptolemy of Mauretania aka Monobazus I. Who was Jesus ben Sapphias?
 -   Izates II, King of Adiabene who was the son of Alexander (grandson of King Herod) and his sister-wife Cleopatra (Thea
-Philopator) of Mauretania. He was Mark Antony aka King Herod's great-grandson. He was was Jesus ben Gamala/Gamaliel (See: Cleopatra to Christ (2010) by Ralph Ellis
+Philopator) of Mauretania. He was Mark Antony aka King Herod's great-grandson. He was was Jesus ben Gamala/Gamaliel (See: Cleopatra to Christ (2010) by Ralph Ellis. Iza‑ / Izad‑ = "lord" Iranian, and Zates = Dyeus/Zeus. The same name as Jesus.
 [^2])
 -   Tiberius Julius Sauromates II
 
