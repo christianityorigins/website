@@ -49,29 +49,30 @@ Part 4: The Bosphoran Connection\
 5.2. Cleopatra VII aka Dynamis Ourania aka Pythodorida Philometor\
 5.3. Dragon Bloodline Descendants\
 5.3.1. Ptolemy XII Auletes aka Mark Antony aka Mithridates VI Eupator\
+Part 5: The Jesus Avatars: From Galatia to Adiabene\
 5.3.2. Amyntas Nikator aka Amyntas, King of Galatia\
 5.3.2.1. Was Amyntas Nikator aka Amyntas, King of Galatia the Living Esus?\
 5.3.3. Alexander, son of King Herod aka Alexander Helios aka Juba II\
 5.3.4. Aliases and Avatars of the Bloodline\
 5.3.5. Izates II, King of Adiabene\
 5.3.6. Tiberius Julius Sauromates II\
-Part 5: From Imperial Cult to Christianity\
+Part 6: From Imperial Cult to Christianity\
 6\. Flavian Dynasty\
-Part 6: What Happened to the Scythians?\
+Part 7: What Happened to the Scythians?\
 7\. The Demographic Erasure of the Scythian-Aryan Hegemony\
 7.1. The Flavians (c. 50 BCE – 300 CE)\
 7.2. China: The Han Synthesis and the Tartarian Genocide\
 7.3. Ancient India: The Mauryan Mirage\
 7.4. The Middle East and North Africa: Invasions and Slave Colonization (250 - 650 CE)\
 7.5. Where Did The Scythian Aryans Go? The Refugia\
-Part 7. Rewriting History\
+Part 8. Rewriting History\
 8\. Rewriting History\
 8.1. Inventing Ancient Greece\
 8.2. The 'Achaemenid' Empire is the Parthian Empire\
 8.3. Fabricating 'Ancient' Egypt\
 8.4 The Vatican-Medici-Jesuit Forgery (14th - 18th centuries)\
 8.5 The Jesuit Operation (16th-18th c.)\
-Part 8. Sects of the Imperial Cult\
+Part 9. Sects of the Imperial Cult\
 9\. Identifying the Flavian Scribes\
 9.1. Christianity\
 9.2. The Cult of Antinous\
