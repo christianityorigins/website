@@ -11,6 +11,8 @@ The Legacy of Slave Morality: Leftism as Christianity's Secular Heir
 
 By Ralph Perrier
 
+_-Fascism, I think, was the most radical revolutionary movement that Europe has seen since the age of Constantine. Because unlike the French Revolution, unlike the Russian Revolution, it doesn’t even target institutional Christianity: it targets the moral/ethical fundamentals of Christianity. The French Revolution, the Russian Revolution are still preaching the idea that the victim should be raised up from the dust and that the oppressor should be humbled into the dust; it’s still preaching the idea that the first should be last and the last should be first just as Christ has done. The Nazis do not buy into that. The Nazis buy into the Nietzschean idea that the weak are weak and should be treated as weak, as contemptible, as something to be crushed…. Atheists of today [like Richard Dawkins et al]… they are basically Christians. Nietzsche saw humanists, communists, liberals—people who may define themselves against Christianity—as being absolutely in the fundamentals Christian, and I think he is right about that because I think that in a sense atheism doesn’t repudiate the kind of ethics and the morals and the values of Christianity._ - Tom Holland
+
 1 Secularization of Christianity\
 2 Marxism is Secularized Christianity\
 3 Marxist Denominations and the Frankfurt School\
