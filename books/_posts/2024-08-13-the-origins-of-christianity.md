@@ -953,9 +953,17 @@ Fig. 1.40 The royal Tamga (symbol/signature) of Tiberius Julius Sauromates II co
 
 Fig. 1.41. Coin of Tiberius Julius Sauromates II that displays a cross in the right corner.
 
-![Fig.1.42](/images/SauromatesBust.jpg){:width="400px"}
+![Fig.1.42](/images/SauromatesCrown.jpg){:width="400px"}
 
-Fig. 1.42. Bust of Tiberius Julius Sauromates II found at the theatre of Dionysos, Athens. The bust depicts him emerging from a cluster of acanthus leaves at the base symbolizing resurrection. Acanthus leaves are one of the most potent symbols of resurrection in ancient Mediterranean art. Acanthus leaves symbolize rebirth, immortality, and the cyclical nature of life in art and architecture. Acanthus leaves are often used in Christian art to depict the resurrection of Jesus Christ.
+Fig. 1.42. Another coin of Tiberius Julius Sauromates II that displays a cross and what appears to be a crown of thorns (source: bosporan-kingdom.com).
+
+![Fig.1.43](/images/Thorns.jpg){:width="400px"}
+
+Fig. 1.43. Another coin of Tiberius Julius Sauromates II where he is wearing what appears to be a crown of thorns (source: bosporan-kingdom.com).
+
+![Fig.1.44](/images/SauromatesBust.jpg){:width="400px"}
+
+Fig. 1.44. Bust of Tiberius Julius Sauromates II found at the theatre of Dionysos, Athens. The bust depicts him emerging from a cluster of acanthus leaves at the base symbolizing resurrection. Acanthus leaves are one of the most potent symbols of resurrection in ancient Mediterranean art. Acanthus leaves symbolize rebirth, immortality, and the cyclical nature of life in art and architecture. Acanthus leaves are often used in Christian art to depict the resurrection of Jesus Christ.
 
 Endnotes (Chapter 5)
 
@@ -990,9 +998,9 @@ King, and Pas means "all" as in Pan. "Vespasian" = "King of All", or "King of Ev
 'Flavius Scaevinus' the conspirator involved in Nero's assassination.
 
 ![Fig.
-1.43](/images/Vespasian.jpg){:width="400px"}
+1.45](/images/Vespasian.jpg){:width="400px"}
 
-Fig. 1.43. L. Vespasian. R. Herod Agrippa I
+Fig. 1.45. L. Vespasian. R. Herod Agrippa I
 
 'Antonia Caenis' was Vespassian's mistress who was his first cousin who
 was Cleopatra (Thea Philopator) of Mauretania aka Cleopatra IX aka
@@ -1376,9 +1384,9 @@ Capitolina after the Bar Kokhba revolt (the city was named after Hadrian's famil
 that Aquila of Sinope and his wife Prisca or Priscilla lived with Paul
 the Apostle and Paul called them "my fellow workers in Christ Jesus"
 
-![Fig.1.44](/images/Antinous.jpg){:width="400px"}
+![Fig.1.46](/images/Antinous.jpg){:width="400px"}
 
-Fig. 1.44. Steel relief that shows Antinous holding the grapes of Dionysus in one-hand and a cross in the other.
+Fig. 1.46. Steel relief that shows Antinous holding the grapes of Dionysus in one-hand and a cross in the other.
 
 **9.3 Islam**
 
