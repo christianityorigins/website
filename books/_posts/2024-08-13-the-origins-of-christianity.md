@@ -85,7 +85,7 @@ Footnotes
  
 Christianity is a Flavian Dynasty hijacking of one of the religions that were invented at the Alexandrian School in Egypt. The Alexandrian School was a religion-making factory that was set up by Ptolemy Soter. The Serapis cult, Judaism, Gnosticism, Valentinianism, Christianity, Hermeticism, Mithraism, Manichaeism, Mandaeism, and many other religions originated from there. 
 
-Religion was the technology that the Ptolemaic dynasty used to control the vast and disparate populations they ruled and they created religions in every single conquered land. They would take local customs and create a syncretic man-god representing the Ptolemaic pharaoh. This system had one primary function: to psychologically pacify conquered populations and prevent unified rebellion. They would package these religions as sects of local religions because getting people to abandon their religions for a new one is an impossible task. However, there are thousands of sects of major religions today, many with different prophets (e.g., Christianity as Judaism's "fulfillment"). 
+Religion was the technology that the Ptolemaic dynasty used to control the vast and disparate populations they ruled and they created religions in every single conquered land. They would take local customs and create a syncretic man-god representing the Ptolemaic pharaoh (the principle of 'Interpretatio Graeca'). This system had one primary function: to psychologically pacify conquered populations and prevent unified rebellion. They would package these religions as sects of local religions because getting people to abandon their religions for a new one is an impossible task. However, there are thousands of sects of major religions today, many with different prophets (e.g., Christianity as Judaism's "fulfillment"). 
 
 Beyond the surface-level imperial fiction, all these Alexandrian School religions contained the same psychological weapon at their core: centralized texts and priesthoods which makes a population easier to control through proxy, moral codes like submission, self-sacrifice, obedience, loyalty, divine judgment, the concept of hell, and monotheism which divides the population through binary thinking, ie., the opposition between good and evil, us vs them, left vs right, etc., which destroys tribalism/collectivism by splitting the population into two opposing groups. These religions were also likely designed to segment the populations by class, culture, and region to prevent unified resistance. For example, Mithraism was for military elites (requiring blood oaths, with a Mithraic initiate caste system and hierarchical structure). Serapism was for civilians (promising afterlife salvation). Christianity was for slaves ("turn the other cheek").
 
@@ -128,7 +128,7 @@ etc., were all at one point under the suzerainty of Aryan Iranian-Scythian elite
 -   Asander, king of Bosphorus aka Julius Caesar was also Cleopatra's uncle Ptolemy of Cyprus (brother of Ptolemy XII Auletes and husband of "Mithridates") aka Mithridates Chrestus, King of Pontus VI (brother of Mithridates VI, king of Pontus), but he took on numerous other regional aliases. Cleopatra was also Dynamis, queen of Bosphorus. Mark
 Antony the Neos-Dionysos was Cleopatra's father Ptolemy XII Auletes (Auletes name adapts well to the
 Parthian Orodes (II?)) the Neos Dionysos aka  Mithridates VI Eupator aka Polemon Pythodoros, King of Pontus, prince of Pontus (Polemos ->
-Ptolemy) aka Pharnaces II ("Pharao-Nikes", or "Victorious Pharaoh") aka King Herod (Egyptian: Heru (Horus) + Ud
+Ptolemy) aka King Herod (Egyptian: Heru (Horus) + Ud
 (divine) -> Herud -> "Herod") aka Tiberius Claudius Nero aka Phraates
 IV of Parthia (Per-aa or Per-Nesu is a corruption of Pharaoh). Cleopatra's full name, Cleopatra VII
 Philopator, derives from the Ancient Greek 'Φιλοπάτωρ' meaning "the one
@@ -197,7 +197,7 @@ I. The Ptolemaic, Julio-Claudian & Bosphoran Bloodline
 Alexander the Great's successors ("Diadochi") were Seleucus I Nicator who controlled a large chunk of the eastern territories, including Mesopotamia and Persia, Diodotus I Soter who controlled Bactria (possibly also India under the alias Ashoka the Great), and Ptolemy I Soter who controlled Egypt. Mainstream history presents the Ptolemies, Seleucids, Attalids, and Romans as separate, often warring entities. This is a Flavian-Vatican fabrication. In reality, they were four branches of a single Scythian-Sarmatian dynasty, a "Tetrarchy", administering different sectors of the empire from the Bosphoran center.
 
 - Mithridates VI Eupator of Pontus = Ptolemy XII Auletes of Egypt
-  Aliases: Mark Antony (Marcus Antonius = Mar (Phoenician "lord") + Anton (from Antaeus, giant son of Gaia)), King Herod (Heru (Horus) + Ud (divine) = Herud -> Herod, "The Divine Horus", or Herodes (-dēs common Greek patronymic suffix meaning "son of"), "Son of Horus". The "Slaughter of the Innocents" is a mythological trope attached to the birth of every Horus-figure who must overcome a threat (against Set). It is not history; it is theological propaganda asserting Herod's/Mark Antony's legitimacy as the living god-king against the resurrected one. This is also attached to the Indian god Krishna (against Kamsa)), Polemon Pythodoros, King of Pontus, prince of Pontus  (Polemos -> Ptolemy) aka Pharnaces II ("Pharao-Nikes", or "Victorious Pharaoh". Mithridates VI Eupator had sons named Cyrus, Xeres, and Darius, and so did Pharnaces II, king of Pontus), Tiberius Claudius Nero, Phraates IV of Parthia (Per-aa or Per-Nesu is a corruption of Pharaoh). Ariarathes IX (Arya-Ratha". Sanskrit:"Noble Charioteer") Eusebes Philopator, King of Cappadocia. Was he also Ptolemy X Alexander I aka Simon Boethus aka Simon Magus? Hyspaosines of Characene? Mithridates VI Eupator and Mark Antony are both recorded as marrying a sister-wife named Cleopatra (Antony to Cleopatra VII; Mithridates VI to Laodice, who used "Cleopatra" as a throne name and Mithridates VI of Pontus was also recorded to have married Cleopatra of Athamania and their daughter was Cleopatra of Pontus (https://web.archive.org/web/20101126090909/http://mauriceboddy.org.uk/Pontus.htm)). King Herod was married to Cleopatra of Jerusalem, and Mithridates VI Eupator and Ptolemy XII Auletes both had daughters named Cleopatra (Cleopatra VII/Cleopatra the Elder, princess of Pontus). The Shekel of Tyre minted by Herod depicts Mark Antony and Hercules and Herod built temples to Hercules in Beirut and Tyre, and depicted himself as Hercules in his Herodian Cult. Herod's son Herod Antipas shares the name of Mark Antony's son Antyllus; Herod's other son Antipater was Iullus Antonius (Mark Antony's son with Fulvia), Herods son Alexander (son of King Herod) has the same name as Mark Antony's son Alexander Helios.
+  Aliases: Mark Antony (Marcus Antonius = Mar (Phoenician "lord") + Anton (from Antaeus, giant son of Gaia)), King Herod (Heru (Horus) + Ud (divine) = Herud -> Herod, "The Divine Horus", or Herodes (-dēs common Greek patronymic suffix meaning "son of"), "Son of Horus". The "Slaughter of the Innocents" is a mythological trope attached to the birth of every Horus-figure who must overcome a threat (against Set). It is not history; it is theological propaganda asserting Herod's/Mark Antony's legitimacy as the living god-king against the resurrected one. This is also attached to the Indian god Krishna (against Kamsa)), Polemon Pythodoros, King of Pontus, prince of Pontus  (Polemos -> Ptolemy). Tiberius Claudius Nero, Phraates IV of Parthia (Per-aa or Per-Nesu is a corruption of Pharaoh). Ariarathes IX (Arya-Ratha". Sanskrit:"Noble Charioteer") Eusebes Philopator, King of Cappadocia. Was he also Ptolemy X Alexander I aka Simon Boethus aka Simon Magus? Hyspaosines of Characene? Mithridates VI Eupator and Mark Antony are both recorded as marrying a sister-wife named Cleopatra (Antony to Cleopatra VII; Mithridates VI to Laodice, who used "Cleopatra" as a throne name and Mithridates VI of Pontus was also recorded to have married Cleopatra of Athamania and their daughter was Cleopatra of Pontus (https://web.archive.org/web/20101126090909/http://mauriceboddy.org.uk/Pontus.htm)). King Herod was married to Cleopatra of Jerusalem, and Mithridates VI Eupator and Ptolemy XII Auletes both had daughters named Cleopatra (Cleopatra VII/Cleopatra the Elder, princess of Pontus). The Shekel of Tyre minted by Herod depicts Mark Antony and Hercules and Herod built temples to Hercules in Beirut and Tyre, and depicted himself as Hercules in his Herodian Cult. Herod's son Herod Antipas shares the name of Mark Antony's son Antyllus; Herod's other son Antipater was Iullus Antonius (Mark Antony's son with Fulvia), Herods son Alexander (son of King Herod) has the same name as Mark Antony's son Alexander Helios.
   - Spouse: Wife/sister: Laodice (in Pontus) = Cleopatra V Tryphaena (in Egypt)
   - Children:
     - Cleopatra VII Thea Philopator aka Dynamis, queen of Bosphorus, Cleopatra of Pontus, Pythodorida, queen of Pontus, Musa Thea Urania of Parthia (Parthian queen mother, same "Heavenly Goddess" title). Also, Amanirenas ("Amon is Lord"), Kandake of Kush? Dynamis was called "Dynamus Pilatea"(https://en.rodovid.org/wk/Person:401227) the same title that was carried by "Pontius Pilate". Dynamis is recorded as the grandaughter of Mithridates VI, but historians are probably confusing her with Cleopatra the Elder, princess of Pontus who was married to Tigranes II, king of Armenia. Cleopatra VII, Dynamis, and Pythodorida all had sons named Ptolemy Philadelphus who succeeded them.
@@ -569,65 +569,60 @@ who had previously beat him in war.
 Fig. 1.15. Mithridates Chrestus aka Ptolemy of Cyprus aka Asander, king of
 Bosphorus, etc. The names Asander and Caesar both derive from the Etruscan word "Aesar" (also spelled "Aeser" or "Aisar" which likely derives from the Egyptian "Asar" which was another name for Osiris - there was no J in ancient Latin, so it was pronounced ah-soos). He would have been the first person to take on the title Iesus Christ. Asander is recorded to have beat Mithridates Chrestus in battle to become the king of the Bosphorus.
 
-![Fig.1.16](/images/PharnacesII.jpg){:width="400px"}
+![Fig.1.16](/images/Burebista.jpg){:width="400px"}
 
-Fig. 1.16. Coin depicting Pharnaces II who was the king of the Bosporan Kingdom and the Kingdom of Pontus. At the Battle of Zela (47 BC) Julius Caesar defeats Pharnaces II and coins the phrase "Veni, Vidi, Vici". Pharnaces II flees and is killed by his own governor, Asander, who then becomes King of the Bosporus. This was not a succession; it was an avatar switch. Pharnaces II
-called himself "King of Kings" on coinsas Asander did.
+Fig. 1.16. Coin depicting Burebista, king of the Dacians, who was an alleged enemy of Julius Caesar. He was assasinated in 44 BC, the same year as Julius Caesar.
 
-![Fig.1.17](/images/Burebista.jpg){:width="400px"}
+![Fig.1.17](/images/Atrebates.jpg){:width="400px"}
 
-Fig. 1.17. Coin depicting Burebista, king of the Dacians, who was an alleged enemy of Julius Caesar. He was assasinated in 44 BC, the same year as Julius Caesar.
+Fig. 1.17. Coin depicting Atrebates, king of Britannia who Julius Caesar was recorded to have defeated in battle.
 
-![Fig.1.18](/images/Atrebates.jpg){:width="400px"}
+![Fig.1.18](/images/Cunobeline.jpg){:width="400px"}
 
-Fig. 1.18. Coin depicting Atrebates, king of Britannia who Julius Caesar was recorded to have defeated in battle.
+Fig. 1.18. Coin depicting Cunobeline a king in Britannia whose tribe was allied with Julius Caesar.
 
-![Fig.1.19](/images/Cunobeline.jpg){:width="400px"}
+![Fig.1.19](/images/Vercingetorix.jpg){:width="400px"}
 
-Fig. 1.19. Coin depicting Cunobeline a king in Britannia whose tribe was allied with Julius Caesar.
+Fig. 1.19. Coin of Vercingetorix, a Gallic king and chieftain of the Arverni tribe who united the Gauls in a failed revolt against Julius Caesar in the Gallic Wars.
 
-![Fig.1.20](/images/Vercingetorix.jpg){:width="400px"}
+![Fig.1.20](/images/Diviciacus.jpg){:width="400px"}
 
-Fig. 1.20. Coin of Vercingetorix, a Gallic king and chieftain of the Arverni tribe who united the Gauls in a failed revolt against Julius Caesar in the Gallic Wars.
+Fig. 1.20. Coin of Diviciacus (Aedui). A Druid and chieftain of the Aedu tribe. He was a leader of the pro-Roman faction, and was recorded to have aided Julius Caesar in his conquest of Gaul.
 
-![Fig.1.21](/images/Diviciacus.jpg){:width="400px"}
+![Fig.1.21](/images/JubaI.jpg){:width="400px"}
 
-Fig. 1.21. Coin of Diviciacus (Aedui). A Druid and chieftain of the Aedu tribe. He was a leader of the pro-Roman faction, and was recorded to have aided Julius Caesar in his conquest of Gaul.
-
-![Fig.1.22](/images/JubaI.jpg){:width="400px"}
-
-Fig. 1.22. Coin depicting Iuba I, king of Mauretania (a territory that encompassed most of North Africa). Julius Caesar adopted his son Juba II who's full name was Gaius Iulius Iuba, prenomen and nomen after Gaius Iulius Caesar, and 'Iuba' is likely a
+Fig. 1.21. Coin depicting Iuba I, king of Mauretania (a territory that encompassed most of North Africa). Julius Caesar adopted his son Juba II who's full name was Gaius Iulius Iuba, prenomen and nomen after Gaius Iulius Caesar, and 'Iuba' is likely a
 diminutive of 'Iehuva' which traces to Jove/Jupiter. Juba I was the claimed royal heir of the Massylii
 tribe, which is the 'Messiah' lineage from David's firstborn son with
 Saul's daughter Michal. Juba II was the biological son of Cleopatra aka Dynamis and her father Ptolemy XII Auletes aka Mark Antony aka Mithridates VI Eupator. Juba II is titled "Ptolemy" upon accession in Mauretania.
 
-![Fig.1.23](/images/Kanites.jpg){:width="400px"}
+![Fig.1.22](/images/Kanites.jpg){:width="400px"}
 
-Fig. 1.3. Coin depicting Kanites, King of Scythia. The root comes from "Khan" = supreme steppe ruler. "-it": A Sarmatian suffix denoting "belonging to" or "descendant of.". "Khanites" = "He who is of the Khan/The Khan's Scion".
+Fig. 1.22. Coin depicting Kanites, King of Scythia. The root comes from "Khan" = supreme steppe ruler. "-it": A Sarmatian suffix denoting "belonging to" or "descendant of.". "Khanites" = "He who is of the Khan/The Khan's Scion".
 .
-![Fig.1.24](/images/ObodasII.jpg){:width="400px"}
+![Fig.1.23](/images/ObodasII.jpg){:width="400px"}
 
-Fig. 1.24. Coin depicting Obodas II, king of the Nabataeans (modern northern Arabia and the southern Levant. The capital was Petra).
+Fig. 1.23. Coin depicting Obodas II, king of the Nabataeans (modern northern Arabia and the southern Levant. The capital was Petra).
 
-![Fig.1.25](/images/ApollodotusII.jpg){:width="400px"}
+![Fig.1.24](/images/ApollodotusII.jpg){:width="400px"}
 
-Fig. 1.25. Coin depicting Apollodotus (Apollodotos) II, king of Bactria (modern day Afghanistan). He carried the title "Soter" and the ptolemaic "Philopator". He was a descendant of Menander I, since he used their typical deity Athena Alkidemos on most of his silver. Wikipedia says that he was the son of Amyntas Nikator, but Amyntas Nikator was the son of Ptolemy XII Auletes aka Mark Antony aka Mithridates VI Eupator and his sister-wife Cleopatra V Tryphaena of Egypt, so Apollodotus was his uncle. (see: Chapter 5.3.2. Amyntas Nikator aka Amyntas, King of Galatia).
+Fig. 1.24. Coin depicting Apollodotus (Apollodotos) II, king of Bactria (modern day Afghanistan). He carried the title "Soter" and the ptolemaic "Philopator". He was a descendant of Menander I, since he used their typical deity Athena Alkidemos on most of his silver. Wikipedia says that he was the son of Amyntas Nikator, but Amyntas Nikator was the son of Ptolemy XII Auletes aka Mark Antony aka Mithridates VI Eupator and his sister-wife Cleopatra V Tryphaena of Egypt, so Apollodotus was his uncle. (see: Chapter 5.3.2. Amyntas Nikator aka Amyntas, King of Galatia).
 
-![Fig.1.26](/images/ArtavasdesII.png){:width="400px"}
+![Fig.1.25](/images/ArtavasdesII.png){:width="400px"}
 
-Fig. 1.26. Coin depicting Gaius Julius Ariobarzanes II, king of Armenia.
+Fig. 1.25. Coin depicting Gaius Julius Ariobarzanes II, king of Armenia.
 
-![Fig.1.27](/images/GaiusAsiniusPollio.jpg){:width="400px"}
+![Fig.1.26](/images/GaiusAsiniusPollio.jpg){:width="400px"}
 
-Fig. 1.27. Coin depicting Gaius Asinius Pollio who was Asander aka Juius Caesar's literary pen-name.
+Fig. 1.26. Coin depicting Gaius Asinius Pollio who was Asander aka Juius Caesar's literary pen-name.
 
 **5.2 Cleopatra VII aka Dynamis Ourania aka Pythodorida Philometor**
 
 Cleopatra VII was the archtype, not the avatar, for the "Jesus" figure. She was the living Soteira (feminine Soter), Thea (Goddess), and "Queen of Kings". She was the descendant of the Scythian Dracaena, or the snake-legged goddess who was the mother of the Scythians in mythology.
 
-![Fig.1.28](/images/Cleopatra%20VIIDynamis.png){:width="400px"}
+![Fig.1.27](/images/Cleopatra%20VIIDynamis.png){:width="400px"}
 
-Fig. 1.28. (L) Dynamis, Queen of Bosphorus, (R) Cleopatra VII. There were
+Fig. 1.27. (L) Dynamis, Queen of Bosphorus, (R) Cleopatra VII. There were
 obviously many years between the ages at which she was depicted,
 however, even in the elder Dynamis bust you can see her lazy eye and
 abnormally large eyes which she was reported to have had, possibly as a
@@ -635,9 +630,9 @@ consequence of inbreeding. The hat she is wearing is a Phrygian cap, a
 distinctivehat that is closely associated with the Roman god Mithras.
 Dynamis was recorded as being of "Sarmatian" ancestry.
 
-![Fig.1.29](/images/cleopatra.png){:width="400px"}
+![Fig.1.28](/images/cleopatra.png){:width="400px"}
 
-Fig. 1.29. (L) Julia Mamaea, Queen of Pontus (wife of Polemon II), (R)
+Fig. 1.28. (L) Julia Mamaea, Queen of Pontus (wife of Polemon II), (R)
 Cleopatra VII. Polemon Pythodoros, King of Pontus was a regional alias
 of Julius Caesar/Asander (as Asander and Polemon were both married to
 Dynamis), and if he also played the religious role of Gaius Julius
@@ -719,9 +714,9 @@ Boethus was another of Cleopatra's regional aliases?  If you identify
 King Herod as Mark Antony aka Tiberius Claudius Nero aka Phraates IV of
 Parthia's regional alias then the picture becomes clearer.
 
-![Fig.1.30](/images/PtolemyXII.jpeg){:width="400px"}
+![Fig.1.29](/images/PtolemyXII.jpeg){:width="400px"}
 
-Fig. 1.30. Ptolemy XII Auletes, king of Egypt, who was also Mithridates
+Fig. 1.29. Ptolemy XII Auletes, king of Egypt, who was also Mithridates
 VI Eupator, Ariarathes IX of Cappadocia, Simon Boethus/Magus/Ptolemy
 (Alexander) bar Menneus, et.al. Mithridates VI married his sister
 Laodice---just as Ptolemy XII married his sister Cleopatra V. Both had
@@ -746,22 +741,26 @@ even has a story about a 'spurious Alexander' that showed up in Rome
 claiming to be the son of Herod who faked his death [^20], so he was
 'resurrected' as Juba II, king of Numidia and Mauretania. 
 
-![Fig.1.31](/images/MithridatesVIEupator.jpg){:width="400px"}
+![Fig.1.30](/images/MithridatesVIEupator.jpg){:width="400px"}
 
-Fig. 1.31. Coin depicting Mithridates VI Eupator, father of Pharnaces II
+Fig. 1.30. Coin depicting Mithridates VI Eupator, father of Pharnaces II
 and Dynamis. Brother of Mithridates Chrestus. Notice the star and
 crescent that is visible in the Julius Caesar coin above and the winged
 Pegasus within a Dionysiac wreath of ivy and fruit that is seen in the
 Asander coin?
 
-![Fig.1.32](/images/PairisadesVofBosporus.jpg){:width="400px"}
+![Fig.1.31](/images/PairisadesVofBosporus.jpg){:width="400px"}
 
-Fig. 1.32. Coin depicting Pairisades V, king of Bosporus
+Fig. 1.31. Coin depicting Pairisades V, king of Bosporus
 
-![Fig.1.33](/images/AriarathesIX.jpg){:width="400px"}
+![Fig.1.32](/images/AriarathesIX.jpg){:width="400px"}
 
-Fig. 1.33. Coin depicting Ariarathes IX Eusebes Philopator, King of
+Fig. 1.32. Coin depicting Ariarathes IX Eusebes Philopator, King of
 Cappadocia (Central Anatolia/modern Turkey). He was the son of Mithridates VI Eupator of Pontus. Ariarathes IX Eusebes brothers were named Cyrus, Xeres, and Darius. His sisters were named Cleopatra and Mithridates. In Chapter 8.2. I write that the'Achaemenid' Persian Empire is a phantom empire. it is a back projection of the Parthian Empire. Cyrus and Darius were composite characters based on the sons of Mithridates VI Eupator\
+
+![Fig.1.33](/images/PharnacesII.jpg){:width="400px"}
+
+Fig. 1.33. Coin depicting Pharnaces II (“Pharao-Nikes”, or “Victorious Pharaoh”) who was another son of Mithridates VI, king of Pontus. He was the king of the Bosporan Kingdom and the Kingdom of Pontus. At the Battle of Zela (47 BC) Julius Caesar defeats Pharnaces II and coins the phrase "Veni, Vidi, Vici". Pharnaces II flees and is killed by his own governor, Asander, who then becomes King of the Bosporus. This was not a succession; it was an avatar switch. Pharnaces II called himself "King of Kings" on coinsas Asander did.
 
 ![Fig.1.34](/images/PtolemyApion.jpg){:width="400px"}
 
