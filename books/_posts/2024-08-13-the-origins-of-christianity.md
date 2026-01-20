@@ -36,6 +36,7 @@ Part 1: Rome Was Located On the Cimmerian Bosphorus (Crimea–Kerch) River in Cr
 1.1\. The Numismatic Key: Coins of a Global Empire\
 1.2\. The Ancient Alias Names List\
 2\. Name and Title Meanings\
+2.1 Biblical Figures\
 Part 2: Foundations of the Dragon Cult\
 3\. The Sarmatian Dragon Cult\
 Part 3: The Alexandrian Synthesis\
@@ -269,7 +270,6 @@ V. Speculative
 
 The Flavians didn't just remake their main enemy's cult, they rewrote history, including executing a systemic replacement of the titulary lexicon. For example, "Caesar" originally meant "Osiris-King" (Ka-Asar). The Flavians changed the etymology to caesaries ("hair"), claiming Julius Caesar was born via caesarean section or had lush hair. This severed the title from its Egyptian/Osirian roots and made it Roman.
 
--   Abraham: The father of Isaac (remove the Hebrew theophoric Y- = -tzak = Hebrew rendering of Sacae (Scythians)) is Abraham, the foundational patriarch. Ab = Father (Semitic). Raham = Arya (Sanskrit/Persian: "Noble"). Aram (the name for the land of the Arameans, a steppe-derived people). Abraham = Ab-Raham = "Father of the Aryans" or "Father of the Noble Ones". Related to Brahmin (Brahama) -> Ibrahim -> Abraham. A(Braha)m(in). Lord Rama (the greatest and seventh incarnation of God, hero of the Ramayana, protector of Dharma) in the ancient Vedas derives from this.
 -   AS/AŽI/AZ/SAR/XSA: Serpent-Dragon-King
      - Azhi = Až ("serpent") + Hi ("power, divine") in Avestan, meaning "mighty dragon". It extends Aži to signify divine authority across Indo-Iranian and Scythian cultures. Azhi = Asia (Azhi-A) = "land of the mighty dragon" (Aži is cognate with the Chinese Zhī (dragon)), a very similar name to Rome (Rhu-Ma) = "Place of the Dragon", Romania (Rhu-Ma + Na) = "dragon land", and Sarmatia (serpent) + ma (mother, land). Aži Aži (Avestan) links to As (Scythian/Thracian) = Lord, God. (Asa in Norse (Aesir), Asar in Egyptian (Osiris)). Sar (Scythian/Sanskrit) = King, Head. (Sarpa (Skt.) = serpent; Sarrum (Akk.) = king). In Iranian it becomes Ahura (as in Ahura Mazda - "Wise Lord"). The core imperial title was Aži-Sar or As-Sar — "Dragon-King". Asander (King of Bosporus): Asan-der = As (Lord/Serpent) + Andros (Man) = "Serpent-Lord-Man" or "Dragon-Man". Alexander: Aži-ander or Alak-san-der (Hurrian/Hittite) = Same formula: "Dragon-Man". Caesar: Aesar -> Kaesar -> Caesar or Kai-Sar. Kai (Greek: "and" but also a prefix of greatness) + Sar (King). Kaisar = "The Great King". The C is a Hellenized graft. The root is Sar. Kaiser, Czar, Shah: All derive from Sar. Osiris: Asar (Egyptian). Direct link to As (Lord). Osiris is the deified form of the Dragon King archetype. Jesus: Ie-Zeus (Divine Zeus). But Zeus=Dyēus (Sky Father). The Scythian form? Izas (as in Izates). Izates = Ie (divine) + Zates (cognate of Zeus). Ie-sus (Esus). The title connects to the Celtic Esus (Lord), another avatar of the same archetype. This creates a unified titulary field: Aži-Sar / Asander / Alexander / Caesar / Kaiser / Czar / Shah / Osiris / Izates / Jesus are linguistic variations of the same supreme office across different linguistic zones of the empire. All these were job titles, not personal names.
      - Sar = the Scythian word for "king". Sarpa in Sanskrit means "serpent". Sarmatian, Akkadian Sarrum (which becomes Persian Xšaya-/Xšayathiya), Hurrian Šarri, Sargon, Sarlagab, Serapis (Sar-Apis = "Serpent Bull"), Zarathustra (Sar + Ustra = "serpent-lord"), Saraswati (Hindi goddes of knowledge), Saracen (Roman designation for Middle Eastern peoples), Šaruma (Mitanni deity), Saragurs (Scythian tribe in China), Caesar, Asar (Osiris), Tsar (Slavic monarch), Sargon of Akkad, feminine Sarai (or "Sarah" meaning "princess" (Genesis 17:15)), etc. Sar means king, or serpent king, across the empires that the Scythians used to rule over.
@@ -309,8 +309,22 @@ The Flavians didn't just remake their main enemy's cult, they rewrote history, i
     Julio-Claudian dynasty were Pisos, including Nero who was nearly
     deposed by a Piso. Appius is also cognate with Arrius (through
     rhotacization in ancient Latin the /p/ and /r/ could be swapped).
--   Solomon: Sol-Amūn or "Sun of Amun" which is a direct parallel to "Zeus-Ammon", which was a title for Alexander the Great. 
 -   Vespasian: Vas/Bas was the royal abbreviation for the Greek word Basilius which = King, and Pasis means "all" in Greek as in Pan. "Vespasian" = "King of All", or "King of Everything" which is a claim to the title "King of Kings". Another option: Vas/Bas = King, and -asian = "of Asia" or "the Asian". Vespasian = "The King of Asia".
+
+2.1 Biblical Figures
+
+The genealogies in Genesis match the Bosporan king list when translated via Greek phonetic equivalents.
+
+-   Adam = Adamas (Greek “unconquerable”) = title of Asander.
+-   Noah = Noas (Bosporan king, 1st c. CE also known as Tothorses). ΝΩΑΣ (Noas) is a direct Greek rendering of the Hebrew נֹחַ (Noach).
+-   Abraham = Abraamios (a Thracian king in Crimea, known from inscriptions), the father of Issac. Abraamios derives from Ab = Father (Semitic) + Raham = Arya (Sanskrit/Persian: "Noble") + Aram (the name for the land of the Arameans, a steppe-derived people). Abraham = Ab-Raham = "Father of the Aryans" or "Father of the Noble Ones". Related to Brahmin (Brahama) -> Ibrahim -> Abraham. A(Braha)m(in). Lord Rama (the greatest and seventh incarnation of God, hero of the Ramayana, protector of Dharma) in the ancient Vedas derives from this.
+-   Isaac = Isaakos (Greek form of “Isaac”) = Iesas (Bosporan prince). Also, remove the Hebrew theophoric Y- = -tzak = Hebrew rendering of Sacae (Scythians).
+-   Jacob = Iakobos = a known Bosporan ambassador to Rome.
+-   The 12 tribes = the 12 clans of the Sarmatian federation around the Sea of Azov.
+-   The Exodus = the migration of the Bosporan elite to Egypt under Ptolemy I.
+-   King David = Diodotos (Bactrian king) = David in Hebrew. Diodotos means "God-given" – identical to Hebrew David ("beloved" but also "given").
+-   Moses = Manes/Mannu-Kuras = Manu (Scythian Sage-King) = Menes (Egypt’s legendary founder). Also appears in "Monobazus" → “Manu Bazus” → Sarmatian-Mythological Sage King. The Iranian Manu is a legendary civilizer, and in India he becomes the first Lawgiver (the Manu Smriti = Scythian governance code). The biblical Moses defeats Pharaoh (actually Mitanni elite), parts waters with a serpent-staff—obvious encoding of dragon-kingship (Aži Dahāka). Moses takes on different masks: M enes – the first official Pharaoh (not real, a compilation of conquerors). Menes – the semi-mythical Median king, founder of the priest-class. Mannu-kuras – Proto-Mede, whose name becomes Cyrus. The name Kur-Ash = "Sun Man". The Exodus is not Judaic memory: it's a political memory of Mitanni-Scythian expulsion from Egypt after the religious revolution of Thutmose III → Horemheb wiped them out with a new priest-kingship in Amarna. He shows up in a number of religions: In Zoroastrianism he is Manushchihr, in Hinuduisn he is Manu, in Judaism he is Moses, in Norse mythology he is Mannus, etc.
+-   Solomon = Sol-Amūn or "Sun of Amun" which is a direct parallel to "Zeus-Ammon", a title Alexander carried. Also, Solemos is a Greek name for a Bosporan governor.
 
 **3 The Sarmatian Dragon Cult**
 
