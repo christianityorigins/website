@@ -967,6 +967,14 @@ Fig. 1.43. Another coin of Tiberius Julius Sauromates II where he is wearing wha
 
 Fig. 1.44. Bust of Tiberius Julius Sauromates II found at the theatre of Dionysos, Athens. The bust depicts him emerging from a cluster of acanthus leaves at the base symbolizing resurrection. Acanthus leaves are one of the most potent symbols of resurrection in ancient Mediterranean art. Acanthus leaves symbolize rebirth, immortality, and the cyclical nature of life in art and architecture. Acanthus leaves are often used in Christian art to depict the resurrection of Jesus Christ.
 
+![Fig.1.45](/images/KanishkaI.jpg){:width="400px"}
+
+Fig. 1.45. Was the father of Tiberius Julius Sauromates II named Tiberius Julius Rhoemetalces also Kanishka I, also known as Kanishka the Great? (Kanishka = "Khan-Isha" (Scythian: "Khan-Lord")) was an emperor of the Kushan dynasty (modern day Afghanistan through India). This would mean that the Flavians only seized the western administration and rewrote its history. The eastern administration (Kushan) continued the old system for centuries. Kanishka I was the leader of the "Yuezhi" ("Iudii"/"Jove") tribe.
+
+![Fig.1.46](/images/TiberiusJuliusCotysII.jpg){:width="400px"}
+
+Fig. 1.46. Coin depicting Tiberius Julius Cotys II who was the grandfather of Tiberius Julius Sauromates II. Was he also Simon bar Kokhba? Bar Kokhba means "Son of the Star" which directly links to the "Star and Crescent" symbolism on the coins of Asander/Julius Caesar and Dynamis/Cleopatra. He led the Bar Kokhba revolt (132-136 AD) against Rome. As heir to the dragon crown he would have had a claim to the emperor position.
+
 Endnotes (Chapter 5)
 
 (a) Apollonius of Tyre was married to the daughter of a king of Libya
@@ -1000,9 +1008,9 @@ King, and Pas means "all" as in Pan. "Vespasian" = "King of All", or "King of Ev
 'Flavius Scaevinus' the conspirator involved in Nero's assassination.
 
 ![Fig.
-1.45](/images/Vespasian.jpg){:width="400px"}
+1.47](/images/Vespasian.jpg){:width="400px"}
 
-Fig. 1.45. L. Vespasian. R. Herod Agrippa I
+Fig. 1.47. L. Vespasian. R. Herod Agrippa I
 
 'Antonia Caenis' was Vespassian's mistress who was his first cousin who
 was Cleopatra (Thea Philopator) of Mauretania aka Cleopatra IX aka
@@ -1224,7 +1232,7 @@ The Alexandrian School moved history back 300-500 years. They invented the ‘Ac
 
 Then the Flavian dynasty (Vespasian, Titus, Domitian) and their court historians (Josephus, Pliny, Tacitus) created a "Roman" history to legitimize their new dynasty and obscure their Bosphoran/Herodian origins. Josephus aka Tiberius Julius Alexander was prefect (governor) of Roman Egypt and had control of the Library of Alexandria, and likely was the one responsible for buring it down. 
 
-According to the book 'Jesus, King of Edessa' (2012) by Ralph  Ellis [^36] Jesus ben Gamala/Gamaliel who led the First Jewish–Roman War (66-70 AD) against Rome was also Jesus ben Sapphias and Izas Ma'nu (Jesus Emmanuel) Monobazus of Adiabene aka Yeshua Cleopatros (Cantheras/Panthera) ben Josephus bar Menneus aka Ptolemy aka Yakov Zu Tolomoy. King Izates of Monobazus was a descendant of the dragon bloodline and was married to the sister of Dynamis's mother. Tiberius Julius Sauromates II could have also been Simon bar Kokhba (Bar Kokhba means "Son of the Star" which directly links to the "Star and Crescent" symbolism on the coins of Asander/Julius Caesar and Dynamis/Cleopatra) who led the Bar Kokhba revolt (132-136 AD) against Rome. 
+According to the book 'Jesus, King of Edessa' (2012) by Ralph  Ellis [^36] Jesus ben Gamala/Gamaliel who led the First Jewish–Roman War (66-70 AD) against Rome was also Jesus ben Sapphias and Izas Ma'nu (Jesus Emmanuel) Monobazus of Adiabene aka Yeshua Cleopatros (Cantheras/Panthera) ben Josephus bar Menneus aka Ptolemy aka Yakov Zu Tolomoy. King Izates of Monobazus was a descendant of the dragon bloodline and was married to the sister of Dynamis's mother. Tiberius Julius Sauromates II or his father or grandfather could have also been Simon bar Kokhba (Bar Kokhba means "Son of the Star" or his son which directly links to the "Star and Crescent" symbolism on the coins of Asander/Julius Caesar and Dynamis/Cleopatra) who led the Bar Kokhba revolt (132-136 AD) against Rome. 
 
 What seems plausable is that the "Aryan hegemony" of the ancient world was not a monolith, but a network of interrelated clans (Saka, Sarmatian, Cimmerian, Parthian, etc.) who often fought for supremacy within the hegemony. For example, the "Persian" conquest by Cyrus was not a new empire but a coup d'état by one Scythian clan (the Achaemenids/Persians) against the ruling Scythian clan (the Medes). The "Greco-Persian Wars" were a civil war between the Western satrapy (Greece) and the Eastern core (Achaemenid Persia). So, in the "Jewish-Roman" Wars (who were Celtic Iudii Jupiter worshippers, unrelated to modern "jews") the Flavians did not put down a provincial revolt. They launched a blitzkrieg against the core Eastern administration, and this destroyed the Scythian steppe hegemony. The Flavian dynasty then, after defeating the Judean-Adiabenean forces in the Great War (66-74 AD, mislabeled the "First Jewish-Roman War"), took their primary political enemy, King Izates II, and rewrote his cult as pacifist allegory to subvert the people of his kingdom using the same Alexandian School formula they used in all their imperial cults. They also rewrote history to erase their Bosphoran origins. 
 
@@ -1386,9 +1394,9 @@ Capitolina after the Bar Kokhba revolt (the city was named after Hadrian's famil
 that Aquila of Sinope and his wife Prisca or Priscilla lived with Paul
 the Apostle and Paul called them "my fellow workers in Christ Jesus"
 
-![Fig.1.46](/images/Antinous.jpg){:width="400px"}
+![Fig.1.48](/images/Antinous.jpg){:width="400px"}
 
-Fig. 1.46. Steel relief that shows Antinous holding the grapes of Dionysus in one-hand and a cross in the other.
+Fig. 1.48. Steel relief that shows Antinous holding the grapes of Dionysus in one-hand and a cross in the other.
 
 **9.3 Islam**
 
