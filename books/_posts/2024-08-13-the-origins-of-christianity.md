@@ -50,13 +50,14 @@ Part 4: The Bosphoran Connection\
 5.2. Cleopatra VII aka Dynamis Ourania aka Pythodorida Philometor\
 5.3. Dragon Bloodline Descendants\
 5.3.1. Ptolemy XII Auletes aka Mark Antony aka Mithridates VI Eupator\
-Part 5: The Jesus Avatars: From Galatia to Adiabene\
-5.3.2. Amyntas Nikator aka Amyntas, King of Galatia\
-5.3.2.1. Was Amyntas Nikator aka Amyntas, King of Galatia the Living Esus?\
-5.3.3. Alexander, son of King Herod aka Alexander Helios aka Juba II\
-5.3.4. Aliases and Avatars of the Bloodline\
-5.3.5. Izates II, King of Adiabene\
-5.3.6. Tiberius Julius Sauromates II\
+Part 5: The Jesus Avatars: From Egypt to Galatia to Adiabene\
+5.3.2. Ptolemy XIII Theos Philopator aka Gaius Octavius (Emperor Augustus) aka Rhoemetalces I\
+5.3.3. Amyntas Nikator aka Amyntas, King of Galatia\
+5.3.3.1. Was Amyntas Nikator aka Amyntas, King of Galatia the Living Esus?\
+5.3.4. Alexander, son of King Herod aka Alexander Helios aka Juba II\
+5.3.5. Aliases and Avatars of the Bloodline\
+5.3.6. Izates II, King of Adiabene\
+5.3.7. Tiberius Julius Sauromates II\
 Part 6: From Imperial Cult to Christianity\
 6\. Flavian Dynasty\
 Part 7: What Happened to the Scythians?\
@@ -293,7 +294,7 @@ The Flavians didn't just remake their main enemy's cult, they rewrote history, i
 -   Izates or Izas: Another name for Jesus. Ie- is a prefix denoting divinity (as in I-em-hotep in Egyptian and IE in Indo-European is a divine prefix (as in Ie-ove/Jove)). -sous is a variant of Zeus (Zas or Dyas is a cognate of Izas). Iesous = "Divine Zeus." This connects directly to Iulius (from Jupiter/Zeus). This becomes Jesus [^10], Aesus (Etruscan god), and the Avestan word Yazatas (Persian: izad), meaning 'lord'. In the name "Yeshua Ben Panthera" the Panthera is a Hellenized form of Ptolemaios (Ptolem->Ptol->Panther). "Jesus, son of Ptolemy". This directly connects the "Jesus" figure to the Ptolemaic-Bosphoran royal house. Similar to "Iasus", a Greek figure associated with the Argonauts and "Iaso" the healing Greek goddess.
 -    Jew: Iudaeus means "of Jove" which is Jupiter."Jupiter comes from Dyēus Pter ("Sky Father") which is the original name of the chief god for the Proto-Indo-Europeans on the Pontic-Caspian Steppe. His name means "Shining Sky Father". The name Zeus comes from the pronunciation of "Dyeus", and (I)Jupiter comes from the pronunciation of "Dyeus Pter" (Diespiter -> Iupiter). (J)upiter was also called Jove or Iove to the Romans. The Latin pronunciation of Iove would have been Yoh-Way, i.e., Yahweh/Yhwh. Dyēus -> Zeus -> Iove (Jove) -> Iud- (as in Iud-ii). The -ii suffix denotes "people of" or "tribe of". Iudii = "The People of Jove. "The Scythian elite, as part of their imperial cult, syncretized their primary deity with local dieities. In Anatolia and Thrace, this same god was worshipped as Sabazios, so Yahweh Saboath, the god of the Hebrew bible, is I(J)ove (Roman Zeus) Sabazios (Thracian Zeus). Dyēus Pter is also at the root of "Yuezhi" (月氏) who were a tribe of Scythians. It appears that ancient "Judaism" (Pre-70 AD) was a branch of the imperial cult centered on the god Jupiter-Sabazios (Yahweh Sabaoth) that local Canaanites, Edomites, and Levantine converts inherited. The term "Ashkenazi" (Ashkenaz means Scythian in Hebrew) confirms steppe origins. 
   - Lord: The term Kavi in Avestan texts (e.g., Yasna 10.6) denotes a divine ruler associated with Aži (dragon/serpent). Translating Kavi to Greek yields Kyrios ("lord"), a title used for Jesus in the New Testament (e.g., Kyrios Iesous). The Scythian title Xšaya (king) appears in Old Persian as Xšayathiya, phonetically linked to Kshatriya (Sanskrit: warrior-king) and Caesar via the Greek Kaesar. A kurgan inscription from Issyk (Kazakhstan, 4th century BCE) mentions a ruler named Ašakavi ("dragon-priest"), combining Aša (truth/order) and Kavi. This title parallels Asander (Thracian: Asa = "lord") and suggests a pan-steppe naming convention for dragon-kings. 
--   Monobazus: Sabazios is the Phrygian and Thracian version of Zeus.
+-   Monobazus: Sabazios is the Phrygian and Thracian version of Zeus. The "-zios" suffix refers to Zeus in Thracian.
     Ma'nu comes from Manes/Mannu-Kuras/Manu (Scythian Sage-King)/Menes (Egypt’s legendary founder), and then
     Manu-Sabazios becomes Monobazus. Monobazus also becomes "Bazus" or
     "Bar Izates" shortened to "baYZTus" (or bar YZT) through frequent
@@ -777,13 +778,27 @@ Fig. 1.33. Coin depicting Pharnaces II (“Pharao-Nikes”, or “Victorious Pha
 
 Fig. 1.34. Coin depicting Ptolemy Apion, king of Kyrene, Kyrenaica, North Africa. 
 
-**5.3.2. Amyntas Nikator aka Amyntas, King of Galatia**
+**5.3.2. Ptolemy XIII Theos Philopator aka Gaius Octavius (Emperor Augustus) aka Rhoemetalces I**
 
-Amyntas Nikator (Latin Invictus which links him to Sol Invictus) aka Amyntas of Galatia [^21] aka Jesus ben Fabus aka Isa Amen (Jesus was named "Amen" in Rev. iii. 14 and Amen links to Egypt through the name of the pharaoh Amenhotep). Amyntas's father was not Bogitarus. That is a later, localized alias. His true father was Mithridates VI Eupator of Pontus (aka Ptolemy XII Auletes/Mark Antony/Herod). Mithridates VI Eupator's father was Mithridates V Euergetes. Mithridates V Euergetes's father was Pharnaces I of Pontus. Pharnaces I's brother was none other than... Amyntas of Pontus. The name "Amyntas" is a family heirloom, used for a brother of the king. For "Mithridates VI" to have a son named "Amyntas" is perfectly consistent with dynastic naming patterns. He was not the son of a minor chieftain; he was a scion of the primary Dragon Bloodline.
+Augustus was not a name. It was a title. The title Augustus was translated into Greek as Sebastos. Related to the Thracian deity Sabazios. Sabazios -> The "-zios" suffix is a divine marker (like in Zeus). The core is Saba- or Saba-zd-. In Greek pronunciation, the 'b' (beta) was a voiced bilabial fricative (like a 'v'), so it could shift. Sabazios is where the Hebrew Sabaoth ("Lord of the Hosts") comes from.
+
+Zalmoxis was another name of Sabazius, the Thracian version of Zeus. Also, Zalmoxis or Zalmox or Zalmos can also be pronounced Salmos which is very close to the Aramaic and Hebrew pronunciation of Solomon.
+
+He was also Rhoemetalces I, king of Bosphorus. Talces = the Thracian word for "king" or "ruler". Rhoemetalces = "king of Rhome", or "king of Rome" in ancient Thracian.
+
+Bazus is the direct truncation of "Sabazios". It's the royal, dynastic form of the god's name. Bazus is at the root of the title Monobazus.
+
+Sebasteia or Sebastē was also a city in the heart of the Pontic-Bosporan kingdom.
+
+Sazios was the Thracian Zeus equivalent to the Roman Jupiter. The Sabazios cult was the imperial cult rolled out for the Thracians. 
+
+**5.3.3. Amyntas Nikator aka Amyntas, King of Galatia**
+
+Amyntas Nikator (Latin Invictus which links him to Sol Invictus) aka Amyntas of Galatia [^21] aka Jesus ben Fabus aka Isa Amen (Jesus was named "Amen" in Rev. iii. 14 and Amen links to Egypt through the name of the pharaoh Amenhotep). Amyntas's father was not Bogitarus. That is a later, localized alias. His true father was Mithridates VI Eupator of Pontus (aka Ptolemy XII Auletes/Mark Antony/Herod). Mithridates VI Eupator's father was Mithridates V Euergetes. Mithridates V Euergetes's father was Pharnaces I of Pontus. Pharnaces I's brother was none other than... Amyntas of Pontus. The name "Amyntas" is a family heirloom, used for a brother of the king. For "Mithridates VI" to have a son named "Amyntas" is perfectly consistent with dynastic naming patterns. He was not the son of a minor chieftain; he was a scion of the primary Dragon Bloodline. His brother and heir to the dragon throne was Ptolemy XIII Theos Philopator aka Gaius Octavius (Emperor Augustus) aka Rhoemetalces I.
 
 Amyntas of Galatia's mother was simply named Adobogiona. There was an "Adobogiona the Elder" who was a Galatian princess who was a recorded mistress of Mithridates VI Eupator, so it is safe to assume these two are the same woman. Her true imperial title was Cleopatra V Tryphaena of Egypt, the sister-wife of Mithridates VI/Ptolemy XII. This makes Amyntas of Galatia/Nikator the full brother of Cleopatra VII Philopator (Dynamis).
 
-He was also Jesus ben Fabus aka Isa Amen. The name Fabus may have been distorted by Josephus from Jesus ben Bagus. Amyntas was the son of Bogitarus. In Celtic and Persian "Bagus" means god. "Boga" in Persian also means god and in the name Adobogiona "Bog-" means god in Celtic. In Latin Nikator translates to Invictus which liks him the the deity Sol Invictus. "Jesus ben Bagus" means "Jesus, Son of God", or  "Jesus, Son of The Lord". "Fabus" or "Bagus." might also be a direct Latinization of the Celtic "Vabus" or "Vabos", meaning "The Speaker" or "Prophet". This is a title for a Druid high priest. 
+He was also Jesus ben Fabus aka Isa Amen. The name Fabus may have been distorted by Josephus from Jesus ben Bagus. Amyntas was the son of Bogitarus. In Celtic and Persian "Bagus" means god. "Boga" in Persian also means god and in the name Adobogiona "Bog-" means god in Celtic. In Latin Nikator translates to Invictus which liks him the the deity Sol Invictus. "Jesus ben Bagus" means "Jesus, Son of God", or  "Jesus, Son of The Lord".
 
 "Bagha" (Old Persian), "Baga" (Avestan), "Bhagavan" (Sanskrit) all mean "Lord", a title for God. It enters Persian as "Baga" (as in the city Baghdad, "Given by God"). He is known in Indian sources as "Amita", from which "Amyntas" derives, but also as "Moga" or "Maues," the first Saka (Scythian) King in India. He was also associated with the Mên Askaênos cult of Antiochia Pisidia which echoes the name of the Indian king Asoka the Great.
 
@@ -791,7 +806,7 @@ Islamic tradition holds that Jesus (Isa) was a prophet born of the virgin Maryam
 
 Amyntas's mother Adobogiona was a "Jewish Queen" and the "Celtic Goddess-Queen" at the same time, proving Jew: Iudii -> Ioudaioi -> Jew. The Iudii were originally Scythian-Celtic priests from Galatia who later became "Jews" under Alexandrian syncretism. 
 
-Amyntas was the brother of Alexander, son of King Herod aka Alexander Helios aka Juba II (Amyntas was a title for the brother of the king).
+Amyntas was the brother of Ptolemy XIII Theos Philopator aka Gaius Octavius (Emperor Augustus) aka Rhoemetalces I and Alexander, son of King Herod aka Alexander Helios aka Juba II.
 
 Amyntas ruled an empire that stretched from modern-day Turkey through India, but likely further as his reign coicides with the "Yellow Emperor" Zhao of Han, an archetype that he fits perfectly with.
 
@@ -808,7 +823,7 @@ Trocmii:"Bogo-" is related to the Proto-Celtic word "bog-", which means
 which suggests that Brogitaris/Brigatos is the divine leader or a member
 of the Celtes Trocmii which refers to the Trocmi, a Celtic tribe that lived in ancient Galatia). 
 
-**5.3.2.1 Was Amyntas Nikator aka Amyntas, King of Galatia the Living Esus?**
+**5.3.3.1 Was Amyntas Nikator aka Amyntas, King of Galatia the Living Esus?**
 
 The Celts in classical Galatia worshiped a deity called
 Aesus/Esus/Iesus. Amyntas, as the god king of Galatia would have been the personification of Esus. "Esus" from "Aisus (Thracian Jove-variant). Esus is the Celtic pronunciation of Aisus. The Scythian root is Aes-, the same as the Aesir and Aesar. "Iesus" is the Latin rendering of "Esus." There was no "J" sound. He was always called Ie-Sus (Yay-soos), "The Esus."
@@ -836,7 +851,7 @@ Like Serapis (Osiris+Apis), Esus represents a deliberate syncretism—in this ca
 
 The "Esumopas Cnusticus" inscription proves this was a state-sponsored imperial cult, not organic Celtic religion. The original Esus was a warrior. The new, syncretic "Esus Christos" was a god who was crucified on a T-shaped tree (a clear parallel to the Tau cross). The message to the fierce Galatian Celts was: "Your god is not a warrior, but a sacrificial victim. True strength is in submission, sacrifice, obedience, and turning the other cheek".
 
-**5.3.3. Alexander, son of King Herod aka Alexander Helios aka Juba II**
+**5.3.4. Alexander, son of King Herod aka Alexander Helios aka Juba II**
 
 Cleopatra aka Dynamis's son with her father Mark Antony [^22] (aka Ptolemy XII Auletes aka Polemon Pythodoros, King of Pontus, prince of Pontus aka King Herod aka Tiberius
 Claudius Nero aka Phraates IV of Parthia) was Alexander Helios aka
@@ -863,7 +878,7 @@ I identify Cleopatra's brother-husband Ptolemy XIII Theos Philopator as Gaius Oc
 
 Was he also Jesus ben Panthera? "Panthera" is a Hellenized corruption of "Ptolemaios" (Ptolem -> Ptol -> Panther). "Jesus, son of Ptolemy". The Talmud (Bereshit Rabbah 46:10) calls Izates and Monobazus the "Sons of Ptolemy".
 
-**5.3.4. Aliases and Avatars of the Bloodline**
+**5.3.5. Aliases and Avatars of the Bloodline**
 
 Cleopatra aka Dynamis's son with Mark Antony = Ptolemy Philadelphus who
 was Sampsiceramus I?
@@ -910,7 +925,7 @@ Mauretania aka Cleopatra IX aka Pythodorida Philometor aka Helene aka
 Drusilla of Mauretania aka Julia Ourania of Parthia aka Alexandra bat
 Mattathias aka 'Philo of Alexandria'.
 
-**5.3.5. Izates II, King of Adiabene**
+**5.3.6. Izates II, King of Adiabene**
 
 Alexander (grandson of King Herod) and his sister-wife Cleopatra (Thea
 Philopator) of Mauretania had two sons: Tiberius Julius Alexander aka
@@ -943,7 +958,7 @@ and Sultan Ezid in the Yazadi ('Iza'di) religion. He was the uncle of
 Tiberius Julius Sauromates II, King of Bosphorus. The middle image
 source: The Alexander Mosaic, Huqoq, Israel.
 
-**5.3.6. Tiberius Julius Sauromates II**
+**5.3.7. Tiberius Julius Sauromates II**
 
 ![Fig.1.39](/images/SauromatesII.jpg){:width="400px"}
 
