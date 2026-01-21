@@ -991,23 +991,27 @@ Fig. 1.42. Coin of Tiberius Julius Sauromates II that displays a cross in the ri
 
 ![Fig.1.43](/images/SauromatesCrown.jpg){:width="400px"}
 
-Fig. 1.43. Another coin of Tiberius Julius Sauromates II that displays a cross and what appears to be a crown of thorns (source: bosporan-kingdom.com).
+Fig. 1.43. Another coin of Tiberius Julius Sauromates II that displays a cross and what appears to be a crown of thorns (source: bosporan-kingdom.com/769-5139).
 
 ![Fig.1.44](/images/Thorns.jpg){:width="400px"}
 
-Fig. 1.44. Another coin of Tiberius Julius Sauromates II where he is wearing what appears to be a crown of thorns (source: bosporan-kingdom.com).
+Fig. 1.44. Another coin of Tiberius Julius Sauromates II where he is wearing what appears to be a crown of thorns (source: bosporan-kingdom.com/731-4539).
 
 ![Fig.1.45](/images/SauromatesBust.jpg){:width="400px"}
 
 Fig. 1.45. Bust of Tiberius Julius Sauromates II found at the theatre of Dionysos, Athens. The bust depicts him emerging from a cluster of acanthus leaves at the base symbolizing resurrection. Acanthus leaves are one of the most potent symbols of resurrection in ancient Mediterranean art. Acanthus leaves symbolize rebirth, immortality, and the cyclical nature of life in art and architecture. Acanthus leaves are often used in Christian art to depict the resurrection of Jesus Christ.
 
-![Fig.1.46](/images/KanishkaI.jpg){:width="400px"}
+![Fig.1.46](/images/SauromatesAquila.jpg){:width="400px"}
 
-Fig. 1.46. Was the father of Tiberius Julius Sauromates II named Tiberius Julius Rhoemetalces also Kanishka I, also known as Kanishka the Great? (Kanishka = "Khan-Isha" (Scythian: "Khan-Lord")) was an emperor of the Kushan dynasty (modern day Afghanistan through India). This would mean that the Flavians only seized the western administration and rewrote its history. The eastern administration (Kushan) continued the old system for centuries. Kanishka I was the leader of the "Yuezhi" ("Iudii"/"Jove") tribe.
+Fig. 1.46. Coin of Tiberius Julius Sauromates II displaying the sacred Roman Imperial Eagle (Aquila) — the supreme military symbol of Rome. No foreign king would be allowed to use the Roman Aquila — this was punishable by death. The Aquila was only carried by Roman legions and appeared on coins of Roman Emperors and Ptolemaic Pharaohs only. (source: https://bosporan-kingdom.com/618-4052/)
 
-![Fig.1.47](/images/TiberiusJuliusCotysII.jpg){:width="400px"}
+![Fig.1.47](/images/KanishkaI.jpg){:width="400px"}
 
-Fig. 1.47. Coin depicting Tiberius Julius Cotys II who was the grandfather of Tiberius Julius Sauromates II. Was he also Simon bar Kokhba? Bar Kokhba means "Son of the Star" which directly links to the "Star and Crescent" symbolism on the coins of Asander/Julius Caesar and Dynamis/Cleopatra. He led the Bar Kokhba revolt (132-136 AD) against Rome. As heir to the dragon crown he would have had a claim to the emperor position.
+Fig. 1.47. Was the father of Tiberius Julius Sauromates II named Tiberius Julius Rhoemetalces also Kanishka I, also known as Kanishka the Great? (Kanishka = "Khan-Isha" (Scythian: "Khan-Lord")) was an emperor of the Kushan dynasty (modern day Afghanistan through India). This would mean that the Flavians only seized the western administration and rewrote its history. The eastern administration (Kushan) continued the old system for centuries. Kanishka I was the leader of the "Yuezhi" ("Iudii"/"Jove") tribe.
+
+![Fig.1.48](/images/TiberiusJuliusCotysII.jpg){:width="400px"}
+
+Fig. 1.48. Coin depicting Tiberius Julius Cotys II who was the grandfather of Tiberius Julius Sauromates II. Was he also Simon bar Kokhba? Bar Kokhba means "Son of the Star" which directly links to the "Star and Crescent" symbolism on the coins of Asander/Julius Caesar and Dynamis/Cleopatra. He led the Bar Kokhba revolt (132-136 AD) against Rome. As heir to the dragon crown he would have had a claim to the emperor position.
 
 Endnotes (Chapter 5)
 
@@ -1042,9 +1046,9 @@ King, and Pas means "all" as in Pan. "Vespasian" = "King of All", or "King of Ev
 'Flavius Scaevinus' the conspirator involved in Nero's assassination.
 
 ![Fig.
-1.48](/images/Vespasian.jpg){:width="400px"}
+1.49](/images/Vespasian.jpg){:width="400px"}
 
-Fig. 1.48. L. Vespasian. R. Herod Agrippa I
+Fig. 1.49. L. Vespasian. R. Herod Agrippa I
 
 'Antonia Caenis' was Vespassian's mistress who was his first cousin who
 was Cleopatra (Thea Philopator) of Mauretania aka Cleopatra IX aka
@@ -1428,9 +1432,9 @@ Capitolina after the Bar Kokhba revolt (the city was named after Hadrian's famil
 that Aquila of Sinope and his wife Prisca or Priscilla lived with Paul
 the Apostle and Paul called them "my fellow workers in Christ Jesus"
 
-![Fig.1.49](/images/Antinous.jpg){:width="400px"}
+![Fig.1.50](/images/Antinous.jpg){:width="400px"}
 
-Fig. 1.49. Steel relief that shows Antinous holding the grapes of Dionysus in one-hand and a cross in the other.
+Fig. 1.50. Steel relief that shows Antinous holding the grapes of Dionysus in one-hand and a cross in the other.
 
 **9.3 Islam**
 
