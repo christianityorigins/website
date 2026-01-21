@@ -1011,7 +1011,13 @@ Fig. 1.47. Was the father of Tiberius Julius Sauromates II named Tiberius Julius
 
 ![Fig.1.48](/images/TiberiusJuliusCotysII.jpg){:width="400px"}
 
-Fig. 1.48. Coin depicting Tiberius Julius Cotys II who was the grandfather of Tiberius Julius Sauromates II. Was he also Simon bar Kokhba? Bar Kokhba means "Son of the Star" which directly links to the "Star and Crescent" symbolism on the coins of Asander/Julius Caesar and Dynamis/Cleopatra. He led the Bar Kokhba revolt (132-136 AD) against Rome. As heir to the dragon crown he would have had a claim to the emperor position.
+Fig. 1.48. Coin depicting Tiberius Julius Cotys II who was the grandfather of Tiberius Julius Sauromates II. Was he also Simon bar Kokhba? Bar Kokhba means "Son of the Star". The star iconography is prominent in coins of Tiberius Julius Sauromates II and his son Rheskuporis V and directly links to the "Star and Crescent" symbolism on the coins of Asander/Julius Caesar and Dynamis/Cleopatra. He led the Bar Kokhba revolt (132-136 AD) against Rome. As heir to the dragon crown he would have had a claim to the emperor position.
+
+Tiberius Julius Cotys II was the son of Tiberius Julius Sauromates I.
+
+![Fig.1.49](/images/SauromatesIBarKokhba.jpg){:width="400px"}
+
+Fig. 1.49. L. coin issued for Tiberius Julius Sauromates I. R. Coin issued for Simon Bar Kokhba. (Source: https://rpc.ashmus.ox.ac.uk/coins/3/867 and: https://en.wikipedia.org/wiki/Bar_Kokhba_Revolt_coinage)
 
 Endnotes (Chapter 5)
 
