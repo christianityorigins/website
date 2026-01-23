@@ -34,7 +34,7 @@ Introduction\
 Part 1: Rome Was Located On the Cimmerian Bosphorus (Crimea–Kerch) River in Crimea\
 1\. The Evidence: Numismatic Proof and Alias List\
 1.1\. The Numismatic Key: Coins of a Global Empire\
-1.2\. Dramatis Personae: Ancient Alias Names List\
+1.2\. Ancient Alias Names List\
 2\. Name and Title Meanings\
 2.1 Biblical Figures\
 Part 2: Foundations of the Dragon Cult\
@@ -183,7 +183,7 @@ Fig. 1.9. L. Rhescuporis I, king of Bosphorus. R. Emperor Vespasian.
 ![Fig.1.10](/images/PolemonIITitus.jpg){:width="400px"}\
 Fig. 1.10. L. Polemon II, king of Bosphorus. R. Emperor Titus.
 
-1.2 Dramatis Personae: Ancient Alias Names List
+1.2 Ancient Alias Names List
 
 Note on Aliases: I believe that the Bosphoran/Ptolemaic elites in antiquity employed an incredible number of regional aliases, locations, fictional stories, faked adoptions, and fabricated deaths for themselves and their family members as a way to control the
 population. They role-played as deities, religious figures, and various characters as if they were actors in a play. This was done partially for obscuration, but also because people wouldn't accept foreign kings or kings with foreign names, and also, for theological requirements: a god-king had to manifest in different regions according to local religious expectations. However, as their names were mostly job titles an etymology across languages (Latin, Greek, "Old Persian," Sanskrit, Aramaic) reveals a unified administrative lexicon, and you can also identify their aliases through spouses. For example, the governor of Roman Egypt from 33 CE to 38, Aulus Avillius Flaccus, was also Polemon II of Pontus, who was
@@ -192,7 +192,7 @@ the regional alias of Emperor Titus. The character of Aulus Avillius
 Flaccus dies at the same time Polemon II of Pontus takes power, and then
 Polemon II of Pontus dies around the same time Titus becomes emperor.
 The way to connect them is through the fact that they were all married
-to the same woman, Berenice, granddaughter of King Herod (Bernice was also married to a man named "Marcus Antonius Polemo II").
+to the same woman, Berenice, granddaughter of King Herod (Bernice was also married to a man named "Marcus Antonius Polemo II" so that would make his father Marcus Antonius Polemon I aka Polemon of Laodicea https://en.wikipedia.org/wiki/Polemon_of_Laodicea).
 
 I. The Ptolemaic, Julio-Claudian & Bosphoran Bloodline
 
@@ -791,10 +791,9 @@ Bazus is the direct truncation of "Sabazios". It's the royal, dynastic form of t
 Sebasteia or Sebastē was also a city in the heart of the Pontic-Bosporan kingdom.
 
 ![Fig.
-1.35](/images/RhoemetalkesIChiRho.jpeg){:width="400px"}
+1.35](/images/RhoemetalcesAugustusPolemon.jpg){:width="400px"}
 
-Fig. 1.35. Coin of Rhoemetalces I that displays a Chi Rho. The Chi‑Rho (☧) is formed by overlapping the Greek letters Chi (Χ) and Rho (Ρ)—the first two letters of the Greek word Χριστός (Christos), meaning Christ. So, this indicates that Rhoemetalces I was a "christ".
-(source: https://rpc.ashmus.ox.ac.uk/coins/1/1776)
+Fig. 1.35. L. Rhoemetalces I, king of Bosphorus. M. Emperor Augustus (Octavian). R. Marcus Antonius Polemon I, king of Pontus.
 
 Alexander the Great was either the son of Ammon Zeus or Sabazios. However, there's no difference between them. Ammon Zeus means Hidden Zeus. Who is this? Hades. Hades and Osiris had the epithets Hidden (as did Cronus, and Kubera) or Invisible. Alexander Hislop also wrote that Nimrod was associated with the hidden god.
 
