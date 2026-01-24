@@ -36,7 +36,7 @@ Part 1: Rome Was Located On the Cimmerian Bosphorus (Crimea–Kerch) River in Cr
 1.1\. The Numismatic Key: Coins of a Global Empire\
 1.2\. Ancient Alias Names List\
 2\. Name and Title Meanings\
-2.1 Biblical Figures\
+2.1. Biblical Figures\
 Part 2: Foundations of the Dragon Cult\
 3\. The Sarmatian Dragon Cult\
 Part 3: The Alexandrian Synthesis\
@@ -72,8 +72,9 @@ Part 8. Rewriting History\
 8.1. Inventing Ancient Greece\
 8.2. The 'Achaemenid' Empire is the Parthian Empire\
 8.3. Fabricating 'Ancient' Egypt\
-8.4 The Vatican-Medici-Jesuit Forgery (14th - 18th centuries)\
-8.5 The Jesuit Operation (16th-18th c.)\
+8.4. Rome: The Phantom Empire on the Tiber\
+8.5. The Vatican-Medici-Jesuit Forgery (14th - 18th centuries)\
+8.6. The Jesuit Operation (16th-18th c.)\
 Part 9. Sects of the Imperial Cult\
 9\. Identifying the Flavian Scribes\
 9.1. Christianity\
@@ -1319,7 +1320,15 @@ The "Pharaohs" of the Old and Middle Kingdoms are fictional proto-avatars, backd
 
 The "Old Kingdom" is a fictional pre-history for the Serapis Cult. The Pyramids are not 2500 BC tombs. They were built in the 3rd-2nd Century BC. The Scythian Kurgan is the architectural and theological prototype for the Egyptian Pyramid. The reason carbon dating gives older dates for the mortar is because they used fossilized limestone as a key ingredient, a technology now lost, which throws the isotopic readings wildly out of sync.
 
-**8.4 The Vatican-Medici-Jesuit Forgery (14th - 18th centuries)**
+**8.4 Rome: The Phantom Empire on the Tiber**
+
+Not a single manuscript of any Roman historian exists from before 70 CE. The earliest manuscript copies we possess are medieval, often from around 800–1100 CE. All Roman historical works - Livy, Tacitus, Suetonius - survive only in medieval copies, often centuries after the authors lived and filtered through centuries of monastic scribes whose patron was the Roman Church, the direct successor of the Flavian political project.
+
+The monumental ruins in Italy today are Flavian-era constructions (70–200 CE) built by the dynasty to create imperial legitimacy. The Chersonesus Colosseum in Crimea (https://en.wikipedia.org/wiki/Chersonesus#Remains) is the prototype for the Roman Colosseum.
+
+The "Roman Empire" was not born on the Tiber. It was a political and literary fabrication moved there after the true center of power—the Dragon Kingdom of the Bosphorus—was subverted and its history overwritten. The ruins we see are not the remains of an ancient Republic; they are the founding monuments of history's most successful forgery.
+
+**8.5 The Vatican-Medici-Jesuit Forgery (14th - 18th centuries)**
 
 A clandestine cartel of Venetian and Genoese merchant-banking families, in collaboration with certain Vatican factions, orchestrated the bulk of the "rediscovery" of antiquity in the 15th-16th centuries. From roughly 600–1200 CE almost all ancient texts survive only via monasteries.
 
@@ -1327,7 +1336,7 @@ They didn't just forge texts; they forged entire material cultures. They employe
 
 The Medici did not create the foundational lie, but they financed, refined, and physically produced the "ancient" manuscripts that cemented it into Western consciousness (look up the similarities between Plato and Gemistus Plethon whose patron was also Cosimo de Medici). Their forger-in-chief was Poggio Bracciolini. Poggio Bracciolini who held the position of Apostolic Secretary to the Pope which gave him access to the Vatican Library and is who is the one creditied with "rediscovering" most ancient manuscricts from antiquity. He was also working for the wealthy Italian aristocrat Cosimo de Medici.
 
-**8.5 The Jesuit Operation (16th-18th c.)**
+**8.6 The Jesuit Operation (16th-18th c.)**
 
 Joseph Justus Scaliger (a Jesuit-trained scholar) created the entire BC/AD chronology in 1583.
 
