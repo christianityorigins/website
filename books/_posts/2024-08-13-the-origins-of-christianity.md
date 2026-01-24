@@ -781,6 +781,11 @@ Fig. 1.34. Coin depicting Ptolemy Apion, king of Kyrene, Kyrenaica, North Africa
 
 **5.3.2. Ptolemy XIII Theos Philopator aka Gaius Octavius (Emperor Augustus) aka Rhoemetalces I**
 
+![Fig.
+1.35](/images/RhoemetalcesAugustusPolemon.jpg){:width="400px"}
+
+Fig. 1.35. L. Rhoemetalces I, king of Bosphorus. M. Emperor Augustus (Octavian). R. Marcus Antonius Polemon I, king of Pontus.
+
 Augustus was not a name. It was a title. The title Augustus was translated into Greek as Sebastos. Related to the Thracian deity Sabazios. Sabazios -> The "-zios" suffix is a divine marker (like in Zeus). The core is Saba- or Saba-zd-. In Greek pronunciation, the 'b' (beta) was a voiced bilabial fricative (like a 'v'), so it could shift. Sabazios is where the Hebrew Sabaoth ("Lord of the Hosts") comes from.
 
 Zalmoxis was another name of Sabazius, the Thracian version of Zeus. Also, Zalmoxis or Zalmox or Zalmos can also be pronounced Salmos which is very close to the Aramaic and Hebrew pronunciation of Solomon.
@@ -792,9 +797,9 @@ Bazus is the direct truncation of "Sabazios". It's the royal, dynastic form of t
 Sebasteia or Sebastē was also a city in the heart of the Pontic-Bosporan kingdom.
 
 ![Fig.
-1.35](/images/RhoemetalcesAugustusPolemon.jpg){:width="400px"}
+1.36](/images/HerodPhilip.jpg){:width="400px"}
 
-Fig. 1.35. L. Rhoemetalces I, king of Bosphorus. M. Emperor Augustus (Octavian). R. Marcus Antonius Polemon I, king of Pontus.
+Fig. 1.36. He was likely also Herod Philip son of King Herod (Ptolemy XII Auletes aka Mark Antony aka Mithridates VI Eupator). "Philip" means "Lover of Horses"—the Scythian/Sarmatian royal attribute (Source: https://www.imj.org.il/en/collections/539562-0)
 
 Alexander the Great was either the son of Ammon Zeus or Sabazios. However, there's no difference between them. Ammon Zeus means Hidden Zeus. Who is this? Hades. Hades and Osiris had the epithets Hidden (as did Cronus, and Kubera) or Invisible. Alexander Hislop also wrote that Nimrod was associated with the hidden god.
 
@@ -837,9 +842,9 @@ The Celts in classical Galatia worshiped a deity called
 Aesus/Esus/Iesus. Amyntas, as the god king of Galatia would have been the personification of Esus. "Esus" from "Aisus (Thracian Jove-variant). Esus is the Celtic pronunciation of Aisus. The Scythian root is Aes-, the same as the Aesir and Aesar. "Iesus" is the Latin rendering of "Esus." There was no "J" sound. He was always called Ie-Sus (Yay-soos), "The Esus."
 
 ![Fig.
-1.36](/images/Esus.jpg){:width="400px"}
+1.37](/images/Esus.jpg){:width="400px"}
 
-Fig. 1.36. Statue from classical Anatolia that is dedicated to "Esumopas
+Fig. 1.37. Statue from classical Anatolia that is dedicated to "Esumopas
 Cnusticus". Esumopas means "Slave to Esus", and Esus means lord in
 Proto-Celtic. If you combine the Etruscan word "cnus" with the suffix
 "-ticus" or "-tic-" you get a word that translates to "anointed one" or
@@ -923,9 +928,9 @@ Theophilos in Greek. Around 26% of the New Testament was written to
 Theophilus in Luke and Acts of the Apostles).
 
 ![Fig.
-1.37](/images/AlexanderPhilo.jpg){:width="400px"}
+1.38](/images/AlexanderPhilo.jpg){:width="400px"}
 
-Fig. 1.37. (L) Alexander (grandson of King Herod) aka Gaius Julius
+Fig. 1.38. (L) Alexander (grandson of King Herod) aka Gaius Julius
 Alexander, Herodian Prince of Judaea aka Alexander the Alabarch aka
 (King/Tetrarch) Ptolemy (Alexander) bar Menneus aka Ptolemy of
 Mauretania aka "Jesus" in the bible. (R) Cleopatra (Thea Philopator) of
@@ -945,9 +950,9 @@ Adiabene/Edessa aka Ptolemy aka Yakov Zu Tolomoy aka Izates aka Jesus
 Emmanuel aka Monobazus of Adiabene [^23]
 
 ![Fig.
-1.38](/images/Josephus.jpg){:width="400px"}
+1.39](/images/Josephus.jpg){:width="400px"}
 
-Fig. 1.38. 'Josephus' bust which I identify as Tiberius Julius
+Fig. 1.39. 'Josephus' bust which I identify as Tiberius Julius
 Alexander. Compare it to Nerva's depictions. So, 'Josephus' was Philo of
 Alexandria's son. Tiberius Julius Alexander's son was named
 'Philopappos' and one of his mother's aliases was 'Alexandria bat
@@ -955,9 +960,9 @@ Matthias' which is where the pseudonym 'Joseph bar Matthias' comes from.
 Also, drop the initial b and final s in the name "Bar Mathias" and you
 get (Joseph of) Arimathea.
 
-![Fig. 1.39](/images/coin-abgar-phraates.png){:width="400px"}
+![Fig. 1.40](/images/coin-abgar-phraates.png){:width="400px"}
 
-Fig. 1.39. (L) and (R) show King Izates Monobazus of Edessa (known in
+Fig. 1.40. (L) and (R) show King Izates Monobazus of Edessa (known in
 Greek as the "Kingdom of Ourania" or in English as the "Kingdom of
 Heaven") wearing a crown of thorns. Izates or Izas is his title which is
 an ancient Greek translation of the Avestan word Yazatas (Persian:
@@ -968,9 +973,9 @@ source: The Alexander Mosaic, Huqoq, Israel.
 
 **5.3.7. Tiberius Julius Sauromates II**
 
-![Fig.1.40](/images/SauromatesII.jpg){:width="400px"}
+![Fig.1.41](/images/SauromatesII.jpg){:width="400px"}
 
-Fig. 1.40. Tiberius Julius Sauromates II, King of Bosphorus, who was the
+Fig. 1.41. Tiberius Julius Sauromates II, King of Bosphorus, who was the
 son of Tiberius Julius Cotys (aka Tiberius Julius Alexander aka Arrius
 Calpernius Piso aka Arrius Varus aka Emperor Nerva), great-grandson of
 Dynamis aka Cleopatra and Mark Antony. Does he look
@@ -981,43 +986,43 @@ means 'lizard' or 'reptile', and 'mates' means 'man' or 'warrior'.
 Therefore, translated literally ΒΑCΙΛΕΩC CΑVΡΟΜΑΤΟΥ means "King of the
 lizard people", or "king of the dragon people". But note that his father was Tiberius Julius Rhoemetalces and Rhoemetalces translates to "King of Rhome" in ancient Tracian. Also, at the root of Sauromates is "ROM"? If Sauromatians or Sauromates originally connotated Rome/Rhome/Rum (Saromates: Sar- = King, -oma- = Rhoma, -tes = of = "King of Rome"?) then this would prove my theories beyond any doubt. He was the grandson (or great-grandson?) of Ptolemy XII Auletes aka Mark Antony aka Mithridates VI Eupator and his daughter Cleopatra aka Dynamis.
 
-![Fig.1.41](/images/Tamga.jpg){:width="400px"}
+![Fig.1.42](/images/Tamga.jpg){:width="400px"}
 
-Fig. 1.41 The royal Tamga (symbol/signature) of Tiberius Julius Sauromates II contains a cross and a Chi Rho.
+Fig. 1.42. The royal Tamga (symbol/signature) of Tiberius Julius Sauromates II contains a cross and a Chi Rho.
 
-![Fig.1.42](/images/SauromatesCross.jpg){:width="400px"}
+![Fig.1.43](/images/SauromatesCross.jpg){:width="400px"}
 
-Fig. 1.42. Coin of Tiberius Julius Sauromates II that displays a cross in the right corner.
+Fig. 1.43. Coin of Tiberius Julius Sauromates II that displays a cross in the right corner.
 
-![Fig.1.43](/images/SauromatesCrown.jpg){:width="400px"}
+![Fig.1.44](/images/SauromatesCrown.jpg){:width="400px"}
 
-Fig. 1.43. Another coin of Tiberius Julius Sauromates II that displays a cross and what appears to be a crown of thorns (source: bosporan-kingdom.com/769-5139).
+Fig. 1.44. Another coin of Tiberius Julius Sauromates II that displays a cross and what appears to be a crown of thorns (source: bosporan-kingdom.com/769-5139).
 
-![Fig.1.44](/images/Thorns.jpg){:width="400px"}
+![Fig.1.45](/images/Thorns.jpg){:width="400px"}
 
-Fig. 1.44. Another coin of Tiberius Julius Sauromates II where he is wearing what appears to be a crown of thorns (source: bosporan-kingdom.com/731-4539).
+Fig. 1.45. Another coin of Tiberius Julius Sauromates II where he is wearing what appears to be a crown of thorns (source: bosporan-kingdom.com/731-4539).
 
-![Fig.1.45](/images/SauromatesBust.jpg){:width="400px"}
+![Fig.1.46](/images/SauromatesBust.jpg){:width="400px"}
 
-Fig. 1.45. Bust of Tiberius Julius Sauromates II found at the theatre of Dionysos, Athens. The bust depicts him emerging from a cluster of acanthus leaves at the base symbolizing resurrection. Acanthus leaves are one of the most potent symbols of resurrection in ancient Mediterranean art. Acanthus leaves symbolize rebirth, immortality, and the cyclical nature of life in art and architecture. Acanthus leaves are often used in Christian art to depict the resurrection of Jesus Christ.
+Fig. 1.46. Bust of Tiberius Julius Sauromates II found at the theatre of Dionysos, Athens. The bust depicts him emerging from a cluster of acanthus leaves at the base symbolizing resurrection. Acanthus leaves are one of the most potent symbols of resurrection in ancient Mediterranean art. Acanthus leaves symbolize rebirth, immortality, and the cyclical nature of life in art and architecture. Acanthus leaves are often used in Christian art to depict the resurrection of Jesus Christ.
 
-![Fig.1.46](/images/SauromatesAquila.jpg){:width="400px"}
+![Fig.1.47](/images/SauromatesAquila.jpg){:width="400px"}
 
-Fig. 1.46. Coin of Tiberius Julius Sauromates II displaying the sacred Roman Imperial Eagle (Aquila) — the supreme military symbol of Rome. No foreign king would be allowed to use the Roman Aquila — this was punishable by death. The Aquila was only carried by Roman legions and appeared on coins of Roman Emperors and Ptolemaic Pharaohs only. (source: https://bosporan-kingdom.com/618-4052/)
+Fig. 1.47. Coin of Tiberius Julius Sauromates II displaying the sacred Roman Imperial Eagle (Aquila) — the supreme military symbol of Rome. No foreign king would be allowed to use the Roman Aquila — this was punishable by death. The Aquila was only carried by Roman legions and appeared on coins of Roman Emperors and Ptolemaic Pharaohs only. (source: https://bosporan-kingdom.com/618-4052/)
 
-![Fig.1.47](/images/KanishkaI.jpg){:width="400px"}
+![Fig.1.48](/images/KanishkaI.jpg){:width="400px"}
 
-Fig. 1.47. Was the father of Tiberius Julius Sauromates II named Tiberius Julius Rhoemetalces also Kanishka I, also known as Kanishka the Great? (Kanishka = "Khan-Isha" (Scythian: "Khan-Lord")) was an emperor of the Kushan dynasty (modern day Afghanistan through India). This would mean that the Flavians only seized the western administration and rewrote its history. The eastern administration (Kushan) continued the old system for centuries. Kanishka I was the leader of the "Yuezhi" ("Iudii"/"Jove") tribe.
+Fig. 1.48. Was the father of Tiberius Julius Sauromates II named Tiberius Julius Rhoemetalces also Kanishka I, also known as Kanishka the Great? (Kanishka = "Khan-Isha" (Scythian: "Khan-Lord")) was an emperor of the Kushan dynasty (modern day Afghanistan through India). This would mean that the Flavians only seized the western administration and rewrote its history. The eastern administration (Kushan) continued the old system for centuries. Kanishka I was the leader of the "Yuezhi" ("Iudii"/"Jove") tribe.
 
-![Fig.1.48](/images/TiberiusJuliusCotysII.jpg){:width="400px"}
+![Fig.1.49](/images/TiberiusJuliusCotysII.jpg){:width="400px"}
 
-Fig. 1.48. Coin depicting Tiberius Julius Cotys II who was the grandfather of Tiberius Julius Sauromates II. Was he also Simon bar Kokhba? Bar Kokhba means "Son of the Star". The star iconography is prominent in coins of Tiberius Julius Sauromates II and his son Rheskuporis V and directly links to the "Star and Crescent" symbolism on the coins of Asander/Julius Caesar and Dynamis/Cleopatra. He led the Bar Kokhba revolt (132-136 AD) against Rome. As heir to the dragon crown he would have had a claim to the emperor position.
+Fig. 1.49. Coin depicting Tiberius Julius Cotys II who was the grandfather of Tiberius Julius Sauromates II. Was he also Simon bar Kokhba? Bar Kokhba means "Son of the Star". The star iconography is prominent in coins of Tiberius Julius Sauromates II and his son Rheskuporis V and directly links to the "Star and Crescent" symbolism on the coins of Asander/Julius Caesar and Dynamis/Cleopatra. He led the Bar Kokhba revolt (132-136 AD) against Rome. As heir to the dragon crown he would have had a claim to the emperor position.
 
 Tiberius Julius Cotys II was the son of Tiberius Julius Sauromates I.
 
-![Fig.1.49](/images/SauromatesIBarKokhba.jpg){:width="400px"}
+![Fig.1.50](/images/SauromatesIBarKokhba.jpg){:width="400px"}
 
-Fig. 1.49. L. coin issued for Tiberius Julius Sauromates I. R. Coin issued for Simon Bar Kokhba. (Source: https://rpc.ashmus.ox.ac.uk/coins/3/867 and: https://en.wikipedia.org/wiki/Bar_Kokhba_Revolt_coinage)
+Fig. 1.50. L. coin issued for Tiberius Julius Sauromates I. R. Coin issued for Simon Bar Kokhba. (Source: https://rpc.ashmus.ox.ac.uk/coins/3/867 and: https://en.wikipedia.org/wiki/Bar_Kokhba_Revolt_coinage)
 
 Endnotes (Chapter 5)
 
@@ -1052,9 +1057,9 @@ King, and Pas means "all" as in Pan. "Vespasian" = "King of All", or "King of Ev
 'Flavius Scaevinus' the conspirator involved in Nero's assassination.
 
 ![Fig.
-1.49](/images/Vespasian.jpg){:width="400px"}
+1.51](/images/Vespasian.jpg){:width="400px"}
 
-Fig. 1.49. L. Vespasian. R. Herod Agrippa I
+Fig. 1.51. L. Vespasian. R. Herod Agrippa I
 
 'Antonia Caenis' was Vespassian's mistress who was his first cousin who
 was Cleopatra (Thea Philopator) of Mauretania aka Cleopatra IX aka
@@ -1450,9 +1455,9 @@ Capitolina after the Bar Kokhba revolt (the city was named after Hadrian's famil
 that Aquila of Sinope and his wife Prisca or Priscilla lived with Paul
 the Apostle and Paul called them "my fellow workers in Christ Jesus"
 
-![Fig.1.50](/images/Antinous.jpg){:width="400px"}
+![Fig.1.52](/images/Antinous.jpg){:width="400px"}
 
-Fig. 1.50. Steel relief that shows Antinous holding the grapes of Dionysus in one-hand and a cross in the other.
+Fig. 1.52. Steel relief that shows Antinous holding the grapes of Dionysus in one-hand and a cross in the other.
 
 **9.3 Islam**
 
