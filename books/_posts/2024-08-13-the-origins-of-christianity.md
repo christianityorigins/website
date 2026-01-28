@@ -267,7 +267,7 @@ V. Speculative
     "Tale of the Shipwrecked Sailor". Josephus in Antiquities of the
     Jews, Book XX (Ch 9.4) refers to Paul (Saulus) as related to Herod
     Agrippa.
--  Pythagoras: Abaris the Hyperborean. The high priestess of the Temple of Apollo at Delphi was called Pythia [^8] who breathed serpent vapors (ethylene gas). Greek writers regarded the Hyperboreans as the mythical founders of Apollo's shrines at Delos and Delphi  [^9]. The name "Pythagoras" is derived from the Greek words "Pythios" (Πύθιος), meaning "of Pythia" or "belonging to the Pythia ("Pythoness"), and "Agoras" is a direct linguistic link to "Agaroi", the name of the Scythian snake-venom priesthood. Abaris was a Scythian and the Scythians worshiped snake deities. Pythia was probably Pythagoras' mother.
+-  Pythagoras: "Pythagoras" = "Pythodorida" = "Python-Priestess". Pythagoras was not a man—he was a title held by the high priest/ess of the Delphic/Alexandrian serpent cult, possibly Cleopatra herself under a male avatar. The high priestess of the Temple of Apollo at Delphi was called Pythia [^8] who breathed serpent vapors (ethylene gas). Greek writers regarded the Hyperboreans as the mythical founders of Apollo's shrines at Delos and Delphi [^9]. The name "Pythagoras" is derived from the Greek words "Pythios" (Πύθιος), meaning "of Pythia" or "belonging to the Pythia ("Pythoness"), and "Agoras" is a direct linguistic link to "Agaroi", the name of the Scythian snake-venom priesthood.
 
 **2. Name and Title Meanings**
 
@@ -475,6 +475,8 @@ Every cult spun from the Alexandrian school contains the same four components:
 4 Moral-Political Code: Doctrines emphasizing submission, loyalty, and divine judgment—psychological pacification software.
 
 The template is unmistakable: born in a cave (Jesus was born in a cave. Dionysus was born in a cave. Zeus was born in a cave. Sabazius (Serapis) was born in a cave), virgin birth (Dionysus from Zeus's thigh, Buddha from Maya's side, Horus from Isis), divine sacrifice and resurrection (Osiris dismembered and revived, Attis castrated and reborn, Mithras slain and ascending), and twelve disciples or companions (Mithras with twelve zodiac aides, Dionysus with twelve Maenads, Jesus with twelve Apostles). Each motif is a modular piece of the Serapic template, swapped into regional cults to precondition populations for the final merger under Christianity.
+
+"Sarapis" and it's offshoot deities were placeholder names that kings inherited. This role could switch between generations, and this is why they didn't directly deify themselves. The population knew the god-king was the earthly agent of whatever deity they worshiped. For example, a religion about "The Divine Augustus" dies with Augustus.
 
 **4.2 Judaism** 
 
