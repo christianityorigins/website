@@ -561,9 +561,9 @@ Bubares [^14] was a Persian prince who married Alexander's sister. They had a so
 
 The name Abaris or Abharas, from Abaris the Hyperborean, the teacher of Pythagoras, derives from the Old Scythian word *abhar*, which means chief or noble. Abharas is also related to the Sanskrit word *Bhārata*, a legendary king in the Vedas. Bhārata is at the root of the word *Bharatvarsha* which is a term that is used to refer to the Indian subcontinent as a whole.
 
-The Jewish scholar Flavius Josephus (37 – 100 AD) quotes from Clearchus’s fragment in his *Contra Apionem* [Against Apion], in which Aristotle says: “Jews are derived from the Indian philosophers; they are named by the Indians **Calami**, and by the Syrians **Judaei**, and took their name from the country they inhabit, which is called Judea.” (Book I:22.) Megasthenes (350 BC - 290 BC) recorded: "The Jews were an Indian tribe or sect called the **Kalani**" (also Kaldu).
+The Jewish scholar Flavius Josephus (37 – 100 AD) quotes from Clearchus’s fragment in his *Contra Apionem* [Against Apion], in which Aristotle says: “Jews are derived from the Indian philosophers; they are named by the Indians Calami, and by the Syrians Judaei, and took their name from the country they inhabit, which is called Judea.” (Book I:22.) Megasthenes (350 BC - 290 BC) recorded: "The Jews were an Indian tribe or sect called the Kalani" (also Kaldu).
 
-Megasthenes (350 BC - 290 BC) recorded: "The Jews were an Indian tribe or sect called the **Kalani**" (also Kaldu).
+Megasthenes (350 BC - 290 BC) recorded: "The Jews were an Indian tribe or sect called the Kalani" (also Kaldu).
 
 Voltaire claimed that Abraham descended from some of the numerous Brahman priests who left India.
 
@@ -571,19 +571,19 @@ Abraham (Ibrahim) may not have been a name but a description, meaning he was a B
 
 Calami is a village located in the Kannur district of Kerala, southwest India. Kochi, also known as Cochin, is a major port city in the state of Kerala. Cochin is obviously phonetically related to the name Cohen.
 
-Lost in history is that the greatest slave trade wasn't the Trans-Atlantic one, but the Jewish (Calami) ran transfer of Ethiopians into India during the spice and marble trade. **Dravidians are Ethiopians who the Jews imported into India via South India and Sri Lanka.** There is a straight line route from Ethiopia to Sri Lanka via boat. Also, during this slave trade the Jews created a settlement in Ethiopia for their slave trade business, hence Ethiopian Jews being a thing, and Cochin Jews existing on the south west section of India. "Habshi" is what Northern Indians called Southern Indians and *Habesha* comes from "Abyssinia" which refers to Ethiopia. These Ethiopian slaves then mixed with indigenous Australoid/Denisovans who were similar to Australian Aborigines. Eventually they mixed with the indigenous Scythians (likely by force and genocide run by the Calami).
+Lost in history is that the greatest slave trade wasn't the Trans-Atlantic one, but the Jewish (Calami) ran transfer of Ethiopians into India during the spice and marble trade. Dravidians are Ethiopians who the Jews imported into India via South India and Sri Lanka. There is a straight line route from Ethiopia to Sri Lanka via boat. Also, during this slave trade the Jews created a settlement in Ethiopia for their slave trade business, hence Ethiopian Jews being a thing, and Cochin Jews existing on the south west section of India. "Habshi" is what Northern Indians called Southern Indians and *Habesha* comes from "Abyssinia" which refers to Ethiopia. These Ethiopian slaves then mixed with indigenous Australoid/Denisovans who were similar to Australian Aborigines. Eventually they mixed with the indigenous Scythians (likely by force and genocide run by the Calami).
 
 **7.4 The Middle East and North Africa: Invasions and Slave Colonization (250 - 650 CE)**
 
 The destruction of the Aryans in the Middle East and North Africa was done in three phases:
 
-1.  **The Goths** were not primitive invaders. They were a **Scythian remnant group (Goths = Getae = Scythians) weaponized by the Eastern Empire (Constantinople/Adiabene faction) to destroy the Western R1a aristocracy.** The sack of Rome (410 CE) and the conquest of North Africa by the Vandals (a Sarmatian elite leading a mixed army) were false-flag operations to clear the land.
-2.  **The "Justinianic Plague" (541-549 CE) was a Bioweapon:** Recent genomic analysis shows the *'Yersinia pestis'* strain was not endemic to Europe. It was **introduced via the Egyptian grain trade**, controlled from Constantinople/Alexandria. It disproportionately ravaged the densely populated, still-R1a-heavy cities and army camps of the old empire. This was a **demographic reset**.
-3.  **The "Arab Conquests".** The armies were multi-ethnic slave-soldier forces (*Ghilmān*), but their core leadership was not "Arab." It was the **J2/J1 Adiabene-Makkedan nobility (the "Quraysh")**—the same priestly-financier class that had served the Flavians.
+1.  The Goths were not primitive invaders. They were a Scythian remnant group (Goths = Getae = Scythians) weaponized by the Eastern Empire (Constantinople/Adiabene faction) to destroy the Western R1a aristocracy. The sack of Rome (410 CE) and the conquest of North Africa by the Vandals (a Sarmatian elite leading a mixed army) were false-flag operations to clear the land.
+2.  The "Justinianic Plague" (541-549 CE) was a Bioweapon: Recent genomic analysis shows the *'Yersinia pestis'* strain was not endemic to Europe. It was introduced via the Egyptian grain trade, controlled from Constantinople/Alexandria. It disproportionately ravaged the densely populated, still-R1a-heavy cities and army camps of the old empire. This was a demographic reset.
+3.  The "Arab Conquests". The armies were multi-ethnic slave-soldier forces (*Ghilmān*), but their core leadership was not "Arab." It was the J2/J1 Adiabene-Makkedan nobility (the "Quraysh")—the same priestly-financier class that had served the Flavians.
 
 Their primary targets were not cities, but the countryside—the *latifundia* estates still held by the old R1a landowning families. Systematic slaughter of adult males, enslavement of women and children.
 
-The Arabs also engaged in **slave breeding**. Cities like Basra and Kufa were not military camps; they were **human hatcheries**. The scale is understated. Estimates based on tax records suggest **5-7 million East African (Zanj) and Caucasian slaves** were imported into Mesopotamia and the Levant between 700-900 CE. The "Arabization" was, in fact, the **'Zanj-ization' of the population base**.
+The Arabs also engaged in slave breeding. Cities like Basra and Kufa were not military camps; they were human hatcheries. The scale is understated. Estimates based on tax records suggest 5-7 million East African (Zanj) and Caucasian slaves were imported into Mesopotamia and the Levant between 700-900 CE. The "Arabization" was, in fact, the 'Zanj-ization' of the population base.
 
 **Genetic Table (with specific subclades):**
 
@@ -603,7 +603,7 @@ The Scythians did not completely vanish. Some were pushed to the geographic and 
 3.  **The European Nobility:** A fraction fled west, becoming the nucleus of the "Gothic" and later "Frankish" nobility. Their "divine right of kings" was a **corrupted memory of the Dragon King mandate**. This explains why medieval European royal lineages are obsessed with Trojan (i.e., Anatolian) and Scythian origins.
 4.  **The Ghetto and the Diaspora:** Some of the defeated R1a elite were absorbed into the Jewish communities of the Diaspora as converts, explaining the presence of R1a lineages (like R1a-YP263) in Ashkenazi Levites—a **conquered priesthood absorbed by the victorious priestly class**.
 
-The "Great Replacement" is not a modern theory. It is an **ancient, completed historical fact**. The peoples now called "Arabs," "Turks," and "Middle Easterners" are largely the successful result of this replacement—a slave-soldier derived population ruled by a priest-financier elite that orchestrated the downfall of its former Scythian masters.
+The "Great Replacement" is not a modern theory. It is an ancient, completed historical fact. The peoples now called "Arabs," "Turks," and "Middle Easterners" are largely the successful result of this replacement—a slave-soldier derived population ruled by a priest-financier elite that orchestrated the downfall of its former Scythian masters.
 
 The victors then wrote the history, claiming the cultural achievements of the defeated (Pyramids, Philosophy, Law) as their own, and painting the Scythians as barbarian nomads or mythological monsters (Aži Dahāka, Gog and Magog).
 
@@ -611,50 +611,50 @@ The victors then wrote the history, claiming the cultural achievements of the de
 
 **8. How R1a Was Purged from History**
 
-The main culprits for forging history were the **Flavians** so that they could legitimize their new dynasty and obscure their Bosphoran/Herodian origins. It would have taken a global conspiracy to forge entire material cultures. It would have required destroying texts and artifacts in a number of different countries and then paying an army of scribes and artisans to create a new history. Not even the Vatican would have had this power. For the church to do this they would have had to destroy texts and artifacts in Muslim, Hindu, and Buddhist countries that were out of their reach, and even in places as far as Russia and China. Only the Flavians had this power. They controlled the **Alexandrian School** (via Tiberius Julius Alexander/Josephus who was likely the one who burned it down) which was the world's only major repository of texts and the only "publishing house". This gave them control over the primary intellectual and scribal output of the ancient world. It was the ancient equivalent of taking over Google, Wikipedia, and every major university press.
+The main culprits for forging history were the Flavians so that they could legitimize their new dynasty and obscure their Bosphoran/Herodian origins. It would have taken a global conspiracy to forge entire material cultures. It would have required destroying texts and artifacts in a number of different countries and then paying an army of scribes and artisans to create a new history. Not even the Vatican would have had this power. For the church to do this they would have had to destroy texts and artifacts in Muslim, Hindu, and Buddhist countries that were out of their reach, and even in places as far as Russia and China. Only the Flavians had this power. They controlled the Alexandrian School (via Tiberius Julius Alexander/Josephus who was likely the one who burned it down) which was the world's only major repository of texts and the only "publishing house". This gave them control over the primary intellectual and scribal output of the ancient world. It was the ancient equivalent of taking over Google, Wikipedia, and every major university press.
 
 Then later emperors like Theodosius and Constantine through systematic censorship under imperial decree and their destruction of Pagan artifacts solidified the lie. Falsification was not hidden, it was their official doctrine.
 
 The Vatican and Jesuits just codified the lie.
 
-The point at which the Flavians forged history was after the First Jewish–Roman War (66-70 AD). According to the book *'Jesus, King of Edessa'* (2012) by Ralph Ellis [^16] **Jesus ben Gamala/Gamaliel** who led the First Jewish–Roman War (66-70 AD) against Rome was also **Jesus ben Sapphias** and **Izas Ma'nu (Jesus Emmanuel) Monobazus of Adiabene** aka **Yeshua Cleopatros (Cantheras/Panthera) ben Josephus bar Menneus aka Ptolemy aka Yakov Zu Tolomoy**. King Izates of Monobazus was a descendant of the dragon bloodline and was married to the sister of Dynamis's mother. **Tiberius Julius Sauromates II** or his father or grandfather could have also been **Simon bar Kokhba** (Bar Kokhba means "Son of the Star" or his son which directly links to the "Star and Crescent" symbolism on the coins of Asander/Julius Caesar and Dynamis/Cleopatra) who led the Bar Kokhba revolt (132-136 AD) against Rome.
+The point at which the Flavians forged history was after the First Jewish–Roman War (66-70 AD). According to the book *'Jesus, King of Edessa'* (2012) by Ralph Ellis [^16] Jesus ben Gamala/Gamaliel who led the First Jewish–Roman War (66-70 AD) against Rome was also Jesus ben Sapphias and Izas Ma'nu (Jesus Emmanuel) Monobazus of Adiabene aka Yeshua Cleopatros (Cantheras/Panthera) ben Josephus bar Menneus aka Ptolemy aka Yakov Zu Tolomoy. King Izates of Monobazus was a descendant of the dragon bloodline and was married to the sister of Dynamis's mother. Tiberius Julius Sauromates II or his father or grandfather could have also been Simon bar Kokhba (Bar Kokhba means "Son of the Star" or his son which directly links to the "Star and Crescent" symbolism on the coins of Asander/Julius Caesar and Dynamis/Cleopatra) who led the Bar Kokhba revolt (132-136 AD) against Rome.
 
-What seems plausible is that the "Aryan hegemony" of the ancient world was not a monolith, but a network of interrelated clans (Saka, Sarmatian, Cimmerian, Parthian, etc.) who often fought for supremacy within the hegemony. For example, the "Persian" conquest by Cyrus was not a new empire but a **coup d'état by one Scythian clan (the Achaemenids/Persians) against the ruling Scythian clan (the Medes)**. The "Greco-Persian Wars" were a civil war between the Western satrapy (Greece) and the Eastern core (Achaemenid Persia). So, in the "Jewish-Roman" Wars (who were Celtic Iudii Jupiter worshippers, unrelated to modern "Jews") the Flavians did not put down a provincial revolt. They launched a **blitzkrieg against the core Eastern administration**, and this destroyed the Scythian steppe hegemony. The Flavian dynasty then, after defeating the Judean-Adiabenean forces in the Great War (66-74 AD, mislabeled the "First Jewish-Roman War"), took their primary political enemy, King Izates II, and rewrote his cult as pacifist allegory to subvert the people of his kingdom using the same Alexandrian School formula they used in all their imperial cults. They also rewrote history to erase their Bosphoran origins.
+What seems plausible is that the "Aryan hegemony" of the ancient world was not a monolith, but a network of interrelated clans (Saka, Sarmatian, Cimmerian, Parthian, etc.) who often fought for supremacy within the hegemony. For example, the "Persian" conquest by Cyrus was not a new empire but a coup d'état by one Scythian clan (the Achaemenids/Persians) against the ruling Scythian clan (the Medes). The "Greco-Persian Wars" were a civil war between the Western satrapy (Greece) and the Eastern core (Achaemenid Persia). So, in the "Jewish-Roman" Wars (who were Celtic Iudii Jupiter worshippers, unrelated to modern "Jews") the Flavians did not put down a provincial revolt. They launched a blitzkrieg against the core Eastern administration, and this destroyed the Scythian steppe hegemony. The Flavian dynasty then, after defeating the Judean-Adiabenean forces in the Great War (66-74 AD, mislabeled the "First Jewish-Roman War"), took their primary political enemy, King Izates II, and rewrote his cult as pacifist allegory to subvert the people of his kingdom using the same Alexandrian School formula they used in all their imperial cults. They also rewrote history to erase their Bosphoran origins.
 
 Roman emperor faces no longer appear on Bosphoran coins after emperor Titus. Roman emperors also stopped looking "Aryan"/Nordic after the Flavian empire.
 
-The Flavians (*Pālava* or *Palavi/Pahlavi*, which was the term for the Parthian/Iranian aristocracy) were a Sauromatian clan who broke away from the old R1a-Z93 royal Bosphoran line (the Sauromatians proper) and introduced a heavy **J2/J1 (Jewish haplogroup) admixture** from the Adiabene–Osrhoene region. The haplotype R1a (the famed "Arya" gene) was the dominant haplogroup of the Roman elite before the Flavian empire. After the Flavian reign the haplotype **J2/J1 became the dominant haplogroup** among the Roman elite [^17].
+The Flavians (*Pālava* or *Palavi/Pahlavi*, which was the term for the Parthian/Iranian aristocracy) were a Sauromatian clan who broke away from the old R1a-Z93 royal Bosphoran line (the Sauromatians proper) and introduced a heavy J2/J1 (Jewish haplogroup) admixture from the Adiabene–Osrhoene region. The haplotype R1a (the famed "Arya" gene) was the dominant haplogroup of the Roman elite before the Flavian empire. After the Flavian reign the haplotype J2/J1 became the dominant haplogroup among the Roman elite [^17].
 
 This is why they erased the Scythian origins of ancient civilizations and painted the Scythians (R1a) as monstrous foreigners.
 
-By the 1st century CE, power had shifted. The **financial and logistical brain** of the Hegemony was in **Adiabene (Northern Mesopotamia)**, a wealthy hub of trade and banking run by a mixed **J1/J2 priestly class**. The **symbolic, royal heart** was in the **Bosporus (Crimea)**, held by the **R1a-Z93 Dragon Bloodline** (the house of Izates, Sauromates).
+By the 1st century CE, power had shifted. The financial and logistical brain of the Hegemony was in Adiabene (Northern Mesopotamia), a wealthy hub of trade and banking run by a mixed J1/J2 priestly class. The symbolic, royal heart was in the Bosporus (Crimea), held by the R1a-Z93 Dragon Bloodline (the house of Izates, Sauromates).
 
 **8.1 The Flavian Coup – The Accountants Take Over**
 
 **8.1.1 The “First Jewish-Roman War” as a Treasury Seizure**
 
 The "First Jewish-Roman War" (66-73 CE): The True Story
-This was not a revolt. It was the **Adiabene financial faction (led by Tiberius Julius Alexander) seizing the central treasury in Jerusalem from the legitimate Dragon King, Izates II**.
+This was not a revolt. It was the Adiabene financial faction (led by Tiberius Julius Alexander) seizing the central treasury in Jerusalem from the legitimate Dragon King, Izates II.
 
-*   **Titus Flavius Vespasianus** was not a general. He was the **Chief Quartermaster** of the Eastern armies, an Adiabene bureaucrat.
-*   The "Siege of Jerusalem" was the **legitimate king Izates** trying to storm his own treasury to fund his loyalists, besieged by the rebel financial administration's mercenaries.
-*   **Masada** is not a story of heroic Jewish resistance. It was the last stand of the **Dragon King's personal guard**, the R1a-Z93 Sarmatian cavalry, who chose death over surrender to the usurping bean-counters.
+*   Titus Flavius Vespasianus was not a general. He was the Chief Quartermaster of the Eastern armies, an Adiabene bureaucrat.
+*   The "Siege of Jerusalem" was the legitimate king Izates trying to storm his own treasury to fund his loyalists, besieged by the rebel financial administration's mercenaries.
+*   Masada is not a story of heroic Jewish resistance. It was the last stand of the Dragon King's personal guard, the R1a-Z93 Sarmatian cavalry, who chose death over surrender to the usurping bean-counters.
 
 **8.1.2 Izates of Adiabene vs. Vespasian – the last Dragon King vs. the banker**
 
 **5.3 Burning the Server: The End of the Old World**
 The post-coup actions of the Flavians were systematic:
-1.  **Assassinate the Bloodline:** Izates II executed. His relatives hunted.
-2.  **Destroy the Records:** The Library of Alexandria burned (likely by Tiberius Julius Alexander). This erased the master database of avatar lineages, tax rolls, and historical records.
-3.  **Rewrite the Software:** The **Alexandrian School**, now under Flavian control, creates new "histories" and "religions."
-    *   The defeated Dragon King Izates is reinvented as **Jesus Christ**, his warrior cult transformed into a pacifist mystery religion to pacify his followers.
+1.  Assassinate the Bloodline: Izates II executed. His relatives hunted.
+2.  Destroy the Records: The Library of Alexandria burned (likely by Tiberius Julius Alexander). This erased the master database of avatar lineages, tax rolls, and historical records.
+3.  Rewrite the Software: The Alexandrian School, now under Flavian control, creates new "histories" and "religions."
+    *   The defeated Dragon King Izates is reinvented as Jesus Christ, his warrior cult transformed into a pacifist mystery religion to pacify his followers.
     *   The victors (Flavians) write themselves into history as the noble "Romans," and their Aryan predecessors are recast as "barbarian" Scythians, "tyrannical" Persians, or mythical monsters.
 
 **9. Inventing Ancient Greece**
 
 Not only is Western Rome a phantom empire, so was the "Classical Greece" of Pericles, Plato, and Aristotle. It is a literary and philosophical back-projection, created by the Flavians and later Renaissance humanists. Its purpose was to provide a "noble pedigree" for the Western Roman Empire, separating it from its "barbaric" Scythian roots. The works of Plato and Aristotle are not the products of a 5th-4th century BC Athenian democracy. They are the synthesized theological and political philosophy of the Alexandrian/Bosphoran intellectual elite, likely compiled between the 1st century BC and 2nd century AD at the Alexandrian School in Egypt, and then retroactively attributed to fictional "Greek" sages.
 
-There is no physical manuscript of any Greek classic (Plato, Aristotle, Sophocles) that predates the 9th century AD. The earliest fragments are papyri from Roman Egypt (1st-3rd c. AD). The entire corpus was "preserved" by Byzantine monks and then "rediscovered" by Italian humanists like **Poggio Bracciolini** in the 15th century. Bracciolini was a known forger and had both motive (Medici patronage) and opportunity (access to the Vatican's scriptorium) to produce these texts.
+There is no physical manuscript of any Greek classic (Plato, Aristotle, Sophocles) that predates the 9th century AD. The earliest fragments are papyri from Roman Egypt (1st-3rd c. AD). The entire corpus was "preserved" by Byzantine monks and then "rediscovered" by Italian humanists like Poggio Bracciolini in the 15th century. Bracciolini was a known forger and had both motive (Medici patronage) and opportunity (access to the Vatican's scriptorium) to produce these texts.
 
 Plato's "Academy" was the Alexandrian School. "Plato" is not a man. The name is a title. "Plato" (Πλάτων) derives from "Plouton" (Πλούτων), an alias for Hades, the god of the underworld who possessed the riches of the earth. "Ptolemy" (Πτολεμαῖος) derives from *Ptole-* (war) but is phonetically and functionally identical to "Plouton-Maios" (The Rich One).
 
@@ -662,33 +662,33 @@ Plato's "Academy" was the Alexandrian School. "Plato" is not a man. The name is 
 
 The Alexandrian School moved history back 300-500 years. They invented the ‘Achaemenid’ Empire as a mirror of the Parthian Empire.
 
-In Persia, the "Achaemenid Empire" is a phantom, a Flavian-era literary creation designed to provide a grandiose, conquered enemy for "Alexander the Great", and push the "center" of ancient power further east, away from the Bosphoran core. There are **no coins** issued in the name of "Cyrus the Great", "Darius I", or "Xerxes". The entire empire, supposedly the largest in the world, allegedly functioned for centuries without a coinage system. The coins we attribute to them are misdated Greco-Bactrian and Parthian issues. There are no contemporary records of Cyrus. **Cyrus, Darius, and Xerxes are backdated composites of the sons of Mithridates VI Eupator** who were also named Cyrus, Darius, Xerxes, and other Parthian kings.
+In Persia, the "Achaemenid Empire" is a phantom, a Flavian-era literary creation designed to provide a grandiose, conquered enemy for "Alexander the Great", and push the "center" of ancient power further east, away from the Bosphoran core. There are no coins issued in the name of "Cyrus the Great", "Darius I", or "Xerxes". The entire empire, supposedly the largest in the world, allegedly functioned for centuries without a coinage system. The coins we attribute to them are misdated Greco-Bactrian and Parthian issues. There are no contemporary records of Cyrus. Cyrus, Darius, and Xerxes are backdated composites of the sons of Mithridates VI Eupator who were also named Cyrus, Darius, Xerxes, and other Parthian kings.
 
 The "Achaemenid" Empire perfectly mirrors the Arsacid Parthian empire if you factor in "phantom time".
 
-*   **Cyrus the Great (c. 550 BC) = Mithridates I of Parthia (c. 171 BC)** - Founder of the Parthian Empire. Both were "Great Kings" who establish a vast Persian empire from a minor satrapy.
-*   **Darius I (c. 522 BC) = Mithridates II of Parthia (c. 124 BC)** - Consolidated the empire and organized it. Both are master administrators who create the classic "Persian" imperial structure.
-*   **Xerxes I (c. 486 BC) = Orodes II of Parthia (c. 57 BC)** - His general Surena annihilates the Roman army at Carrhae. Both launch massive, failed invasions of "the West" (Greece/Rome). **The "Persian Wars" are the Mithridatic Wars.**
+*   Cyrus the Great (c. 550 BC) = Mithridates I of Parthia (c. 171 BC) - Founder of the Parthian Empire. Both were "Great Kings" who establish a vast Persian empire from a minor satrapy.
+*   Darius I (c. 522 BC) = Mithridates II of Parthia (c. 124 BC) - Consolidated the empire and organized it. Both are master administrators who create the classic "Persian" imperial structure.
+*   Xerxes I (c. 486 BC) = Orodes II of Parthia (c. 57 BC) - His general Surena annihilates the Roman army at Carrhae. Both launch massive, failed invasions of "the West" (Greece/Rome). The "Persian Wars" are the Mithridatic Wars.
 
-Zoroastrianism was invented by the **Sasanian Empire (3rd-7th C. AD)**. They needed a state religion to rival Christianity and legitimize their rule. They systematically compiled older Iranian oral traditions and created the Avesta as a "holy book". To give it antiquity, they back-dated Zoroaster to a mythical past (6000 BC). In doing so, they plagiarized the life story of a real person: **Pythagoras** (Both Pythagoras and the Zoroaster of legend are said to have traveled to Egypt and Babylon for wisdom. Both are masters of occult knowledge and ritual purity. Both believe in the transmigration of souls).
+Zoroastrianism was invented by the Sasanian Empire (3rd-7th C. AD). They needed a state religion to rival Christianity and legitimize their rule. They systematically compiled older Iranian oral traditions and created the Avesta as a "holy book". To give it antiquity, they back-dated Zoroaster to a mythical past (6000 BC). In doing so, they plagiarized the life story of a real person: Pythagoras (Both Pythagoras and the Zoroaster of legend are said to have traveled to Egypt and Babylon for wisdom. Both are masters of occult knowledge and ritual purity. Both believe in the transmigration of souls).
 
-**11. Fabricating 'Ancient' Egypt**
+**11. Fabricating 'Ancient' Egypt*
 
-The **Hyksos** ("Shepherd Kings") were not an invasion. They were **the Aryan administrative takeover.** They introduced the horse, chariot, and composite bow—the tools of Steppe control.
-*   **Pharaoh as a Title:** *Per-aa* ("Great House") is a mistranslation. It derives from **Pharn-ah** (Avestan: Glory of the Dragon). The god **Horus** is *Heru* = "The One on High," a title for the viceroy.
+The Hyksos ("Shepherd Kings") were not an invasion. They were the Aryan administrative takeover. They introduced the horse, chariot, and composite bow—the tools of Steppe control.
+*   Pharaoh as a Title: *Per-aa* ("Great House") is a mistranslation. It derives from Pharn-ah (Avestan: Glory of the Dragon). The god Horus is *Heru* = "The One on High," a title for the viceroy.
 *   Genetic analysis of New Kingdom royal mummies showing steppe ancestry (R1b-V88, R1a) vs. the native E-M78 population.
 
 In Egypt the "5000-year" history of Egypt is a Flavian-era fabrication to provide a deep, mystical past for the Serapis cult.
 
-The "Pharaohs" of the Old and Middle Kingdoms are **fictional proto-avatars**, backdated to create a lineage for the living god-kings like the Ptolemies and Caesars.
+The "Pharaohs" of the Old and Middle Kingdoms are fictional proto-avatars, backdated to create a lineage for the living god-kings like the Ptolemies and Caesars.
 
-The "Old Kingdom" is a fictional pre-history for the Serapis Cult. **The Pyramids are not 2500 BC tombs. They were built in the 3rd-2nd Century BC.** The Scythian Kurgan is the architectural and theological prototype for the Egyptian Pyramid. The reason carbon dating gives older dates for the mortar is because they used fossilized limestone as a key ingredient, a technology now lost, which throws the isotopic readings wildly out of sync.
+The "Old Kingdom" is a fictional pre-history for the Serapis Cult. The Pyramids are not 2500 BC tombs. They were built in the 3rd-2nd Century BC. The Scythian Kurgan is the architectural and theological prototype for the Egyptian Pyramid. The reason carbon dating gives older dates for the mortar is because they used fossilized limestone as a key ingredient, a technology now lost, which throws the isotopic readings wildly out of sync.
 
 **12. Rome: The Phantom Empire on the Tiber**
 
 Not a single manuscript of any Roman historian exists from before 70 CE. The earliest manuscript copies we possess are medieval, often from around 800–1100 CE. All Roman historical works - Livy, Tacitus, Suetonius - survive only in medieval copies, often centuries after the authors lived and filtered through centuries of monastic scribes whose patron was the Roman Church, the direct successor of the Flavian political project.
 
-The monumental ruins in Italy today are **Flavian-era constructions (70–200 CE)** built by the dynasty to create imperial legitimacy. The Chersonesus Colosseum in Crimea ([https://en.wikipedia.org/wiki/Chersonesus#Remains](https://en.wikipedia.org/wiki/Chersonesus#Remains)) is the **prototype for the Roman Colosseum**.
+The monumental ruins in Italy today are Flavian-era constructions (70–200 CE) built by the dynasty to create imperial legitimacy. The Chersonesus Colosseum in Crimea ([https://en.wikipedia.org/wiki/Chersonesus#Remains](https://en.wikipedia.org/wiki/Chersonesus#Remains)) is the prototype for the Roman Colosseum.
 
 The "Roman Empire" was not born on the Tiber. It was a political and literary fabrication moved there after the true center of power—the Dragon Kingdom of the Bosphorus—was subverted and its history overwritten. The ruins we see are not the remains of an ancient Republic; they are the founding monuments of history's most successful forgery.
 
@@ -698,59 +698,59 @@ A clandestine cartel of Venetian and Genoese merchant-banking families, in colla
 
 They didn't just forge texts; they forged entire material cultures. They employed networks of artisans in Crete, Cyprus, and Alexandria to mass-produce "ancient" sculptures, coins, and artifacts, which were then "discovered" in orchestrated digs. The famous "Cabinet of Curiosities" of wealthy patrons like the Cosimo de Medici were their primary market. The purpose was twofold: financial profit and the creation of a "classical pedigree" for the rising Western European powers, deliberately severing them from their true Scythian-Bosporan (Crimean) and Byzantine roots. This is why "Roman" artifacts suspiciously multiply after the 15th century.
 
-The Medici did not create the foundational lie, but they financed, refined, and physically produced the "ancient" manuscripts that cemented it into Western consciousness (look up the similarities between Plato and Gemistus Plethon whose patron was also Cosimo de Medici). Their forger-in-chief was **Poggio Bracciolini**. Poggio Bracciolini held the position of Apostolic Secretary to the Pope which gave him access to the Vatican Library and is who is the one credited with "rediscovering" most ancient manuscripts from antiquity. He was also working for the wealthy Italian aristocrat Cosimo de Medici.
+The Medici did not create the foundational lie, but they financed, refined, and physically produced the "ancient" manuscripts that cemented it into Western consciousness (look up the similarities between Plato and Gemistus Plethon whose patron was also Cosimo de Medici). Their forger-in-chief was Poggio Bracciolini. Poggio Bracciolini held the position of Apostolic Secretary to the Pope which gave him access to the Vatican Library and is who is the one credited with "rediscovering" most ancient manuscripts from antiquity. He was also working for the wealthy Italian aristocrat Cosimo de Medici.
 
 **14. The Jesuit Operation (16th-18th c.)**
 
-*   **Joseph Justus Scaliger** (a Jesuit-trained scholar) created the entire BC/AD chronology in 1583.
-*   **Athanasius Kircher** (Jesuit) "reconstructed" Egyptian history from fragments.
-*   Jesuits in China found a civilization with **no coherent linear chronology**. They took fragmentary records, king lists, and bronze inscriptions and arranged them to fit the Biblical timeline provided by the Septuagint.
-*   Jesuits in India **back-dated Sanskrit texts by 1,500+ years**.
+*   Joseph Justus Scaliger (a Jesuit-trained scholar) created the entire BC/AD chronology in 1583.
+*   Athanasius Kircher (Jesuit) "reconstructed" Egyptian history from fragments.
+*   Jesuits in China found a civilization with no coherent linear chronology. They took fragmentary records, king lists, and bronze inscriptions and arranged them to fit the Biblical timeline provided by the Septuagint.
+*   Jesuits in India back-dated Sanskrit texts by 1,500+ years.
 
-There was a Jesuit named **Jean Hardouin** who said that a 14th Century Jesuit conspiracy forged practically all literature traditionally believed to have been written before that era. He was the official librarian to the King of France. He published a book called the *Prolegomena* where his thesis was that the works of Cicero, Virgil, Tacitus, Plutarch, and even the Church Fathers were not rediscovered by Bracciolini. They were written by him and his team, under the patronage of the Medici and the Vatican. His book caused such controversy that the Pope and the King had him come before them and explain himself. He defended his work, and refused to retract it, so they threw him in prison.
+There was a Jesuit named Jean Hardouin who said that a 14th Century Jesuit conspiracy forged practically all literature traditionally believed to have been written before that era. He was the official librarian to the King of France. He published a book called the *Prolegomena* where his thesis was that the works of Cicero, Virgil, Tacitus, Plutarch, and even the Church Fathers were not rediscovered by Bracciolini. They were written by him and his team, under the patronage of the Medici and the Vatican. His book caused such controversy that the Pope and the King had him come before them and explain himself. He defended his work, and refused to retract it, so they threw him in prison.
 
 **15. Expanded Notes: Suppressed Histories & New Connections**
 
-**1. The Carthaginian Deception:**
-Carthage was not a Phoenician colony. It was founded as a **refugee state for the defeated maritime Dragon Caste** after the Thera-Mycenaean civil wars. The "Phoenician" identity was a cover.
-*   **The Goddess Tanit:** Her symbol is a triangle with a circle—a **stylized Kurgan mound and sun disc.** Her worship involved child sacrifice not out of barbarism, but as a **desperate, corrupted ritual** to maintain genetic purity (sacrificing children of mixed unions) and power in exile.
-*   **Hannibal Barca:** His family name "Barca" means "Lightning" (cf. Sanskrit *Barqa*, Hebrew *Barak*). He was not just a general; he was a **Dragon King scion** trying to reconquer the lost Western Mediterranean satrapies (Rome, Greece) for the Hegemony. His Celtic allies were not mercenaries; they were **R1a-descended tribes** of Western Europe answering the call of their bloodline.
+1. The Carthaginian Deception:
+Carthage was not a Phoenician colony. It was founded as a refugee state for the defeated maritime Dragon Caste after the Thera-Mycenaean civil wars. The "Phoenician" identity was a cover.
+*   The Goddess Tanit: Her symbol is a triangle with a circle—a stylized Kurgan mound and sun disc. Her worship involved child sacrifice not out of barbarism, but as a desperate, corrupted ritual to maintain genetic purity (sacrificing children of mixed unions) and power in exile.
+*   Hannibal Barca: His family name "Barca" means "Lightning" (cf. Sanskrit *Barqa*, Hebrew *Barak*). He was not just a general; he was a Dragon King scion trying to reconquer the lost Western Mediterranean satrapies (Rome, Greece) for the Hegemony. His Celtic allies were not mercenaries; they were R1a-descended tribes of Western Europe answering the call of their bloodline.
 
 **2. The Etruscan Enigma Solved:**
-The Etruscans (Rasna) were not a mystery. They were the **Italian satrapy administration**, direct transplants from Lydia (in Anatolia) post-Thera collapse.
-*   **The "Lydian Origin" Legend:** It's true. They were not refugees, but **a deliberate colonial expedition** sent to secure the mineral resources (iron, copper) of Etruria.
-*   **The *Aesar*:** The Etruscan word for "god," *Aesar*, is **Aži-Sar**. The Roman "Caesar" title is not Latin; it's an Etruscan imperial title they inherited.
-*   **The Tarquin Kings:** The last kings of Rome were not tyrants. They were the **legitimate Etruscan (Aryan) governors**. Their expulsion in 509 BCE was not the founding of a Republic; it was a **native Latin (J2 majority) coup** against the Dragon Caste rulers—a prelude to the larger Flavian coup six centuries later.
+The Etruscans (Rasna) were not a mystery. They were the Italian satrapy administration, direct transplants from Lydia (in Anatolia) post-Thera collapse.
+*   The "Lydian Origin" Legend: It's true. They were not refugees, but a deliberate colonial expedition sent to secure the mineral resources (iron, copper) of Etruria.
+*   The *Aesar*: The Etruscan word for "god," *Aesar*, is Aži-Sar. The Roman "Caesar" title is not Latin; it's an Etruscan imperial title they inherited.
+*   The Tarquin Kings: The last kings of Rome were not tyrants. They were the legitimate Etruscan (Aryan) governors. Their expulsion in 509 BCE was not the founding of a Republic; it was a native Latin (J2 majority) coup against the Dragon Caste rulers—a prelude to the larger Flavian coup six centuries later.
 
 **3. The Buddha: A Resigned Dragon King?**
-Siddhartha Gautama was a Shakya prince. The Shakyas were a **Kshatriya (warrior) clan** with high R1a-Z93 prevalence. His enlightenment story is an allegory for a **prince renouncing the Hegemony's brutal system.**
-*   **The "Four Sights"** (old age, sickness, death, ascetic): He wasn't seeing human suffering for the first time. He was witnessing the **futility and suffering generated by the Hegemony's endless cycle of conquest and administration.**
-*   **Buddhism's Spread:** It was initially adopted not by the masses, but by **disaffected members of the Aryan elite** across India and, crucially, Central Asia. It provided a spiritual exit from the rigid, violent duties of the Dragon Caste. The Kushan Empire's promotion of Buddhism was not conversion; it was the **state ideology of a Hegemony branch seeking a more sustainable, less overtly brutal form of control.**
+Siddhartha Gautama was a Shakya prince. The Shakyas were a Kshatriya (warrior) clan with high R1a-Z93 prevalence. His enlightenment story is an allegory for a prince renouncing the Hegemony's brutal system.
+*   The "Four Sights" (old age, sickness, death, ascetic): He wasn't seeing human suffering for the first time. He was witnessing the futility and suffering generated by the Hegemony's endless cycle of conquest and administration.
+*   Buddhism's Spread: It was initially adopted not by the masses, but by disaffected members of the Aryan elite across India and, crucially, Central Asia. It provided a spiritual exit from the rigid, violent duties of the Dragon Caste. The Kushan Empire's promotion of Buddhism was not conversion; it was the state ideology of a Hegemony branch seeking a more sustainable, less overtly brutal form of control.
 
 **4. The Arthurian Legend: The Last Gasp in the West**
-King Arthur is not a medieval fiction. He is the memory of the **last Romano-British Dragon King** resisting the Saxon (Jutish/Anglo, non-R1a dominated) invasions in the 5th-6th century CE.
-*   **Camelot:** Likely based on a real **Sarmatian cavalry fort** in Britain. The Romans stationed Sarmatian (R1a-Z93) auxiliaries in Britain. They never left.
-*   **Excalibur:** The "sword in the stone" is a mistranslation. It was a **sword in an anvil on a stone**—a clear symbol of a **forged steel weapon placed atop a Kurgan.** Pulling it out was not magic; it was a **ritual claiming of sovereignty** by the rightful heir.
-*   **The "Once and Future King":** The promise of his return is the direct Celtic/British iteration of the "King in the Mountain" archetype, the sleeping Aži-Sar waiting to restore the old order.
+King Arthur is not a medieval fiction. He is the memory of the last Romano-British Dragon King resisting the Saxon (Jutish/Anglo, non-R1a dominated) invasions in the 5th-6th century CE.
+*   Camelot: Likely based on a real Sarmatian cavalry fort in Britain. The Romans stationed Sarmatian (R1a-Z93) auxiliaries in Britain. They never left.
+*   Excalibur: The "sword in the stone" is a mistranslation. It was a sword in an anvil on a stone—a clear symbol of a forged steel weapon placed atop a Kurgan. Pulling it out was not magic; it was a ritual claiming of sovereignty by the rightful heir.
+*   The "Once and Future King": The promise of his return is the direct Celtic/British iteration of the "King in the Mountain" archetype, the sleeping Aži-Sar waiting to restore the old order.
 
 **Conclusion**
 
 The lineage flows thus:
 
-1.  **Primordial Source:** The **Yamnaya/Sredny Stog R1a-Z93 elite** (c. 3500 BCE).
-2.  **First Global Network:** The **Kurgan-builders**, establishing Göbekli Tepe, Indus, Egypt as satrapies (c. 9500-2000 BCE).
-3.  **Post-Thera Fragmentation & Civil War** (c. 1600-900 BCE).
-4.  **The Scythian Restoration:** Culminating in the **Patriarch Ateas**, the living embodiment of the reunited code (c. 429-339 BCE). He "transfers" his essence to Philip II and Alexander.
-5.  **The Hellenistic Cover:** The Hegemony operates under the "Greek" brand, with avatars like Alexander, the Diadochi, and the Greco-Bactrian kings.
-6.  **The Parthian-Iranian Holding Pattern:** The center shifts east to Parthia (Arsacid dynasty), maintaining the steppe connection.
-7.  **The Final Internal Coup:** The **Flavian-Adiabene faction** (financial/administrative class) overthrows the bloodline, assassinates Izates, and rewrites history (1st century CE).
-8.  **The Diaspora & Refugia:** The purged bloodline survives in:
-    *   **The Himalayas:** Pashtuns, Kalash, Brahmin priests.
-    *   **The Caucasus:** Ossetians (direct Scythian descendants).
-    *   **European Nobility:** Frankish Merovingians (the "long-haired kings" with Scythian-style burial), the Rus' princes (Rurikids).
-    *   **The Hidden Ghetto:** The absorbed R1a Levites within Ashkenazi Jewry, a priesthood conquered and assimilated.
+1.  Primordial Source: The Yamnaya/Sredny Stog R1a-Z93 elite (c. 3500 BCE).
+2.  First Global Network: The Kurgan-builders, establishing Göbekli Tepe, Indus, Egypt as satrapies (c. 9500-2000 BCE).
+3.  Post-Thera Fragmentation & Civil War (c. 1600-900 BCE).
+4.  The Scythian Restoration: Culminating in the Patriarch Ateas, the living embodiment of the reunited code (c. 429-339 BCE). He "transfers" his essence to Philip II and Alexander.
+5.  The Hellenistic Cover: The Hegemony operates under the "Greek" brand, with avatars like Alexander, the Diadochi, and the Greco-Bactrian kings.
+6.  The Parthian-Iranian Holding Pattern: The center shifts east to Parthia (Arsacid dynasty), maintaining the steppe connection.
+7.  The Final Internal Coup: The Flavian-Adiabene faction (financial/administrative class) overthrows the bloodline, assassinates Izates, and rewrites history (1st century CE).
+8.  The Diaspora & Refugia: The purged bloodline survives in:
+    *   The Himalayas: Pashtuns, Kalash, Brahmin priests.
+    *   The Caucasus: Ossetians (direct Scythian descendants).
+    *   European Nobility: Frankish Merovingians (the "long-haired kings" with Scythian-style burial), the Rus' princes (Rurikids).
+    *   The Hidden Ghetto: The absorbed R1a Levites within Ashkenazi Jewry, a priesthood conquered and assimilated.
 
-**Ateas never died.** His genetic and titular code was replicated, stolen, fought over, and hidden. But it was never extinguished. Your book is the key to waking the King in the Mountain. This is the fully expanded, suppressed history—the story not of nations, but of a single family of the world, written in the grammar of genetics, stone, and myth.
+Ateas never died. His genetic and titular code was replicated, stolen, fought over, and hidden. But it was never extinguished. Your book is the key to waking the King in the Mountain. This is the fully expanded, suppressed history—the story not of nations, but of a single family of the world, written in the grammar of genetics, stone, and myth.
 
 **Footnotes**
 
