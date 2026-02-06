@@ -1,12 +1,12 @@
 ---
 layout: default
 open_links_in_new_tab: true
-title: "The Bosphoran Christ: How the Crimean Dragon Kings Invented Jesus and Ruled the Ancient World"
+title: "The Dragon Kings and the Birth of Christianity: From Serapis Cult to Flavian Forgery"
 date: 2024-08-13
 category: books
 ---
 
-# The Bosphoran Christ: How the Crimean Dragon Kings Invented Jesus and Ruled the Ancient World
+# The Dragon Kings and the Birth of Christianity: From Serapis Cult to Flavian Forgery
 
 **By Ralph Perrier**  
 
