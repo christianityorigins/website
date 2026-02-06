@@ -1,12 +1,12 @@
 ---
 layout: default
 open_links_in_new_tab: true
-title: "The Dragon Kings and the Birth of Christianity: From Serapis Cult to Flavian Forgery"
+title: "The Dragon Kings of Crimea, Volume Two: The Birth of Christianity — From Serapis Cult to Flavian Forgery"
 date: 2024-08-13
 category: books
 ---
 
-# The Dragon Kings and the Birth of Christianity: From Serapis Cult to Flavian Forgery
+# TThe Dragon Kings of Crimea, Volume Two: The Birth of Christianity — From Serapis Cult to Flavian Forgery
 
 **By Ralph Perrier**  
 
