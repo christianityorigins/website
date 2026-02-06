@@ -56,7 +56,7 @@ The historical record as we know it was systematically forged in three major pha
 
 3. The Jesuit Operation (16th-18th centuries): Jesuit scholars fabricated chronologies for China, India, and the Middle East, backdating history by centuries to fit Biblical timelines.
 
-But there is one piece of evidence they could not forge: the Y-chromosome. Therefore, in this book I have ignored all historical records and focused only on genetics and revisionist methodologies laid out in my previous book 'The Bosphoran Christ: How the Crimean Dragon Kings Invented Jesus and Ruled the Ancient World'. Through this line of investigation, I have been able to map out a new model of history that is radically different from the commonly accepted narrative.
+But there is one piece of evidence they could not forge: the Y-chromosome. Therefore, in this book I have ignored all historical records and focused only on genetics and revisionist methodologies laid out in my companion book 'The Dragon Kings of Crimea, Volume Two: The Birth of Christianity — From Serapis Cult to Flavian Forgery'. Through this line of investigation, I have been able to map out a new model of history that is radically different from the commonly accepted narrative.
 
 This is the story of the world before the reset. It is the history we were never meant to know.
 
@@ -126,9 +126,9 @@ The Substrate Populations (The Ruled):
 *   India: Indigenous ancestry: Haplogroups H and L. The "Aryan Invasion" is not a theory; it is a genetic fact of elite replacement visible in the caste system.
 *   China: Han population: O2. Shang Dynasty royal burials at Anyang: Show genetic links to Afanasievo culture (Siberian R1a). Conclusion: The Shang chariot kings were of Steppe origin.
 
-Their Trademarks: The Scythian Kurgan
+Their Trademarks: The Scythian Kurgan, architecture, and mythological archetypes
 
-The signature structure of the Steppe is the Kurgan—a burial mound. We have misunderstood its purpose. It is not merely a tomb. It is a territorial claim, an astronomical observatory, and a resonant power node.
+*   Kurgan: The signature structure of the Steppe is the Kurgan—a burial mound. We have misunderstood its purpose. It is not merely a tomb. It is a territorial claim, an astronomical observatory, and a resonant power node.
 
 *   Architecture: The circular mound, often with stone cairns or wooden chambers, is replicated in:
     *   The Tholos tombs of Mycenaean Greece.
