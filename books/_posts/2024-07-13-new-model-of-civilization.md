@@ -1,12 +1,12 @@
 ---
 layout: default
 open_links_in_new_tab: true
-title: "A New Model for Ancient Civilizations: How the Crimean Dragon Kings Built the Ancient World"
+title: "The Dragon Kings of Crimea: A New Model for Ancient Civilizations"
 date: 2024-07-13
 category: books
 ---
 
-# A New Model for Ancient Civilizations: How the Crimean Dragon Kings Built the Ancient World
+# The Dragon Kings of Crimea: A New Model for Ancient Civilizations
 
 
 Table of Contents
