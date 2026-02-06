@@ -366,6 +366,11 @@ The Unpublished Truth About Ateas:
     *   Philip II of Macedon: Upon "defeating" Ateas, Philip immediately adopts Scythian ceremonial dress, integrates Scythian cavalry into his army, and declares himself the heir to the Achaemenid throne. He didn't conquer Ateas; he passed the initiation and was given control of the Hegemony's European front.
     *   Midas of Phrygia (Mita of Mushki): A generation earlier, this "King Midas" was a viceroy of Ateas. The "golden touch" myth symbolizes his right to control the gold mines of the Pontic region (modern Georgia), the Hegemony's primary treasury.
 
+Ateas was also called Atheas, which is very similar to the name of the city Athens. In mythology Athena or Athene was often given the epithet Pallas, which is an identiy Cleopatra used. Athena could be his wife or daughter.
+
+![Fig.1.2](/images/Skyles.jpg){:width="400px"}\
+Fig. 1.2. Coin of Skyles, a Scythian king who reigned from ca 470-460 BC displaying a Scythian Solar Wheel and the World Tree combined. Skyles was Ateas's father or grandfather? The cross was prominent in ancient Europe. It was a sundial and every city would have had one to track the time, dates, and agricultural and lunar cycles. "Skylesis" a Greek mockery of Skuða-las (Scythian King). The owl on the reverse side is the Owl of Athena also known as the Owl of Minerva, a sacred bird in Greek mythology that accompanies Athena. It shows up prominently in later Greek tetradrachms connecting him to Greece. For a Scythian king to carry that iconography shows direct interaction.
+
 The True Pre-Ateas Genesis: The Santorini Cataclysm Reset
 
 To trace back further, we must address the Thera Eruption (c. 1600 BCE). This was not just a natural disaster. It was a cataclysmic system failure that shattered the Hegemony's Minoan naval command center and triggered a dark age.
@@ -413,7 +418,7 @@ Mithridates VI Eupator of Pontus = Ptolemy XII Auletes of Egypt
     - Spouse: Cleopatra Selene II (twin sister)
     - Children:
       - Alexander (grandson of King Herod). Aliases: (King/Tetrarch) Ptolemy (Alexander) bar Menneus, Ptolemy of Mauretania (aka  Panthera, the name for jesus's father in the Talmud; Panthera is a corruption of Cantheras, or Cleopatros. Also, Panthera = Ptolemy in Hebrew), Tiberius Julius Alexander Major, Alexander the Alabarch. Also, Gondophares, Indo-Parthian King?
-        - Spouse: Cleopatra (Thea Philopator) of Mauretania. Aliases: Cleopatra IX, Helene, Drusilla of Mauretania, Julia Ourania of Parthia, Philo of Alexandria. She was also Claudius and Nero's secretary "Pallas", and "Antonia Caenis" who was Vespasian's first cousin and mistress (the full name of Pallas was Marcus Antonius Pallas, with the Antonius part being an obvious sign of descent from Mark Antony and that Pallas wasn’t a random slave. Caenis was the Greek goddess who was transformed into a man, and she role-played as two men: Marcus Antonius Pallas and Philo. Pallas also connects to King Herod as that was the name of one of his wives). In "The Additions to the Book of Esther" it states that the work had been translated by "Lysimachus son of Ptolemy" in Jerusalem. Philo's brother was named Alexander Lysimachus.
+        - Spouse: Cleopatra (Thea Philopator) of Mauretania. Aliases: Cleopatra IX, Helene, Drusilla of Mauretania, Julia Ourania of Parthia, Philo of Alexandria. She was also Claudius and Nero's secretary "Pallas", and "Antonia Caenis" who was Vespasian's first cousin and mistress (the full name of Pallas was Marcus Antonius Pallas, with the Antonius part being an obvious sign of descent from Mark Antony and that Pallas wasn’t a random slave. Caenis was the Greek goddess who was transformed into a man, and she role-played as two men: Marcus Antonius Pallas and Philo. Pallas also connects to King Herod as that was the name of one of his wives). In mythology Athena or Athene was often given the epithet Pallas. In "The Additions to the Book of Esther" it states that the work had been translated by "Lysimachus son of Ptolemy" in Jerusalem. Philo's brother was named Alexander Lysimachus.
         - Children:
           - Tiberius Julius Alexander: Emperor Nerva, Arrius Piso, Josephus (Josephus lists his father as Matthias, a priest. "Matthias" is a Hellenized form of Mithradates)
           - Marcus Julius Alexander: Izates Monobazus ("Jesus Emmanuel"), Yeshua Cleopatros. Also Gaius Calpurnius Piso? Izates daughter was named 
@@ -429,29 +434,29 @@ Ptolemy XII Auletes aka Mark Antony aka Mithridates VI Eupator aka King Herod
 
 The throne name of Ptolemy Philometer was Ir-maat-en-amun-re. This would strengthen the word play between the names Philo-meter, Mithra-dates, and Matthath-ius. (The Egyptian Maat-en transliterates to the Hebrew Mattan/Mattath and the name "metor" transliterates into Parthian Mithra). Philometer then corresponds to Mithradates of Parthia and Mattathius the Hasmonean. (Mattath is the Hebrew feminine form of Mattan).
 
-![Fig.1.2](/images/PtolemyXII.jpeg){:width="400px"}\
-Fig. 1.2. Ptolemy XII Auletes, king of Egypt, who was also Mithridates VI Eupator, Ariarathes IX of Cappadocia, Simon Boethus/Magus/Ptolemy (Alexander) bar Menneus, et.al. Mithridates VI married his sister Laodice---just as Ptolemy XII married his sister Cleopatra V. Both had daughters named Cleopatra who ruled (Cleopatra VII and Dynamis).
+![Fig.1.3](/images/PtolemyXII.jpeg){:width="400px"}\
+Fig. 1.3. Ptolemy XII Auletes, king of Egypt, who was also Mithridates VI Eupator, Ariarathes IX of Cappadocia, Simon Boethus/Magus/Ptolemy (Alexander) bar Menneus, et.al. Mithridates VI married his sister Laodice---just as Ptolemy XII married his sister Cleopatra V. Both had daughters named Cleopatra who ruled (Cleopatra VII and Dynamis).
 
-![Fig.1.3](/images/MithridatesVIEupator.jpg){:width="400px"}\
-Fig. 1.3. Coin depicting Mithridates VI Eupator, father of Pharnaces II and Dynamis. Brother of Mithridates Chrestus. Notice the star and crescent that is visible in the Julius Caesar coin above and the winged Pegasus within a Dionysiac wreath of ivy and fruit that is seen in the Asander coin?
+![Fig.1.4](/images/MithridatesVIEupator.jpg){:width="400px"}\
+Fig. 1.4. Coin depicting Mithridates VI Eupator, father of Pharnaces II and Dynamis. Brother of Mithridates Chrestus. Notice the star and crescent that is visible in the Julius Caesar coin above and the winged Pegasus within a Dionysiac wreath of ivy and fruit that is seen in the Asander coin?
 
-![Fig.1.4](/images/PairisadesVofBosporus.jpg){:width="400px"}\
-Fig. 1.4. Coin depicting Pairisades V, king of Bosporus
+![Fig.1.5](/images/PairisadesVofBosporus.jpg){:width="400px"}\
+Fig. 1.5. Coin depicting Pairisades V, king of Bosporus
 
-![Fig.1.5](/images/AriarathesIX.jpg){:width="400px"}\
-Fig. 1.5. Coin depicting Ariarathes IX Eusebes Philopator, King of Cappadocia (Central Anatolia/modern Turkey). He was the son of Mithridates VI Eupator of Pontus. Ariarathes IX Eusebes brothers were named Cyrus, Xeres, and Darius. His sisters were named Cleopatra and Mithridates. In Chapter 8.2. I write that the 'Achaemenid' Persian Empire is a phantom empire. it is a back projection of the Parthian Empire. Cyrus and Darius were composite characters based on the sons of Mithridates VI Eupator
+![Fig.1.6](/images/AriarathesIX.jpg){:width="400px"}\
+Fig. 1.6. Coin depicting Ariarathes IX Eusebes Philopator, King of Cappadocia (Central Anatolia/modern Turkey). He was the son of Mithridates VI Eupator of Pontus. Ariarathes IX Eusebes brothers were named Cyrus, Xeres, and Darius. His sisters were named Cleopatra and Mithridates. In Chapter 8.2. I write that the 'Achaemenid' Persian Empire is a phantom empire. it is a back projection of the Parthian Empire. Cyrus and Darius were composite characters based on the sons of Mithridates VI Eupator
 
-![Fig.1.6](/images/PharnacesII.jpg){:width="400px"}\
-Fig. 1.6. Coin depicting Pharnaces II (“Pharao-Nikes”, or “Victorious Pharaoh”) who was another son of Mithridates VI, king of Pontus. He was the king of the Bosporan Kingdom and the Kingdom of Pontus. At the Battle of Zela (47 BC) Julius Caesar defeats Pharnaces II and coins the phrase "Veni, Vidi, Vici". Pharnaces II flees and is killed by his own governor, Asander, who then becomes King of the Bosporus. This was not a succession; it was an avatar switch. Pharnaces II called himself "King of Kings" on coins as Asander did.
+![Fig.1.7](/images/PharnacesII.jpg){:width="400px"}\
+Fig. 1.7. Coin depicting Pharnaces II (“Pharao-Nikes”, or “Victorious Pharaoh”) who was another son of Mithridates VI, king of Pontus. He was the king of the Bosporan Kingdom and the Kingdom of Pontus. At the Battle of Zela (47 BC) Julius Caesar defeats Pharnaces II and coins the phrase "Veni, Vidi, Vici". Pharnaces II flees and is killed by his own governor, Asander, who then becomes King of the Bosporus. This was not a succession; it was an avatar switch. Pharnaces II called himself "King of Kings" on coins as Asander did.
 
-![Fig.1.7](/images/PtolemyApion.jpg){:width="400px"}\
-Fig. 1.7. Coin depicting Ptolemy Apion, king of Kyrene, Kyrenaica, North Africa.
+![Fig.1.8](/images/PtolemyApion.jpg){:width="400px"}\
+Fig. 1.8. Coin depicting Ptolemy Apion, king of Kyrene, Kyrenaica, North Africa.
 
 Julius Caesar is Asander, king of Bosporus
 
-![Fig.1.8](/images/caesarstar.jpg){:width="400px"}\
-![Fig.1.9](/images/asandernike.jpg){:width="400px"}\
-Fig. 1.8 & 1.9. (L) Julius Caesar. (R) Asander, king of Bosphorus depicting a Nike which was the Greek goddess of victory and a close companion of Zeus. Other depictions of Asander show the star and crescent that is visible in the Julius Caesar coin above [^4]. Another coin of Asander depicts a Phrygian cap which is closely associated with the Roman god Mithras: [^5]. This (https://bosporan-kingdom.com/224-3094/) coin of Asander displays a prow (front of a ship) that is also seen in Julius Caesar coins. The star and crescent in above coins was the symbol of the city of Byzantium/Constantinople long before the Ottomans used it. The legend was that Byzas, the founder, chose the site based on a vision of a crescent moon and a star. This symbol represented the fusion of the lunar goddess (Hecate/Artemis, who was associated with snakes) and the solar god (Apollo). By using this symbol, Asander and Caesar were not just using a random symbol; they were explicitly claiming lordship over the Bosphorus.
+![Fig.1.9](/images/caesarstar.jpg){:width="400px"}\
+![Fig.1.10](/images/asandernike.jpg){:width="400px"}\
+Fig. 1.9 & 1.10. (L) Julius Caesar. (R) Asander, king of Bosphorus depicting a Nike which was the Greek goddess of victory and a close companion of Zeus. Other depictions of Asander show the star and crescent that is visible in the Julius Caesar coin above [^4]. Another coin of Asander depicts a Phrygian cap which is closely associated with the Roman god Mithras: [^5]. This (https://bosporan-kingdom.com/224-3094/) coin of Asander displays a prow (front of a ship) that is also seen in Julius Caesar coins. The star and crescent in above coins was the symbol of the city of Byzantium/Constantinople long before the Ottomans used it. The legend was that Byzas, the founder, chose the site based on a vision of a crescent moon and a star. This symbol represented the fusion of the lunar goddess (Hecate/Artemis, who was associated with snakes) and the solar god (Apollo). By using this symbol, Asander and Caesar were not just using a random symbol; they were explicitly claiming lordship over the Bosphorus.
 
 "Caesar" was a title that originally meant "Osiris-King" (Ka-Asar), connected to the Scytho-Hurrian expression Kur-Sar (Sun King), Phoenician "Kosar" (sun god), Assyrian "Aššur" (god), Germanic Æsir (the Norse gods, like Odin), Sanskrit Kesari (lion), Persian Kesar (king), Scythian "As" (lord) and Scythian Sar (king), Kšar (from the Old Persian Xšaya = king), and also Cyrus the Great's title (Kuruš (Cyrus) = Khur (Sun) + -uš (lord)). "Caesar" = "Asander" = "Kesari" = "Xerxes" -> Xšathra-sar -> Khassar -> Khazar. Also, Caesar is at the root of the title "Khan" (Aesar -> Aesar -> A'sar -> Ha'sar -> Kha'sar -> Khan). "Genghis" is "Janus". This proves that Genghis Khan was not a Mongol upstart. He was a later avatar of the Dragon King title, consciously restoring the global hegemony from its Central Asian core. The Mongol court called itself the "Great Yuan" (Great Ion/Janus) (applying Anatoly Fomenko's theory that the Catholic Church added 1000 years to our calendar to try and make history align with the timeline provided by the Septuagint, then Genghis Khan = Attila the Hun and Attila the Hun = Flavius Aetius (Roman general) + Priscus Attalus (usurper). Attila's campaign (5th century CE) is a retelling of the Mithridatic Wars (1st century BCE)—chronological duplication). As a descendant of the Dragon Kings he would have inherited Julius Caesar's titles.
 
@@ -459,20 +464,20 @@ Cleopatra VII aka Dynamis Ourania aka Pythodorida Philometor
 
 Cleopatra VII was the archetype, not the avatar, for the "Jesus" figure. She was the living Soteira (feminine Soter), Thea (Goddess), and "Queen of Kings". She was the descendant of the Scythian Dracaena, or the snake-legged goddess who was the mother of the Scythians in mythology.
 
-![Fig.1.10](/images/Cleopatra%20VIIDynamis.png){:width="400px"}\
-Fig. 1.10. (L) Dynamis, Queen of Bosphorus, (R) Cleopatra VII. There were obviously many years between the ages at which she was depicted, however, even in the elder Dynamis bust you can see her lazy eye and abnormally large eyes which she was reported to have had, possibly as a consequence of inbreeding. The hat she is wearing is a Phrygian cap, a distinctive hat that is closely associated with the Roman god Mithras. Dynamis was recorded as being of "Sarmatian" ancestry.
+![Fig.1.11](/images/Cleopatra%20VIIDynamis.png){:width="400px"}\
+Fig. 1.11. (L) Dynamis, Queen of Bosphorus, (R) Cleopatra VII. There were obviously many years between the ages at which she was depicted, however, even in the elder Dynamis bust you can see her lazy eye and abnormally large eyes which she was reported to have had, possibly as a consequence of inbreeding. The hat she is wearing is a Phrygian cap, a distinctive hat that is closely associated with the Roman god Mithras. Dynamis was recorded as being of "Sarmatian" ancestry.
 
-![Fig.1.11](/images/cleopatra.png){:width="400px"}\
-Fig. 1.11. (L) Julia Mamaea, Queen of Pontus (wife of Polemon II), (R) Cleopatra VII. Polemon Pythodoros, King of Pontus was a regional alias of Julius Caesar/Asander (as Asander and Polemon were both married to Dynamis), and if he also played the religious role of Gaius Julius Sohaemus of Emesa, Priest-King of Emesa, and Cleopatra played the regional role of Pythodorida Philometor, then Julia Avita Mamaea of Emessa would have been their daughter. Do you see a resemblance? She would have been married to her half-brother (Cleopatra and Mark Antony's son) Polemon II, King of Pontus aka Ptolemy Philadelphus aka Sampsiceramus I? The Bosphorus Kingdom, also known as the Kingdom of the Cimmerian Bosphorus, was located next to the Pontus Kingdom.
+![Fig.1.12](/images/cleopatra.png){:width="400px"}\
+Fig. 1.12. (L) Julia Mamaea, Queen of Pontus (wife of Polemon II), (R) Cleopatra VII. Polemon Pythodoros, King of Pontus was a regional alias of Julius Caesar/Asander (as Asander and Polemon were both married to Dynamis), and if he also played the religious role of Gaius Julius Sohaemus of Emesa, Priest-King of Emesa, and Cleopatra played the regional role of Pythodorida Philometor, then Julia Avita Mamaea of Emessa would have been their daughter. Do you see a resemblance? She would have been married to her half-brother (Cleopatra and Mark Antony's son) Polemon II, King of Pontus aka Ptolemy Philadelphus aka Sampsiceramus I? The Bosphorus Kingdom, also known as the Kingdom of the Cimmerian Bosphorus, was located next to the Pontus Kingdom.
 
-![Fig.1.12](/images/RhoemetalcesOctavian.jpg){:width="400px"}\
-Fig. 1.12. L. Rhoemetalces I, king of Bosphorus. R. Emperor Augustus (Octavian). Talces = the Thracian word for "king" or "ruler". Rhoemetalces = "king of Rhoeme", or "king of Rome" in ancient Thracian.
+![Fig.1.13](/images/RhoemetalcesOctavian.jpg){:width="400px"}\
+Fig. 1.13. L. Rhoemetalces I, king of Bosphorus. R. Emperor Augustus (Octavian). Talces = the Thracian word for "king" or "ruler". Rhoemetalces = "king of Rhoeme", or "king of Rome" in ancient Thracian.
 
-![Fig.1.13](/images/PtolemyXIIIArchelaus.jpg){:width="400px"}\
-Fig. 1.13. L. Coin depicting Ptolemy XIII Theos Philopator the brother-husband of Cleopatra. Compare it to the Rhoemetalces I, king of Bosphorus aka Emperor Augustus (Octavian) coin above. R. Coin depicting Archelaus, king of Caesarea, Cappadocia (modern-day Kayseri, Turkey). Archelaus of Cappadocia was married to Pythodorida of Pontus (Cleopatra/Dynamis). Polemon Pythodoros (Julius Caesar/Asander) was also married to Pythodorida of Pontus.
+![Fig.1.14](/images/PtolemyXIIIArchelaus.jpg){:width="400px"}\
+Fig. 1.14. L. Coin depicting Ptolemy XIII Theos Philopator the brother-husband of Cleopatra. Compare it to the Rhoemetalces I, king of Bosphorus aka Emperor Augustus (Octavian) coin above. R. Coin depicting Archelaus, king of Caesarea, Cappadocia (modern-day Kayseri, Turkey). Archelaus of Cappadocia was married to Pythodorida of Pontus (Cleopatra/Dynamis). Polemon Pythodoros (Julius Caesar/Asander) was also married to Pythodorida of Pontus.
 
-![Fig.1.14](/images/RhoemetalcesAugustusPolemon.jpg){:width="400px"}\
-Fig. 1.14. L. Rhoemetalces I, king of Bosphorus. M. Emperor Augustus (Octavian). R. Marcus Antonius Polemon I, king of Pontus.
+![Fig.1.15](/images/RhoemetalcesAugustusPolemon.jpg){:width="400px"}\
+Fig. 1.15. L. Rhoemetalces I, king of Bosphorus. M. Emperor Augustus (Octavian). R. Marcus Antonius Polemon I, king of Pontus.
 
 Augustus was not a name. It was a title. The title Augustus was translated into Greek as Sebastos. Related to the Thracian deity Sabazios. Sabazios -> The "-zios" suffix is a divine marker (like in Zeus). The core is Saba- or Saba-zd-. In Greek pronunciation, the 'b' (beta) was a voiced bilabial fricative (like a 'v'), so it could shift. Sabazios is where the Hebrew Sabaoth ("Lord of the Hosts") comes from.
 
@@ -482,26 +487,26 @@ Bazus is the direct truncation of "Sabazios". It's the royal, dynastic form of t
 
 Sebasteia or Sebastē was also a city in the heart of the Pontic-Bosporan kingdom.
 
-![Fig.1.15](/images/HerodPhilip.jpg){:width="400px"}\
-Fig. 1.15. He was likely also Herod Philip son of King Herod (Ptolemy XII Auletes aka Mark Antony aka Mithridates VI Eupator). "Philip" means "Lover of Horses"—the Scythian/Sarmatian royal attribute (Source: https://www.imj.org.il/en/collections/539562-0)
+![Fig.1.16](/images/HerodPhilip.jpg){:width="400px"}\
+Fig. 1.16. He was likely also Herod Philip son of King Herod (Ptolemy XII Auletes aka Mark Antony aka Mithridates VI Eupator). "Philip" means "Lover of Horses"—the Scythian/Sarmatian royal attribute (Source: https://www.imj.org.il/en/collections/539562-0)
 
-![Fig.1.16](/images/AspurgusTiberius.jpg){:width="400px"}\
-Fig. 1.16. L. Tiberius Julius Aspurgus I, king of Bosphorus. R. Emperor Tiberius Caesar Augustus.
+![Fig.1.17](/images/AspurgusTiberius.jpg){:width="400px"}\
+Fig. 1.17. L. Tiberius Julius Aspurgus I, king of Bosphorus. R. Emperor Tiberius Caesar Augustus.
 
-![Fig.1.17](/images/KadphisesTiberius.jpg){:width="400px"}\
-Fig. 1.17. Tiberius Julius Aspurgus I, king of Bosphorus aka Emperor Tiberius Caesar Augustus was also Kujula Kadphises, prince of the Kushan Empire (a vast territory stretching from Central Asia into northern India). Kujula Kadphises unifies the Yuezhi tribes and establishes the Kushan Empire right after the "death" of Julius Caesar/Asander. This is not a successor state; it is the same ruler shifting his primary administrative center to Central Asia to manage the Silk Road. The "Yuezhi" are the "Iudii"/"Jove" tribe—the same Scythian-Celtic priestly class. This regional avatar also connects to the legendary Chinese emperor Yu the Great (original name "Aži" or "Yazhi" (亞茲))? Julius, from Ioulius, related to Iove (Jove).
+![Fig.1.18](/images/KadphisesTiberius.jpg){:width="400px"}\
+Fig. 1.18. Tiberius Julius Aspurgus I, king of Bosphorus aka Emperor Tiberius Caesar Augustus was also Kujula Kadphises, prince of the Kushan Empire (a vast territory stretching from Central Asia into northern India). Kujula Kadphises unifies the Yuezhi tribes and establishes the Kushan Empire right after the "death" of Julius Caesar/Asander. This is not a successor state; it is the same ruler shifting his primary administrative center to Central Asia to manage the Silk Road. The "Yuezhi" are the "Iudii"/"Jove" tribe—the same Scythian-Celtic priestly class. This regional avatar also connects to the legendary Chinese emperor Yu the Great (original name "Aži" or "Yazhi" (亞茲))? Julius, from Ioulius, related to Iove (Jove).
 
-![Fig.1.18](/images/MithridatesIIICaligula.jpg){:width="400px"}\
-Fig. 1.18. L. Mithridates III, king of Bosphorus. R. Emperor Caligula.
+![Fig.1.19](/images/MithridatesIIICaligula.jpg){:width="400px"}\
+Fig. 1.19. L. Mithridates III, king of Bosphorus. R. Emperor Caligula.
 
-![Fig.1.19](/images/CotysIClaudius.jpg){:width="400px"}\
-Fig. 1.19. L. Cotys I, king of Bosphorus. R. Emperor Claudius.
+![Fig.1.20](/images/CotysIClaudius.jpg){:width="400px"}\
+Fig. 1.20. L. Cotys I, king of Bosphorus. R. Emperor Claudius.
 
-![Fig.1.20](/images/RhescuporisIVespasian.jpg){:width="400px"}\
-Fig. 1.20. L. Rhescuporis I, king of Bosphorus. R. Emperor Vespasian.
+![Fig.1.21](/images/RhescuporisIVespasian.jpg){:width="400px"}\
+Fig. 1.21. L. Rhescuporis I, king of Bosphorus. R. Emperor Vespasian.
 
-![Fig.1.21](/images/PolemonIITitus.jpg){:width="400px"}\
-Fig. 1.21. L. Polemon II, king of Bosphorus. R. Emperor Titus.
+![Fig.1.22](/images/PolemonIITitus.jpg){:width="400px"}\
+Fig. 1.22. L. Polemon II, king of Bosphorus. R. Emperor Titus.
 
 **Part 2: The Fall of the Dragon Kings**
 
