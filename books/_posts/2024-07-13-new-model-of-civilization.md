@@ -1,12 +1,12 @@
 ---
 layout: default
 open_links_in_new_tab: true
-title: "The Dragon Kings of Crimea: A New Model for Ancient Civilizations"
+title: "The Dragon Kings of Crimea, Volume One: A New Model for Ancient Civilizations"
 date: 2024-07-13
 category: books
 ---
 
-# The Dragon Kings of Crimea: A New Model for Ancient Civilizations
+# The Dragon Kings of Crimea, Volume One: A New Model for Ancient Civilizations
 
 
 Table of Contents
