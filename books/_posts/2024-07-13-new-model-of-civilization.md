@@ -342,7 +342,7 @@ The Final Consolidation
 
 Ateas the Scythian (c. 429-339 BCE) is not merely a powerful king. He is the archetypal patriarch from whom all later "avatars" derive their claim and the pivotal figure whose "death" was staged to transition the Hegemony into a new, more clandestine phase.
 
-Ateas the Scythian = Amyntas III of Macedon (d. 370 BC) = Artaxerxes I of Persia (d. 424 BC) = Nepherites I of Egypt (d. 393 BC) = Evagoras I of Salamis (Cyprus).
+Ateas the Scythian = Amyntas III of Macedon (d. 370 BC) = Artaxerxes I (or II?) of Persia (d. 424 BC) = Nepherites I of Egypt (d. 393 BC) = Evagoras I of Salamis (Cyprus).
 
 ![Fig.1.1](/images/AteasPhillipAlexander.jpg){:width="400px"}\
 Fig. 1.1. Showing three generations. L. Ateas the Scythian (Ata- or Atha-, meaning "forefather" or "ancestor" in Scythian). M. Philip II of Macedon. R. Alexander the Great. Ateas and Artaxerxes II Mnemon were reported "enemies" of Phillip. Ateas dies in battle against him, and in the Alexander Romance, a book that has its earliest copy dating back a couple of centuries after Alexanders life, the wizard-pharaoh Nectanebo II is secretly Alexander's real father, magically impersonating the god Amun. This is not fantasy; it is a mythological encoding of historical truth.
@@ -369,7 +369,7 @@ The Unpublished Truth About Ateas:
 Ateas was also called Atheas, which is very similar to the name of the city Athens. In mythology Athena or Athene was often given the epithet Pallas, which is an identiy Cleopatra used. Athena could be his wife or daughter.
 
 ![Fig.1.2](/images/Skyles.jpg){:width="400px"}\
-Fig. 1.2. Coin of Skyles, a Scythian king who reigned from ca 470-460 BC displaying a Scythian Solar Wheel and the World Tree combined. Skyles was Ateas's father or grandfather? The cross was prominent in ancient Europe. It was a sundial and every city would have had one to track the time, dates, and agricultural and lunar cycles. "Skylesis" a Greek mockery of Skuða-las (Scythian King). The owl on the reverse side is the Owl of Athena also known as the Owl of Minerva, a sacred bird in Greek mythology that accompanies Athena. It shows up prominently in later Greek tetradrachms connecting him to Greece. For a Scythian king to carry that iconography shows direct interaction.
+Fig. 1.2. Coin of Skyles, a Scythian king who reigned from ca 470-460 BC displaying a Scythian Solar Wheel and the World Tree combined. Skyles was Ateas's father or grandfather? The cross was prominent in ancient Europe. It was a sundial and every city would have had one to track the time, dates, and agricultural and lunar cycles. "Skylesis" a Greek mockery of Skuða-las (Scythian King). The owl on the reverse side is the Owl of Athena also known as the Owl of Minerva, a sacred bird in Greek mythology that accompanies Athena. It shows up prominently in later Greek tetradrachms connecting him to Greece. Skyles = Xerxes I in Persia and King Amyntas I of Macedon?
 
 The True Pre-Ateas Genesis: The Santorini Cataclysm Reset
 
@@ -708,7 +708,7 @@ Plato's "Academy" was the Alexandrian School. "Plato" is not a man. The name is 
 
 The Alexandrian School moved history back 300-500 years. They invented the ‘Achaemenid’ Empire as a mirror of the Parthian Empire.
 
-In Persia, the "Achaemenid Empire" is a phantom, a Flavian-era literary creation designed to provide a grandiose, conquered enemy for "Alexander the Great", and push the "center" of ancient power further east, away from the Bosphoran core. There are no coins issued in the name of "Cyrus the Great", "Darius I", or "Xerxes". The entire empire, supposedly the largest in the world, allegedly functioned for centuries without a coinage system. The coins we attribute to them are misdated Greco-Bactrian and Parthian issues. There are no contemporary records of Cyrus. Cyrus, Darius, and Xerxes are backdated composites of the sons of Mithridates VI Eupator who were also named Cyrus, Darius, Xerxes, and other Parthian kings.
+In Persia, the "Achaemenid Empire" is largely a phantom, a Flavian-era literary creation designed to provide a grandiose, conquered enemy for "Alexander the Great", and push the "center" of ancient power further east, away from the Bosphoran core. There are no coins issued in the name of "Cyrus the Great", "Darius I", or "Xerxes". The entire empire, supposedly the largest in the world, allegedly functioned for centuries without a coinage system. The coins we attribute to them are misdated Greco-Bactrian and Parthian issues. There are no contemporary records of Cyrus. Cyrus, Darius, and Xerxes are backdated composites of the sons of Mithridates VI Eupator who were also named Cyrus, Darius, Xerxes, and other Parthian kings.
 
 The "Achaemenid" Empire perfectly mirrors the Arsacid Parthian empire if you factor in "phantom time".
 
@@ -718,7 +718,7 @@ The "Achaemenid" Empire perfectly mirrors the Arsacid Parthian empire if you fac
 
 Zoroastrianism was invented by the Sasanian Empire (3rd-7th C. AD). They needed a state religion to rival Christianity and legitimize their rule. They systematically compiled older Iranian oral traditions and created the Avesta as a "holy book". To give it antiquity, they back-dated Zoroaster to a mythical past (6000 BC). In doing so, they plagiarized the life story of a real person: Pythagoras (Both Pythagoras and the Zoroaster of legend are said to have traveled to Egypt and Babylon for wisdom. Both are masters of occult knowledge and ritual purity. Both believe in the transmigration of souls).
 
-**11. Fabricating 'Ancient' Egypt*
+**11. Fabricating 'Ancient' Egypt**
 
 The Hyksos ("Shepherd Kings") were not an invasion. They were the Aryan administrative takeover. They introduced the horse, chariot, and composite bow—the tools of Steppe control.
 *   Pharaoh as a Title: *Per-aa* ("Great House") is a mistranslation. It derives from Pharn-ah (Avestan: Glory of the Dragon). The god Horus is *Heru* = "The One on High," a title for the viceroy.
