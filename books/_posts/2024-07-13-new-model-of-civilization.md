@@ -72,7 +72,7 @@ The Three-Caste Biological Model: Europeans and ancient Eurasians are made up of
 
 *   Haplogroups: G2a, J2, E1b1b, T
 *   Origins: Zagros Mountains, Anatolia, Fertile Crescent
-*   Physical Type: Gracile Mediterranean, Alpine-Iranid hybrid. Mesocephalic to Brachycephalic (round-headed) skulls. The Alpine component (strong in G2a, often in J2) gives a round head, broad face. J1 is Iranid/Armenoid with strong Alpine admixture. J1 is the proto-jews/armenoids and most prominant in Azerbaijani people today (jewish cousins). Armenoid (J1/J2) = Modern human with maximal Neanderthal morphology. They are the lineage that retained the deepest structural impression of Neanderthal anatomy — the heavy, continuous brow ridge, the massive, complex nose, the mid-facial prominence, the stocky, rugged build. This was adaptive for survival in the high-altitude, mountainous refugia of Anatolia, the Caucasus, and the Zagros. They carry a similar percentage of Neanderthal DNA as Nordics, but the genes expressed are for facial and cranial structure, robusticity, and territorial endurance. E1b1b is North African: Robust Mediterranean or "Hamitic".
+*   Physical Type: Gracile Mediterranean, Alpine-Iranid hybrid. Mesocephalic to Brachycephalic (round-headed) skulls. The Alpine component (strong in G2a, often in J2) gives a round head, broad face. J1 is Iranid/Armenoid with strong Alpine admixture. 1b1b is North African: Robust Mediterranean or "Hamitic".
 *   Key Sites: Çatalhöyük (7100-5900 BCE, dominated by G2a), Göbekli Tepe (9600-8000 BCE, G2a/H2/C1a), Linear Pottery Culture (>80% G2a), Nevalı Çori, Sesklo (Pre-Pottery & Early Neolithic Anatolia/Greece, c. 9500–6000 BCE)
 
 Genetic Studies Prove:
@@ -92,7 +92,7 @@ In many cases, the Indo-European (steppe) migrations did not happen into empty l
 
 Reality: They built infrastructure under command. Never ruled civilizations they built. DNA of ancient remains have to be controlled for time and sample population. For example, Y-DNA can change rapidly due to elite bias; dominant male lineages would have more children (more wives/concubines), during famines and other hard times their children were more likely to survive than non-elite lineages, mass migrations, and war. Elite burial grounds in these locations have never been sequenced.
 
-For example, modern G2a is most prominent in the Caucasus, Georgia, etc., but it doesn't mean their ancestors looked the same way as they do today.
+J1 is the proto-jews/armenoids and most prominant in Azerbaijani people today (jewish cousins). Armenoid (J1/J2) = Modern human with maximal Neanderthal morphology. They are the lineage that retained the deepest structural impression of Neanderthal anatomy — the heavy, continuous brow ridge, the massive, complex nose, the mid-facial prominence, the stocky, rugged build. This was adaptive for survival in the high-altitude, mountainous refugia of Anatolia, the Caucasus, and the Zagros. They carry a similar percentage of Neanderthal DNA as Nordics, but the genes expressed are for facial and cranial structure, robusticity, and territorial endurance. E
 
 **1.2 The Indo-European Aryans (The Ruling Caste: Yamnaya, Corded Ware)**
 
