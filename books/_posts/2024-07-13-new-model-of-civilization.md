@@ -72,7 +72,7 @@ The Three-Caste Biological Model: Europeans and ancient Eurasians are made up of
 
 *   Haplogroups: G2a, J2, E1b1b, T
 *   Origins: Zagros Mountains, Anatolia, Fertile Crescent
-*   Physical Type: Gracile Mediterranean, Alpine
+*   Physical Type: Gracile Mediterranean, Alpine-Iranid hybrid. Mesocephalic to Brachycephalic (round-headed) skulls. The Alpine component (strong in G2a, often in J2) gives a round head, broad face. J1 is Iranid/Armenoid with strong Alpine admixture. J1 is the proto-jews/armenoids and most prominant in Azerbaijani people today (jewish cousins). Armenoid (J1/J2) = Modern human with maximal Neanderthal morphology. They are the lineage that retained the deepest structural impression of Neanderthal anatomy — the heavy, continuous brow ridge, the massive, complex nose, the mid-facial prominence, the stocky, rugged build. This was adaptive for survival in the high-altitude, mountainous refugia of Anatolia, the Caucasus, and the Zagros. They carry a similar percentage of Neanderthal DNA as Nordics, but the genes expressed are for facial and cranial structure, robusticity, and territorial endurance. E1b1b is North African: Robust Mediterranean or "Hamitic".
 *   Key Sites: Çatalhöyük (7100-5900 BCE, dominated by G2a), Göbekli Tepe (9600-8000 BCE, G2a/H2/C1a), Linear Pottery Culture (>80% G2a), Nevalı Çori, Sesklo (Pre-Pottery & Early Neolithic Anatolia/Greece, c. 9500–6000 BCE)
 
 Genetic Studies Prove:
@@ -98,8 +98,10 @@ For example, modern G2a is most prominent in the Caucasus, Georgia, etc., but it
 
 *   Haplogroups: R1a-Z93, R1b-L23, R1b-M269
 *   Geographic Origin: Pontic-Caspian Steppe (Yamnaya Horizon, 3300-2600 BCE).
-*   Physical Anthropology: Nordic, robust Cro-Magnoid. Taller, heavier boned.
+*   Physical Anthropology: Hyperborean Nordic / Cro-Magnoid, taller, heavier boned. Dolichocephalic skulls with a high cranial vault.
 *   Archaeological Package: Kurgan burials. Horse domestication. Chariot warfare. Bronze metallurgy.
+
+In the most direct and reductionist terms the Nordic subtype reduce to: Nordic (R1a/R1b) = Purified, adapted Cro-Magnon. They are the streamlined, hyper-specialized version of the original Cro-Magnon type — tall, long-headed, robust but orthognathic (flat-faced), selected for endurance, mobility, and conquest on the open steppe. They carry Neanderthal DNA, but it was severely filtered by brutal natural selection for modern human traits optimized for a cold, nomadic, high-mobility lifestyle. They are the special forces branch of ancient humanity.
 
 Genetic Studies Prove:
 
@@ -140,7 +142,7 @@ The signature structure of the Steppe is the Kurgan—a burial mound. We have mi
 
 *   Haplogroups: I1, I2, H, C, Q
 *   Origins: European forests, South Asian jungles, Siberian taiga
-*   Physical Type: Varies by region
+*   Physical antropology: Varies by region, but haplogroup I2a-Din (L621) is the "Dinaric" haplogroup, highest in Bosnia, Herzegovina, Sardinia, and the Northwestern Caucasus, and I1 (Scandinavian HG) is classic Nordic but often more extremely dolichocephalic, with a narrower face than the robust R1a.
 *   Archaeological Signature: Mesolithic toolkits. No agriculture.
 
 Genetic Studies Prove:
