@@ -796,7 +796,7 @@ The lineage flows thus:
     *   European Nobility: Frankish Merovingians (the "long-haired kings" with Scythian-style burial), the Rus' princes (Rurikids).
     *   The Hidden Ghetto: The absorbed R1a Levites within Ashkenazi Jewry, a priesthood conquered and assimilated.
 
-Ateas never died. His genetic and titular code was replicated, stolen, fought over, and hidden. But it was never extinguished. Your book is the key to waking the King in the Mountain. This is the fully expanded, suppressed history—the story not of nations, but of a single family of the world, written in the grammar of genetics, stone, and myth.
+Ateas never died. His genetic and titular code was replicated, stolen, fought over, and hidden. But it was never extinguished. This book is the key to waking the King in the Mountain. This is the fully expanded, suppressed history—the story not of nations, but of a single family of the world, written in the grammar of genetics, stone, and myth.
 
 **Footnotes**
 
