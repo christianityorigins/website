@@ -28,7 +28,7 @@ Our previous volumes traced the R1a/R1b Dragon Crown from its Pontic-Caspian hea
 
 Conventional history screams "no." The evidence, when viewed without the blindfold of academic dogma, shouts "yes." This volume does not propose mere "contact." It documents the settlement, administration, and eventual catastrophic isolation of a transatlantic province—a province whose re-discovery in 1492 was not discovery, but reconnection.
 
-The ocean was not a barrier. It was a controlled canal.
+The Bosporan-Scythian Hegemony was not a land empire that dabbled in ships. It was a thalassocracy—a maritime empire. The ocean was not a barrier. It was their controlled canal.
 
 **Introduction**
 
@@ -72,7 +72,7 @@ The Real Sync Point: The height of the Bosporan Kingdom (c. 100 BCE–100 CE) co
     *   "Classic Maya" city-states (Palenque, Tikal) are the stranded rump states of the old administration.
     *   Maya script is a creolized administrative script combining Old World logosyllabic systems.
 
-**2. Category 1: Genetic Evidence of Transoceanic Contact**
+**2. Genetic Evidence of Transoceanic Contact**
 
 The Y DNA of Most Native American men is Q y-dna. Q y-dna belongs to Haplogroup P which also includes R1b, R1a, R2. Haplogroup P belonged to great Hyperborean patriarch. R originated from P that had sailed over the Pacific to the Americas, that R1b were North American cousins to R1a Hyperboreans in Greenland. That after Younger Dryas, R1a migrated to the pre-flooded Moesian basin, and somewhat later the R1b sailed from North America to Atlantic Europe, spreading as the Bell Beaker Italo-Celts.
 
@@ -81,7 +81,7 @@ The Y DNA of Most Native American men is Q y-dna. Q y-dna belongs to Haplogroup 
     *   Mainstream theory: Pre-glacial migration across Beringia.
     *   Alternative: Atlantic Celtic/Berber sailor-administrator signature.
 *   **Mitochondrial Haplogroup X2a in Ojibwe/Great Lakes Region:**
-    *   Highest Old World frequency in the Druze (Levant), Orkney Islands, Southern Italy.
+    *   Highest Old World frequency in the Druze (Levant), Orkney Islands, Southern Italy. X2a in the Great Lakes/Ojibwe is matrilinial. Scythians males must have stolen Basque women from Spain or France and took them to the New World. 
     *   These are key Dragon Crown network nodes (Adiabene, Celtic naval base, Rome).
     *   This is a managed colonization genetic marker.
 *   **Paracas Mummies of Peru:**
@@ -94,7 +94,7 @@ Amerindians are 30% West Eurasian and 70% East Eurasian who descend from people 
 
 Clovis / Solutreans is a cover name for Cro-Magnon invaders from Atland. There is a reason why in Americas some natives named things after Atland. Mayan texts Popol Vuh claims that ancestors sailed through eastern ocean to settle in Central America. Also, "atl" means water. Atlantoi, Atlantes, Atland, Aztlan etc. There is a reason why Mayan and Egyptian cultures were so similar. They were founded by Atlanteans.
 
-**3. Category 2: Archaeological "Anomalies" Dismissed as Hoaxes**
+**3. Archaeological "Anomalies" Dismissed as Hoaxes**
 
 *   **The Bat Creek Stone (Tennessee):**
     *   Found in a Native American burial mound.
@@ -124,7 +124,7 @@ Clovis / Solutreans is a cover name for Cro-Magnon invaders from Atland. There i
     *   The Engineering Analysis: (MIT, 2015): This ship could carry 300 tons of cargo. It had double-planked hull construction for ocean travel. Its sail area could achieve 6-8 knots - crossing the Atlantic in 30-40 days
     *   The Reality: We have physical proof Romans built ocean-capable ships 150 years before the supposed Bosporan expedition.
 
-**4. Category 3: Biological and Botanical Proof of Exchange**
+**4. Biological and Botanical Proof of Exchange**
 
 *   **Cocaine & Nicotine in Egyptian Mummies (Balabanova et al., 1992):**
     *   Found in pharaonic hair and tissue samples.
@@ -145,7 +145,7 @@ Clovis / Solutreans is a cover name for Cro-Magnon invaders from Atland. There i
     *   Present in pre-Columbian America.
     *   **Only plausible vector:** Transport in the damp ballast soil of ships crossing the Atlantic.
 
-**5. Category 4: Nautical Proof of Atlantic-Capable Fleets**
+**5. Nautical Proof of Atlantic-Capable Fleets**
 
 *   **Black Sea Shipwreck (2017 Discovery):**
     *   2,400-year-old Greek merchant ship, perfectly preserved.
@@ -162,7 +162,7 @@ Clovis / Solutreans is a cover name for Cro-Magnon invaders from Atland. There i
     *   **Star Pathing:** Canary Islands (28°N) to Cuba (28°N) – sail due west by North Star.
     *   **Currents:** Canary Current to Caribbean (30-40 days). Gulf Stream return to Europe (40-50 days). This creates a round-trip Atlantic circuit.
 
-**6. Category 5: Theological and Architectural Blueprints**
+**6. Theological and Architectural Blueprints**
 
 *   **Quetzalcoatl / Kukulkan / Viracocha is Aži Dahāka:**
     *   The "Feathered Serpent" is the Mesoamerican avatar of the Dragon King.
@@ -175,7 +175,7 @@ Clovis / Solutreans is a cover name for Cro-Magnon invaders from Atland. There i
     *   Maya Long Count and 260-day *Tzolk'in* are astronomically complex.
     *   Their sync points with Old World Venus/Mars cycles suggest a single, centralized astronomical priesthood.
 
-**7. Category 6: The Conquest as a Corporate Audit**
+**7. The Conquest as a Corporate Audit**
 
 *   **Cortés Was an Auditor, Not a Conquistador:**
     *   Malinche (Doña Marina) was a noblewoman, not a slave. She recognized Cortés as legitimate authority and switched sides in the dynastic civil war.
