@@ -6,7 +6,7 @@ date: 2024-08-13
 category: books
 ---
 
-# TThe Dragon Kings of Crimea, Volume Two: The Birth of Christianity — From Serapis Cult to Flavian Forgery
+# The Dragon Kings of Crimea, Volume Two: The Birth of Christianity — From Serapis Cult to Flavian Forgery
 
 **By Ralph Perrier**  
 
@@ -30,6 +30,7 @@ end of the book.
 
 **Table of Contents**
 
+Prologue\
 Introduction\
 Part 1: Rome Was Located On the Cimmerian Bosphorus (Crimea–Kerch) River in Crimea\
 1\. The Evidence: Numismatic Proof and Alias List\
@@ -84,6 +85,22 @@ Part 9. Sects of the Imperial Cult\
 Conclusion\
 Selected Bibliography\
 Footnotes
+
+**Prologue**
+
+Recap from books one: All Chronology is False: The Julian/Gregorian calendar, dynastic lists, and "ancient" texts are post-15th century constructs designed to create a linear, biblical, and Europe-centric past. The "Phantom Time" hypothesis (Fomenko et al.) is a conservative estimate; the forgery is more total.
+
+All "Ancient" Physical Evidence is Suspect: The corpus of "Roman" and "Greek" sculpture, coinage, and inscriptions was largely manufactured during the Renaissance and Enlightenment by networks connected to the Medici, Vatican, and later, northern European antiquities markets. Authentic artifacts from pre-1500 exist, but their provenance and dating are unreliable.
+
+The historical record as we know it was systematically forged in three major phases:
+
+The Flavian Revolution (1st century CE): After crushing the legitimate Dragon King dynasty based in the Bosporus, the Flavian dynasty burned the Library of Alexandria, rewrote history, and invented the foundational myths of Western civilization.
+
+The Vatican-Medici Forgery (14th-18th centuries): From roughly 600–1200 CE almost all ancient texts survive only via monasteries. The Vatican, in conjunction with the wealthy aristocratic family of Cosimo de' Medici, didn't just forge texts; they forged entire material cultures. They employed networks of artisans in Crete, Cyprus, and Alexandria to mass-produce "ancient" sculptures, coins, and artifacts, which were then "discovered" in orchestrated digs. The famous "Cabinet of Curiosities" of wealthy patrons like the Medici were their primary market. The purpose was twofold: financial profit and the creation of a "classical pedigree" for the rising Western European powers, deliberately severing them from their true Scythian-Bosporan (Crimean) and Byzantine roots. This is why "Roman" artifacts suspiciously multiply after the 15th century.
+
+The Medici financed, refined, and physically produced the "ancient" manuscripts that cemented it into Western consciousness (look up the similarities between Plato and Gemistus Plethon, whose patron was also Cosimo de' Medici). Their forger-in-chief was Poggio Bracciolini. Bracciolini held the position of Apostolic Secretary to the Pope, which gave him access to the Vatican Library and is credited with "rediscovering" most ancient manuscripts from antiquity. He was also working for Cosimo de' Medici.
+
+The Jesuit Operation (16th-18th centuries): Jesuit scholars fabricated chronologies for China, India, and the Middle East, backdating history by centuries to fit Biblical timelines.
 
 **Introduction**
  
