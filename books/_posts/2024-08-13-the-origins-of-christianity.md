@@ -1334,7 +1334,7 @@ The victors then wrote the history, claiming the cultural achievements of the de
 
 The main culprits for forging history were the Flavians so that they could legitimize their new dynasty and obscure their Bosphoran/Herodian origins. It would have taken a global conspiracy to forge entire material cultures. It would have required destroying texts and artifacts in a number of different countries and then paying an army of scribes and artisans to create a new history. Not even the Vatican would have had this power. For the church to do this they would have had to destroy texts and artifacts in Muslim, Hindu, and Buddhist countries that were out of their reach, and even in places as far as Russia and China. Only the Flavians had this power. They controlled the Alexandrian School (via Tiberius Julius Alexander/Josephus who was likely the one who burned it down) which was the world's only major repository of texts and the only "publishing house". This gave them control over the primary intellectual and scribal output of the ancient world. It was the ancient equivalent of taking over Google, Wikipedia, and every major university press.
 
-Then later emperors like Theodosius and Constantine through systematic censorship under imperial decree and their destruction of Pagan artifacts solidified the lie. Falsification was not hidden, it was their official doctrine.
+Then later emperors like Theodosius and Constantine through systematic censorship under imperial decree and their destruction of Pagan artifacts solidified the lie. Falsification was not hidden, it was their official doctrine. The Severan Emperors (193-235 CE) who had strong Syrian (Adiabene/Osrhoene) ties likely also contributed. 
 
 The Vatican and Jesuits just codified the lie. 
 
@@ -1382,11 +1382,15 @@ The "Old Kingdom" is a fictional pre-history for the Serapis Cult. The Pyramids 
 
 **8.4 Rome: The Phantom Empire on the Tiber**
 
+The "Roman Republic" and the bulk of the "Roman Empire" prior to Vespasian are literary phantoms. The events, consuls, and wars of the 1st centuries BCE and CE are not history but theological and political allegory back-projected onto the Italian peninsula.
+
 Not a single manuscript of any Roman historian exists from before 70 CE. The earliest manuscript copies we possess are medieval, often from around 800–1100 CE. All Roman historical works - Livy, Tacitus, Suetonius - survive only in medieval copies, often centuries after the authors lived and filtered through centuries of monastic scribes whose patron was the Roman Church, the direct successor of the Flavian political project.
 
 The monumental ruins in Italy today are Flavian-era constructions (70–200 CE) built by the dynasty to create imperial legitimacy. The Chersonesus Colosseum in Crimea (https://en.wikipedia.org/wiki/Chersonesus#Remains) is the prototype for the Roman Colosseum.
 
 The "Roman Empire" was not born on the Tiber. It was a political and literary fabrication moved there after the true center of power—the Dragon Kingdom of the Bosphorus—was subverted and its history overwritten. The ruins we see are not the remains of an ancient Republic; they are the founding monuments of history's most successful forgery.
+
+Rome (Rhu-Ma) = "Place of the Dragon". Ialia = Vitalia, meaning "Land of the Vitelli/Vetal (a Scythian clan)". The "Italian" tribes (Samnites, Latins, Etruscans) were not native Mediterraneans. They were Scythian-Sarmatian colonial clans. The Etruscan Lasa deities are direct cognates of the Scythian Alasi (Lords).
 
 **8.5 The Vatican-Medici-Jesuit Forgery (14th - 18th centuries)**
 
