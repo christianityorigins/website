@@ -147,6 +147,8 @@ Clovis / Solutreans is a cover name for Cro-Magnon invaders from Atland. There i
 
 **5. Nautical Proof of Atlantic-Capable Fleets**
 
+*   **Ocean Capable Ships:**
+    *   "Mithridates' war fleet comprised 300 decked ships and 100 open biremes. Behind the existing fleet was perhaps the greatest naval arsenal in the world" (source: U.S. Naval Institute Proceedings, April 1924 https://www.usni.org/magazines/proceedings/1924/april/chapter-ancient-sea-power-mithridatic-wars). They carried Crimean grain to Greek armies operating in the Aegean and Adriatic. The distance from the Cimmerian Bosporus (Kerch Strait) to the Adriatic coast is 1,200 nautical miles through contested waters. This is not coast-hugging cabotage. This is open-sea navigation requiring celestial bearings, multi-week voyages, and heavy cargo capacity. If they could sail 1,200 miles to Italy, they could sail 3,000 miles to Cuba. The currents are actually easier westward than northward against the Bosporus outflow.
 *   **Black Sea Shipwreck (2017 Discovery):**
     *   2,400-year-old Greek merchant ship, perfectly preserved.
     *   Dates to Bosporan Kingdom era (Mithridates VI).
