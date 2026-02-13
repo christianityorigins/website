@@ -144,7 +144,7 @@ What the reader needs to know before entering this book:
 
 -   Conventional history is a synthetic construct, a palimpsest written over multiple times by victors. The primary forgers were the Flavian emperors, the Vatican, and the Jesuits. What they overwrote is that the Egyptian-Persian-Indian-Greek-Roman elite were a Proto-Indo-European (PIE) Elite (Kurgan Culture) who were the horse-riding, chariot-inventing pastoralists from the Pontic-Caspian Steppe who, beginning around 4500 BC, began a systematic conquest of Europe, Anatolia, and the Indus Valley, and who ruled through proxy dynasties. The domestication of the horse, invention of the chariot, and advanced ship building technology allowed them to travel vast distances and Egypt, Persia, India, Greece, Rome,
 etc., were all at one point under the suzerainty of Aryan Iranian-Scythian elites and their base of operation was on the Cimmerian Bosphorus (Crimea–Kerch) river. Mainstream history presents a linear progression: Egypt -> Greece -> Persia -> Rome. This is a complete fabrication. The "ancient" civilizations of Egypt, Greece, Persia, and Rome were largely concurrent satrapies of the Scythian core. The Persian system of Satraps (Old Persian xšaçapāvan, "protector of the dominion") is the administrative blueprint of this hegemony. The title derives from Xšaya (to rule), which links to Roman Caesar and Sanskrit Kshatriya. Every Satrap was a regional "dragon-king" enforcing the center's will.
--   During the "Jewish-Roman" Wars the Flavians were not putting down a provincial revolt. The Flavians launched a blitzkrieg against the core Eastern administration and this destroyed the Scythian steppe hegemony. "Jewish" at the the time did not mean "tribe of Judah" it meant "tribe of Jove/Jupiter" and they were Celtic Iudii Jupiter worshippers, unrelated to modern "jews". Then the Flavian dynasty and their court historians (Josephus, Pliny, Tacitus) took their primary political enemy, King Izates II, and rewrote his cult as pacifist allegory to subvert the people of his kingdom using the same Alexandian School formula they used in all their imperial cults. They also rewrote history to erase their Bosphoran origins. The Flavians (Pālava or Palavi/Pahlavi, which was the term for the Parthian/Iranian aristocracy) were a Sauromatian clan who broke away from the old R1a-Z93 haplotype royal Bosphoran line (the Sauromatians proper) and introduced a heavy J2/J1 (Jewish haplogroup) admixture from the Adiabene–Osrhoene region. The haplotype R1a (the famed "Arya" gene) was the dominant haplogroup of the Roman elite before the Flavian empire. After the Flavian reign the haplotype J2/J1 became the dominant haplogroup among the Roman elite (https://inf.news/en/science/bee8bab603736d7530f42b64ea756397.html). This is why they erased the Scythian origins of ancient civilizations and painted the Scythians (R1a) as monstrous foreigners (see: Chapter 8. Who Forged History?). 
+-   The "Jewish-Roman" Wars were a civil war amongst the hegemony. The Flavians were not putting down a provincial revolt. The Flavians launched a blitzkrieg against the core Eastern administration and this destroyed the Scythian steppe hegemony. "Jewish" at the the time did not mean "tribe of Judah" it meant "tribe of Jove/Jupiter" and they were Celtic Iudii Jupiter worshippers, unrelated to modern "jews". Then the Flavian dynasty and their court historians (Josephus, Pliny, Tacitus) took their primary political enemy, King Izates II, and rewrote his cult as pacifist allegory to subvert the people of his kingdom using the same Alexandian School formula they used in all their imperial cults. They also rewrote history to erase their Bosphoran origins. 
 -   Western Rome in Italy is a phantom empire that did not conquer the kingdoms of the East. Western Rome is a Flavian fabrication. The Bosphoran royal house created Western Rome as a military garrison. The original Rome (in Sarmatian, "Ruma" (Rome) = "Place of the Dragon" (Rhu-Ma, from Aži Dahāka, the Iranian dragon)) was located on the Bosphorus river which approximates to modern-day Crimea in southern Ukraine. There was a split between East and West during the Flavian period and the Flavians erased their Bosphoran origins.
 -   Asander, king of Bosphorus aka Julius Caesar was also Cleopatra's uncle Ptolemy of Cyprus (brother of Ptolemy XII Auletes and husband of "Mithridates") aka Mithridates Chrestus, King of Pontus VI (brother of Mithridates VI, king of Pontus), but he took on numerous other regional aliases. Cleopatra was also Dynamis, queen of Bosphorus. Mark
 Antony the Neos-Dionysos was Cleopatra's father Ptolemy XII Auletes (Auletes name adapts well to the
@@ -524,6 +524,8 @@ In Alexandria at the Alexandrian School is where the "Jewish" religion was codif
 Moses = Manes/Mannu-Kuras = Manu (Scythian Sage-King) = Menes (Egypt’s legendary founder), but this name/title was reappropriated for the Sarapis Cult as Moses = Osarseph (Osar (Osiris) and seph (son) = Son of Osirus). The Greek rendering of Moses and Osarseph is identical. Osarseph appears in accounts by the Egyptian priest Manetho, who described him as a renegade priest leading a group of lepers in rebellion, eventually adopting the name "Moses" (Josephus. 'Against Apion' discussing Manetho's account of Osarseph). Osarseph also = Serapis. The "Ser" symbol in Ser-apis is the same as seph meaning "son of". Serapis can be interpreted as "Son of Osiris-Apis", which evolved into "Son of Osiris". So, Serapis is just another word for Osarseph. Solomon = Sol-Amūn or "Sun of Amun" which is a direct parallel to "Zeus-Ammon", a title for Alexander the Great. Abraham: The father of Isaac is Abraham, the foundational patriarch. Ab = Father (Semitic). Raham = Arya (Sanskrit/Persian: "Noble"). Aram (the name for the land of the Arameans, a steppe-derived people). Abraham = Ab-Raham = "Father of the Aryans" or "Father of the Noble Ones". Related the Brahmin (Brahama) -> Ibrahim -> Abraham. A(Braha)m(in).
 
 After the destruction of the Temple and the crushing of the Bosporan‑Adiabene revolt, the Flavians deported or killed the R1a‑Z93 Scythian‑Aryan priest‑elite (the original "Jews"), and then imported loyal temple administrators from client kingdoms in the Caucasus and Upper Mesopotamia: Armenia (heavily J2‑M67/M92), Georgia (high J2a‑M319), and Adiabene/Osrhoene (J1‑P58, J2‑M172). (there were also literal human-neanderthal hybrids [^12] in that region who these "jews" mixed in with).
+
+The haplotype R1a (the famed "Arya" gene) was the dominant haplogroup of the Roman elite before the Flavian empire. After the Flavian reign the haplotype J2/J1 became the dominant haplogroup among the Roman elite (https://inf.news/en/science/bee8bab603736d7530f42b64ea756397.html). This is why they erased the Scythian origins of ancient civilizations and painted the Scythians (R1a) as monstrous foreigners (see: Chapter 8. Who Forged History?). 
 
 These people then underwent a genetic bottleneck after the Bar Kokhba Revolt when Emperor Hadrian decimated their population. 
 
@@ -1181,7 +1183,7 @@ What seems plausable is that the "Aryan hegemony" of the ancient world was not a
 
 Roman emperor faces no longer appear on Bosphoran coins after emperor Titus. Roman emperors also stopped looking "Aryan"/Nordic after the Flavian empire.
 
-The Flavians (Pālava or Palavi/Pahlavi, which was the term for the Parthian/Iranian aristocracy) were a Sauromatian clan who broke away from the old R1a-Z93 royal Bosphoran line (the Sauromatians proper) and introduced a heavy J2/J1 (Jewish haplogroup) admixture from the Adiabene–Osrhoene region. The haplotype R1a (the famed "Arya" gene) was the dominant haplogroup of the Roman elite before the Flavian empire. After the Flavian reign the haplotype J2/J1 became the dominant haplogroup among the Roman elite [^37]. This drop in R1a correlates with the rise of "Eastern" (Anatolian/Syrian) emperor origins.
+The Flavians (Pālava or Palavi/Pahlavi, which was the term for the Parthian/Iranian aristocracy) were a Sauromatian clan who broke away from the old R1a-Z93 royal Bosphoran line (the Sauromatians proper). The haplotype R1a (the famed "Arya" gene) was the dominant haplogroup of the Roman elite before the Flavian empire. After the Flavian reign the haplotype J2/J1 became the dominant haplogroup among the Roman elite [^37]. This drop in R1a correlates with the rise of "Eastern" (Anatolian/Syrian) emperor origins.
 
 This is why they erased the Scythian origins of ancient civilizations and painted the Scythians (R1a) as monstrous foreigners. 
 
@@ -1344,7 +1346,7 @@ What seems plausable is that the "Aryan hegemony" of the ancient world was not a
 
 Roman emperor faces no longer appear on Bosphoran coins after emperor Titus. Roman emperors also stopped looking "Aryan"/Nordic after the Flavian empire.
 
-The Flavians (Pālava or Palavi/Pahlavi, which was the term for the Parthian/Iranian aristocracy) were a Sauromatian clan who broke away from the old R1a-Z93 royal Bosphoran line (the Sauromatians proper) and introduced a heavy J2/J1 (Jewish haplogroup) admixture from the Adiabene–Osrhoene region. The haplotype R1a (the famed "Arya" gene) was the dominant haplogroup of the Roman elite before the Flavian empire. After the Flavian reign the haplotype J2/J1 became the dominant haplogroup among the Roman elite [^37].
+The haplotype R1a (the famed "Arya" gene) was the dominant haplogroup of the Roman elite before the Flavian empire. After the Flavian reign the haplotype J2/J1 became the dominant haplogroup among the Roman elite [^37].
 
 This is why they erased the Scythian origins of ancient civilizations and painted the Scythians (R1a) as monstrous foreigners. 
 
@@ -1420,19 +1422,17 @@ It is possible to identify who wrote the bible by looking at sects of the Imperi
 
 Sometime after the Roman-Jewish wars the Flavians tried to subvert the eastern imperial religion and they created christianity. It seems likely that the Bosphoran imperial religion before Christiantiy was essentially Judaism (see: Chapter 8. Who Forged History?). The Flavians took this religon and they infused a slave morality into it. 
 
-The primary architects were Flavian court historians Josephus and Pilny the Younger, but one other person who had a hand in writing the New Testament was named Epicteus (See: "Epictetus and the New Testament" by Douglas Simmonds Sharp (1914)) who was the slave to Nero's scribe Tiberius Claudius Epaphroditus or Epaphroditos (c. 20–25 – died c. 95). Epictetus had a Roman teacher named Gaius Musonius Rufus (c. 20-30-died c. 101) who was a Roman Stoic philosopher. Gaius Musonius Rufus was also a teacher of Dio Chrysostom (c. 40 – c. 115 AD). Josephus opened his book "Jewish Wars" and "History of the Jews" (Antiquities) by addressing them to: "kratistos (most excellent) Epaphroditus".
+One person who had a hand in writing the New Testament was named Epicteus (See: "Epictetus and the New Testament" by Douglas Simmonds Sharp (1914)) who was the slave to Nero's scribe Tiberius Claudius Epaphroditus or Epaphroditos (c. 20–25 – died c. 95). Epicteus was from Phrygia which had the higest proportion of jews in the Roman empire at the time (https://en.wikipedia.org/wiki/Phrygia#Jews_of_Phrygia), and they were likely of the J1 haplotyped ones and the J1 haplotype is strong in that region. 
+
+Epictetus had a Roman teacher named Gaius Musonius Rufus (c. 20-30-died c. 101) who was a Roman Stoic philosopher. Gaius Musonius Rufus was also a teacher of Dio Chrysostom (c. 40 – c. 115 AD). Josephus opened his book "Jewish Wars" and "History of the Jews" (Antiquities) by addressing them to: "kratistos (most excellent) Epaphroditus".
 
 Epicteus and Pilny the Younger were both in the same places at the same time; Rome, Nicopolis, and Bithynia-Pontus, and Pliny the Younger was a Roman administrator in Bithynia and Pontus at the same time Marcion was in Sinope, so these people knew each other.
  
 Epictetus (c. 50–135) fits the typecasting of a rabbi named Akiva (c. 50–135). If Epictetus = rabbi Akiva then this would put all the pieces together. 
 
-Rabbi Akiva was a teacher of of a man named Aquila of Sinope aka Onkelos. The midrash
-(Tanhuma. 41a, Mishpatim 3) claims that Onkelos was a nephew of Hadrian
-and other jewish sources list him as a nephew of emperor Titus (Tractate Gittin (56b)). His other student was Markianos of Alexandria
+Rabbi Akiva was a teacher of of a man named Aquila of Sinope aka Onkelos. His other student was Markianos of Alexandria
 aka Marcion (Greek Markion) of Sinope, also, Shimon bar Yohai aka Simon Peter
-(Shimon bar Yonah) (Simon's mythology was stolen from the Roman deity
-Janus who was the keeper of keys/gatekeeper role. Eusebius reported that
-Philo had met Simon Peter in Rome), Ketia bar Shalom aka 'Clement of
+(Shimon bar Yonah), Ketia bar Shalom aka 'Clement of
 Rome' (hebrew Ketia is the same as Latin Clement), Aristo of Pella who
 is a good candidate for being Luke the Evangelist ('Aristo', or
 'Ariston' is a name that is related to 'Proteus' The former means
@@ -1447,19 +1447,16 @@ ignatius (the name "Meir" means "one who illuminates". Ignatius means
 firey one and Polycarp was famous for lighting himself on fire).
 
 Rabbi Akiva was likely Paul the Apostle. In Acts 22:3 "Paul" claims to
-have been educated at the feet of Gamaliel (who was likely Tiberius Gemellus who was the grandson of Emperor Tiberius and brother of emperor Caligula) who was the teacher of rabbi
+have been educated at the feet of Gamaliel who was the teacher of rabbi
 Akiva, and in Acts 18:2-3 and Romans 16:3 NASB, it is claimed that
 Aquila of Sinope and his wife Prisca or Priscilla lived with Paul the
 Apostle and Paul called them "my fellow workers in Christ Jesus.
 Paul's/Saul's fictional life story was stolen from the ancient Egyptian
 story"Tale of the Shipwrecked Sailor".
 
-If "Jew" = Jove/Jupiter before the Bar Kokhba revolt (132–136 CE) and Flavian revision, and Judaism was essentially the Cult of Jupiter, then it wouldn't have been unusual for these people to call themselves Jewish despite being genetically Scythian-Sarmatian or Celtic. A "Rabbi" was just a prist in the Flammin Dialis cult. 
-
-Quintus Tinnius Rufus (Turnus Rufus the Evil) would have been Pontius Pilate, the
-Roman governor of Judaea who crucified Simon bar Kokhba and killed rabbi
-Akiva. Rabbi Akiva preached that Simon bar Kokhba was the jewish
-messiah.
+The midrash
+(Tanhuma. 41a, Mishpatim 3) claims that Aquila of Sinope aka Onkelos was a nephew of Hadrian
+and other jewish sources list him as a nephew of emperor Titus (Tractate Gittin (56b)). So, these J1 haplotyped jews in Roman used their connections to power to subvert the empire with a mind virus. They may have already been scribes working for the Flavians in subverting the cult of King Izates of Adiabene and realized at the time the power of slave morality religions. 
 
 Zeus became Baal-Zebub in the bible: Zeus Belos (Greek: Zeus Baal) ->
 Baal-Zebul -> Baal-Zebub ("Lord of the Flies") in 2 Kings 1:2-3.Jesus
