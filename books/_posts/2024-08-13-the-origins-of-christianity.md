@@ -1420,9 +1420,9 @@ It is possible to identify who wrote the bible by looking at sects of the Imperi
 
 **9.1 Christianity**
 
-Sometime after the Roman-Jewish wars the Flavians tried to subvert the eastern imperial religion and they created christianity. It seems likely that the Bosphoran imperial religion before Christiantiy was essentially Judaism (see: Chapter 8. Who Forged History?). The Flavians took this religon and they infused a slave morality into it. 
+Sometime after the Roman-Jewish wars the Flavians tried to subvert the eastern imperial religion and they created christianity. It seems likely that the Bosphoran imperial religion before Christiantiy was essentially Judaism (see: Chapter 8. Who Forged History?). Jewish rabbis within the Flavian administration who worked as scribes took this religion and they infused a slave morality into it. 
 
-One person who had a hand in writing the New Testament was named Epicteus (See: "Epictetus and the New Testament" by Douglas Simmonds Sharp (1914)) who was the slave to Nero's scribe Tiberius Claudius Epaphroditus or Epaphroditos (c. 20–25 – died c. 95). Epicteus was from Phrygia which had the higest proportion of jews in the Roman empire at the time (https://en.wikipedia.org/wiki/Phrygia#Jews_of_Phrygia), and they were likely of the J1 haplotyped ones and the J1 haplotype is strong in that region. 
+One person who had a hand in writing the New Testament was named Epicteus (See: "Epictetus and the New Testament" by Douglas Simmonds Sharp (1914)) who was the slave to Nero's scribe Tiberius Claudius Epaphroditus or Epaphroditos (c. 20–25 – died c. 95). Epicteus was from Phrygia which had the highest proportion of jews in the Roman empire at the time (https://en.wikipedia.org/wiki/Phrygia#Jews_of_Phrygia), and they were likely of the J1 haplotyped ones as the J1 haplotype is strong in that region. 
 
 Epictetus had a Roman teacher named Gaius Musonius Rufus (c. 20-30-died c. 101) who was a Roman Stoic philosopher. Gaius Musonius Rufus was also a teacher of Dio Chrysostom (c. 40 – c. 115 AD). Josephus opened his book "Jewish Wars" and "History of the Jews" (Antiquities) by addressing them to: "kratistos (most excellent) Epaphroditus".
 
