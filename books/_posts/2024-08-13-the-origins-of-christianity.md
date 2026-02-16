@@ -190,17 +190,20 @@ Fig. 1.5. L. Tiberius Julius Aspurgus I, king of Bosphorus. R. Emperor Tiberius 
 
 Fig. 1.6. Tiberius Julius Aspurgus I, king of Bosphorus aka Emperor Tiberius Caesar Augustus was also Kujula Kadphises, prince of the Kushan Empire (a vast territory stretching from Central Asia into northern India). Kujula Kadphises unifies the Yuezhi tribes and establishes the Kushan Empire right after the "death" of Julius Caesar/Asander. This is not a successor state; it is the same ruler shifting his primary administrative center to Central Asia to manage the Silk Road. The "Yuezhi" are the "Iudii"/"Jove" tribe—the same Scythian-Celtic priestly class. This regional avatar also connects to the legendary Chinese emperor Yu the Great (original name "Aži" or "Yazhi" (亞茲))? Julius, from Ioulius, related to Iove (Jove).
 
-![Fig.1.7](/images/MithridatesIIICaligula.jpg){:width="400px"}\
-Fig. 1.7. L. Mithridates III, king of Bosphorus. R. Emperor Caligula.
+![Fig.1.7](/images/RhoemetalkesIIICaligula.jpg){:width="400px"}\
+Fig. 1.7. L. Rhoemetalkes III, king of Bosphorus. R. Emperor Caligula.
 
-![Fig.1.8](/images/CotysIClaudius.jpg){:width="400px"}\
-Fig. 1.8. L. Cotys I, king of Bosphorus. R. Emperor Claudius.
+![Fig.1.8](/images/MithridatesIIINero.jpg){:width="400px"}\
+Fig. 1.8. L. Mithridates III, king of Bosphorus. R. Emperor Nero.
 
-![Fig.1.9](/images/RhescuporisIVespasian.jpg){:width="400px"}\
-Fig. 1.9. L. Rhescuporis I, king of Bosphorus. R. Emperor Vespasian.
+![Fig.1.9](/images/CotysIClaudius.jpg){:width="400px"}\
+Fig. 1.9. L. Cotys I, king of Bosphorus. R. Emperor Claudius.
 
-![Fig.1.10](/images/PolemonIITitus.jpg){:width="400px"}\
-Fig. 1.10. L. Polemon II, king of Bosphorus. R. Emperor Titus.
+![Fig.1.10](/images/RhescuporisIVespasian.jpg){:width="400px"}\
+Fig. 1.10. L. Rhescuporis I, king of Bosphorus. R. Emperor Vespasian.
+
+![Fig.1.11](/images/PolemonIITitus.jpg){:width="400px"}\
+Fig. 1.11. L. Polemon II, king of Bosphorus. R. Emperor Titus.
 
 1.2 Ancient Alias Names List
 
@@ -391,8 +394,8 @@ The Final Consolidation
 -600-500 BC: The Akrosander hegemony begins to fragment, leading to civil wars between his descendant lines.\
 -429-339 BC: Ateas the Scythian. The last great emperor of the direct Akrosander bloodline, ruling from the Danube to the Caucasus. His name "Ateas" (Forefather) is a title claiming direct descent from Akrosander. Ateas the Scythian was also Artaxerxes II Memnon ("Kai Bahman") of Persia aka Phillip II in Macedonia aka Nectanebo II in Egypt aka Evagoras I of Salamis (Cyprus). 
 
-![Fig.1.11](/images/AteasPhillipAlexander.jpg){:width="400px"}\
-Fig. 1.11. Showing three generations. L. Ateas the Scythian (Ata- or Atha-, meaning "forefather" or "ancestor" in Scythian). M. Philip II of Macedon. R. Alexander the Great. Ateas and Artaxerxes II Mnemon were reported "enemies" of Phillip. Ateas dies in battle against him, and in the Alexander Romance, a book that has its earliest copy dating back a couple of centuries after Alexanders life, the wizard-pharaoh Nectanebo II is secretly Alexander's real father, magically impersonating the god Amun. This is not fantasy; it is a mythological encoding of historical truth.\
+![Fig.1.12](/images/AteasPhillipAlexander.jpg){:width="400px"}\
+Fig. 1.12. Showing three generations. L. Ateas the Scythian (Ata- or Atha-, meaning "forefather" or "ancestor" in Scythian). M. Philip II of Macedon. R. Alexander the Great. Ateas and Artaxerxes II Mnemon were reported "enemies" of Phillip. Ateas dies in battle against him, and in the Alexander Romance, a book that has its earliest copy dating back a couple of centuries after Alexanders life, the wizard-pharaoh Nectanebo II is secretly Alexander's real father, magically impersonating the god Amun. This is not fantasy; it is a mythological encoding of historical truth.\
 
 -356 BC: Ateas/Amyntas III/Artaxerxes's grandson Alexander the Great: Alexander was his title. "Aži-ander" = Aži
     (Avestan "dragon") + Andros (Greek "man") = "Dragon-Man", the same as Akrosander/Akrosas. Alaksandu
@@ -422,8 +425,8 @@ Thracians/Dacians
 
 The Bosporan and Dacian kingdoms controlled the Danube Delta and the Bosporus Strait—the two most critical chokepoints for Eurasian trade. Whoever controlled these points controlled the flow of goods, armies, and ideas between Europe and Asia. They didn't just rule an empire; they ruled the geography of civilization itself. Also, the massive gold mines of Dacia (modern Romania) were the financial engine of the "Roman" Empire. The output of these mines from 100 BC - 100 AD exceeds the total gold supply of the rest of the ancient world combined. The fact that Asander, king of Bosphrus is today an unknown historical figure despite the fact that he would have been the richest and most powerful man in the word at the time should be regarded as suspicious. The reason why you never heard of him is because you know him under another name: Julius Caesar.
 
-![Fig.1.12](/images/Skyles.jpg){:width="400px"}\
-Fig. 1.12. Coin of Skyles, a Scythian king who reigned from ca 470-460 BC displaying a Scythian Solar Wheel and the World Tree combined. The cross was prominent in ancient Europe. It was a sundial and every city would have had one to track the time, dates, and agricultural and lunar cycles. "Skylesis" a Greek mockery of Skuða-las (Scythian King). The owl on the reverse side is the Owl of Athena also known as the Owl of Minerva, a sacred bird in Greek mythology that accompanies Athena. It shows up prominently in later Greek tetradrachms connecting him to Greece. For a Scythian king to carry that iconography shows direct interaction.
+![Fig.1.13](/images/Skyles.jpg){:width="400px"}\
+Fig. 1.13. Coin of Skyles, a Scythian king who reigned from ca 470-460 BC displaying a Scythian Solar Wheel and the World Tree combined. The cross was prominent in ancient Europe. It was a sundial and every city would have had one to track the time, dates, and agricultural and lunar cycles. "Skylesis" a Greek mockery of Skuða-las (Scythian King). The owl on the reverse side is the Owl of Athena also known as the Owl of Minerva, a sacred bird in Greek mythology that accompanies Athena. It shows up prominently in later Greek tetradrachms connecting him to Greece. For a Scythian king to carry that iconography shows direct interaction.
 
 The chromosome Haplogroup R1a, specifically subclade Z93 is found in high frequencies among the Scythian remains from the Pontic-Caspian Steppe. The Kshatriya (warrior) caste in India. The Brahmins (priestly) caste in India. The highest nobility of Persia. Patrician families of Rome. The Pharisaic and Herodian dynasties in Judea. The Sarmatian Alans who settled in Western Europe (and whose descendants include the Habsburgs). It is also found in the Tarim Mummies of China and in other tested ancient elite Chinese burial grounds (see: Chapter 7.4 China: The Han Synthesis and the Tartarian Genocide). This is the genetic signature of the administrative and priestly class that was installed globally.).
 
@@ -451,9 +454,9 @@ Serapis is the "God Template" for all imperial cults. The Alexandrian School was
 
 Serapis was deliberately engineered by Ptolemy I Soter and the priest Manetho to be a universal syncretism.
 
-![Fig.1.13](/images/SarapisAmunAgathodaemon.jpg){:width="400px"}
+![Fig.1.15](/images/SarapisAmunAgathodaemon.jpg){:width="400px"}
 
-Fig. 1.13 Copper statuette of the god Sarapis Amun Agathodaemon depicted as half-deity. half-snake (Egypt late Hellenistic/early Roman period 1st century BC - 1st century AD).
+Fig. 1.15 Copper statuette of the god Sarapis Amun Agathodaemon depicted as half-deity. half-snake (Egypt late Hellenistic/early Roman period 1st century BC - 1st century AD).
 
 Serapis = Sabazios = Asar (Osiris) + Apis (Asar + Apis = Asarapis → metathesis to Serapis), but also identified with Šar Apsi (Akkadian: “King of the Apsu”—the abyssal waters ruled by Enki/Ea).
 
