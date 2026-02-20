@@ -28,20 +28,23 @@ Part 2: The Fall of the Dragon Kings
 6.1 The Flavian Coup: The Accountants Take Over (c. 50 BCE – 300 CE)  
 6.2 China: The Han Synthesis and the Tartarian Genocide  
 6.3 Ancient India: The Mauryan Mirage  
-6.4 The Middle East and North Africa: Invasions and Slave Colonization (250 - 650 CE)  
-6.5 Where Did The Scythian Aryans Go? The Refugia  
+6.4 The Middle East and North Africa: Invasions and Slave Colonization (250 - 650 CE)\
+6.5 The Americas\
+6.5.1 Genetic Evidence of Transoceanic Contact\
+6.5.2 Nautical Proof of Atlantic-Capable Fleets\
+7.5 Where Did The Scythian Aryans Go? The Refugia  
 Part 3: Rewriting History  
-7 How R1a Was Purged from History  
-7.1 The Flavian Coup – The Accountants Take Over  
-7.1.1 The “First Jewish-Roman War” as a Treasury Seizure  
-7.1.2 Izates of Adiabene vs. Vespasian – The Last Dragon King vs. The Banker  
-8 Inventing Ancient Greece  
-9 The 'Achaemenid' Empire is the Parthian Empire  
-10 Fabricating 'Ancient' Egypt  
-11 Rome: The Phantom Empire on the Tiber  
-12 The Vatican-Medici-Jesuit Forgery (14th - 18th Centuries)  
-13 The Jesuit Operation (16th-18th c.)  
-14 Expanded Notes: Suppressed Histories & New Connections  
+8 How R1a Was Purged from History  
+8.1 The Flavian Coup – The Accountants Take Over  
+8.1.1 The “First Jewish-Roman War” as a Treasury Seizure  
+8.1.2 Izates of Adiabene vs. Vespasian – The Last Dragon King vs. The Banker  
+9 Inventing Ancient Greece  
+10 The 'Achaemenid' Empire is the Parthian Empire  
+11 Fabricating 'Ancient' Egypt  
+12 Rome: The Phantom Empire on the Tiber  
+13 The Vatican-Medici-Jesuit Forgery (14th - 18th Centuries)  
+14 The Jesuit Operation (16th-18th c.)  
+15 Expanded Notes: Suppressed Histories & New Connections  
 Conclusion
 
 **Introduction**
@@ -639,7 +642,66 @@ The Arabs also engaged in slave breeding. Cities like Basra and Kufa were not mi
 | **Anatolia** | **R1a-Z93**, **R1b-Z2103** (Hittite/Luwian elite) | **J2-M172**, **R1b-M269** (Armenian/Greek), later **Turkic Q** | The "Byzantine-Arab" wars were a **demographic pump**, clearing the plateau for later Turkic settlement. Theme system broke old land patterns. |
 | **North Africa** | **R1b-V88** (Garamantes), **R1a-Z93** (Numidian cavalry elite) | **E-M81** (Berber), **J1-M267** | **Vandal kingdom was the last R1a elite.** Its destruction by Byzantium (534 CE) was the key event. Subsequent "Arab" invasions were clean-up operations. |
 
-**7.5 Where Did The Scythian Aryans Go? The Refugia**
+**7.5 The Americas**
+
+The height of the Bosporan Kingdom (c. 100 BCE–100 CE) coincides with the rise of the Maya Preclassic and Olmec decline.
+*   **Wave 1: Founding Colony (c. 150–50 BCE):**
+    *   Trigger: Mithridatic Wars (Hegemony civil war).
+    *   Method: Carthaginian/Celtic naval tech absorbed by Bosporan faction.
+    *   Landing: Gulf of Mexico. Explains sudden Olmec civilization.
+    *   Evidence: Olmec colossal heads depict Sarmatian/Bosporan helmet styles (phalera). La Venta's basalt columns transported 80 miles by raft—Old World logistics.
+*   **Wave 2: Imperial Consolidation (c. 100–300 CE):**
+    *   American territory developed as a breadbasket/silver bank.
+    *   Teotihuacan is a planned Hellenistic-grid administrative capital.
+    *   Pyramid of the Sun base perimeter is within 1% of Great Pyramid of Giza's.
+    *   Mexican silver mines (Pachuca) likely supplied Roman denarii.
+*   **Wave 3: Post-Collapse Remnant (c. 550–900 CE):**
+    *   535–536 CE volcanic winter/plague collapses Atlantic supply lines.
+    *   "Classic Maya" city-states (Palenque, Tikal) are the stranded rump states of the old administration.
+    *   Maya script is a creolized administrative script combining Old World logosyllabic systems.
+
+**7.5.1 Genetic Evidence of Transoceanic Contact**
+
+The Y DNA of Most Native American men is Q y-dna. Q y-dna belongs to Haplogroup P which also includes R1b, R1a, R2. Haplogroup P belonged to great Hyperborean patriarch. R originated from P that had sailed over the Pacific to the Americas, that R1b were North American cousins to R1a Hyperboreans in Greenland. That after Younger Dryas, R1a migrated to the pre-flooded Moesian basin, and somewhat later the R1b sailed from North America to Atlantic Europe, spreading as the Bell Beaker Italo-Celts.
+
+*   **Haplogroup R1b-V88 in Ancient Amazonian Remains:**
+    *   O is a brother clade to European R1b.
+    *   Mainstream theory: Pre-glacial migration across Beringia.
+    *   Alternative: Atlantic Celtic/Berber sailor-administrator signature.
+*   **Mitochondrial Haplogroup X2a in Ojibwe/Great Lakes Region:**
+    *   Highest Old World frequency in the Druze (Levant), Orkney Islands, Southern Italy. X2a in the Great Lakes/Ojibwe is matrilinial. Scythians males must have stolen Basque women from Spain or France and took them to the New World. 
+    *   These are key Dragon Crown network nodes (Adiabene, Celtic naval base, Rome).
+    *   This is a managed colonization genetic marker.
+*   **Paracas Mummies of Peru:**
+    *   Exhibit red/blond hair, elongated skulls (cranial binding).
+    *   NEVER subjected to comprehensive, open DNA testing.
+    *   Prediction: Would show R1a-Z93 (Scythian royal) and R1b haplogroups.
+
+Haplogroup R* Y-DNA (xR1,R2) was found in 24,000-year-old remains from Mal'ta in Siberia near Lake Baikal. In 2013, R-M207 was found in one out of 132 males from the Kyrgyz people of East Kyrgyzstan
+Amerindians are 30% West Eurasian and 70% East Eurasian who descend from people with haplogroup R/R-M207, that are closest to the R1b (OG Europeans), being ANE, Ancient Northeast Eurasians, who crossed the Bering Strait between Russia and Alaska.
+
+Clovis / Solutreans is a cover name for Cro-Magnon invaders from Atland. There is a reason why in Americas some natives named things after Atland. Mayan texts Popol Vuh claims that ancestors sailed through eastern ocean to settle in Central America. Also, "atl" means water. Atlantoi, Atlantes, Atland, Aztlan etc. There is a reason why Mayan and Egyptian cultures were so similar. They were founded by Atlanteans.
+
+**7.5.2 Nautical Proof of Atlantic-Capable Fleets**
+
+*   **Ocean Capable Ships:**
+    *   "Mithridates' war fleet comprised 300 decked ships and 100 open biremes. Behind the existing fleet was perhaps the greatest naval arsenal in the world" (source: U.S. Naval Institute Proceedings, April 1924 https://www.usni.org/magazines/proceedings/1924/april/chapter-ancient-sea-power-mithridatic-wars). They carried Crimean grain to Greek armies operating in the Aegean and Adriatic. The distance from the Cimmerian Bosporus (Kerch Strait) to the Adriatic coast is 1,200 nautical miles through contested waters. This is not coast-hugging cabotage. This is open-sea navigation requiring celestial bearings, multi-week voyages, and heavy cargo capacity. If they could sail 1,200 miles to Italy, they could sail 3,000 miles to Cuba. The currents are actually easier westward than northward against the Bosporus outflow.
+*   **Black Sea Shipwreck (2017 Discovery):**
+    *   2,400-year-old Greek merchant ship, perfectly preserved.
+    *   Dates to Bosporan Kingdom era (Mithridates VI).
+    *   23 meters long, 6,000 amphorae capacity. Ocean-capable design (mortise-and-tenon joints).
+*   **Carthaginian Naval Technology Absorption:**
+    *   Carthage destroyed 146 BCE, but its navy and charts were absorbed by Rome/Bosporan network.
+    *   Carthage knew the Atlantic currents (Canary Current to Caribbean).
+*   **Celtic (Veneti) Shipwrights:**
+    *   Controlled Brittany, built massive oak ships for Atlantic travel.
+    *   Allied with/controlled by Rome post-conquest.
+*   **Navigational Capacity:**
+    *   **Antikythera Mechanism (c. 100 BCE):** Analog computer for astronomy.
+    *   **Star Pathing:** Canary Islands (28°N) to Cuba (28°N) – sail due west by North Star.
+    *   **Currents:** Canary Current to Caribbean (30-40 days). Gulf Stream return to Europe (40-50 days). This creates a round-trip Atlantic circuit.
+
+**7.6 Where Did The Scythian Aryans Go? The Refugia**
 
 The Scythians did not completely vanish. Some were pushed to the geographic and social margins:
 
