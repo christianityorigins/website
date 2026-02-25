@@ -498,17 +498,20 @@ Fig. 1.17. L. Tiberius Julius Aspurgus I, king of Bosphorus. R. Emperor Tiberius
 ![Fig.1.18](/images/KadphisesTiberius.jpg){:width="400px"}\
 Fig. 1.18. Tiberius Julius Aspurgus I, king of Bosphorus aka Emperor Tiberius Caesar Augustus was also Kujula Kadphises, prince of the Kushan Empire (a vast territory stretching from Central Asia into northern India). Kujula Kadphises unifies the Yuezhi tribes and establishes the Kushan Empire right after the "death" of Julius Caesar/Asander. This is not a successor state; it is the same ruler shifting his primary administrative center to Central Asia to manage the Silk Road. The "Yuezhi" are the "Iudii"/"Jove" tribe—the same Scythian-Celtic priestly class. This regional avatar also connects to the legendary Chinese emperor Yu the Great (original name "Aži" or "Yazhi" (亞茲))? Julius, from Ioulius, related to Iove (Jove).
 
-![Fig.1.19](/images/MithridatesIIICaligula.jpg){:width="400px"}\
-Fig. 1.19. L. Mithridates III, king of Bosphorus. R. Emperor Caligula.
+![Fig.1.19](/images/RhoemetalkesIIICaligula.jpg){:width="400px"}\
+Fig. 1.19. L. Rhoemetalkes III, king of Bosphorus. R. Emperor Caligula.
 
-![Fig.1.20](/images/CotysIClaudius.jpg){:width="400px"}\
-Fig. 1.20. L. Cotys I, king of Bosphorus. R. Emperor Claudius.
+![Fig.120](/images/MithridatesIIINero.jpg){:width="400px"}\
+Fig. 1.20. L. Mithridates III, king of Bosphorus. R. Emperor Nero.
 
-![Fig.1.21](/images/RhescuporisIVespasian.jpg){:width="400px"}\
-Fig. 1.21. L. Rhescuporis I, king of Bosphorus. R. Emperor Vespasian.
+![Fig.1.21](/images/CotysIClaudius.jpg){:width="400px"}\
+Fig. 1.21. L. Cotys I, king of Bosphorus. R. Emperor Claudius.
 
-![Fig.1.22](/images/PolemonIITitus.jpg){:width="400px"}\
-Fig. 1.22. L. Polemon II, king of Bosphorus. R. Emperor Titus.
+![Fig.1.22](/images/RhescuporisIVespasian.jpg){:width="400px"}\
+Fig. 1.22. L. Rhescuporis I, king of Bosphorus. R. Emperor Vespasian.
+
+![Fig.1.23](/images/PolemonIITitus.jpg){:width="400px"}\
+Fig. 1.23. L. Polemon II, king of Bosphorus. R. Emperor Titus.
 
 **Part 2: The Fall of the Dragon Kings**
 
