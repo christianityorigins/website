@@ -814,6 +814,20 @@ They didn't just forge texts; they forged entire material cultures. They employe
 
 The Medici did not create the foundational lie, but they financed, refined, and physically produced the "ancient" manuscripts that cemented it into Western consciousness (look up the similarities between Plato and Gemistus Plethon whose patron was also Cosimo de Medici). Their forger-in-chief was Poggio Bracciolini. Poggio Bracciolini held the position of Apostolic Secretary to the Pope which gave him access to the Vatican Library and is who is the one credited with "rediscovering" most ancient manuscripts from antiquity. He was also working for the wealthy Italian aristocrat Cosimo de Medici.
 
+Poggio Bracciolini's patron was Cosimo de' Medici. Cosimo's grandson was Lorenzo de' Medici ("Lorenzo the Magnificent"). Lorenzo's son was Pope Leo X.
+
+Now trace the "rediscovered" manuscripts:
+
+Tacitus : Rediscovered by Poggio at the monastery of Monte Cassino (where his brother was a monk)
+
+Lucretius : Rediscovered by Poggio in Germany
+
+Quintilian : Rediscovered by Poggio at St. Gallen
+
+Cicero's speeches : Rediscovered by Poggio at Cluny
+
+Poggio was paid by Cosimo de' Medici, who was financing the Council of Florence (1438-1445)—the same council that attempted to reunite the Catholic and Orthodox churches. The "rediscovered" classical texts provided the intellectual ammunition for Renaissance humanism, which was used to break the power of the Church and establish Medici control over Florence.
+
 **14. The Jesuit Operation (16th-18th c.)**
 
 *   Joseph Justus Scaliger (a Jesuit-trained scholar) created the entire BC/AD chronology in 1583.
