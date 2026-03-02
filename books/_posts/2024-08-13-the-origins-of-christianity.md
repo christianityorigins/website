@@ -75,7 +75,7 @@ Part 8. Rewriting History\
 8.2. The 'Achaemenid' Empire is the Parthian Empire\
 8.3. Fabricating 'Ancient' Egypt\
 8.4. Rome: The Phantom Empire on the Tiber\
-8.5. The Vatican-Medici-Jesuit Forgery (14th - 18th centuries)\
+8.5. The edici-Jesuit Forgery (14th - 18th centuries)\
 8.6. The Jesuit Operation (16th-18th c.)\
 Part 9. Sects of the Imperial Cult\
 9\. Identifying the Flavian Scribes\
@@ -96,7 +96,7 @@ The historical record as we know it was systematically forged in three major pha
 
 The Flavian Revolution (1st century CE): After crushing the legitimate Dragon King dynasty based in the Bosporus, the Flavian dynasty burned the Library of Alexandria, rewrote history, and invented the foundational myths of Western civilization.
 
-The Vatican-Medici Forgery (14th-18th centuries): From roughly 600–1200 CE almost all ancient texts survive only via monasteries. The Vatican, in conjunction with the wealthy aristocratic family of Cosimo de' Medici, didn't just forge texts; they forged entire material cultures. They employed networks of artisans in Crete, Cyprus, and Alexandria to mass-produce "ancient" sculptures, coins, and artifacts, which were then "discovered" in orchestrated digs. The famous "Cabinet of Curiosities" of wealthy patrons like the Medici were their primary market. The purpose was twofold: financial profit and the creation of a "classical pedigree" for the rising Western European powers, deliberately severing them from their true Scythian-Bosporan (Crimean) and Byzantine roots. This is why "Roman" artifacts suspiciously multiply after the 15th century.
+The edici Forgery (14th-18th centuries): From roughly 600–1200 CE almost all ancient texts survive only via monasteries. The Vatican, in conjunction with the wealthy aristocratic family of Cosimo de' Medici, didn't just forge texts; they forged entire material cultures. They employed networks of artisans in Crete, Cyprus, and Alexandria to mass-produce "ancient" sculptures, coins, and artifacts, which were then "discovered" in orchestrated digs. The famous "Cabinet of Curiosities" of wealthy patrons like the Medici were their primary market. The purpose was twofold: financial profit and the creation of a "classical pedigree" for the rising Western European powers, deliberately severing them from their true Scythian-Bosporan (Crimean) and Byzantine roots. This is why "Roman" artifacts suspiciously multiply after the 15th century.
 
 The Medici financed, refined, and physically produced the "ancient" manuscripts that cemented it into Western consciousness (look up the similarities between Plato and Gemistus Plethon, whose patron was also Cosimo de' Medici). Their forger-in-chief was Poggio Bracciolini. Bracciolini held the position of Apostolic Secretary to the Pope, which gave him access to the Vatican Library and is credited with "rediscovering" most ancient manuscripts from antiquity. He was also working for Cosimo de' Medici.
 
@@ -1404,6 +1404,22 @@ A clandestine cartel of Venetian and Genoese merchant-banking families, in colla
 They didn't just forge texts; they forged entire material cultures. They employed networks of artisans in Crete, Cyprus, and Alexandria to mass-produce "ancient" sculptures, coins, and artifacts, which were then "discovered" in orchestrated digs. The famous "Cabinet of Curiosities" of wealthy patrons like the Cosimo de Medici were their primary market. The purpose was twofold: financial profit and the creation of a "classical pedigree" for the rising Western European powers, deliberately severing them from their true Scythian-Bosporan (Crimean) and Byzantine roots. This is why "Roman" artifacts suspiciously multiply after the 15th century.
 
 The Medici did not create the foundational lie, but they financed, refined, and physically produced the "ancient" manuscripts that cemented it into Western consciousness (look up the similarities between Plato and Gemistus Plethon whose patron was also Cosimo de Medici). Their forger-in-chief was Poggio Bracciolini. Poggio Bracciolini who held the position of Apostolic Secretary to the Pope which gave him access to the Vatican Library and is who is the one creditied with "rediscovering" most ancient manuscricts from antiquity. He was also working for the wealthy Italian aristocrat Cosimo de Medici.
+
+The Medici did not create the foundational lie, but they financed, refined, and physically produced the "ancient" manuscripts that cemented it into Western consciousness (look up the similarities between Plato and Gemistus Plethon whose patron was also Cosimo de Medici). Their forger-in-chief was Poggio Bracciolini. Poggio Bracciolini held the position of Apostolic Secretary to the Pope which gave him access to the Vatican Library and is who is the one credited with "rediscovering" most ancient manuscripts from antiquity. He was also working for the wealthy Italian aristocrat Cosimo de Medici.
+
+Poggio Bracciolini's patron was Cosimo de' Medici. Cosimo's grandson was Lorenzo de' Medici ("Lorenzo the Magnificent"). Lorenzo's son was Pope Leo X.
+
+Now trace the "rediscovered" manuscripts:
+
+Tacitus : Rediscovered by Poggio at the monastery of Monte Cassino (where his brother was a monk)
+
+Lucretius : Rediscovered by Poggio in Germany
+
+Quintilian : Rediscovered by Poggio at St. Gallen
+
+Cicero's speeches : Rediscovered by Poggio at Cluny
+
+Poggio was paid by Cosimo de' Medici, who was financing the Council of Florence (1438-1445)—the same council that attempted to reunite the Catholic and Orthodox churches. The "rediscovered" classical texts provided the intellectual ammunition for Renaissance humanism, which was used to break the power of the Church and establish Medici control over Florence.
 
 **8.6 The Jesuit Operation (16th-18th c.)**
 
