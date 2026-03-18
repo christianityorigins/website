@@ -830,10 +830,10 @@ Poggio was paid by Cosimo de' Medici, who was financing the Council of Florence 
 
 **14. The Jesuit Operation (16th-18th c.)**
 
-*   Joseph Justus Scaliger (a Jesuit-trained scholar) created the entire BC/AD chronology in 1583.
-*   Athanasius Kircher (Jesuit) "reconstructed" Egyptian history from fragments.
+*   Joseph Justus Scaliger created the entire BC/AD chronology in 1583.
+*   Athanasius Kircher "reconstructed" Egyptian history from fragments.
 *   Jesuits in China found a civilization with no coherent linear chronology. They took fragmentary records, king lists, and bronze inscriptions and arranged them to fit the Biblical timeline provided by the Septuagint.
-*   Jesuits in India back-dated Sanskrit texts by 1,500+ years.
+*   Jesuits in India back-dated Sanskrit texts by 1,500+ years. Roberto de Nobili created "ancient" Indian history.
 
 There was a Jesuit named Jean Hardouin who said that a 14th Century Jesuit conspiracy forged practically all literature traditionally believed to have been written before that era. He was the official librarian to the King of France. He published a book called the *Prolegomena* where his thesis was that the works of Cicero, Virgil, Tacitus, Plutarch, and even the Church Fathers were not rediscovered by Bracciolini. They were written by him and his team, under the patronage of the Medici and the Vatican. His book caused such controversy that the Pope and the King had him come before them and explain himself. He defended his work, and refused to retract it, so they threw him in prison.
 
