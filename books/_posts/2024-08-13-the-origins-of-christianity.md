@@ -188,7 +188,7 @@ Fig. 1.5. L. Tiberius Julius Aspurgus I, king of Bosphorus. R. Emperor Tiberius 
 
 ![Fig.1.6](/images/KadphisesTiberius.jpg){:width="400px"}
 
-Fig. 1.6. Tiberius Julius Aspurgus I, king of Bosphorus aka Emperor Tiberius Caesar Augustus was also Kujula Kadphises, prince of the Kushan Empire (a vast territory stretching from Central Asia into northern India). Kujula Kadphises unifies the Yuezhi tribes and establishes the Kushan Empire right after the "death" of Julius Caesar/Asander. This is not a successor state; it is the same ruler shifting his primary administrative center to Central Asia to manage the Silk Road. The "Yuezhi" are the "Iudii"/"Jove" tribe—the same Scythian-Celtic priestly class. This regional avatar also connects to the legendary Chinese emperor Yu the Great (original name "Aži" or "Yazhi" (亞茲))? Julius, from Ioulius, related to Iove (Jove).
+Fig. 1.6. Tiberius Julius Aspurgus I, king of Bosphorus aka Emperor Tiberius Caesar Augustus was also Kujula Kadphises, prince of the Kushan Empire which was vast territory stretching from Central Asia into northern India (Kujula = Ku‑ = "son of", Jula = "Julius". So "Kujula" = "son of Julius"?). Kujula Kadphises unifies the Yuezhi tribes and establishes the Kushan Empire right after the "death" of Julius Caesar/Asander. This is not a successor state; it is the same ruler shifting his primary administrative center to Central Asia to manage the Silk Road. The "Yuezhi" are the "Iudii"/"Jove" tribe—the same Scythian-Celtic priestly class. This regional avatar also connects to the legendary Chinese emperor Yu the Great (original name "Aži" or "Yazhi" (亞茲))? Julius, from Ioulius, related to Iove (Jove).
 
 ![Fig.1.7](/images/RhoemetalkesIIICaligula.jpg){:width="400px"}\
 Fig. 1.7. L. Rhoemetalkes III, king of Bosphorus. R. Emperor Caligula.
@@ -224,7 +224,7 @@ Alexander the Great's successors ("Diadochi") were Seleucus I Nicator who contro
   Aliases: Mark Antony (Marcus Antonius = Mar (Phoenician "lord") + Anton (from Antaeus, giant son of Gaia)), King Herod (Heru (Horus) + Ud (divine) = Herud -> Herod, "The Divine Horus", or Herodes (-dēs common Greek patronymic suffix meaning "son of"), "Son of Horus". The "Slaughter of the Innocents" is a mythological trope attached to the birth of every Horus-figure who must overcome a threat (against Set). It is not history; it is theological propaganda asserting Herod's/Mark Antony's legitimacy as the living god-king against the resurrected one. This is also attached to the Indian god Krishna (against Kamsa)), Polemon Pythodoros, King of Pontus, prince of Pontus  (Polemos -> Ptolemy). Tiberius Claudius Nero, Phraates IV of Parthia (Per-aa or Per-Nesu is a corruption of Pharaoh). Ariarathes IX (Arya-Ratha". Sanskrit:"Noble Charioteer") Eusebes Philopator, King of Cappadocia. Was he also Ptolemy X Alexander I aka Simon Boethus aka Simon Magus? Hyspaosines of Characene? Mithridates VI Eupator and Mark Antony are both recorded as marrying a sister-wife named Cleopatra (Antony to Cleopatra VII; Mithridates VI to Laodice, who used "Cleopatra" as a throne name and Mithridates VI of Pontus was also recorded to have married Cleopatra of Athamania and their daughter was Cleopatra of Pontus (https://web.archive.org/web/20101126090909/http://mauriceboddy.org.uk/Pontus.htm)). King Herod was married to Cleopatra of Jerusalem, and Mithridates VI Eupator and Ptolemy XII Auletes both had daughters named Cleopatra (Cleopatra VII/Cleopatra the Elder, princess of Pontus). The Shekel of Tyre minted by Herod depicts Mark Antony and Hercules and Herod built temples to Hercules in Beirut and Tyre, and depicted himself as Hercules in his Herodian Cult. Herod's son Herod Antipas shares the name of Mark Antony's son Antyllus; Herod's other son Antipater was Iullus Antonius (Mark Antony's son with Fulvia), Herods son Alexander (son of King Herod) has the same name as Mark Antony's son Alexander Helios.
   - Spouse: Wife/sister: Laodice (in Pontus) = Cleopatra V Tryphaena (in Egypt)
   - Children:
-    - Cleopatra VII Thea Philopator aka Dynamis, queen of Bosphorus, Cleopatra of Pontus, Pythodorida, queen of Pontus, Musa Thea Urania of Parthia (Parthian queen mother, same "Heavenly Goddess" title). Also, Amanirenas ("Amon is Lord"), Kandake of Kush? Dynamis was called "Dynamus Pilatea"(https://en.rodovid.org/wk/Person:401227) the same title that was carried by "Pontus Pilate". Dynamis is recorded as the grandaughter of Mithridates VI, but historians are probably confusing her with Cleopatra the Elder, princess of Pontus who was married to Tigranes II, king of Armenia. Cleopatra VII, Dynamis, and Pythodorida all had sons named Ptolemy Philadelphus who succeeded them.
+    - Cleopatra VII Thea Philopator aka Dynamis, queen of Bosphorus, Cleopatra of Pontus, Pythodorida, queen of Pontus, Musa Thea Urania of Parthia (Parthian queen mother, same "Heavenly Goddess" title). Also, Amanirenas ("Amon is Lord"), Kandake of Kush? Dynamis was called "Dynamus Pilatea"(https://en.rodovid.org/wk/Person:401227) the same title that was carried by "Pontus Pilate". The Etruscan Pilates was a title for the high priest of the Mithraic cult. In the Mithraic tauroctony, the bull‑slayer wears a Phrygian cap—the same cap worn by Dynamis on her coins. Dynamis is recorded as the grandaughter of Mithridates VI, but historians are probably confusing her with Cleopatra the Elder, princess of Pontus who was married to Tigranes II, king of Armenia. Cleopatra VII, Dynamis, and Pythodorida all had sons named Ptolemy Philadelphus who succeeded them.
     - Ptolemy XIII Theos Philopator aka Gaius Octavius (Emperor Augustus). Aliases: Polemon I of Pontus (Dynamis was titled "Pilatea" and he was the king of Pontus. Pontius Pilate would have been his title that his descendants would have inherited it). Gaius Julius Sohaemus of Emesa. Rhoemetalces I (a classic Thracian royal name, linking to the "Rome" = "Ruma" etymology. Rhoemetalces = "king of Rhome", or "king of Rome" in ancient Thracian), king of Bosphorus. Rhoemetalces Philocaesar of Pontus was the son of Marcus Antonius Polemon Pythodoros was married to Pythodoris I (Cleopatra). Polemon I of Pontus was married to Dynamis (Cleopatra). Cleopatra was married to her brother Ptolemy XIII Theos Philopator who was born at the same time as Augustus. He was her brother husband. Asander was also married to Pythodoris I and Dynamis proving these were Cleopatra's aliases. Likely also Azes I, king of India.
 
 - Julius Caesar = Asander, King of Bosporus aka Ptolemy of Cyprus (brother of Ptolemy XII Auletes and husband of "Mithridates") aka Mithridates Chrestus (he married the daughter of Mithridates VI, Laodice, who took the throne name "Cleopatra". Mithridates VI Eupator was also married to Laodice), King of Pontus VI (brother of Mithridates VI, king of Pontus).
@@ -253,7 +253,7 @@ IV. Flavian Emperors
 
 - Vespasian
   Aliases: Rhescuporis I, king of Bosphorus. Herod Agrippa I (See: The Royal Ancestry of Emperor Vespasian. Henry Davis, [^7]). Flavius Scaevinus. Also, Vologases I of Parthia?
-- Titus. Aliases: Polemon II, Aulus Avillius Flaccus.
+- Titus (Tit‑us = Diodotus?). Aliases: Polemon II, Aulus Avillius Flaccus.
 
 V. Speculative
 
@@ -561,19 +561,12 @@ Also, Carthage was not a Semitic power. The name "Carthage" comes from "Kar-Thag
 **5.1 Julius Caesar aka Asander, King of Bosphorus aka Mithridates Chrestus**
 
 There was a Bosphoran [^13] imperial cult where Julius Caesar [^14] took
-on the role of Asander (also Asandros), King of Bosphorus [^15] ("Asa"
-means "lord" in Scythian/Thracian and serpent in Scythian (Scythian Assaioi: As-saioi = As is Scythian for "Serpent Lord", and Sai refers to clan/tribe. Sar means king in Scythian), and "andros" means "man" or "son of
+on the role of Asander (also Asandros), King of Bosphorus [^15]. Asander = Aesar‑ander (divine man) or Asa‑ander (lord‑man). "Asa" = Asar (Egyptian Osiris), Aesir (Norse gods), Asa (Thracian lord), Asura (Sanskrit "lord", later demonized by Brahmin rivals). Caesar = Aesar with Greek k‑ prefix (k‑aisar). Asa also means "lord" in Scythian/Thracian and serpent in Scythian (Scythian Assaioi: As-saioi = As is Scythian for "Serpent Lord", and Sai refers to clan/tribe. Sar means king in Scythian, and "andros" means "man" or "son of
 man" in Greek. Jesus is referred to as "the son of man" 81 times in the
-four canonical gospels. Asandros can also be interpreted as either "Dragon Man" (the same as Aži-ander, or Alexander), or "son of the
-lord", or "son of Asa, the lord", or "Lord King". The Thracian version of Zeus was Asa. The
-Etruscan word "Aesar" (also spelled "Aeser" or "Aisar" which likely
-derives from the Egyptian "Asar" which was another name for Osiris - there
-was no J in ancient Latin, so it was pronounced ah-soos)
-from which Asa may also derive, means "god" or "divine". Asandros can
+four canonical gospels). Asandros can also be interpreted as either "Dragon Man" (the same as Aži-ander, or Alexander), or "son of the
+lord", or "son of Asa, the lord", or "Lord King". The Thracian version of Zeus was Asa. Asandros can
 also possibly translate to either "son of god", or "son of Lord Aesar/Asar
-(Osiris)". The Greek language often added the prefix "K" to words
-borrowed from other languages, so Aesar ("god") -> Greek Kaesar ->
-Latin Caesar. Both Asander and Caesar are titles meaning "Lord King" in their respective languages (Scythian and Latin) but deriving from the same Indo-European root for king.
+(Osiris)".
 
 Cleopatra used the regional alias of Dynamis Ourania [^16]
 (translating to 'heavenly power'), queen of the Bosporus. Cimmerian
