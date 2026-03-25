@@ -253,7 +253,7 @@ IV. Flavian Emperors
 
 - Vespasian
   Aliases: Rhescuporis I, king of Bosphorus. Herod Agrippa I (See: The Royal Ancestry of Emperor Vespasian. Henry Davis, [^7]). Flavius Scaevinus. Also, Vologases I of Parthia?
-- Titus (Tit‑us = Diodotus?). Aliases: Polemon II, Aulus Avillius Flaccus.
+- Titus (Tit‑us = Diodotus? which means "Given by Zeus" which is the exact same meaning as Mithridates ("Given by Mithra")). Aliases: Polemon II, Aulus Avillius Flaccus.
 
 V. Speculative
 
@@ -331,19 +331,19 @@ The Flavians didn't just remake their main enemy's cult, they rewrote history, i
     Julio-Claudian dynasty were Pisos, including Nero who was nearly
     deposed by a Piso. Appius is also cognate with Arrius (through
     rhotacization in ancient Latin the /p/ and /r/ could be swapped).
--   Vespasian: Vas/Bas was the royal abbreviation for the Greek word Basilius which = King, and Pasis means "all" in Greek as in Pan. "Vespasian" = "King of All", or "King of Everything" which is a claim to the title "King of Kings". Another option: Vas/Bas = King, and -asian = "of Asia" or "the Asian". Vespasian = "The King of Asia".
+-   Vespasian: Vas/Bas was the royal abbreviation for the Greek word Basilius which = King, and Pasis means "all" in Greek as in Pan. "Vespasian" = "King of All", or "King of Everything" which is a claim to the title "King of Kings" (Shahanshah). Another option: Vas/Bas = King, and -asian = "of Asia" or "the Asian". Vespasian = "The King of Asia".
 
 2.1 Biblical Figures
 
 The genealogies in Genesis match the Bosporan king list when translated via Greek phonetic equivalents.
 
--   Adam = Adamas (Greek “unconquerable”) = title of Asander.
+-   Adam = Ateas. Ata in Scythian means "father, ancestor".
 -   Noah = Noas (Bosporan king, 1st c. CE also known as Tothorses). ΝΩΑΣ (Noas) is a direct Greek rendering of the Hebrew נֹחַ (Noach).
 -   Abraham = Abraamios (a Thracian king in Crimea, known from inscriptions), the father of Issac. Abraamios derives from Ab = Father (Semitic) + Raham = Arya (Sanskrit/Persian: "Noble") + Aram (the name for the land of the Arameans, a steppe-derived people). Abraham = Ab-Raham = "Father of the Aryans" or "Father of the Noble Ones". Related to Brahmin (Brahama) -> Ibrahim -> Abraham. A(Braha)m(in). Lord Rama (the greatest and seventh incarnation of God, hero of the Ramayana, protector of Dharma) in the ancient Vedas derives from this.
 -   Isaac = Isaakos (Greek form of “Isaac”) = Iesas (Bosporan prince). Also, remove the Hebrew theophoric Y- = -tzak = Hebrew rendering of Sacae (Scythians).
 -   Jacob = Iakobos = a known Bosporan ambassador to Rome.
 -   The 12 tribes = the 12 clans of the Sarmatian federation around the Sea of Azov.
--   King David = Diodotos (Bactrian king) = David in Hebrew. Diodotos means "God-given" – identical to Hebrew David ("beloved" but also "given").
+-   King David = Diodotos (Bactrian king). Dwd = Diodotus (given by Zeus) in abbreviated form. The Greek Diodotus = Dio (Zeus) + dotus (given). The Hebrew Dwd is the same as the Thracian Dod (god), as in Dodona (oracle of Zeus).
 -   Moses = Manes/Mannu-Kuras = Manu (Scythian Sage-King) = Menes (Egypt’s legendary founder). Also appears in "Monobazus" → “Manu Bazus” → Sarmatian-Mythological Sage King. The Iranian Manu is a legendary civilizer, and in India he becomes the first Lawgiver (the Manu Smriti = Scythian governance code). The biblical Moses defeats Pharaoh (actually Mitanni elite), parts waters with a serpent-staff—obvious encoding of dragon-kingship (Aži Dahāka). Moses takes on different masks: M enes – the first official Pharaoh (not real, a compilation of conquerors). Menes – the semi-mythical Median king, founder of the priest-class. Mannu-kuras – Proto-Mede, whose name becomes Cyrus. The name Kur-Ash = "Sun Man". The Exodus is not Judaic memory: it's a political memory of Mitanni-Scythian expulsion from Egypt after the religious revolution of Thutmose III → Horemheb wiped them out with a new priest-kingship in Amarna. He shows up in a number of religions: In Zoroastrianism he is Manushchihr, in Hinuduisn he is Manu, in Judaism he is Moses, in Norse mythology he is Mannus, etc.
 -   Solomon = Sol-Amūn or "Sun of Amun" which is a direct parallel to "Zeus-Ammon", a title Alexander carried. Also, Solemos is a Greek name for a Bosporan governor.
 
@@ -517,7 +517,7 @@ So, they inherited a syncretic local Roman cult, remade it, then began proselyti
 
 This is proven by the Celticization of the Jewish religion, which would have came from Galatia in classical Anatolia (see chapter: 5.2.2. Amyntas Nikator aka Amyntas, King of Galatia). For example, 'Gaulinitis' = Golan Heights. The Celtic languages are surprisingly Semitic with a verb-subject-object word order and a shocking amount of vocabulary overlap, and the name of Irish deities, Balor and his holiday Beltaine are cognate to Bal and Elatha the Irish Uranus is cognate to Hebrew El. King David (DWD) = King Druid. 1 Samuel 16:12 claims that King David had red hair. The ancient Celtic prefixes 'Rab' or 'Rhab' mean 'wise one' or 'seer', and a Druid equates to a Rabbi. There was even a Celtic tribe called the "Iudii" -> Ioudaioi -> Jew. 
 
-As for the term 'Hebrew", it comes from the Celts in Galatia as well who called themselves Iberi. The name of Abaris the Hyperborean, a Druid priest who was Pythagoras's teacher, who was the son of Seuthes (Seth), shows this. The term Abaris was inspired by the Semitic Iber. Iber was sometimes rendered as Aber or Heber and is pronounced as Hebrew in the Hebrew language. Hyperborea, which just like Atlantis, was another name for Ireland. The word Atlantis means ‘The Island of Atlas’. The titan Atlas was a key figure in Greek mythology and is depicted as being the  bearer of the heavens. According to early Greek mythology, Atlas lived on the island of Hyperborea. Over time Hyperborea became Hybernia or Hibernia, the Roman name for Ireland. Iber is an ethnonym that shows up in areas where the Celtic people settled (Ebro river, Iberia, Hibernia, etc.). Dionysius of Alexandria in Egypt (ca. 190-264 CE) also referred to the inhabitants of Britain as Iberi.
+As for the term 'Hebrew", it comes from the Celts in Galatia as well who called themselves Iberi. The name of Abaris the Hyperborean, a Druid priest who was Pythagoras's teacher, who was the son of Seuthes (Seth), shows this. The term Abaris was inspired by the Semitic Iber. Iber was sometimes rendered as Aber or Heber and is pronounced as Hebrew in the Hebrew language. Hyperborea, which just like Atlantis, was another name for Ireland. The word Atlantis means ‘The Island of Atlas’. The titan Atlas was a key figure in Greek mythology and is depicted as being the  bearer of the heavens. According to early Greek mythology, Atlas lived on the island of Hyperborea. Over time Hyperborea became Hybernia or Hibernia, the Roman name for Ireland. Iber is an ethnonym that shows up in areas where the Celtic people settled (Ebro river, Iberia, Hibernia, etc.). Dionysius of Alexandria in Egypt (ca. 190-264 CE) also referred to the inhabitants of Britain as Iberi. Galilee: Galil = Hebrew for "circle, district." But also Galilee = Galatia (land of the Gauls). The Gauls (Celts) settled in Anatolia and became the "Galileans.". Galatia: Galatai = the Gauls.
 
 'Ashkenazi', or 'Ashkuza', was the name given to the Scythians by the ancient Akkadians. The Assyrians called the Scythians "Asguzaya" and the ancient Persians called the Scythians 'Saka'. In Biblical Hebrew, the Ashkuz (Ashkenaz) are considered to be a direct offshoot from the Gimirri, known as the Cimmerians to the ancient Greeks. Cimmerians were a Middle Eastern offshoot of the Celtic Cimbri tribe. 
 
