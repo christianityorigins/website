@@ -435,6 +435,14 @@ In Egypt, Ptolemy I Soter, who was a Scythian continuation of the Sarmatian snak
 
 The director of the Mouseion ("Place of the Muses") and the chief architect of the synthetic religions was not a man. It was a succession of Ptolemaic princesses who held the title The Muse Ourania (The Heavenly Muse). The Mouseion was named after her office. Arsinoë II Philadelphus (c. 316 BC – 270 BC), daughter of Ptolemy Soter, was refered to as "the tenth Muse" and she had a cult dedicated to her as Arsinoë Aphrodite Ourania. in some cases these females directors took on male aliases, for example, Philo of Alexandria was  Cleopatra (Thea Philopator) of Mauretania aka Cleopatra IX, Helene, Drusilla of Mauretania, Julia Ourania of Parthia, etc. 
 
+The Alexandrian School did not invent these ideas from nothing. They collected, systematized, and retroactively projected them into a coherent “ancient” history. For example, long before the Alexandrian School synthesized Serapis, a template for the "living god‑king" had already been carved into the record of the 5th dynasty (c. 2375 BCE).
+
+There was an Egyptian named  “Isesi-ankh” (Jesus Lives) who had a mother named Meresankh IV. Mari is the Scythian Mother Goddess who became Mary in the bible.
+
+Isesi-ankh bore the title z3 nswt (“King’s Son”). He was the son of pharaoh Djedkare Isesi, so he was the son of the King.
+
+Isesi‑ankh stands as either a genuine Old Kingdom archetype that the Alexandrian School later used as a template for its synthetic savior cults, or, more likely, a back‑dated fabrication inserted into the Fifth Dynasty timeline to give ancient legitimacy to the title "Son of God" and the mother‑goddess archetype that the Ptolemies and Flavians would deploy.
+
 It also seems likely that the Alexandrian School didn't just create religions; it created standardized "national histories". See: Chapters 8. Rewriting History, 8.1. Inventing Ancient Greece, 8.2. The 'Achaemenid' Empire is the Parthian Empire, and chapter 8.3. Fabricating 'Ancient' Egypt.
 
 Ptolemy XII Auletes aka Mark Antony aka Mithridates VI Eupator's son Ariarathes IX Eusebes Philopator, King of Cappadocia (Central Anatolia/modern Turkey) had brothers named Cyrus, Xeres, and Darius. His sisters were named Cleopatra and Mithridates. 
