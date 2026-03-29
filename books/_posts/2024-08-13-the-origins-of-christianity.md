@@ -75,7 +75,7 @@ Part 8. Rewriting History\
 8.2. The 'Achaemenid' Empire is the Parthian Empire\
 8.3. Fabricating 'Ancient' Egypt\
 8.4. Rome: The Phantom Empire on the Tiber\
-8.5. The edici-Jesuit Forgery (14th - 18th centuries)\
+8.5. The Medici-Jesuit Forgery (14th - 18th centuries)\
 8.6. The Jesuit Operation (16th-18th c.)\
 Part 9. Sects of the Imperial Cult\
 9\. Identifying the Flavian Scribes\
@@ -443,21 +443,19 @@ Isesi-ankh bore the title z3 nswt (“King’s Son”). He was the son of pharao
 
 Isesi‑ankh stands as either a genuine Old Kingdom archetype that the Alexandrian School later used as a template for its synthetic savior cults, or, more likely, a back‑dated fabrication inserted into the Fifth Dynasty timeline to give ancient legitimacy to the title "Son of God" and the mother‑goddess archetype that the Ptolemies and Flavians would deploy.
 
-It also seems likely that the Alexandrian School didn't just create religions; it created standardized "national histories". See: Chapters 8. Rewriting History, 8.1. Inventing Ancient Greece, 8.2. The 'Achaemenid' Empire is the Parthian Empire, and chapter 8.3. Fabricating 'Ancient' Egypt.
-
-Ptolemy XII Auletes aka Mark Antony aka Mithridates VI Eupator's son Ariarathes IX Eusebes Philopator, King of Cappadocia (Central Anatolia/modern Turkey) had brothers named Cyrus, Xeres, and Darius. His sisters were named Cleopatra and Mithridates. 
-
 ![Fig.1.14](/images/PtolemySoterAuletes.jpg){:width="400px"}
 
 Fig. 1.14 Coin depicting L. Ptolemy Soter. R. Ptolemy XII Auletes. The 300-year gap between them is likely Alexandrian School fiction. This implies that all "ancient" history before approximately 150-100 BCE is a back-projection. The Alexandrian School (and later Flavian/Vatican/Jesuit forgers) created phantom centuries to give their newly synthesized religions and empires false antiquity. If Ptolemy I Soter = Ptolemy XII Auletes, then his "father" wasn't Lagus (a fictional nobody)—his real father was Ateas the Scythian who was also Artaxerxes II Memnon ("Kai Bahman") of Persia aka Phillip II in Macedonia aka Nectanebo II in Egypt aka Evagoras I of Salamis (Cyprus), and Alexander the Great was a mythological archetype based on Asander aka Julius Caesar, and Dara" (Darius III) aka Seleucus I Nicator was a fictional character based on one of his brothers or his nephew Seleucus VI, ruler of the Seleucid Empire. Ptolemy XII sons under his Mithridates VI Eupator avatar were named Cyrus, Darius, Xerxes, and were backdated composites of those Persian kings.
 
-The 'Achaemenid' Persian Empire is a phantom empire. It is a back projection of the Parthian Empire. Cyrus and Darius were composite characters based on the sons of Mithridates VI Eupator. The "Greco-Persian Wars" (5th century BCE) are a mythologized retelling of the Mithridatic Wars (1st century BCE).
+It also seems likely that the Alexandrian School didn't just create religions; it created standardized "national histories". See: Chapters 8. Rewriting History, 8.1. Inventing Ancient Greece, 8.2. The 'Achaemenid' Empire is the Parthian Empire, and chapter 8.3. Fabricating 'Ancient' Egypt.
 
-They also imbued each history with the same archetypes: A legendary lawgiver (Manu/Moses/Lycurgus/Solon/Numa). A golden age of philosopher-kings (The "Akkadians," "Old Kingdom" Pharaohs, "Athenian Democrats"), an epic struggle against a monstrous Eastern empire ("Persia"), then a civilizing hero who travels and brings wisdom (Osiris/Dionysus/Hercules/Buddha). This was done for archtypical control (centralized texts and priesthoods) and so god-kings could take on these divine roles, and by replacing a cyclical view of time with a linear one this created a sense of "progress" that inherently devalues the past and creates a psychological dependency on a "savior" or a "utopian future"—a dependency they could then fill with their own cults (Serapis, Christianity) or god-kings. 
+They imbued each history with the same archetypes: A legendary lawgiver (Manu/Moses/Lycurgus/Solon/Numa). A golden age of philosopher-kings (The "Akkadians," "Old Kingdom" Pharaohs, "Athenian Democrats"), an epic struggle against a monstrous Eastern empire ("Persia"), then a civilizing hero who travels and brings wisdom (Osiris/Dionysus/Hercules/Buddha). This was done for archtypical control (centralized texts and priesthoods) and so god-kings could take on these divine roles, and by replacing a cyclical view of time with a linear one this created a sense of "progress" that inherently devalues the past and creates a psychological dependency on a "savior" or a "utopian future"—a dependency they could then fill with their own cults (Serapis, Christianity) or god-kings. 
+
+The 'Achaemenid' Persian Empire is a phantom empire. It is a back projection of the Parthian Empire. Cyrus and Darius were composite characters based on the sons of Mithridates VI Eupator. The "Greco-Persian Wars" (5th century BCE) are a mythologized retelling of the Mithridatic Wars (1st century BCE).
 
 **4.1. Serapis Cult**
 
-Serapis is the "God Template" for all imperial cults. The Alexandrian School was attempting to merger of all imperial and local religions into a single universal system. Christianity was the final, globalized version of Serapis worship.
+Serapis is the "God Template" for all subsequent imperial cults. The Alexandrian School was attempting to merger of all local religions into a single universal system. Christianity was the final, globalized version of Serapis worship.
 
 Serapis was deliberately engineered by Ptolemy I Soter and the priest Manetho to be a universal syncretism.
 
