@@ -1532,9 +1532,11 @@ the Apostle and Paul called them "my fellow workers in Christ Jesus"
 
 Fig. 1.52. Steel relief that shows Antinous holding the grapes of Dionysus in one-hand and a cross in the other.
 
+The Cult of Antinous failed (overt homoeroticism, too tied to a single emperor) but it did serve as a trial run for later cults (Christianity/Islam).
+
 **9.3 Islam**
 
-Islam is a surviving (albeit subverted) sect of the original Bosphoran Imperial Cult.
+Islam is a surviving (albeit subverted) sect of an Alexandrian School Imperial Cult that had its roots in the Serapis, Flamen Dialis, and the Antinous cults.
 
 King Izates of Monobazus's (Isa in the Quran) son was named Zamaris (Zamaris the Babylonian jew) and Zamaris has the same meaning as Muhammad.
 
