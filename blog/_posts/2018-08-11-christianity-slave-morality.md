@@ -27,11 +27,11 @@ Part 2: Christianity as the Engine of Domestication\
 4 Survival of the Weakest: Inverting Natural Selection \
 5 Tools of Herd Domestication\
 Part 3: Secularization - Leftism as Christianity's Heir\
-7 Marxist Denominations and the Frankfurt School\
-8 Modern Manifestations: Wokeness as Christian Heirloom\
-9 Judaism Vs. Christianity: What do the Jews Believe?\
-6 Secularization of Christianity\
-6 Conclusion\
+6 Marxist Denominations and the Frankfurt School\
+7 Modern Manifestations: Wokeness as Christian Heirloom\
+8 Judaism Vs. Christianity: What do the Jews Believe?\
+9 Secularization of Christianity\
+10 Conclusion\
 Addendum\
 Footnotes
 
@@ -77,7 +77,7 @@ As for Nietzsche's concept of "Ressentiment", in his book 'On the Genealogy of M
 
 Monotheism (binary opposition between good vs. evil), universalism, the transvaluation of traditional ethnic values, and the concept of sin all exist to self-deify and weaponize the lowest castes. This allows the slaves and lower castes to feel morally and socially superior to the higher castes because of the concept of sin and set commandments of behavior. The savior complex (9) is a subset of christian self-deification and is a heritage of monotheism and messianism (10). Self-deification (11) is the foundation for attacking those that are identified as heretics (12) and redeeming others.
 
-See also: Ressentiment, Conflict Theory, and Class Conflict
+See also: [Ressentiment](https://en.wikipedia.org/wiki/Ressentiment), [Conflict Theory](https://en.wikipedia.org/wiki/Conflict_theories), and [Class Conflict](https://en.wikipedia.org/wiki/Class_conflict)
 
 Part 2: Christianity as the Engine of Domestication
 
@@ -145,7 +145,7 @@ This was a clever divide-and-conquer strategy. Build a coalition of the outcaste
 
 This system was also integral to European colonialism. Before the colonial powers sent the military they sent the missionaries. Through christianity, they weaponized the outcastes to fight the warrior castes. Then, christianity placated the native populations by preventing any rebellion (the lowest outcastes self-policed the warrior castes who had their warrior values "transvaluated" and the population eventually succumbed to the thought that they would be rewarded when they die if they submitted.
 
-See also: Tschandala, Master–slave morality, and Transvaluation of values
+See also: [Tschandala](https://en.wikipedia.org/wiki/Tschandala), [Master–slave morality](https://en.wikipedia.org/wiki/Master%E2%80%93slave_morality), and [Transvaluation of values](https://en.wikipedia.org/wiki/Transvaluation_of_values)  
 
 Part 3: Secularization - Leftism as Christianity's Heir
 
