@@ -26,12 +26,13 @@ Part 1: The Theoretical Framework\
 Part 2: Christianity as the Engine of Domestication\
 4 Survival of the Weakest: Inverting Natural Selection \
 5 Tools of Herd Domestication\
+6 The Borreby: A Product of Domestication Syndrome?\
 Part 3: Secularization - Leftism as Christianity's Heir\
-6 Marxist Denominations and the Frankfurt School\
-7 Modern Manifestations: Wokeness as Christian Heirloom\
-8 Judaism Vs. Christianity: What do the Jews Believe?\
-9 Secularization of Christianity\
-10 Conclusion\
+7 Marxist Denominations and the Frankfurt School\
+8 Modern Manifestations: Wokeness as Christian Heirloom\
+9 Judaism Vs. Christianity: What do the Jews Believe?\
+10 Secularization of Christianity\
+11 Conclusion\
 Addendum\
 Footnotes
 
@@ -77,7 +78,7 @@ As for Nietzsche's concept of "Ressentiment", in his book 'On the Genealogy of M
 
 Monotheism (binary opposition between good vs. evil), universalism, the transvaluation of traditional ethnic values, and the concept of sin all exist to self-deify and weaponize the lowest castes. This allows the slaves and lower castes to feel morally and socially superior to the higher castes because of the concept of sin and set commandments of behavior. The savior complex (9) is a subset of christian self-deification and is a heritage of monotheism and messianism (10). Self-deification (11) is the foundation for attacking those that are identified as heretics (12) and redeeming others.
 
-See also: [Ressentiment](https://en.wikipedia.org/wiki/Ressentiment), [Conflict Theory](https://en.wikipedia.org/wiki/Conflict_theories), and [Class Conflict](https://en.wikipedia.org/wiki/Class_conflict)
+(See also: [Ressentiment](https://en.wikipedia.org/wiki/Ressentiment), [Conflict Theory](https://en.wikipedia.org/wiki/Conflict_theories), and [Class Conflict](https://en.wikipedia.org/wiki/Class_conflict))
 
 Part 2: Christianity as the Engine of Domestication
 
@@ -143,9 +144,58 @@ Themes and symbols that parallel an animal being domesticated also fill the bibl
 
 This was a clever divide-and-conquer strategy. Build a coalition of the outcastes of society and then weaponize them to attack the warrior and aristocratic castes while simultaneously transvaluating their aristocratic cultural values to subvert them. This was the formula that was used in Rome, the French Revolution [link], Revolutions of 1848 [link], Russian Revolution [link], and attempted in the German Revolution [link]. Each of these revolutions empowered and weaponized the outcastes of society with a unifying slave-morality ideology (Marxism/Bolshevism/Leftism are simply secular variants of christianity).
 
-This system was also integral to European colonialism. Before the colonial powers sent the military they sent the missionaries. Through christianity, they weaponized the outcastes to fight the warrior castes. Then, christianity placated the native populations by preventing any rebellion (the lowest outcastes self-policed the warrior castes who had their warrior values "transvaluated" and the population eventually succumbed to the thought that they would be rewarded when they die if they submitted.
+6 The Borreby: A Product of Domestication Syndrome?
 
-See also: [Tschandala](https://en.wikipedia.org/wiki/Tschandala), [Master–slave morality](https://en.wikipedia.org/wiki/Master%E2%80%93slave_morality), and [Transvaluation of values](https://en.wikipedia.org/wiki/Transvaluation_of_values)  
+<p align="center">
+<img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgHWOQYKN1dT7B0H6x8Sx2WLDtHViTUdyDCkLIh0XC71lNNAnmbToY6zUUapq9bKu-LLidHY0NwLejEaLSC0DDDq1HgO8aereBZk3mWs4OcbxiUUIcEJqX6BCktLNA7XGehlrMAt9C2InwTKN3BmOHs-MCyfxaTICSg-dOHMeMvsUniH3MH5zQWOya8NKY/s4000/collage.jpg" width="400">
+</p>
+
+<p align="center">Fig. 1. A quick image search for "prominent liberals" yields this result. Note the brachycephalic skulls, retro pig face, and pink pig skin?</p>
+
+<p align="center">
+<img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhw2IoARHgwRqdW_9gSUq7rjWooQ50BQSz8M_whq8JPy4A8TIH_syTMF2farHTuutiioVa4n057YLwn807BH80NNq0-D89gSslz4zvqvvtRZbq1RWCsPDHbbEXNIypbJBqjFA4gh9I8t2RSg8PJGFFiNxTB7KOqGP2tYEwSWlwa2U2A_JSeIkgTHhB2hAA/s1080/collage.png" width="400">
+</p>
+
+<p align="center">Fig. 2. A quick image search for "prominent Europeans" yields this result. Note the dolicephalic skulls, higher melanin content, and robust facial features?</p>
+
+
+The Three-Caste Biological Model of Europeans: Europeans are made up of three ethnicities: Neolithic (The Worker Caste), Aryan (The Ruling Caste: Yamnaya, Corded Ware), and Alpine (hunter-gatherers).
+
+The Alpines are the conquered, absorbed, or eradicated populations over whom the Farmers first expanded, and over whom the Aryans then established dominion. A subset of the Alpines are the Borreby subrace. The Borrey sub-race is a hyper-domesticated offshot of an already domesticated sub-race.
+
+Traits of domestication syndrome:
+
+Phenotype:
+
+*   Neoteny ([ref](https://www.ncbi.nlm.nih.gov/pmc/articles/PMC4096361/)) ([ref](https://www.ncbi.nlm.nih.gov/pmc/articles/PMC5646786/)) ([ref](https://incels.wiki/w/Neoteny)) and feminization ([ref](https://incels.wiki/w/Feminization)) in males (neotony and feminization comes from hormonal adaptation to domestication. I.e. no pressure for epigenetic expression of high testosterone)
+*   Brachycephaly. Short and round skulls that lack an occipital bun (occipital bun = larger craniovolume and a higher IQ). Brachycephaly leads to a reduction of the back of the brain and a smaller amygdala. This expresses in political affiliation: people who identify as conservative have a larger amygdala ([ref](https://phys.org/news/2024-09-political-ideology-differences-brain-previously.html)) 
+*   Smaller skull in volume ([ref](https://www.ncbi.nlm.nih.gov/pmc/articles/PMC5646786/#!po=8.25243/))
+*   Androgyny and emasculation in males ([ref](https://link.springer.com/article/10.1007/s40750-019-00126-z))
+*   Weak jaws
+*   Lower muscle mass in males
+*   Lower testosterone in males ([ref](https://www.biorxiv.org/content/biorxiv/early/2018/08/01/143875.full.pdf))
+*   Smaller penis sizes in males
+*   Poor eyesight ([ref](https://books.google.ca/books?id=hEy4AAAAIAAJ&redir_esc=y))
+*   Incompletely developed neural crest which leads to craniofacial abnormalities, neurological problems, lower intelligence, and vision problems ([ref](https://pmc.ncbi.nlm.nih.gov/articles/PMC8633094/)) ([ref](https://www.sciencedaily.com/releases/2014/07/140714100122.htm/))
+*   Notice how many Europeans (especially northern) now have the domesticated phenotype \[[link](http://humanphenotypes.net/basic/Alpinid.html)\] or else the pig phenotype? \[[link](http://humanphenotypes.net/Borreby.html)\] (including pink skin tone \[[link](https://en.wikipedia.org/wiki/Piebald)\]). This is the same species-specific domestication process that turned a wolf into a dog \[[link](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgeSGC_O5_OZYOjFaf9X2b3IGFI2pMPPPILGE2rzzUWfYxgxFatcP81ZTa6BPMn4xLUPjASDJX41whJGBZgGuMefddh-OXbKLzeChjUF2K4uQaVMMEI1A__HSnsL1LfRbxFQm2RdSt-4RLcGAXqokw5E54pW4i8OXTsScuMdgeSLkDAVtuiwpOxXMyWl9E/s1500/wolfvsdog.jpg)\] and a wild boar into a domesticated pig \[[link](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgT_wCGxsxJY-7-NPKEliqxVFLud2sWiXE_wFQr7tS1G3-hqk2kmZzoy1UaKbN8kq8RCrFb6SygHVRWNGMjCC93zNc7w1nYX0oQypFf-sEenu_XjIE-GVHUU7uLXydpcjQKdilC2zmowNn4yGvsO8MqAwYyjdQgUpem4CjnFFaF7D_47oI42wyzaagTRnI/s1536/wild-boar-vs-pig-collage.jpg)\]
+
+Behavioral:
+
+*   Low in-group preference or sense of tribalism ([ref](https://www.sciencedirect.com/science/article/pii/S0376635723000888))
+*   As part of the system of self-domestication animals begin self-policing group members to enforce the norms of the group and deter other members from behaving in ways that could disrupt the social order. Ex. dogs are often seen growling at or barking at other dogs who they see as behaving inappropriately.
+*   No sense of self-agency, independence, and follows orders (once domesticated, being part of the herd becomes more important than being right) ([ref](https://link.springer.com/article/10.1007/s40656-020-00315-0))
+*   Homosexuality
+*   Less threat reactivity
+*   Poor maternal instincts ([ref](https://www.ncbi.nlm.nih.gov/pmc/articles/PMC5857534/))
+*   Dichotomous thinking/predictability (expressed binary thinking: black vs white, good vs evil, us vs them). Top-down controls leads to this.
+
+It is important to note that feudalism was invented simultaneously as institutional Christianity. Both by Constantine, one to enforce the other and vice versa.
+
+It seems that over the past two thousand years the aristocracy, elites, and catholic church domesticated the masses of European peasants in the same way that they domesticated livestock. 
+
+(1\. There's a theory that supports the "autistic brain" (as of the extreme male brain theory) is a brain with a tendency to be undomesticated or "failed domestication" [[link](https://www.psychologytoday.com/gb/blog/the-imprinted-brain/201608/autism-and-domestication-syndrome-in-humans)\]. Undomesticated people are socialized to a lesser degree therefore fall less for propaganda. Schizophrenia is the opposite of this and is a form of hyper-domestication syndrome [[link](https://www.psychologytoday.com/us/blog/the-imprinted-brain/201609/schizophrenics-hyper-domesticated-humans)] (see also: testosterone supplementation reverses symptoms of schizophrenia [[link](https://pubmed.ncbi.nlm.nih.gov/18626263/)\]), so is Down's Syndrome (see: Down's Syndrome is treated with testosterone supplementation [[link](https://www.theguardian.com/society/2022/sep/01/hormone-therapy-may-boost-brain-function-for-people-with-downs-syndrome-study-finds)]).  \
+2\. Homosexuality is another expression of domestication syndrome [[link](https://www.frontiersin.org/journals/psychology/articles/10.3389/fpsyg.2019.02955/full)]. Homosexual preference is more likely in males who received low prenatal testosterone exposure. A standard method for assaying prenatal testosterone exposure is to measure the length of the ring finger (the fourth finger) compared to the length of the second finger: increased prenatal exposure to testosterone tends to be associated with relatively long ring fingers. The largest surveys of homosexual men in the United States, China, and Japan have found a tendency for homosexual men have relatively short ring fingers [[link](https://pubmed.ncbi.nlm.nih.gov/12872893/)]. See also: exposure to a high concentration of testosterone during a critical phase of development leads to a male-typical orientation [[link](https://pmc.ncbi.nlm.nih.gov/articles/PMC3739566/)]. \
+See also: [Tschandala](https://en.wikipedia.org/wiki/Tschandala), [Master–slave morality](https://en.wikipedia.org/wiki/Master%E2%80%93slave_morality), and [Transvaluation of values](https://en.wikipedia.org/wiki/Transvaluation_of_values))  
 
 Part 3: Secularization - Leftism as Christianity's Heir
 
