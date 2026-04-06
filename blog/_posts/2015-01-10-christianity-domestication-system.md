@@ -39,6 +39,7 @@ Part 6: Nietzsche and the Will to Power—The Antidote to Domestication\
 Conclusion: The Cage Is Real. What Will You Do?\
 Appendix: Sources and Further Reading\
 
+---
 
 Preface
 
