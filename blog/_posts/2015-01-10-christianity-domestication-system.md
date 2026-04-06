@@ -30,7 +30,8 @@ Part 5: Determinism—Why You Never Had a Chance\
 8 The Cage of Causality\
 9 Nietzsche on the Illusion of Free Will\
 10 The Domestication of the Will\
-11 What Determinism Does and Does Not Mean12 The One Freedom Determinism Cannot Take\
+11 What Determinism Does and Does Not Mean\
+12 The One Freedom Determinism Cannot Take\
 Part 6: Nietzsche and the Will to Power—The Antidote to Domestication\
 13 How Nietzsche's Philosophy Maps to the Domestication System\
 14 The Will to Power as Antidote\
@@ -74,8 +75,6 @@ Christianity spent 1,000 years domesticating Europe. By the time the Enlightenme
 Feudalism was Christianity applied to economics. Constantine I understood that a unified state religion and a unified economic serfdom are two sides of the same coin. He made Christianity the favored religion of the Roman Empire and simultaneously issued legal ordinances that became the foundation of manorialism. Christianity told slaves their suffering was virtuous. Feudalism ensured they remained slaves.
 
 The land is owned by God (the king/lord). You are a steward, not an owner. You have no property rights except those granted by your superior. This is not an economic system. It is a status hierarchy designed to prevent accumulation of independent power.
-
-Feudalism deliberately raised the marriage age through taxation and legal restrictions. Teenage marriage (biologically normal) was suppressed. The age of majority became 18, 21, 25—arbitrary numbers designed to delay independence and keep young adults under parental or feudal authority for longer.
 
 The Theodosian Code legally bound tenant farmers to their land. You could not leave. You could not seek better opportunity. You were born into a place and you died there. This was the legal model for European serfdom.
 
