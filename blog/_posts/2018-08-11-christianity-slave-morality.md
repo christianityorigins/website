@@ -7,7 +7,7 @@ updated: 2024-08-11 19:46:50 +0200
 category: blog
 ---
 
-The Christian Slave Morality and Its Secular Heir: From Domestication to Wokeness
+The Christian Slave Morality: Nietzsche's Critique and the Christian Blueprint for Domestication
 
 By Ralph Perrier
 
