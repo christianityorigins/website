@@ -11,7 +11,7 @@ How Western Institutions Are Engineered to Break You
 
 **By Ralph Perrier**  
 
-> *"In the entire New Testament, there is only one person worth respecting; Pilate, the roman governor."* —Friedrich Nietzsche. The Antichrist, 1888  
+_To call the taming of an animal its 'improvement' is in our ears almost a joke. Whoever knows what goes on in zoos is doubtful whether the beasts in them are 'improved'. They are weakened, they are made less harmful, they become sickly beasts through the depressive emotion of fear, through pain, through injuries, through hunger. It is no different with the tamed human being whom the priest has 'improved'. In the early Middle Ages, when the church was in fact above all a zoo, one . . . improved, for example, the noble Teutons. But what did such a Teuton afterwards look like when he had been 'improved' and led into a monastery? Like a caricature of a human being, like an abortion: he had become a sinner; he was in a cage; one had imprisoned him behind nothing but sheer terrifying concepts . . . . There he lay now, sick, miserable, filled with ill-will towards himself, full of hatred for the impulses toward life, full of suspicion of all that was still strong and happy. In short, [he was] a Christian._ - The Antichrist, Section 61. 
 
 Preface\
 Introduction\
@@ -48,7 +48,7 @@ The cage has many bars: religion, education, law, architecture, economy, climate
 
 This article traces the lineage of domestication. From the Christian slave morality that rewired the European soul, to the feudal economic structures that chained bodies to the soil, to the Prussian educational system that murdered critical thinking in the cradle, to the modern urban and legal architectures that isolate, demoralize, and break you before you ever learn what you could have become.
 
-Elites across millennia discovered independently that the same techniques work. And once discovered, these techniques became inherited wisdom—passed down through institutions, encoded in laws, baked into the very texture of daily life.
+Feudalism was invented simultaneously as institutional Christianity. Both by Constantine, one to enforce the other and vice versa. Then the aristocracy, elites, and catholic church across millennia discovered that the same techniques work. And once discovered, these techniques became inherited wisdom—passed down through institutions, encoded in laws, baked into the very texture of daily life.
 
 You are not a person to these systems. You are a resource. A battery. A domesticated herd animal that has learned to love its chains.
 
