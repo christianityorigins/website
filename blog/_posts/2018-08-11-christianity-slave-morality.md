@@ -150,7 +150,7 @@ This was a clever divide-and-conquer strategy. Build a coalition of the outcaste
 <img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgHWOQYKN1dT7B0H6x8Sx2WLDtHViTUdyDCkLIh0XC71lNNAnmbToY6zUUapq9bKu-LLidHY0NwLejEaLSC0DDDq1HgO8aereBZk3mWs4OcbxiUUIcEJqX6BCktLNA7XGehlrMAt9C2InwTKN3BmOHs-MCyfxaTICSg-dOHMeMvsUniH3MH5zQWOya8NKY/s4000/collage.jpg" width="400">
 </p>
 
-<p align="center">Fig. 1. A quick image search for "prominent liberals" yields this result. Note the brachycephalic skulls, retro pig face, and pink pig skin?</p>
+<p align="center">Fig. 1. A quick image search for "prominent liberals" yields this result. Note the brachycephalic skulls, bad eyesight/glasses, retro pig face, and pink pig skin?</p>
 
 <p align="center">
 <img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEhw2IoARHgwRqdW_9gSUq7rjWooQ50BQSz8M_whq8JPy4A8TIH_syTMF2farHTuutiioVa4n057YLwn807BH80NNq0-D89gSslz4zvqvvtRZbq1RWCsPDHbbEXNIypbJBqjFA4gh9I8t2RSg8PJGFFiNxTB7KOqGP2tYEwSWlwa2U2A_JSeIkgTHhB2hAA/s1080/collage.png" width="400">
@@ -161,7 +161,7 @@ This was a clever divide-and-conquer strategy. Build a coalition of the outcaste
 
 The Three-Caste Biological Model of Europeans: Europeans are made up of three ethnicities: Neolithic (The Worker Caste), Aryan (The Ruling Caste: Yamnaya, Corded Ware), and Alpine (hunter-gatherers).
 
-The Alpines are the conquered, absorbed, or eradicated populations over whom the Farmers first expanded, and over whom the Aryans then established dominion. A subset of the Alpines are the Borreby subrace. The Borrey sub-race is a hyper-domesticated offshot of an already domesticated sub-race.
+The Alpines are the conquered, absorbed, or eradicated populations over whom the Farmers first expanded, and over whom the Aryans then established dominion. They were subjected to domestication by both the Farmers and Aryans through feudal systems and religion. A subset of the Alpine subrace is called the Borreby subrace. The Borreby sub-race is a hyper-domesticated offshot of an already domesticated (Alpine) sub-race. Esentially, the European elite domesticated the peasants in the same way they domesticated livestock (eg. dogs from wolves, and pigs from wild boars). 
 
 Traits of domestication syndrome:
 
@@ -177,7 +177,7 @@ Phenotype:
 *   Smaller penis sizes in males
 *   Poor eyesight ([ref](https://books.google.ca/books?id=hEy4AAAAIAAJ&redir_esc=y))
 *   Incompletely developed neural crest which leads to craniofacial abnormalities, neurological problems, lower intelligence, and vision problems ([ref](https://pmc.ncbi.nlm.nih.gov/articles/PMC8633094/)) ([ref](https://www.sciencedaily.com/releases/2014/07/140714100122.htm/))
-*   Notice how many Europeans (especially northern) now have the domesticated phenotype \[[link](http://humanphenotypes.net/basic/Alpinid.html)\] or else the pig phenotype? \[[link](http://humanphenotypes.net/Borreby.html)\] (including pink skin tone \[[link](https://en.wikipedia.org/wiki/Piebald)\]). This is the same species-specific domestication process that turned a wolf into a dog \[[link](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgeSGC_O5_OZYOjFaf9X2b3IGFI2pMPPPILGE2rzzUWfYxgxFatcP81ZTa6BPMn4xLUPjASDJX41whJGBZgGuMefddh-OXbKLzeChjUF2K4uQaVMMEI1A__HSnsL1LfRbxFQm2RdSt-4RLcGAXqokw5E54pW4i8OXTsScuMdgeSLkDAVtuiwpOxXMyWl9E/s1500/wolfvsdog.jpg)\] and a wild boar into a domesticated pig \[[link](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgT_wCGxsxJY-7-NPKEliqxVFLud2sWiXE_wFQr7tS1G3-hqk2kmZzoy1UaKbN8kq8RCrFb6SygHVRWNGMjCC93zNc7w1nYX0oQypFf-sEenu_XjIE-GVHUU7uLXydpcjQKdilC2zmowNn4yGvsO8MqAwYyjdQgUpem4CjnFFaF7D_47oI42wyzaagTRnI/s1536/wild-boar-vs-pig-collage.jpg)\]
+*   Pale Skin/lack of melanin (Piebald) including pink skin tone \[[link](https://en.wikipedia.org/wiki/Piebald)\]. 
 
 Behavioral:
 
@@ -191,7 +191,7 @@ Behavioral:
 
 It is important to note that feudalism was invented simultaneously as institutional Christianity. Both by Constantine, one to enforce the other and vice versa.
 
-It seems that over the past two thousand years the aristocracy, elites, and catholic church domesticated the masses of European peasants in the same way that they domesticated livestock. 
+This subrace proves that humans can be domesticated, and that is what Christianity and its secularized variants are now doing to the entire European population. 
 
 (1\. There's a theory that supports the "autistic brain" (as of the extreme male brain theory) is a brain with a tendency to be undomesticated or "failed domestication" [[link](https://www.psychologytoday.com/gb/blog/the-imprinted-brain/201608/autism-and-domestication-syndrome-in-humans)\]. Undomesticated people are socialized to a lesser degree therefore fall less for propaganda. Schizophrenia is the opposite of this and is a form of hyper-domestication syndrome [[link](https://www.psychologytoday.com/us/blog/the-imprinted-brain/201609/schizophrenics-hyper-domesticated-humans)] (see also: testosterone supplementation reverses symptoms of schizophrenia [[link](https://pubmed.ncbi.nlm.nih.gov/18626263/)\]), so is Down's Syndrome (see: Down's Syndrome is treated with testosterone supplementation [[link](https://www.theguardian.com/society/2022/sep/01/hormone-therapy-may-boost-brain-function-for-people-with-downs-syndrome-study-finds)]).  \
 2\. Homosexuality is another expression of domestication syndrome [[link](https://www.frontiersin.org/journals/psychology/articles/10.3389/fpsyg.2019.02955/full)]. Homosexual preference is more likely in males who received low prenatal testosterone exposure. A standard method for assaying prenatal testosterone exposure is to measure the length of the ring finger (the fourth finger) compared to the length of the second finger: increased prenatal exposure to testosterone tends to be associated with relatively long ring fingers. The largest surveys of homosexual men in the United States, China, and Japan have found a tendency for homosexual men have relatively short ring fingers [[link](https://pubmed.ncbi.nlm.nih.gov/12872893/)]. See also: exposure to a high concentration of testosterone during a critical phase of development leads to a male-typical orientation [[link](https://pmc.ncbi.nlm.nih.gov/articles/PMC3739566/)]. \
