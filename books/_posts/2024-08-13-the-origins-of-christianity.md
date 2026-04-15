@@ -94,13 +94,13 @@ All "Ancient" Physical Evidence is Suspect: The corpus of "Roman" and "Greek" sc
 
 The historical record as we know it was systematically forged in three major phases:
 
-1)The Flavian Revolution (1st century CE): After crushing the legitimate Dragon King dynasty based in the Bosporus, the Flavian dynasty burned the Library of Alexandria, rewrote history, and invented the foundational myths of Western civilization.
+1. The Flavian Revolution (1st century CE): After crushing the legitimate Dragon King dynasty based in the Bosporus, the Flavian dynasty burned the Library of Alexandria, rewrote history, and invented the foundational myths of Western civilization.
 
-2)The Medici Forgery (14th-18th centuries): From roughly 600–1200 CE almost all ancient texts survive only via monasteries. The Vatican, in conjunction with the wealthy aristocratic family of Cosimo de' Medici, didn't just forge texts; they forged entire material cultures. They employed networks of artisans in Crete, Cyprus, and Alexandria to mass-produce "ancient" sculptures, coins, and artifacts, which were then "discovered" in orchestrated digs. The famous "Cabinet of Curiosities" of wealthy patrons like the Medici were their primary market. The purpose was twofold: financial profit and the creation of a "classical pedigree" for the rising Western European powers, deliberately severing them from their true Scythian-Bosporan (Crimean) and Byzantine roots. This is why "Roman" artifacts suspiciously multiply after the 15th century.
+2. The Medici Forgery (14th-18th centuries): From roughly 600–1200 CE almost all ancient texts survive only via monasteries. The Vatican, in conjunction with the wealthy aristocratic family of Cosimo de' Medici, didn't just forge texts; they forged entire material cultures. They employed networks of artisans in Crete, Cyprus, and Alexandria to mass-produce "ancient" sculptures, coins, and artifacts, which were then "discovered" in orchestrated digs. The famous "Cabinet of Curiosities" of wealthy patrons like the Medici were their primary market. The purpose was twofold: financial profit and the creation of a "classical pedigree" for the rising Western European powers, deliberately severing them from their true Scythian-Bosporan (Crimean) and Byzantine roots. This is why "Roman" artifacts suspiciously multiply after the 15th century.
 
 The Medici financed, refined, and physically produced the "ancient" manuscripts that cemented it into Western consciousness (look up the similarities between Plato and Gemistus Pletho, whose patron was also Cosimo de' Medici). Their forger-in-chief was Poggio Bracciolini. Bracciolini held the position of Apostolic Secretary to the Pope, which gave him access to the Vatican Library and is credited with "rediscovering" most ancient manuscripts from antiquity. He was also working for Cosimo de' Medici.
 
-3)The Jesuit Operation (16th-18th centuries): Jesuit scholars fabricated chronologies for China, India, and the Middle East, backdating history by centuries to fit Biblical timelines.
+3. The Jesuit Operation (16th-18th centuries): Jesuit scholars fabricated chronologies for China, India, and the Middle East, backdating history by centuries to fit Biblical timelines.
 
 **Introduction**
  
