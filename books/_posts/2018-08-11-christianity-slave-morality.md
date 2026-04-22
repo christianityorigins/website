@@ -1,15 +1,17 @@
 ---
 layout: default
 open_links_in_new_tab: true
-title:  "The Christian Slave Morality: Nietzsche's Critique and the Christian Blueprint for Domestication"
+title:  "The Christian Slave Morality: Christianity as Psychological Warfare and the Domestication of Western Man"
 date:   2018-08-11 09:00:00 +0200
 updated: 2024-07-11 19:46:50 +0200
 category: blog
 ---
 
-The Christian Slave Morality: Nietzsche's Critique and the Christian Blueprint for Domestication
+The Christian Slave Morality: Christianity as Psychological Warfare and the Domestication of Western Man
 
 By Ralph Perrier
+
+A Book in Two Volumes
 
 "Do not suppose that I have come to bring peace to the earth. I did not come to bring peace, but a sword. For I have come to turn a man against his father, a daughter against her mother..." -- Matthew 10:34-36
 
@@ -19,6 +21,7 @@ By Ralph Perrier
 
 Preface\
 Introduction\
+VOLUME I: THE CHRISTIAN PSYOP\
 Part 1: The Theoretical Framework\
 1 Foundations of Christian Slave Morality and Nietzschean Critique\
 2 Monotheism and Universalism as Tools of Control\
@@ -26,6 +29,7 @@ Part 1: The Theoretical Framework\
 Part 2: Christianity as the Engine of Domestication\
 4 Survival of the Weakest: Inverting Natural Selection \
 5 Tools of Herd Domestication\
+VOLUME II: LEFTISM AS CHRISTIANITY'S SECULARIZED HEIR\
 Part 3: Secularization - Leftism as Christianity's Heir\
 6 Marxist Denominations and the Frankfurt School\
 7 Modern Manifestations: Wokeness as Christian Heirloom\
@@ -43,17 +47,51 @@ Christianity was not a revelation but a deliberate psychological weapon—a 'sla
 
 Christianity culminated from centuries of scribal work by imperial elites, who built on earlier slave morality religions codified at the Alexandrian School in Egypt under Philo of Alexandria. The goal was to spread a religion to the slaves that advanced monotheism, centralized texts and priesthoods, ethos like renouncing worldly possessions, asceticism, shame and guilt, and rewards in the afterlife for earthly suffering. These imperial cults were by design slave moralities to strip the will to power from the population to prevent rebellions.
 
+The central arguments of this book, stripped to its skeleton:
+
+1) Christianity was not a revelation but a deliberate construction—a "slave morality" system engineered at the Alexandrian School under Philo of Alexandria, synthesizing Platonism, Zoroastrian dualism, Egyptian mythology, and Jewish messianism into a unified weapon of psychological subversion.
+
+2) Its purpose was domestication—to strip populations of their will to power by inverting natural hierarchies, destroying ethnic bonds, replacing ancestral pride with universal guilt, and turning the weak against the strong through a self-regulating system of moral judgment.
+
+3) Its mechanism is the transvaluation of values—redefining "good" as the virtues of slaves (humility, obedience, poverty, chastity, self-denial) and "evil" as the virtues of masters (pride, strength, ambition, wealth, power, procreation).
+
+4) It is self-policing—the slave morality system empowers the lowest castes to stand in judgment of kings, creating a society where the powerful are constantly monitored, shamed, and undermined by the weak, who derive moral superiority from their very weakness.
+
+4) Secularization did not end Christianity; it perfected it—Marxism, Critical Theory, and modern Wokeness are not opponents of Christianity but its heretical children. They retain the entire moral architecture (original sin → white guilt, salvation → activism, heresy → cancel culture, universalism → globalism) while stripping away the supernatural furniture.
+
+5) Western man is now a domesticated animal—1,500 years of this psychological conditioning have produced a human type incapable of defending his own civilizational existence, pathologically altruistic toward outsiders, consumed by ancestral guilt, and convinced that his own extinction is moral progress.
+
+A Note on Method
+
+I follow Bruno Bauer (Marx's teacher, the forgotten genius of 19th-century biblical criticism) in understanding Christianity as a literary product of the Alexandrian synthesis. I follow Friedrich Nietzsche in understanding it as a psychological weapon of slave morality. I follow Revilo P. Oliver in tracing its political function as imperial population controland in recognizing that even atheist leftists remain fundamentally Christian in their moral architecture.
+
+This book synthesizes their insights into a unified theory: Christianity as Alexandrian psyop, perfected through Roman imperial adoption, secularized through Protestantism, and culminating in the Woke totalitarianism of the present.
+
+The second volume will trace Leftism as Christianity's secular reformation—same substance, new forms. But first, we must understand the original infection.
+
 Introduction
 
 Every single species on earth works towards the preservation and strengthening of its bloodline, from bonobos to pin oaks to jellyfish. Every single one. It is only through the domesticating forces of universal religions (Buddhism, Christianity, and Islam) that man has been able to 'overcome' these natural and deep biological drives and act in ways that are neutral or actually harm the reproductive success of his genes and offspring. Because of these universalizing religions, western man is an animal in the process of domestication.
 
 As well as Christianity being a slave-morality system, Friedrich Nietzsche wrote that Liberalism is a secularized Christian political-theological religion. The Reformation coincided with the invention of the Gutenberg printing press which increased literacy and this is when a myriad of Protestant sects sprung forth: the Anabaptists, the Mennonites, the Amish, the Digger Movement, the Ranters, etc., all of whom adhered to a system of communism and preached about universalism and a utopia on earth. Marxism was one of these sects. The only difference is that Marxism was the first secularized Christian sect where the belief in a supernatural god was replaced with a belief in an omnipresent government.
 
+The Alexandrian School under Philo Judaeus (c. 20 BCE – 50 CE) was the laboratory. Here, Greek Platonism—the Logos doctrine, the Forms, the immortal soul, the Myth of Er's afterlife judgment—was fused with Jewish messianism and Zoroastrian dualism. The product was a theological virus: a suffering savior, a cosmic reversal of hierarchies, a deferred justice in the afterlife, and a universal brotherhood that dissolved tribal loyalty. Philo's writings contain the Logos theology, allegorical interpretation, virgin birth prototypes, and the Therapeutic community—every essential element of Christianity before the Gospels were written. This was not anticipation; this was the blueprint.
+
+Rome recognized the utility. Constantine's "conversion" in 312 CE was a political merger, not a spiritual awakening. He kept Sol Invictus on his coins and delayed baptism until his deathbed. The Council of Nicaea (325 CE) standardized doctrine under imperial supervision. Theodosius I made Christianity the only legal religion in 380 CE. Pagan temples were demolished, sacred groves burned, ancestral traditions criminalized. The psyop became state policy.
+
 Part 1: The Theoretical Framework
 
 1 Foundations of Christian Slave Morality and Nietzschean Critique
 
 Christianity is a sophisticated divide-and-conquer millenarianist (belief in a future utopia) (1) slave morality (2) system that is packaged as a religion. The system works by weaponizing the lowest "chandala" (3) castes as Friedrich Nietzsche called them (outcastes and untouchables in the Hindu caste system) of society to attack and overthrow the aristocratic and warrior castes (4); and secondly, the christian system contains within it a pacifist slave morality system that is designed to transvaluate a groups aristocratic and warrior values while turning these aristocratic and warrior castes into obedient and submissive slaves.
+
+Nietzsche's term "chandala" is deliberate. In Hindu caste hierarchy, the chandala are the untouchables—those outside the varna system, handling corpses and waste. Nietzsche saw Christianity as the "chandala religion" that took the values of society's lowest and made them the measure of all morality. The chandala's weakness becomes "meekness" (a virtue), his poverty becomes "blessedness," his inability to fight becomes "turning the other cheek." The master's strength becomes "pride" (a deadly sin), his wealth becomes "mammon," his power becomes "oppression."
+
+The system is self-policing because it makes every chandala a judge. The slave who accepts Christian morality now stands in moral judgment over his master. He cannot overthrow the master physically—the master has swords and soldiers. But he can condemn the master eternally. This gives the slave a sense of power that makes his earthly suffering bearable. He is not a victim; he is a martyr. His chains are not shame; they are a crown. This inversion makes rebellion unnecessary—why risk death for earthly freedom when cosmic justice is guaranteed?
+
+The aristocratic and warrior castes, meanwhile, are targeted for transvaluation. Their values—pride, honor, strength, courage, loyalty to kin—are redefined as sins. The proud man is the Pharisee in the temple, condemned. The rich man is the camel trying to pass through the needle's eye, impossible. The warrior is told to sheathe his sword: "all who draw the sword will die by the sword" (Matthew 26:52). The aristocrat who accepts Christianity must abandon his ancestral values and adopt the values of his own slaves. He must become meek, humble, charitable, forgiving. He must turn the other cheek to those he once ruled. This is domestication by moral inversion.
+
+Nietzsche saw the historical process clearly: Rome fell not to barbarians but to the Christian virus that rotted its aristocratic virtues from within. The same virus infected the Germanic tribes that conquered Rome. Warrior kings became penitent pilgrims. Viking raiders became cathedral builders. The will to power was redirected inward as guilt, outward as crusade—always controlled, always channeled into forms the priestly caste could manage.
 
 2 Monotheism and Universalism as Tools of Control
 
@@ -69,13 +107,27 @@ Christian universalism also led to ethnic erasure. The catholic church deliberat
 
 Friedrich Nietzsche's concepts of slave morality, transvaluation of values, and "ressentiment" are central to understanding Christianity's subversive power.
 
+Slave Morality
+
 The slave morality aspect of Christianity is designed to suppress an individual's will to power (life's essential drive/will to expand or grow/self overcoming). When an individual is unable to express their will to power in a constructive, outward manner, they redirect this energy inward, manifesting as self-destructive tendencies. This is what Friedrich Nietzsche called a "slave morality" where the individual's creative and life-affirming energies are turned against themselves. As a result, in Christianity, many people's will to power becomes directed inward, becoming satiated through masochistic self-harm. This twisted form of self-assertion can be observed in various aspects of human behavior, from the self-flagellating tendencies of Christianity to the equally destructive habits of self-sabotage and addiction. If the individual's will to power is unable to find an external outlet it turns inward, creating a perverse cycle of self-inflicted pain and suffering.
+
+Transvaluation of Values
 
 Friedrich Nietzsche's concept of the "transvaluation of values" is also central to understanding how Christianity reshaped societal norms and suppresses an individuals will to power. This theory states that traditional christian values, which emphasize humility, selflessness, guilt and pity, were created to undermine the strong. Essentially, by redefining "good" as virtues of the "chandala", i.e., by replacing a groups aristocratic values with "chandala" values: guilt, pity, self-hate, weakness, and victimhood/oppression replace strength, pride, honor, loyalty, family, race, and tradition, etc., essentially through vilifying the powerful the lowest "chandala" castes can become the nobility. This leads to a culture that celebrates mediocrity while demonizing excellence.
 
+Ressentiment
+
 As for Nietzsche's concept of "Ressentiment", in his book 'On the Genealogy of Morality' (1887) he wrote that the jews (5), who he claimed are motivated by deep resentment and hatred (6), create these "slave morality" systems (7) to weaponise the "Ressentiment" of the lowest "chandala" castes (8). This is what makes the system self-policing and self-regulating. This is designed to pit the weak against the strong, with the chandala encouraged to "sacrifice" the aristocratic castes on the altar of moral superiority, as seen in historical revolutions.
 
+Ressentiment is not ordinary resentment. Resentment is anger at a specific wrong, which can be acted upon. Ressentiment is the festering hatred of the powerless, who cannot act, who cannot fight back, who must swallow their rage and let it curdle into imaginary revenge. The slave cannot strike the master, so he fantasizes the master burning in hell. The chandala cannot overthrow the aristocrat, so he imagines the aristocrat humbled in the afterlife. This fantasy becomes the basis of a new morality—a morality that condemns everything the master is and values, and sanctifies everything the slave is and suffers.
+
+Nietzsche's genealogy traces this process: Jewish priests, denied political power after the Babylonian exile, created a moral system that inverted the values of their conquerors. The powerful Babylonians and Romans were "evil" because they were powerful. The powerless Jews were "good" because they were powerless. Christianity universalized this Jewish inversion and exported it to the gentile world. The slave revolt in morality was complete.
+
 Monotheism (binary opposition between good vs. evil), universalism, the transvaluation of traditional ethnic values, and the concept of sin all exist to self-deify and weaponize the lowest castes. This allows the slaves and lower castes to feel morally and socially superior to the higher castes because of the concept of sin and set commandments of behavior. The savior complex (9) is a subset of christian self-deification and is a heritage of monotheism and messianism (10). Self-deification (11) is the foundation for attacking those that are identified as heretics (12) and redeeming others.
+
+The Christian who condemns the sinner, the woke activist who condemns the racist, the Marxist who condemns the bourgeois—all are operating from the same psychological script: I am good because you are evil. Your power proves your evil. My powerlessness proves my goodness. I stand in judgment over you, and my judgment is God's judgment / History's judgment / Justice's judgment.
+
+This is the engine of the system. It is self-perpetuating because it offers the one thing the powerless crave more than material improvement: moral superiority. Better to be a virtuous slave than a sinful master. Better to be a holy pauper than a damned prince. The system provides meaning to suffering, dignity to degradation, purpose to powerlessness. That is why it works. That is why it persists.
 
 (See also: [Ressentiment](https://en.wikipedia.org/wiki/Ressentiment), [Conflict Theory](https://en.wikipedia.org/wiki/Conflict_theories), and [Class Conflict](https://en.wikipedia.org/wiki/Class_conflict))
 
@@ -85,11 +137,19 @@ Part 2: Christianity as the Engine of Domestication
 
 "Christianity has waged a war to the death against this higher type of man; it has excommunicated all the fundamental instincts of this type, it has distilled evil, the Evil One, out of these instincts—the strong human being as the typically reprehensible, the 'reprobate.' Christianity has taken the side of everything weak, base, ill-constituted, it has made an ideal out of opposition to the preservative instincts of strong life; it has corrupted the reason even of the intellectually strongest natures by teaching men to feel the supreme values of intellectuality as sinful, as misleading, as temptations." -- Friedrich Nietzsche - The Antichrist (Section 50)
 
+Mechanism 1: Celibacy of the Elite
+
 High-status males in hierarchical societies (e.g., chieftains, warriors) often had greater access to females, either through polygyny or social prestige. This amplified the genetic spread of traits associated with dominance. Christianity disrupted this dynamic by redefining "fitness" in moral rather than biological terms. By exalting humility, meekness, and self-denial as virtues, it created a cultural selection pressure that rewarded individuals who exhibited traits maladaptive in competitive contexts. For instance, through the transvaluation of traditional values based on hierarchy and power, and through glorifying the meek and downtrodden, Christianity incentivized the survival and reproduction of traits (e.g., passivity, low ambition) that natural selection would typically cull.
+
+Mechanism 2: Antinatalist Teaching
 
 Also, through the Church's promotion of celibacy (e.g., for priests, monks, and nuns) and antinatalist teachings (e.g., Matthew 19:11-12, praising eunuchs) disproportionately affected high-status and highly intelligent individuals who were drawn to religious vocations. This removed dominant, intelligent, and ambitious individuals from the gene pool, reducing the prevalence of traits associated with leadership and vitality.
 
-Over centuries, these relaxed conditions of natural selection led to traits like aggression and dominance being bred out of Europeans.
+The Cumulative Effect
+
+Over centuries, these relaxed conditions of natural selection led to traits like aggression and dominance being bred out of Europeans. The contrast between classical and Christian civilization is stark. Greek and Roman men were aggressive, ambitious, competitive, and proud. They built empires, produced philosophy, created art that celebrated human excellence. Medieval Christian men were penitent, humble, obedient, and guilt-ridden. They built cathedrals to a suffering god, produced theology that condemned human pride, created art that celebrated self-denial. The will to power had been domesticated.
+
+Mechanism 3: Pathological Altruism
 
 This is likely the cause of the pathological altruism phenomenon that is seen in the west today. Christianity's emphasis on charity and loving one's enemies fostered what evolutionary psychologists call pathological altruism—self-destructive behaviors that benefit others at the expense of one's own in-group.
 
@@ -237,7 +297,11 @@ Therefore, it secretly prepares for reigns of terror, and drives the word 'justi
 
 Socialism can serve as a rather brutal and forceful way to teach the danger of all accumulations of state power, and to that extent instill one with distrust of the state itself. When its rough voice chimes in with the battle cry 'As much state as possible,' it will at first make the cry noisier than ever; but soon the opposite cry will be heard with strength the greater: 'As little state as possible.'"
 
-Addendum: My critique of leftism is not coming from a conservative perspective. Leftism is a secularized variant of protestantism (puritanism), but conservatism is secularized catholicism with its focus on hierarchy and tradition. Western left vs. right politics is a relic of abrahamic monotheism.
+Addendum
+
+My critique of leftism is not coming from a conservative perspective. Leftism is a secularized variant of protestantism (puritanism), but conservatism is secularized catholicism with its focus on hierarchy and tradition. Western left vs. right politics is a relic of abrahamic monotheism. Both sides operate within the Christian moral framework. Both sides accept the basic premises of universalism, guilt, and deferred justice. The only difference is who they blame and who they want to save. The left blames the powerful and wants to save the oppressed. The right blames the decadent and wants to save tradition. Both are Christian heresies. Neither escapes the Alexandrian Blueprint.
+
+The way out is not left or right. It is the revaluation of all values—the rejection of slave morality, the affirmation of life, the recovery of ethnic identity, the destruction of guilt, the reclaiming of the will to power. This book has been a diagnosis. The cure is another matter.
 
 Footnotes
 
