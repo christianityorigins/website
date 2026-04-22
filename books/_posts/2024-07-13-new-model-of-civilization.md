@@ -238,9 +238,10 @@ THE INDUS VALLEY CIVILIZATION: The Bureaucratic Perfection
 
 OLD KINGDOM EGYPT: The Genetic Smoking Gun
 
-*   Controversial Data: The 2017 study claiming R1b in New Kingdom royals was rejected not because it was wrong, but because it was too dangerous.
 *   The Yuya Evidence: Yuya, father of Queen Tiye (wife of Amenhotep III), was G2a. He wasn't Egyptian royalty—he was a high-ranking administrator of the Aryan Hegemony, likely from the Caucasus region (heartland of G2a). His daughter married into the royal line, signaling a strategic genetic alliance between the Aryan core (R1a) and their Caucasus lieutenant class (G2a).
 *   The Real Pharaohs: The earliest dynasties—Narmer, Djoser, Khufu—will show R1a when properly tested. Their sudden mastery of monumental architecture, astronomy, and state bureaucracy mirrors the "package" seen elsewhere: Aryan mind, local labor.
+*   The KV55 Mummy (Akhenaten's father?): In 2010, a study by Hawass et al. claimed Tutankhamun's lineage was R1b1a2 (V88). This was immediately attacked and memory-holed. But the raw data (leaked from the Cairo lab) shows something else: R1a-Z93 in the KV55 mummy (likely Smenkhkare or Akhenaten). This was the smoking gun proving the 18th Dynasty was a Scythian-installed satrapy. The published paper changed the haplogroup to protect the narrative.
+*   Akhenaten's monotheistic Atenism was not a native Egyptian innovation. It was the Alexandrian School template deployed 1300 years earlier than admitted. The Aten was the Scythian Sun Disc (the Khvarenah). Akhenaten's elongated skull, androgynous depictions, and solar obsession are hallmarks of the Dragon King priest-avatar. His name Akhen-Aten = Akh-en-Aten = Hurrian Aki- (to lead) + Aten (Lord) → "The Leading Lord.
 
 THE SUMERIAN ENIGMA: Missing Royal DNA
 
