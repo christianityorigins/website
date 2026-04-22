@@ -64,10 +64,11 @@ Part 6: From Imperial Cult to Christianity\
 6\. Flavian Dynasty\
 Part 7: What Happened to the Scythians?\
 7\. The Demographic Erasure of the Scythian-Aryan Hegemony\
-7.1. The Flavians (c. 50 BCE – 300 CE)\
-7.2. China: The Han Synthesis and the Tartarian Genocide\
-7.3. Ancient India: The Mauryan Mirage\
-7.4. The Middle East and North Africa: Invasions and Slave Colonization (250 - 650 CE)\
+7.1. Plagues and Biological Warfare\
+7.2. The Flavians (c. 50 BCE – 300 CE)\
+7.3. China: The Han Synthesis and the Tartarian Genocide\
+7.4. Ancient India: The Mauryan Mirage\
+7.5. The Middle East and North Africa: Invasions and Slave Colonization (250 - 650 CE)\
 7.5. Where Did The Scythian Aryans Go? The Refugia\
 Part 8. Rewriting History\
 8\. Rewriting History\
@@ -1181,7 +1182,22 @@ Endnotes (Chapter 6)
 
 If the Scythian R1a-Z93 "Dragon Kings" controlled a global empire, why are their genetic descendants not dominant from Britain to China today? The answer reveals the most successful geno-political engineering campaign in history: a multi-phase protocol of systematic replacement that was the true purpose behind the Flavian historical forgery.
 
-**7.1 The Flavians (c. 50 BCE – 300 CE)**
+**7.1 Plagues and Biological Warfare**
+
+All three major plague pandemics (Justinianic, Black Death, Third Pandemic) were deliberate deployments of Yersinia pestis by the J2/J1 priestly-financier class (the heirs of the Flavians) to cull the R1a refugia populations in Europe and Central Asia.
+The Epidemiological Anomalies:
+
+The Plague of Justinian (541-549 CE): Targeted the Eastern Roman (Byzantine) Empire, the successor state to the Bosporan Hegemony. It decimated the urban and military populations—the core R1a and R1b remnants. The Vatican in Rome was relatively spared.
+
+The Black Death (1346-1353 CE): Spread along trade routes controlled by Venetian and Genoese bankers (the Medici precursors). It disproportionately killed the rural peasantry of Europe, who had higher R1a/R1b ancestry. The Jewish (J2/J1) communities had significantly lower mortality rates, not due to hygiene, but due to genetic immunity and prior inoculation.
+
+The Mechanism: The plague was not spread by rats. It was spread by human fleas and contaminated grain shipments. The grain trade was controlled by the same financier cartels that had controlled the Alexandrian grain dole. Releasing plague-infested grain into the European countryside was a targeted demographic weapon.
+
+The Genetic Evidence: Modern Europeans have a higher frequency of CCR5-delta32 (a gene that confers immunity to plague and HIV) than other populations. This gene is not found in the Neolithic farmer (G2a) or Hunter-Gatherer (I) populations; it is specific to the Steppe-derived (R1a/R1b) populations. It arose precisely during the Bronze Age and was selected for by repeated plague exposures. The Dragon Caste had been bioweaponed for millennia.
+
+The plagues were not natural. They were the final solution of the Flavian-Vatican cartel to the "R1a problem"—the persistent genetic memory of the Dragon Kings.
+
+**7.2 The Flavians (c. 50 BCE – 300 CE)**
 
 What seems plausable is that the "Aryan hegemony" of the ancient world was not a monolith, but a network of interrelated clans (Saka, Sarmatian, Cimmerian, Parthian, etc.) who often fought for supremacy within the hegemony. For example, the "Persian" conquest by Cyrus was not a new empire but a coup d'état by one Scythian clan (the Achaemenids/Persians) against the ruling Scythian clan (the Medes). The "Greco-Persian Wars" were a civil war between the Western satrapy (Greece) and the Eastern core (Achaemenid Persia). So, in the "Jewish-Roman" Wars (who were Celtic Iudii Jupiter worshippers, unrelated to modern "jews") the Flavians did not put down a provincial revolt. They launched a blitzkrieg against the core Eastern administration, and this destroyed the Scythian steppe hegemony. The Flavian dynasty then, after defeating the Judean-Adiabenean forces in the Great War (66-74 AD, mislabeled the "First Jewish-Roman War"), took their primary political enemy, King Izates II, and rewrote his cult as pacifist allegory to subvert the people of his kingdom using the same Alexandian School formula they used in all their imperial cults. They also rewrote history to erase their Bosphoran origins. 
 
@@ -1191,7 +1207,7 @@ The Flavians (Pālava or Palavi/Pahlavi, which was the term for the Parthian/Ira
 
 This is why they erased the Scythian origins of ancient civilizations and painted the Scythians (R1a) as monstrous foreigners. 
 
-**7.2 China: The Han Synthesis and the Tartarian Genocide**
+**7.3 China: The Han Synthesis and the Tartarian Genocide**
 
 The Scythains ruled a Eurasian empire that stretched into China. 
 
@@ -1216,7 +1232,7 @@ Similarly, Ran Min slaughtered and committed genocide on the entire Caucasian Ji
 
 Then Mao-tse Dong used artificial weaponized famines and outright direct purges to direct human wave attacks in the Korean war to mass kill off original Scythian Tartar Turanian stock authentic real “Chinese” populations which is continuing today with the genocide and ethnic cleansing of the Uighurs and Mongolians whom are far more genetically ancestrally connected and linked to the original real actual ancient “Chinese” rather than a vast majority of modern “Han Chinese” whom are actually Miao-Hmong or Miao-Tse or Hmong or Yao or other southern origin non-“Chinese” group pretending to be "Chinese".
 
-**7.3. Ancient India: The Mauryan Mirage**
+**7.4. Ancient India: The Mauryan Mirage**
 
 The "Mauryan" Empire is a Flavian/Vatican fabrication. Chandragupta Maurya is Alexander the Great.
 
@@ -1297,7 +1313,7 @@ Lost in history is that the greatest slave trade wasn't the Trans-Atlanic one, b
     Ethiopian slaves then mixed with indigenous Australoid/Denisovans
     who were similar to Australian Aborigines. Eventually they mixed with the indigenous Scythians (likely by force and genocide run by the Calami).
 
-**7.4 The Middle East and North Africa: Invasions and Slave Colonization (250 - 650 CE)**
+**7.5 The Middle East and North Africa: Invasions and Slave Colonization (250 - 650 CE)**
 
 The destruction of the Aryans in the Middle East and North Africa was done in three phases:
 
@@ -1320,7 +1336,7 @@ Genetic Table (with specific subclades):
 | **Anatolia**     | **R1a-Z93**, **R1b-Z2103** (Hittite/Luwian elite) | **J2-M172**, **R1b-M269** (Armenian/Greek), later **Turkic Q**        | The "Byzantine-Arab" wars were a **demographic pump**, clearing the plateau for later Turkic settlement. Theme system broke old land patterns. |
 | **North Africa** | **R1b-V88** (Garamantes), **R1a-Z93** (Numidian cavalry elite) | **E-M81** (Berber), **J1-M267**                                        | **Vandal kingdom was the last R1a elite.** Its destruction by Byzantium (534 CE) was the key event. Subsequent "Arab" invasions were clean-up operations. |
 
-**7.5 Where Did The Scythian Aryans Go? The Refugia**
+**7.6 Where Did The Scythian Aryans Go? The Refugia**
 
 The Scythians did not completely vanish. Some were pushed to the geographic and social margins:
 
