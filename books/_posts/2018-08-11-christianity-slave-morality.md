@@ -4,7 +4,7 @@ open_links_in_new_tab: true
 title:  "The Christian Slave Morality: Christianity as Psychological Warfare and the Domestication of Western Man"
 date:   2018-08-11 09:00:00 +0200
 updated: 2024-07-11 19:46:50 +0200
-category: blog
+category: books
 ---
 
 The Christian Slave Morality: Christianity as Psychological Warfare and the Domestication of Western Man
