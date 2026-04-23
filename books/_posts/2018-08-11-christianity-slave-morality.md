@@ -49,17 +49,19 @@ Christianity culminated from centuries of scribal work by imperial elites, who b
 
 The central arguments of this book, stripped to its skeleton:
 
-1) Christianity was not a revelation but a deliberate construction—a "slave morality" system engineered at the Alexandrian School under Philo of Alexandria, synthesizing Platonism, Zoroastrian dualism, Egyptian mythology, and Jewish messianism into a unified weapon of psychological subversion.
+1) Christianity was not a revelation but a deliberate construction—a "slave morality" system engineered at the Alexandrian School under Philo of Alexandria, synthesizing Platonism, Zoroastrian dualism, Egyptian mythology, and Jewish messianism into a unified weapon of psychological subversion. The Alexandrian School’s fusion of Zoroastrian dualism (good vs. evil as cosmic war) with Jewish messianism produced a permanent state of psychological warfare: history becomes a battleground of absolute forces, making compromise or coexistence with the “evil” other impossible. This binary absolutism now powers woke cancel culture, where racists/capitalists/colonialists are irredeemable demons, not humans with competing interests.
+   
+2) Philo’s "Therapeutae" community in Egypt—a celibate, communal, allegory-reading sect—was the prototype for Christian monasticism. They practiced self-denial, rejected private property, and sought ecstatic union with the divine through mortification. This model was later scaled by imperial decree across Europe, turning warrior cultures into self-loathing ascetics.
 
-2) Its purpose was domestication—to strip populations of their will to power by inverting natural hierarchies, destroying ethnic bonds, replacing ancestral pride with universal guilt, and turning the weak against the strong through a self-regulating system of moral judgment.
+3) Its purpose was domestication—to strip populations of their will to power by inverting natural hierarchies, destroying ethnic bonds, replacing ancestral pride with universal guilt, and turning the weak against the strong through a self-regulating system of moral judgment.
 
-3) Its mechanism is the transvaluation of values—redefining "good" as the virtues of slaves (humility, obedience, poverty, chastity, self-denial) and "evil" as the virtues of masters (pride, strength, ambition, wealth, power, procreation).
+4) Its mechanism is the transvaluation of values—redefining "good" as the virtues of slaves (humility, obedience, poverty, chastity, self-denial) and "evil" as the virtues of masters (pride, strength, ambition, wealth, power, procreation).
 
-4) It is self-policing—the slave morality system empowers the lowest castes to stand in judgment of kings, creating a society where the powerful are constantly monitored, shamed, and undermined by the weak, who derive moral superiority from their very weakness.
+5) It is self-policing—the slave morality system empowers the lowest castes to stand in judgment of kings, creating a society where the powerful are constantly monitored, shamed, and undermined by the weak, who derive moral superiority from their very weakness.
 
-4) Secularization did not end Christianity; it perfected it—Marxism, Critical Theory, and modern Wokeness are not opponents of Christianity but its heretical children. They retain the entire moral architecture (original sin → white guilt, salvation → activism, heresy → cancel culture, universalism → globalism) while stripping away the supernatural furniture.
+6) Secularization did not end Christianity; it perfected it—Marxism, Critical Theory, and modern Wokeness are not opponents of Christianity but its heretical children. They retain the entire moral architecture (original sin → white guilt, salvation → activism, heresy → cancel culture, universalism → globalism) while stripping away the supernatural furniture.
 
-5) Western man is now a domesticated animal—1,500 years of this psychological conditioning have produced a human type incapable of defending his own civilizational existence, pathologically altruistic toward outsiders, consumed by ancestral guilt, and convinced that his own extinction is moral progress.
+7) Western man is now a domesticated animal—1,500 years of this psychological conditioning have produced a human type incapable of defending his own civilizational existence, pathologically altruistic toward outsiders, consumed by ancestral guilt, and convinced that his own extinction is moral progress.
 
 A Note on Method
 
