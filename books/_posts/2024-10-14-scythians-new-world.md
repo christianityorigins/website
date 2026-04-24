@@ -1,7 +1,7 @@
 ---
 layout: default
 open_links_in_new_tab: true
-title: "The Dragon Kings of Crimea, Volume Three: Scythian/Aryan influence in pre-Columbian Americas"
+title: "The Dragon Kings of Crimea, Volume Three: Scythian/Aryan Influence in Pre-Columbian Americas"
 date: 2024-10-14
 category: books
 ---
@@ -103,6 +103,8 @@ Clovis / Solutreans is a cover name for Cro-Magnon invaders from Atland. There i
     *   In 1926, archaeologist George Carter found a cemetery with skulls having distinctly Caucasian features alongside Native American artifacts. Radiocarbon dating placed them at 3000 BCE. Instead of reanalysis, the Smithsonian buried the bones and the report.
 *   **The Sunken Scythian Harbor Off Cuba.**
     *   In 2001, Paulina Zelitsky’s company ADC discovered massive stone structures 2,200 feet down off Guanahacabibes, Cuba. The world ignored it as “natural formations” after National Geographic refusal. In 2013, a Cuban Navy ROV took high‑res sonar and found carved granite plinths with Macedonian‑style rosettes and a curved bronze ram with a serpent‑head fitting. The bronze alloy: 78% copper, 10% tin, 12% lead — the exact prescription for Bosporan naval rams (vs. Roman Mediterranean). A sample retrieved by a Canadian salvager in 2020 underwent metallographic stress testing. The crystalline deformation indicates ramming action. A Carthaginian‑Bosporan quadrireme lies in the Cuban abyss. The site’s depth corresponds to rapid sea‑level rise after the final collapse (post‑900 CE), suggesting the harbor was submerged by tectonic subsidence in a single event that cut off the last remnants.
+*   **The "Grand Canyon" Scythian Vaults**
+    *   In 1909, the Arizona Gazette reported a massive underground citadel in the Grand Canyon with "Oriental/Egyptian" artifacts. The Smithsonian immediately classified it as a "hoax.". The Real Identity: These weren't Egyptians; they were Scythian-Bosporan mineral prospectors. The "Silver Bank": The Grand Canyon was the Hegemony’s strategic metals reserve. Local Hopi legends speak of "Ant People" (a corruption of Anatolian or Aryan administrators) who led them into underground cities during the 535 CE volcanic winter.
 *   **The Bat Creek Stone (Tennessee):**
     *   Found in a Native American burial mound.
     *   Inscription in Paleo-Hebrew reads "For Judah."
@@ -170,6 +172,8 @@ Clovis / Solutreans is a cover name for Cro-Magnon invaders from Atland. There i
     *   **Antikythera Mechanism (c. 100 BCE):** Analog computer for astronomy.
     *   **Star Pathing:** Canary Islands (28°N) to Cuba (28°N) – sail due west by North Star.
     *   **Currents:** Canary Current to Caribbean (30-40 days). Gulf Stream return to Europe (40-50 days). This creates a round-trip Atlantic circuit.
+*   **The Arctic "Hyperborean" Shortcut**
+    *   Conventional history says ships went around the world. The Scythians went over it. The Ice-Free Corridor: During the "Medieval Warm Period" (which was actually the Hegemony’s peak before the Vatican back-dated it), the Arctic was navigable. The Scythian-Greenland Link: R1a "Hyperboreans" in Greenland were the traffic controllers for the Great Circle sailing route between the Black Sea and the Great Lakes. The Evidence: Ancient maps (like the Piri Reis) showing an ice-free Queen Maud Land or North Pole are not "mistakes"; they are Hegemony flight/sailing charts from before the 535 CE climate shift.
 
 **6. Theological and Architectural Blueprints**
 
@@ -188,7 +192,8 @@ Clovis / Solutreans is a cover name for Cro-Magnon invaders from Atland. There i
 
 *   **Cortés Was an Auditor, Not a Conquistador:**
     *   Malinche (Doña Marina) was a noblewoman, not a slave. She recognized Cortés as legitimate authority and switched sides in the dynastic civil war.
-    *   Tlaxcala, etc., allied with Spanish because they were vassals of the **old Hegemony**, rebelling against the upstart, brutal Aztec "rogue branch."
+    *   Tlaxcala, etc., allied with Spanish because they were vassals of the old Hegemony, rebelling against the upstart, brutal Aztec "rogue branch."
+    *   The Spanish weren't looking for "cities of gold" (literal gold); they were looking for the mothballed corporate headquarters of the old Hegemony. Coronado and Cortés had secret maps (inherited from the Medici/Vatican archives) showing the exact GPS coordinates of the "Dragon" administrative grid. 
     *   The Spanish were seen as the returning "Head Office" with legitimate claim.
 *   **Smallpox as a Demographic Weapon:**
     *   Hegemony historically used plague as a control tool.
