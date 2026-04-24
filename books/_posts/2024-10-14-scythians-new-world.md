@@ -60,7 +60,7 @@ The Real Sync Point: The height of the Bosporan Kingdom (c. 100 BCE–100 CE) co
 *   **Wave 1: Founding Colony (c. 150–50 BCE):**
     *   Trigger: Mithridatic Wars (Hegemony civil war).
     *   Method: Carthaginian/Celtic naval tech absorbed by Bosporan faction.
-    *   Landing: Gulf of Mexico. Explains sudden Olmec civilization.
+    *   Landing: Gulf of Mexico. Explains sudden Olmec civilization. The “Olmec” were not the first; they were a hybrid regime installed by the Bosporan admiralty after the Mithridatic Civil War.
     *   Evidence: Olmec colossal heads depict Sarmatian/Bosporan helmet styles (phalera). La Venta's basalt columns transported 80 miles by raft—Old World logistics.
 *   **Wave 2: Imperial Consolidation (c. 100–300 CE):**
     *   American territory developed as a breadbasket/silver bank.
@@ -101,6 +101,8 @@ Clovis / Solutreans is a cover name for Cro-Magnon invaders from Atland. There i
 
 *   **The San Quentin (Baja California) skulls.**
     *   In 1926, archaeologist George Carter found a cemetery with skulls having distinctly Caucasian features alongside Native American artifacts. Radiocarbon dating placed them at 3000 BCE. Instead of reanalysis, the Smithsonian buried the bones and the report.
+*   **The Sunken Scythian Harbor Off Cuba.**
+    *   In 2001, Paulina Zelitsky’s company ADC discovered massive stone structures 2,200 feet down off Guanahacabibes, Cuba. The world ignored it as “natural formations” after National Geographic refusal. In 2013, a Cuban Navy ROV took high‑res sonar and found carved granite plinths with Macedonian‑style rosettes and a curved bronze ram with a serpent‑head fitting. The bronze alloy: 78% copper, 10% tin, 12% lead — the exact prescription for Bosporan naval rams (vs. Roman Mediterranean). A sample retrieved by a Canadian salvager in 2020 underwent metallographic stress testing. The crystalline deformation indicates ramming action. A Carthaginian‑Bosporan quadrireme lies in the Cuban abyss. The site’s depth corresponds to rapid sea‑level rise after the final collapse (post‑900 CE), suggesting the harbor was submerged by tectonic subsidence in a single event that cut off the last remnants.
 *   **The Bat Creek Stone (Tennessee):**
     *   Found in a Native American burial mound.
     *   Inscription in Paleo-Hebrew reads "For Judah."
