@@ -61,16 +61,18 @@ That’s not politics. That’s church.
 
 Ditch the color. Rebrand hard.
 
-- Mutt? Call yourself Celto-Germanic, or Anglo-Germanic, etc.
+- Only ever identify with your ethnic group (Italian/Polish/German/English, etc)
+- If you're a mutt call yourself Celto-Germanic, or Anglo-Germanic, etc.
 - Half-Slav, half-Latin? Slavo-Italic.  
 - Whatever your actual mix — own the subtype.
 
 You exit the guilt matrix instantly.  
 
 Then tribal advocacy becomes morally defensible because it’s no longer “White supremacy theater.”  
-It’s just one specific tribe doing what every other tribe does openly and without apology.
 
-No other European will think of themself as your spokesperson/representtive/ambassador, nor the the judge of your behavior relative to their set commandments of white behavior. 
+Most importantly, no other European will ever again think of themself as your spokesperson/representtive/ambassador, nor the the judge of your behavior relative to their set commandments of white behavior. 
+
+It’s just one specific tribe doing what every other tribe does openly and without apology, and is morally defensible.
 
 **The Moral Justifications**
 
@@ -96,7 +98,7 @@ Caveat: This only works if you actually identify with the subtype. “White” d
 
 **Speaking the Language of Delineation**
 
-Refuse the label. Every single time.
+Refuse the label "white". Every single time.
 
 Two instant superpowers:
 
@@ -116,6 +118,6 @@ Counter-script when they pull the “as a White person” move:
 
 **Conclusion**
 
-Importantly, this doesn't require you to like your fellow Europeans or feel kinship with them. It's condition-based, and ethnically particular—you'd apply the same logic to any threatened population.
+Importantly, ethnic particularism doesn't require you to like your fellow Europeans or feel kinship with them. It's condition-based, and ethnically particular—you'd apply the same logic to any population.
 
 You only need to admit universalism has hard limits when existential stakes appear — and that ethnic particularism is the only framework letting Europeans defend themselves without starring as the villains in someone else’s redemption fantasy.
