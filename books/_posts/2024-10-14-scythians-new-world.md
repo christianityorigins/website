@@ -211,4 +211,4 @@ Clovis / Solutreans is a cover name for Cro-Magnon invaders from Atland. There i
 
 **Conclusion**
 
-The evidence is not missing. It is curated, dismissed, and ignored. The preponderance of anomalies across genetics, archaeology, botany, and epigraphy forms a coherent picture that is only "impossible" because it destroys the foundation of the modern world order. 1492 is a lie. The New World was the Old World's oldest colony.**
+The evidence is not missing. It is curated, dismissed, and ignored. The preponderance of anomalies across genetics, archaeology, botany, and epigraphy forms a coherent picture that is only "impossible" because it destroys the foundation of the modern world order. 1492 is a lie. The New World was the Old World's oldest colony.
