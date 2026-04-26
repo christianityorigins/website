@@ -11,7 +11,7 @@ On The Necessity Of Ethnic Particularism In A Universalist World
 
 **By Ralph Perrier**  
 
-This article is inspired by reading Dr. Ricardo Duchesne’s piece:
+This article was inspired by Dr. Ricardo Duchesne’s piece:
 
 ‘Why the West is Replacing Its White Population: The Imperatives (and Fatal Flaws) of Post-Fordism’
 (https://x.com/dr_duchesne/article/2046670958824726994)
@@ -74,23 +74,17 @@ It’s just one specific tribe doing what every other tribe does openly and with
 
 **The Moral Justifications**
 
-1. Conditional / Existential
-   Helping a group facing literal erasure isn’t unjust. Non-Palestinians flood resources into Gaza right now and it’s celebrated. Apply the same logic when your own subtype is under threat. No double standard.
+1. Conditional / Existential: Helping a group facing literal erasure isn’t unjust. Non-Palestinians flood resources into Gaza right now and it’s celebrated. Apply the same logic when your own subtype is under threat. No double standard.
 
-2. Structural / Functional
-   Bounded ethnic communities actually work. Universalism destroys welfare states, environmental trust, and any real collective sacrifice. Small, high-trust tribes coordinate. Global blobs collapse.
+2. Structural / Functional: Bounded ethnic communities actually work. Universalism destroys welfare states, environmental trust, and any real collective sacrifice. Small, high-trust tribes coordinate. Global blobs collapse.
 
-3. Biological / Tribal 
-   Humans are wired for kin preference. Every other race does it shamelessly and never says sorry. Only Europeans are told it’s evil. Biology isn’t bigotry — it’s reality. Refuse to play and you lose everything. Simple.
+3. Biological / Tribal: Humans are wired for kin preference. Every other race does it shamelessly and never says sorry. Only Europeans are told it’s evil. Biology isn’t bigotry — it’s reality. Refuse to play and you lose everything. Simple.
 
-4. Ethnic / Cultural
-   Specific European identities exist. Languages, aesthetics, temperaments, traditions. They’re worth defending because they’re yours. Period.
+4. Ethnic / Cultural: Specific European identities exist. Languages, aesthetics, temperaments, traditions. They’re worth defending because they’re yours. Period.
 
-5. Economic / Material 
-   Deindustrialization and open borders gutted working-class European communities. Prioritizing your own people’s jobs and neighborhoods isn’t hate — it’s pattern recognition. Globalization’s winners don’t share the losses.
+5. Economic / Material: Deindustrialization and open borders gutted working-class European communities. Prioritizing your own people’s jobs and neighborhoods isn’t hate — it’s pattern recognition. Globalization’s winners don’t share the losses.
 
-6. Self-Interested / Dynastic
-   Your descendants will compete against groups with ruthless ingroup preference. Playing nice while everyone else plays tribal isn’t virtue. It’s evolutionary suicide.
+6. Self-Interested / Dynastic: Your descendants will compete against groups with ruthless ingroup preference. Playing nice while everyone else plays tribal isn’t virtue. It’s evolutionary suicide.
 
 Caveat: This only works if you actually identify with the subtype. “White” drags you straight back into the cancer.
 
