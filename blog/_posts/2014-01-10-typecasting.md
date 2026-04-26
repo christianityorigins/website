@@ -240,6 +240,12 @@ Izates bar Monobazus (Row 13) marries Symacho, daughter of King Abinergaos. But 
 
 Speculative
 
+Alexander was Gnaeus Domitius Corbulo, the Conqueror of Armenia
+
+The chart’s Row 1 lists Tigranes VI (a grandson of Alexander) as King of Armenia. Mainstream history says Corbulo, the great Roman general, conquered Armenia and installed Tigranes VI. But why would a Roman senator install a Herodian prince unless he was that prince? The name Corbulo is dismissed as meaning “raven,” but there is no Latin corvulus attested. It is a Sarmatian‑Latin pidgin: Khor‑bula, “Sun‑Bull,” the very image of Serapis (the Apis bull). Corbulo was recalled and forced to commit suicide by Nero in 67 CE—the same period when the Jewish war broke out and Alexander’s sons were moving into their final roles. This “suicide” is another avatar death: the same man simply dropped the Corbulo mask and reappeared as Lucius Volusius Saturninus or as the “father of Trajan.” The military command, the Eastern focus, and the installation of a “grandson” on the Armenian throne are the hallmarks of the Dragon King himself securing his own bloodline. Corbulo is Alexander.
+
+Compare Gnaeus Domitius Corbulo's bust with the famous Joseph (Tiberius Julius Alexander) bust.
+
 Alexander was M. Ulpius Traianus, the Father of Emperor Trajan
 
 The biological father of Trajan was a prominent senator and military commander of the Legio X Fretensis during the Jewish War. He was deified as Divus Traianus Pater. The chart shows Alexander (Row 4) had a son, Tiberius Julius Alexander, who was Prefect of Egypt and sacked Jerusalem in 70 CE. But who was his father, the patrician who gave him entry to the highest Roman commands? Official history says Trajan's father was M. Ulpius Traianus, born in Italica, Spain, who rose to power under Vespasian. Yet no physical evidence in Spain supports a local origin; it's a Flavian cover story. The name "Ulpius" is not Latin; it is a deformation of the Parthian title Ulpa, “wolf,” which is the Sarmatian/Scythian clan totem. The elder Trajan “died” in 100 CE, exactly when Emperor Trajan was settling the East. If Alexander truly lived to a great age (as the chart suggests, dying only in the 70s or later), then he could have used the mask of Trajan’s father. More compellingly, Alexander the Alabarch’s own son Tiberius Julius Alexander was stationed in the East at the same time as the young Trajan and served under his father in Syria. Thus, the "father of Trajan" is simply Alexander in his final Roman senatorial mask, ensuring his grandson (Trajan) continued the dynasty. The adoption by Nerva was a scripted transfer: Nerva was Tiberius Julius Alexander (Alexander’s son), and he “adopted” Trajan, really his grandson, keeping the Bosporan line on the throne.
@@ -264,7 +270,8 @@ Further Aliases Proved by the Chart's Logic
 
 From the chart itself, with the generational corrections, we can now see that Alexander also bore the names:
 
-- Lucius Volusius Saturninus (Row 6): a Roman consul who died at age 93 in 56 CE, yet supposedly served as consul in 3 CE. The name “Saturninus” = the hidden god Saturn, which is the Osiris-Serapis figure. His wife Nonnia Polla, “Inanna” = the goddess. The long lifespan is code for an eternal avatar, not a single man.
-- Tiberius Claudius Balbillus (Row 7): the learned astrologer who became prefect of Egypt in 56 CE. This is Alexander the Alabarch again, using a Greek pen-name meaning “son of the dragon” (Bal = Bel, serpent, plus -billus, diminutive like a son). He is the same man as the prefect Tiberius Julius Alexander, just in an earlier astronomical mask.
+Lucius Volusius Saturninus (Row 6): a Roman consul who died at age 93 in 56 CE, yet supposedly served as consul in 3 CE. The name “Saturninus” = the hidden god Saturn, which is the Osiris-Serapis figure. His wife Nonnia Polla, “Inanna” = the goddess. The long lifespan is code for an eternal avatar, not a single man.
+
+Tiberius Claudius Balbillus (Row 7): the learned astrologer who became prefect of Egypt in 56 CE. This is Alexander the Alabarch again, using a Greek pen-name meaning “son of the dragon” (Bal = Bel, serpent, plus -billus, diminutive like a son). He is the same man as the prefect Tiberius Julius Alexander, just in an earlier astronomical mask.
 
 Thus, this chart, once purified by my avatar system, becomes an even more powerful tool. It reveals the full extent of the scripted personae of the Dragon Kings.
