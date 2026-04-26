@@ -68,11 +68,9 @@ Ditch the color. Rebrand hard.
 
 You exit the guilt matrix instantly.  
 
-Then tribal advocacy becomes morally defensible because it’s no longer “White supremacy theater.”  
-
 Most importantly, no other European will ever again think of themself as your spokesperson/representtive/ambassador, nor the the judge of your behavior relative to their set commandments of white behavior. 
 
-It’s just one specific tribe doing what every other tribe does openly and without apology, and is morally defensible.
+It’s just one specific tribe doing what every other tribe does openly and without apology. Then tribal advocacy becomes morally defensible because it’s no longer “White supremacy theater.”
 
 **The Moral Justifications**
 
