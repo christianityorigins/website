@@ -32,8 +32,8 @@ Ethnic particularism is the cure: sharp, tribal, unapologetic loyalty to your ac
 **The Category Problem**
 
 - “White” is fake. A modern bureaucratic invention. Deracinating. Universalist poison designed to erase real ethnicity.  
-- “European” does the same trick on steroids — turns distinct peoples into interchangeable monolith.  
-- White and European are secularized varieats of the phrase Christendom subjected to the Christian ethos of sin and set commandments of behavior.
+- “European” does the same trick on steroids — turns distinct peoples into an interchangeable monolith.  
+- White and European are secularized variants of the phrase Christendom subjected to the Christian ethos of sin and set commandments of behavior.
 - Real ethnonationalism means specific groups only. No pan-White. Just your tribe.
 
 **Neo-Christianity: Why “White” Identity Is Still Church**
