@@ -2,7 +2,7 @@
 layout: default
 open_links_in_new_tab: true
 title: "The Historic Identities of the Many Men in Mary Magdalene's Life"
-date: 2015-01-01
+date: 2014-01-01
 category: blog
 ---
 
