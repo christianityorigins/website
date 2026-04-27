@@ -112,16 +112,4 @@ Counter-script when they pull the “as a White person” move:
 
 Importantly, ethnic particularism doesn't require you to like your fellow Europeans or feel kinship with them. It's condition-based, and ethnically particular—you'd apply the same logic to any population.
 
-You only need to admit universalism has hard limits when existential stakes appear — and that ethnic particularism is the only framework letting Europeans defend themselves without starring as the villains in someone else’s redemption fantasy.
-
-Disclaimer:  
-
-This piece is a thought experiment that was inspired by a few things that I have been thinking about for awhile.
-
-1) How could anyone construct an argument in support of ethnonationalist policies while feeling no kinship with other members of their race.
-
-2) Once seeing a right-wing protest at my school and noticing that it was twenty to one Europeans against the protesters. Specifically, the question why the counter protesters felt empowered to self-police their ingroup and signal their piety.
-
-My conclusion is that the root of all the problems facing Europeans is Christianity and its secularized variants. Self-policing their in-group is a residue of monotheism (good vs evil, or left vs right), deracinating universalism, plus the concept of sin and commandments of behavior.
-
-Therefore, ethnonationalism is only workable and justified at the atomic/ethnic level in a Christian designed society, because then through this analytic lens every tribe has the right to advocate for whats in its best interest.
+You only need to admit universalism has hard limits when existential stakes appear — and that ethnic particularism is the only framework letting Europeans defend themselves without starring as the villains in someone else’s redemption fantasy.interest.
