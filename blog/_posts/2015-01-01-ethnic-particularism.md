@@ -122,6 +122,6 @@ This piece is a thought experiment that was inspired by a few things that I have
 
 2) Once seeing a right-wing protest at my school and noticing that it was twenty to one Europeans against the protesters. Specifically, the question why the counter protesters felt empowered to self-police their ingroup and signal their piety.
 
-My conclusion is that the root of all the problems facing Europeans is universalism (Christianity and its secularized variants). Self-policing their in-group is a residue of monotheism (good vs evil, or left vs right), deracinating universalism, plus the concept of sin and commandments of behavior.
+My conclusion is that the root of all the problems facing Europeans is Christianity and its secularized variants. Self-policing their in-group is a residue of monotheism (good vs evil, or left vs right), deracinating universalism, plus the concept of sin and commandments of behavior.
 
 Therefore, ethnonationalism is only workable and justified at the atomic/ethnic level in a Christian designed society, because then through this analytic lens every tribe has the right to advocate for whats in its best interest.
