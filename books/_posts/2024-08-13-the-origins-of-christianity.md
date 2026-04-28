@@ -325,14 +325,11 @@ The Flavians didn't just remake their main enemy's cult, they rewrote history, i
 -    Pharaoh: not "great house". The root is the ancient Indo-Iranian (Scythian) concept of farnah- (Avestan: xᵛarənah). It means Divine Royal Glory. Phraates (Parthia) and Pharnaces (Pontus/Bosporus) are regional linguistic variants of the this tile (farnah-bearer, or god-king).
 -   Piso cognomen: "Appius" is a cognomen (personal name) of the
     Claudian family. Appius and Piso are synonymous (In Greek, Appius is
-    rendered as Appios, from there Piso). The name Piso itself would be
-    a form of Peisistratos/Pisistratos, the leading name of ancient
-    Athens in Greece. (Pisistratos is a Latinized spelling of the Greek
-    Peisistratos). It could be said that all the ruling elite of the
+    rendered as Appios, from there Piso). The name Piso itself in an Iranian-Scythian context mirrors Paisa or Paesa, related to Pahlava (Parthian/Sarmatian noble). Thus "the Parthian". It could be said that all the ruling elite of the
     Julio-Claudian dynasty were Pisos, including Nero who was nearly
-    deposed by a Piso. Appius is also cognate with Arrius (through
+    deposed by a Piso. In the name Calpurnius Piso Cal‑pur‑nius = Kal‑ (Iranian "clan" or Sarmatian "wolf" – cf. Kalb "wolf") + ‑pur‑ (son, from putra in Sanskrit) + ‑nius (Latin suffix). Hence "Son of the Wolf Clan". The wolf is the Scythian totem. So every Calpurnius Piso is the "Wolf-Clan Parthian". Appius is also cognate with Arrius (through
     rhotacization in ancient Latin the /p/ and /r/ could be swapped).
--   Vespasian: Vas/Bas was the royal abbreviation for the Greek word Basilius which = King, and Pasis means "all" in Greek as in Pan. "Vespasian" = "King of All", or "King of Everything" which is a claim to the title "King of Kings" (Shahanshah). Another option: Vas/Bas = King, and -asian = "of Asia" or "the Asian". Vespasian = "The King of Asia".
+-   Vespasian: Vas/Bas was the royal abbreviation for the Greek word Basilius which = King. Ves‑ is also a contraction of Vah‑ / Bah‑, an honorific prefix (cf. Bahram, Vahram). Pas‑ is exactly the Paisa/Pahlav root, plus the adjectival suffix ‑ianus ("belonging to"). Thus Vespasianus = Ves‑pasianus = "Lord of the Pasa (Parthians)" or "King belonging to the Pahlav clan". Vespasians's mother was Vespasia Pollo. Pollio is likely linked to Polemon (Polemon I, king of Pontus). She was a secret descendant of Mark Antony/Cleopatra. Also, their "Sabine" origins are a cover for their Bosporan roots: Suetonius, a Flavian court historian, claims the Flavian family was of "Sabine" origin. This was a lie. They were not Sabine; they were Sabi—priestly Dragon Kings from Scythian Sabi, which means "seven" (a sacred number) and is the root of Sabazios (the Thracian Zeus) and Sabaoth (Lord of Hosts).
 
 2.1 Biblical Figures
 
