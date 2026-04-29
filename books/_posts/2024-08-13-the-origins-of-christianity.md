@@ -1111,10 +1111,12 @@ Endnotes (Chapter 5)
 
 Vespasian was also a great-grandson of Cleopatra and Mark Antony (King
 Herod). He was Herod Pollio aka Herod Agrippa I, grandson of King
-Herod's son Aristobulus IV. Vespasian was his title, not his name
-(Vas/Bas was the royal abbreviation for the Greek word Basilius which =
-King, and Pas means "all" as in Pan. "Vespasian" = "King of All", or "King of Everything" which is a claim to the title "King of Kings") [^26]. Another option: Vas/Bas = King, and -asian = "of Asia" or "the Asian". Vespasian = "The King of Asia". He was also
-'Flavius Scaevinus' the conspirator involved in Nero's assassination.
+Herod's son Aristobulus IV. Vespasian was his title, not his name Vas/Bas was the royal abbreviation for the Greek word Basilius which = King. Ves‑ is also a contraction of Vah‑ / Bah‑, an honorific prefix (cf. Bahram, Vahram). Pas‑ is exactly the Paisa/Pahlav root, plus the adjectival suffix ‑ianus ("belonging to"). Thus Vespasianus = Ves‑pasianus = "Lord of the Pasa (Parthians)" or "King belonging to the Pahlav clan" (another option: Vas/Bas was the royal abbreviation for the Greek word Basilius which =
+King, and Pas means "all" as in Pan. "Vespasian" = "King of All", or "King of Everything" which is a claim to the title "King of Kings") [^26]).
+
+Vespasians's mother was Vespasia Pollo. Pollio derives from Ptolemy, or Polemon. The hypocoristic (pet‑name) form of Ptolemy in Greek was Ptollion. In Latin, that became Pollio (the initial Pt‑ was simplified to P‑, as happened with many Greek loanwords). Ptolemy and Polemon are regional pronunciations of the same Dragon‑King title. In the bible Ptollion was a leader of the Pharisees during the 1st century BCE. Vespasia Pollo was a secret descendant of Cleopatra and her brother-husband Ptolemy XIII Theos Philopator (aka Gaius Octavius (Emperor Augustus) aka Polemon I of Pontus). Also, their "Sabine" origins are a cover for their Bosporan roots: Suetonius, a Flavian court historian, claims the Flavian family was of "Sabine" origin. This was a lie. They were not Sabine; they were Sabi—priestly Dragon Kings from Scythian Sabi, which means "seven" (a sacred number) and is the root of Sabazios (the Thracian Zeus) and Sabaoth (Lord of Hosts).
+
+He was also 'Flavius Scaevinus' the conspirator involved in Nero's assassination.
 
 ![Fig.
 1.51](/images/Vespasian.jpg){:width="400px"}
@@ -1197,9 +1199,14 @@ The plagues were not natural. They were the final solution of the Flavian-Vatica
 
 **7.2 The Flavians (c. 50 BCE – 300 CE)**
 
- The Flavians (the Pālava/Pahlavi clan, a junior branch of the R1 Sarmatian elite) were heavily intermarried with the Judeo-Anatolian J2 priesthood by Vespasian's reign. The haplotype R1a (the famed "Arya" gene) was the dominant haplogroup of the Roman elite before the Flavian empire. After the Flavian reign the haplotype J2/J1 became the dominant haplogroup among the Roman elite [^37](https://inf.news/en/science/bee8bab603736d7530f42b64ea756397.html). The Flavians then created a new ruling ethnicity in Rome—the Neo-Flavians—who were biologically the hybrid Pālava-J2 administrative class. The subsequent Catholic Church was the institutional memory of this coup, a permanent bureaucracy staffed by this new genetic elite, tasked with completing the erasure of their Dragon King predecessors. This is why they erased the Scythian origins of ancient civilizations and painted the Scythians (R1a) as monstrous foreigners. "Flavius" (Pālava/Pahlavi) eventually became Shabbos. From Constantine to Heraklios, for 500 years nearly every single Emperor bore the Flavius (Shabbos) title. By my count, 37 Roman and Byzantine emperors in all bore the honorary title "Flavius", and then later, "Phlabios" (https://en.wikipedia.org/wiki/Special:MobileDiff/1062698821)
+The Flavians (the Pālava/Pahlavi clan, a junior branch of the R1 Sarmatian elite) were heavily intermarried with the Judeo-Anatolian J2 priesthood by Vespasian's reign. The haplotype R1a (the famed "Arya" gene) was the dominant haplogroup of the Roman elite before the Flavian empire. After the Flavian reign the haplotype J2/J1 became the dominant haplogroup among the Roman elite [^37](https://inf.news/en/science/bee8bab603736d7530f42b64ea756397.html). The Flavians then created a new ruling ethnicity in Rome—the Neo-Flavians—who were biologically the hybrid Pālava-J2 administrative class. The subsequent Catholic Church was the institutional memory of this coup, a permanent bureaucracy staffed by this new genetic elite, tasked with completing the erasure of their Dragon King predecessors. This is why they erased the Scythian origins of ancient civilizations and painted the Scythians (R1a) as monstrous foreigners. "Flavius" (Pālava/Pahlavi) eventually became Shabbos. From Constantine to Heraklios, for 500 years nearly every single Emperor bore the Flavius (Shabbos) title. By my count, 37 Roman and Byzantine emperors in all bore the honorary title "Flavius", and then later, "Phlabios" (https://en.wikipedia.org/wiki/Special:MobileDiff/1062698821)
 
-Vespasian then imported 100,000+ Jews into Italy (Josephus - The Jewish War), gave them citizenship and institutional positions, and this began Romes descent into a multi-racialism/multi-culturalism.
+![Fig.
+1.52](/images/VespasianBust.jpg){:width="400px"}
+
+Fig. 1.52. Not only were their names and titles localized to different populations, but so were their depictions. L. The earliest bust of Vespasian and likely the most true to life. R. The Julio-Claudian inspired depiction that is most commonly associated with him.
+
+Vespasian then imported 100,000+ Jews into Italy (Josephus, Jewish War vi), gave them citizenship and institutional positions, and this began Romes descent into a multi-racialism/multi-culturalism.
  
 Roman emperor faces no longer appear on Bosphoran coins after emperor Titus. Roman emperors also stopped looking "Aryan"/Nordic after the Flavian empire.
 
@@ -1543,9 +1550,9 @@ Capitolina after the Bar Kokhba revolt (the city was named after Hadrian's famil
 that Aquila of Sinope and his wife Prisca or Priscilla lived with Paul
 the Apostle and Paul called them "my fellow workers in Christ Jesus"
 
-![Fig.1.52](/images/Antinous.jpg){:width="400px"}
+![Fig.1.53](/images/Antinous.jpg){:width="400px"}
 
-Fig. 1.52. Steel relief that shows Antinous holding the grapes of Dionysus in one-hand and a cross in the other.
+Fig. 1.53. Steel relief that shows Antinous holding the grapes of Dionysus in one-hand and a cross in the other.
 
 The Cult of Antinous failed (overt homoeroticism, too tied to a single emperor) but it did serve as a trial run for later cults (Christianity/Islam).
 
