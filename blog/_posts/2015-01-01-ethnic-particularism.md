@@ -94,12 +94,9 @@ Refuse the label "white". Every single time.
 
 Two instant superpowers:
 
-1. All minority civil-rights protections now apply to you.  
-   “I’m Celto-Germanic, not White” → sue the employer or college forcing you into the White checkbox.
+1. All minority civil-rights protections now apply to you: “I’m Celto-Germanic, not White” → sue the employer or college forcing you into the White checkbox.
 
-2. Every self-appointed White spokesperson loses all power.  
-   HR drones, DEI deans, politicians, academics — their entire moral authority comes from representing “Whiteness.”  
-   Atomize and they’re suddenly talking to no one.
+2. Every self-appointed White spokesperson loses all power: HR drones, DEI deans, politicians, academics — their entire moral authority comes from representing “Whiteness.”. Atomize and they’re suddenly talking to no one.
 
 Counter-script when they pull the “as a White person” move:
 
