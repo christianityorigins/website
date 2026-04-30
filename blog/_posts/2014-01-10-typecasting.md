@@ -206,6 +206,8 @@ http://en.wikipedia.org/wiki/Pliny_the_Elder</p>
 
 My additions:
 
+This chart's value lies in forcing scrutiny of why so many "obscure ancestry" client kings, prefects, and secretaries interlink via the same small pool of Herodian/Ptolemaic women and Tiberius Julius/Marcus Antonius names.
+
 Row 4 gives the son "Julius Tiberius Alexander" (Tiberius Julius Alexander, the Prefect of Egypt). The chart also claims he was Felix, governor of Judea (Row 5, son #2). This is a vital clue: Felix, the Roman procurator who married Drusilla, is described by Tacitus as a "freedman" and "the brother of Pallas." In my system, Pallas is the male pen-name of Cleopatra Thea Philopator, Alexander's sister-wife. Therefore Felix must be Alexander himself, or one of his sons. The chart has two sons, and indeed Felix is listed as the alias for the younger son Marcus Julius Alexander. 
 
 Monobazus I = Ptolemy of Mauretania
