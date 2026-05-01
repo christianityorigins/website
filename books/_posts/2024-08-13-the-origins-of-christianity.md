@@ -190,7 +190,7 @@ Fig. 1.5. L. Tiberius Julius Aspurgus I, king of Bosphorus. R. Emperor Tiberius 
 
 ![Fig.1.6](/images/KadphisesTiberius.jpg){:width="400px"}
 
-Fig. 1.6. Tiberius Julius Aspurgus I, king of Bosphorus aka Emperor Tiberius Caesar Augustus was also Kujula Kadphises, prince of the Kushan Empire which was vast territory stretching from Central Asia into northern India (Kujula = Ku‑ = "son of", Jula = "Julius". So "Kujula" = "son of Julius"?). Kujula Kadphises unifies the Yuezhi tribes and establishes the Kushan Empire right after the "death" of Julius Caesar/Asander. This is not a successor state; it is the same ruler shifting his primary administrative center to Central Asia to manage the Silk Road. The "Yuezhi" are the "Iudii"/"Jove" tribe—the same Scythian-Celtic priestly class. This regional avatar also connects to the legendary Chinese emperor Yu the Great (original name "Aži" or "Yazhi" (亞茲))? Julius, from Ioulius, related to Iove (Jove).
+Fig. 1.6. Tiberius Julius Aspurgus I, king of Bosphorus aka Emperor Tiberius Caesar Augustus was also Kujula Kadphises, prince of the Kushan Empire which was vast territory stretching from Central Asia into northern India (Kujula = Ku‑ = "son of", Jula = "Julius". So "Kujula" = "son of Julius"?). Kujula Kadphises unifies the Yuezhi tribes and establishes the Kushan Empire right after the "death" of Julius Caesar/Asander. This is not a successor state; it is the same ruler shifting his primary administrative center to Central Asia to manage the Silk Road. The "Yuezhi" are the "Iudii"/"Jove" (also Yehuda or Judah) tribe—the same Scythian-Celtic priestly class. This regional avatar also connects to the legendary Chinese emperor Yu the Great (original name "Aži" or "Yazhi" (亞茲))? Julius, from Ioulius, related to Iove (Jove).
 
 ![Fig.1.7](/images/RhoemetalkesIIICaligula.jpg){:width="400px"}\
 Fig. 1.7. L. Rhoemetalkes III, king of Bosphorus. R. Emperor Caligula.
@@ -965,7 +965,7 @@ Fig. 1.40. Coin of Juba II that shows the Roman Aqullia -- the supreme millitary
 ![Fig.
 1.41](/images/JubaIITemple.jpeg){:width="400px"}
 
-Fig. 1.41. Coin of Juba II that shows up on Herod Phillip and later Simon bar Kokhba's coins.
+Fig. 1.41. Coin of Juba II that shows the temple that appears on Herod Phillip and later Simon bar Kokhba's coins.
 
 I identify Cleopatra's brother-husband Ptolemy XIII Theos Philopator as Gaius Octavius (Emperor Augustus) (aka Polemon I of Pontus. Gaius Julius Sohaemus of Emesa. Rhoemetalces I, king of Bosphorus). Rhoemetalces Philocaesar of Pontus was the son of Marcus Antonius Polemon Pythodoros who was married to Pythodoris I (Cleopatra). Polemon I of Pontus was married to Dynamis (Cleopatra). Cleopatra was married to her brother Ptolemy XIII Theos Philopator who was born at the same time as Augustus. He was her brother husband. Asander was also married to Pythodoris I and Dynamis proving these were Cleopatra's aliases. So, was Alexander, son of King Herod aka Alexander Helios aka Juba II also emperor Augustus? If not, he was his brother, as well as, the brother of Amyntas Nikator aka Amyntas, King of Galatia.
 
@@ -1239,7 +1239,7 @@ The Tarim basin mummies are Tocharians, and the Kizilgaha cave portraits deprict
 Alexander the Great = Qin Shi Huang (China’s First Emperor). Both "died" mysteriously at 33 (Alexander in 323 BC; Qin Shi Huang in 210 BC). Alakshandra (Sanskrit) → Qin Shi Huang (Chinese): The "-shandra" morpheme appears in "Shi Huang”" meaning "First Guardian". Qin was founded by Alexander, it starts right exactly around the Greco-Bactrian city states era in Central Asia, it was started by people coming from the West right exactly bordering Central Asia during Greco-Bactrian rule, DA-QIN meaning BIG OR GREATER QIN as a word name term was used to refer to the Roman empire during the "Han dynasty" that came after Qin dynasty which means the QIN people had to have been Greco-Bactrian Seleucids since they equated with Roman type people and they came from the farthest West direction. 
 Qin’s terracotta army has Caucasian features and Hellenistic armor. The character "Qin" (秦) is written with the radicals for "grain" and "man," but its Old Chinese pronunciation was Dzin. This is a direct phonetic match for the Latin Ianus (Janus) and the Sanskrit Yavana (Ionian Greek). The Qin were the Yavanas—the Greeks—from the West. Their sudden rise, standardization of weights/measures, and great wall-building are all hallmarks of an Alexandrian-style conquest state. Greek style coins and statues have been found from this time period, and the terracotta army was built by Greeks from Central Asia [^30], to this day the Chinese currency which came about formally during Qin dynasty era is called a YUAN which is another name for YON-IONIAN Greeks etc.
 
-Julius Caesar aka Asander, king of Bosphorus was Prince Jin Midi in China. Jin (金) means "Gold," a royal Scythian attribute. Mi (日) is "Sun." Di (磾) is a rare character meaning "black," but also a homophone for "Emperor" (帝). His story: A noble "barbarian" prince from the West (Xiongnu confederation, which included Saka/Scythians) is captured and rises to become the most powerful man in China, serving as regent to a child emperor. This is the exact same narrative archetype as a foreigner (Caesar) rising to power in Rome.
+Julius Caesar aka Asander, king of Bosphorus was Prince Jin Midi in China. Jin (金) means "Gold," a royal Scythian attribute. Mi (日) is "Sun." Di (磾) is a rare character meaning "black," but also a homophone for "Emperor" (帝). His story: A noble "barbarian" prince from the West (Xiongnu confederation, which included Saka/Scythians) is captured and rises to become the most powerful man in China, serving as regent to a child emperor. This is the exact same narrative archetype as a foreigner (Caesar) rising to power in Rome. Jin Midi's mother was a noblewoman captured from the Xiongnu, named in Chinese sources simply as the "Xiongnu Queen Mother" but honored with a specific posthumous title: Queen Dowager Xiutu (休屠王后). "Xiutu" (Old Chinese pronunciation: Xiu-duo or Hiu-tuo). It is a direct transcription of the Scytho-Thracian title Soteira (Σώτειρα), the feminine form of Soter. "Soteira" means "Savioress" in Greek, the exact title assigned to Cleopatra VII/Dynamis, who was called Thea Soteira (Goddess Savioress) on inscriptions.
 
 Emperor Tiberius aka Tiberius Julius Aspurgus I, king of Bosphorus was the Chinese emperor Yu the Great. He was also Kadphises, prince of the Kushan Empire. Kujula Kadphises unifies the Yuezhi tribes and establishes the Kushan Empire right after the "death" of Julius Caesar/Asander. The "Yuezhi" are the "Iudii"/"Jove" tribe—the same Scythian-Celtic priestly class. "Yazhi" (亞茲)) = Julius, from Ioulius, related to Iove (Jove). Iove is linguistically linked to the Scythian tribal name Yuehzi (Yuezhi). He is "The Jove/Yuezhi King".
 
@@ -1298,7 +1298,7 @@ Ptolemy II Philadelphus (also Ariarathes III of Cappadocia? -
 
 Alexander's successor to Bactria, Diodotus I Soter, then became the
 successor to Bindusara and ruled India with the regional identity of
-Ashoka the Great (See: "Diodotus I was Ashoka" by Ranajit Pal
+Ashoka (probably from A‑Saka, “of the Saka”) the Great (See: "Diodotus I was Ashoka" by Ranajit Pal
 [^33]).
 
 Mithridates I Ctistes (also known as Mithridates III of Cius) was a son
@@ -1409,7 +1409,7 @@ Plato's "Academy" was the Alexandrian School. "Plato" is not a man. The name is 
 
 **8.2 The 'Achaemenid' Empire is the Parthian Empire**
 
-The Alexandrian School moved history back 300-500 years. They invented the ‘Achaemenid’ Empire as a mirror of the Parthian Empire.
+The Alexandrian School moved history back 300-500 years. They invented the ‘Achaemenid’ Empire as a mirror of the Parthian Empire which itself is a mirror of the Mithridatic-Bosporan dynasty.
 
 In Persia, the "Achaemenid Empire" is a phantom, a Flavian-era literary creation designed to provide a grandiose, conquered enemy for "Alexander the Great", and push the "center" of ancient power further east, away from the Bosphoran core. There are no coins issued in the name of "Cyrus the Great", "Darius I", or "Xerxes". The entire empire, supposedly the largest in the world, allegedly functioned for centuries without a coinage system. The coins we attribute to them are misdated Greco-Bactrian and Parthian issues. There are no contemporary records of Cyrus. Cyrus, Darius, and Xerxes are backdated composites of the sons of Mithridates VI Eupator who were also named Cyrus, Darius, Xerxes, and other Parthian kings.
 
@@ -1421,7 +1421,29 @@ Darius I (c. 522 BC) = Mithridates II of Parthia (c. 124 BC) - Consolidated the 
 
 Xerxes I (c. 486 BC) = Salamis	Orodes II of Parthia (c. 57 BC) - His general Surena annihilates the Roman army at Carrhae.	Both launch massive, failed invasions of "the West" (Greece/Rome). The "Persian Wars" are the Mithridatic Wars.
 
-Zoroastrianism was invented by the Sasanian Empire (3rd-7th C. AD). They needed a state religion to rival Christianity and legitimize their rule. They systematically compiled older Iranian oral traditions and created the Avesta as a "holy book". To give it antiquity, they back-dated Zoroaster to a mythical past (6000 BC). In doing so, they plagiarized the life story of a real person: Pythagoras (Both Pythagoras and the Zoroaster of legend are said to have traveled to Egypt and Babylon for wisdom. Both are masters of occult knowledge and ritual purity. Both believe in the transmigration of souls).
+Arsacid" dynasty itself is not a separate Iranian clan. There is no "Arsaces." Arsaces is a title, and the entire Parthian king list is a duplicate of the Mithridatic-Bosporan dynasty, mirrored westward.
+
+The Title "Arsaces": All Parthian kings bore the throne name "Arsaces" on their coinage. This is universally translated as "of the Arsacid dynasty." But decode it as:
+
+Ar- = Arya (Noble) or Aži (Dragon)
+
+-sak- = Saka (Scythian)
+
+-es = Greek nominative suffix.
+
+Then "Arsaces" means "Aryan-Saka" or "Dragon-Saka." It is an ethnic-clan title, not a personal name. It is the exact equivalent of "Sauromates" (Sun-Lord or Dragon-King of the Sarmatians). No Parthian king issued a coin with a personal name; they were all anonymized under the office title "King Arsaces." This is an avatar system operating under a single dynastic brand name, identical to the way all Bosporan kings used "Tiberius Julius."
+
+Now compare the Parthian "Arsacid" dynasty itself to the Mithridatic-Bosporan dynasty:
+
+Arsaces I (c. 247 BC) = Mithridates I Ctistes of Pontus (c. 281–266 BC). Both are founders who carve a kingdom from Seleucid "control." The names are inverted: Mithridates = "Given by Mithra"; Arsaces = "Saka Lord." Mithridates Ctistes established the kingdom on the Black Sea. The Parthian narrative just relocates him east to Parthia to obscure the Bosporan origin.
+
+Phraates I (c. 176–171 BC) = Pharnaces I of Pontus (c. 190–155 BC). Phonetically identical. Pharnaces I conquered Sinope; Phraates I conquered the Caspian region. Both were the first to take the title "King of Kings" in their respective fabricated histories. They are the same man, with Phraates/Pharnaces being the same root: the farnah-bearer (divine glory).
+
+Mithridates I of Parthia (c. 171–132 BC) = Mithridates V Euergetes of Pontus (c. 150–120 BC). The "conqueror" of the East. Mithridates I of Parthia supposedly seized Mesopotamia. Mithridates V Euergetes was the father of Mithridates VI Eupator. The timeline fits: the small shift is the back-dating mechanic. The Parthian Mithridates I is a retrojected avatar of the Pontic Mithridates V, designed to make it appear that a separate eastern empire existed.
+
+Mithridates II the Great (c. 124–91 BC) = Mithridates VI Eupator (120–63 BC). The synchronism is locked. Mithridates VI fought Rome in three wars. Mithridates II of Parthia supposedly solidified the Silk Road and had diplomatic contact with Rome. The character of "Mithridates II" is the ghostly eastern administrative avatar of Eupator. His general "Surena" who defeated Crassus at Carrhae in 53 BC? Surena is not a name; it's a title: Suren (from Sūrēn, a Parthian noble family). Decode it as the Scythian Sara-ana (King's lineage). This Suren was actually Pharnaces II (your Ptolemy XIV), the son of Mithridates VI, operating under a regional military title to annihilate the Roman army. The Battle of Carrhae (53 BC) was the eastern theater of the Mithridatic Wars. The Parthians and Pontics were the same army.
+
+The entire Parthian king list is a phantom mirror of the Pontic-Bosporan Dynasty of Mithridates, generated by the Alexandrian School to fabricate a "rival eastern empire" that could serve as a narrative foil for Rome and hide the fact that the true power base of the Scythian hegemony was always the Black Sea core. The Flavians later weaponized this phantom to justify their own Eastern campaigns as "conquests" rather than the civil war it was.
 
 **8.3 Fabricating 'Ancient' Egypt**
 
@@ -1485,17 +1507,30 @@ It is possible to identify who wrote the bible by looking at sects of the Imperi
 
 Sometime after the Roman-Jewish wars the Flavians tried to subvert the eastern imperial religion and they created christianity. It seems likely that the Bosphoran imperial religion before Christiantiy was essentially Judaism (see: Chapter 8. Who Forged History?). Jewish rabbis within the Flavian administration who worked as scribes took this religion and they infused a slave morality into it. 
 
-One person who had a hand in writing the New Testament was named Epicteus (See: "Epictetus and the New Testament" by Douglas Simmonds Sharp (1914)) who was the slave to Nero's scribe Tiberius Claudius Epaphroditus or Epaphroditos (c. 20–25 – died c. 95). Epicteus was from Phrygia which had the highest proportion of jews in the Roman empire at the time (https://en.wikipedia.org/wiki/Phrygia#Jews_of_Phrygia), and they were likely of the J1 haplotyped ones as the J1 haplotype is strong in that region. 
+The Gospel of Mark was written by Marcus Antonius Pallas (the freedman) = Philo of Alexandria who was Cleopatra Thea Philopator of Mauretania under a male pen‑name. Pallas was Claudius’s secretary. Under the Julio‑Claudians and Flavians, all imperial correspondence was handled by the secretary a libellis (for petitions) and ab epistulis (for letters). All of Paul’s letters were that correspondence. The entire Pauline corpus was dictated by the imperial secretary in the name of the absent “apostle” Paul. The Epistle to the Romans was a Flavian manifesto, written by Pallas/Philo, sent to the Jewish‑Bosporan community in Rome to pacify them. 
+
+One other Flavian scribe who had a hand in writing the New Testament was named Epicteus (See: "Epictetus and the New Testament" by Douglas Simmonds Sharp (1914)) who was the slave to Nero's scribe Tiberius Claudius Epaphroditus or Epaphroditos (c. 20–25 – died c. 95). Epicteus was from Phrygia which had the highest proportion of jews in the Roman empire at the time (https://en.wikipedia.org/wiki/Phrygia#Jews_of_Phrygia), and they were likely of the J1 haplotyped ones as the J1 haplotype is strong in that region. 
+
+Epaphroditus is also called Epaphras in Paul’s letter to the Colossians (1:7, 4:12). Paul calls Epaphras “our dear fellow servant” and Epaphras founded the church at Colossae. So Paul and Epaphras/Epaphroditus are distinct but working together. 
 
 Epictetus had a Roman teacher named Gaius Musonius Rufus (c. 20-30-died c. 101) who was a Roman Stoic philosopher. Gaius Musonius Rufus was also a teacher of Dio Chrysostom (c. 40 – c. 115 AD). Josephus opened his book "Jewish Wars" and "History of the Jews" (Antiquities) by addressing them to: "kratistos (most excellent) Epaphroditus".
 
-Epicteus and Pilny the Younger were both in the same places at the same time; Rome, Nicopolis, and Bithynia-Pontus, and Pliny the Younger was a Roman administrator in Bithynia and Pontus at the same time Marcion was in Sinope, so these people knew each other.
- 
-Epictetus (c. 50–135) fits the typecasting of a rabbi named Akiva (c. 50–135). If Epictetus = rabbi Akiva then this would put all the pieces together. 
+Epictetus = Epaphroditus using a literary device of master/slave.
 
-Rabbi Akiva was a teacher of of a man named Aquila of Sinope aka Onkelos. His other student was Markianos of Alexandria
+Epicteus and Pilny the Younger were both in the same places at the same time; Rome, Nicopolis, and Bithynia-Pontus, and Pliny the Younger was a Roman administrator in Bithynia and Pontus at the same time Marcion was in Sinope, so these people knew each other.
+
+Another Flavian scripe was a man named Aquila of Sinope aka Onkelos. The midrash
+(Tanhuma. 41a, Mishpatim 3) claims that Aquila of Sinope aka Onkelos was a nephew of Hadrian
+and other jewish sources list him as a nephew of emperor Titus (Tractate Gittin (56b)). Emperor Hadrian employed Aquilla of Sinope to rebuild Jerusalem as Aelia
+Capitolina after the Bar Kokhba revolt (the city was named after Hadrian's family name (Aelia) and the Roman god Jupiter (Capitolina)). In Acts 18:2-3 and Romans 16:3 NASB, it is claimed
+that Aquila of Sinope and his wife Prisca or Priscilla lived with Paul
+the Apostle and Paul called them "my fellow workers in Christ Jesus"
+
+If Aquila = a rabbi named Akiva (the name “Akiva” is a Semitic rendering of the Latin Aquila, meaning “eagle”. The eagle was the symbol of Jupiter, of Roman imperium, and of the Flavian dynasty) then this would put all the pieces together. 
+
+Rabbi Akiva was a claimed teacher of Aquila of Sinope aka Onkelos. His other students were Markianos of Alexandria
 aka Marcion (Greek Markion) of Sinope, also, Shimon bar Yohai aka Simon Peter
-(Shimon bar Yonah), Ketia bar Shalom aka 'Clement of
+(Shimon bar Yonah), Levi Mattathias (who wrote the Gospel of Matthew), Ketia bar Shalom aka 'Clement of
 Rome' (hebrew Ketia is the same as Latin Clement), Aristo of Pella who
 is a good candidate for being Luke the Evangelist ('Aristo', or
 'Ariston' is a name that is related to 'Proteus' The former means
@@ -1509,7 +1544,7 @@ equivalent of Greek Jude), and Rabbi Meir aka Polycarp aka Bishop
 ignatius (the name "Meir" means "one who illuminates". Ignatius means
 firey one and Polycarp was famous for lighting himself on fire).
 
-Rabbi Akiva was likely Paul the Apostle. In Acts 22:3 "Paul" claims to
+Aquila aka Rabbi Akiva was likely Paul the Apostle. In Acts 22:3 "Paul" claims to
 have been educated at the feet of Gamaliel who was the teacher of rabbi
 Akiva, and in Acts 18:2-3 and Romans 16:3 NASB, it is claimed that
 Aquila of Sinope and his wife Prisca or Priscilla lived with Paul the
@@ -1517,9 +1552,7 @@ Apostle and Paul called them "my fellow workers in Christ Jesus.
 Paul's/Saul's fictional life story was stolen from the ancient Egyptian
 story"Tale of the Shipwrecked Sailor".
 
-The midrash
-(Tanhuma. 41a, Mishpatim 3) claims that Aquila of Sinope aka Onkelos was a nephew of Hadrian
-and other jewish sources list him as a nephew of emperor Titus (Tractate Gittin (56b)). So, these J1 haplotyped jews in Roman used their connections to power to subvert the empire with a mind virus. They may have already been scribes working for the Flavians in subverting the cult of King Izates of Adiabene and realized at the time the power of slave morality religions. 
+So, these J1 haplotyped jews in Roman used their connections to power to subvert the empire with a mind virus. They may have already been scribes working for the Flavians in subverting the cult of King Izates of Adiabene and realized at the time the power of slave morality religions. 
 
 Zeus became Baal-Zebub in the bible: Zeus Belos (Greek: Zeus Baal) ->
 Baal-Zebul -> Baal-Zebub ("Lord of the Flies") in 2 Kings 1:2-3.Jesus
@@ -1584,30 +1617,28 @@ The Cult of Antinous failed (overt homoeroticism, too tied to a single emperor) 
 
 Islam is a surviving (albeit subverted) sect of an Alexandrian School Imperial Cult that had its roots in the Serapis, Flamen Dialis, and the Antinous cults.
 
-King Izates of Monobazus's (Isa in the Quran) son was named Zamaris (Zamaris the Babylonian jew) and Zamaris has the same meaning as Muhammad.
+King Izates, or Izas, is an ancient Greek translation of the Avestan word Yazatas (Persian:
+izad), meaning 'lord'. He is one of the Jesus avatars, Isa in the Quran, and Sultan Ezid in the Yazadi ('Iza'di) religion.
 
-In the book 'Hagarism: The Making of the Islamic World' (1977) by Patricia Crone and Michael Cook they trace the origins of Islam to 'The Secrets of Shimon bar Yochai' [^38] which is a record of the "divine visions" of the 2nd-century rabbi, Simon ben Yohai aka Simon Peter (Shimon bar Yonah) who was a student of rabbi Akiva, to his students. They theorize that Islam was started as a psy-op to weaponize the Arabs to attack the Byzantine empire (eastern Rome) to free judea. 
+Yazidism is the unchanged pre-Christian, pre-Flavian religion of the Bosporan royal house, preserving the original Serapis-Sabazios theology in its purest form. Yazidis worship Melek Taus, the Peacock Angel, who is their primary deity, identified with the creator God who delegated the world's affairs to seven archangels. Melek Taus: Melek = Semitic for "King" (cf. Moloch, Malik). Taus = This is the same as Tavus (Persian: peacock). But in Scythian-Anatolian context, it is Tau-us, the Tau-cross Serpent. The peacock is a solar-symbolic bird, but its feathers have the "eyes" of the serpent. Melek Taus is the Scythian Aži Dahāka, the Dragon King, merged with the serpent and the sun. This is the exact theology of Serapis: the solar-serpentine god of the underworld and resurrection.
 
-Shimon bar Yohai wrote that his "secrets" were revealed to him when he was hiding in a cave on account of the persecutions of Caesar king of Edom (Rome). His secrets were his blueprint for the destruction of Rome (Esau/Edom) and all western "gyrwn" (Aramic form of goyim) through using "Ishmael" (Arabs) and "four-arms" (Indians).
+Islam is Yazidism repurposed as a militarized slave-morality for the Arab conquests, created by the same Adiabene-J2 scribal network that had previously created Christianity. It is the third and most successful iteration of the Flavian imperial cult, designed to complete the demographic erasure of the R1a Dragon Kings in the East and to permanently establish the J2/J1 priestly-financier class as the rulers of the known world under a new, simplified, universal monotheism.
+
+I trace the origins of Islam to 'The Secrets of Shimon bar Yochai' [^38] which is a record of the "divine visions" of the 2nd-century rabbi, Simon ben Yohai aka Simon Peter (Shimon bar Yonah) who was a student of rabbi Akiva, to his students. Shimon bar Yohai wrote that his "secrets" were revealed to him when he was hiding in a cave on account of the persecutions of Caesar king of Edom (Rome). His secrets were his blueprint for the destruction of Rome (Esau/Edom) and all western "gyrwn" (Aramic form of goyim) through using "Ishmael" (Arabs) and "four-arms" (Indians).
 
 According to his prophecy, after Ishmael weakens Edom (Rome) and then "dies a noble death", the jews would import millions of four-arms ("Chaturbhuja" in Sanskri means "four-armed" and many Hindu deities are depicted with four-arms, including Vishnu) to dilute the Roman population and finish the job.
 
 In Jerusalem Talmud Kiddushin, Rabbi Shimon bar Yochai stated: "Kill the best of Gentiles, smash the head of the best of snakes". He was the biggest proponent of the belief that Rome was Edom.
 
+Muhammad, or "The "Praised One" is a direct Arabic translation of the Scythian title *Yasht" or Yazata (worthy of worship, praised). Izates (Izas) means "Lord" (from Yazata). Muhammad is the Arabic-language version of the same title. King Izates's son was named Zamaris (Zamaris the Babylonian jew) and Zamaris has the same meaning as Muhammad.
+
 Allah and Muhammad the red-headed warlord then became parodies of Attila the Hun [^39] and his uncle Ruglia waging war against Rome (Edom) because they wanted the Arabs to attack eastern Rome. 
 
 So, Talmudic jews who were hiding out in the Himyarite Kingdom after
 Emperor Hadrian kicked them out of judea, and who were students of Rabbi Akiva, basically just cut-and-pasted
-from one of the Bosphoran/Adiabene/Roman imperial cults of the time and created two sects: Christianity as a
-slave morality/proto-Bolshavism for the Romans and Islam as a warrior morality to weaponize the Arabs to attack Rome. It is impossible to get people to abandon their religions for a new one, so they created sects of one of the popular religions at the time and infused the trojan horse ideology into it.
-This conspiracy was so sophisticated that not only did they rewrite the
-imperial cult, but they rewrote history to align with their psy-op.
-Josephus's (Tiberius Julius Alexander aka Emperor Nerva) works were
-rewritten by Rabbi Akiva's students under the alias Hegesippus. The book
-'The Antiquities of the Jews' then became a pseudo-epigraphical work (of
-propaganda) that was backdated to make christianity look legitimate in
-the same way that the 'Letter of Aristeas' was backdated to exaggerate
-the age of the Septuagint. 
+from one of the Bosphoran/Adiabene  imperial cults of the time, which was basically Yazidism, and created Islam as a warrior morality to weaponize the Arabs to attack R1a Scythians. 
+
+The Arab conquests were not a spontaneous eruption from the desert. They were a meticulously planned J2 coup d'état against both the Byzantine and Sassanid empires from within, using a new religion as the unifying ideology for the multi-ethnic slave-soldier armies. The ultimate goal was the complete erasure of the Dragon King bloodline and its replacement with a manageable, slave-soldier population. The Arab conquests swept across the Middle East and North Africa, carrying out the systematic genocide and replacement of the remaining R1a-V88 Berber and R1a-Z93 Parthian/Sassanid elites. The religion of Islam provided the perfect ideological justification: submission to a single, abstract God whose earthly stewards were the ulama (the J2 priestly class). The Caliphate was the new Flavian dynasty, ruling a restored universal empire from Baghdad, with Islam as its Christianity and the Arabs as its Germanic legions.
 
 Endnotes (Chapter 9)
 
