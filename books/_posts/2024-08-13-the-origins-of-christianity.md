@@ -349,9 +349,9 @@ The genealogies in Genesis match the Bosporan king list when translated via Gree
 
 **3 The Sarmatian Dragon Cult**
 
-The Hyperboreans were a real Bronze Age civilization in the Ural-Volga region of modern Russia who spread their culture southward via the Kurgan hypothesis (c. 4000 BC). They were the survivors of the Doggerland cataclysm (c. 6150 BC), when a submarine landslide (the Storegga Slide) caused a massive tsunami that flooded the North Sea plain. The "Hyperboreans" were the Doggerland elite. The legends of a advanced people "from beyond the North Wind" living in a circular city (Plato's Atlantis) are memories of Doggerland. Their civilization was based on megalithic architecture and a sophisticated, rune-like symbolic language. After the flood, the survivors—the "Dragon Bloodline"—fled eastward to the Pontic-Caspian Steppe, becoming the equestrian Scythians. They carried with them the technology of megalith building (hence Stonehenge, built by their descendants as a memory of their lost homeland) and the core of the "Dragon" religion.
+The Hyperboreans were a real Bronze Age civilization in the Ural-Volga region of modern Russia who spread their culture southward via the Kurgan hypothesis (c. 4000 BC). They were the survivors of the Doggerland (a vast temperate lowland connecting Britain to the continent) cataclysm (c. 6150 BC), when a submarine landslide off Norway (the Storegga Slide) caused a massive tsunami that flooded the North Sea plain. The "Hyperboreans" were the Doggerland elite. The legends of a advanced people "from beyond the North Wind" living in a circular city (Plato's Atlantis) are memories of Doggerland's circular megalithic complexes. Their civilization was based on megalithic architecture and a sophisticated, rune-like symbolic language. After the flood, the survivors—the "Dragon Bloodline"—fled eastward to the Pontic-Caspian Steppe, becoming the equestrian Scythians. They carried with them the technology of megalith building (hence Stonehenge, built by their descendants as a memory of their lost homeland) and the core of the "Dragon" religion.
 
-Their descendants were the Scythians. One offshoot of the Scythians were a tribe called the Sarmatians (also called Sauromatians
+The Hyperboreans were the proto-Aryan elite—tall, robust Cro-Magnons who had developed megalithic astronomy, advanced boat-building, and a complex star-religion. Their descendants were the Scythians. One offshoot of the Scythians were a tribe called the Sarmatians (also called Sauromatians
 ("Saur" = "Lizard/Dragon" + "Matae" = "Men/Warriors" - where the
 Sumerian "sar" (king) comes from) who were a nomadic Indo-Iranian warrior
 elite from the Pontic steppe (modern Ukraine/Russia). The domestication
@@ -952,6 +952,21 @@ even has a story about a 'spurious Alexander' that showed up in Rome
 claiming to be the son of Herod who faked his death, so he was
 'resurrected' as Juba II, king of Numidia and Mauretania. 
 
+![Fig.
+1.39](/images/JubaIISC.jpg){:width="400px"}
+
+Fig. 1.39. Coin of Juba II that shows the Star and Crescent that is also on Asander, Julius Caesar, Dynamis and Cleopata's coins
+
+![Fig.
+1.40](/images/JubaIIAquilla.jpeg){:width="400px"}
+
+Fig. 1.40. Coin of Juba II that shows the Roman Aqullia -- the supreme millitary symbo of Rome whicn also appeared on Ptolemaic coins.
+
+![Fig.
+1.41](/images/JubaIITemple.jpeg){:width="400px"}
+
+Fig. 1.41. Coin of Juba II that shows up on Herod Phillip and later Simon bar Kokhba's coins.
+
 I identify Cleopatra's brother-husband Ptolemy XIII Theos Philopator as Gaius Octavius (Emperor Augustus) (aka Polemon I of Pontus. Gaius Julius Sohaemus of Emesa. Rhoemetalces I, king of Bosphorus). Rhoemetalces Philocaesar of Pontus was the son of Marcus Antonius Polemon Pythodoros who was married to Pythodoris I (Cleopatra). Polemon I of Pontus was married to Dynamis (Cleopatra). Cleopatra was married to her brother Ptolemy XIII Theos Philopator who was born at the same time as Augustus. He was her brother husband. Asander was also married to Pythodoris I and Dynamis proving these were Cleopatra's aliases. So, was Alexander, son of King Herod aka Alexander Helios aka Juba II also emperor Augustus? If not, he was his brother, as well as, the brother of Amyntas Nikator aka Amyntas, King of Galatia.
 
 Was he also Jesus ben Panthera? "Panthera" is a Hellenized corruption of "Ptolemaios" (Ptolem -> Ptol -> Panther). "Jesus, son of Ptolemy". The Talmud (Bereshit Rabbah 46:10) calls Izates and Monobazus the "Sons of Ptolemy".
@@ -993,9 +1008,9 @@ Theophilos in Greek. Around 26% of the New Testament was written to
 Theophilus in Luke and Acts of the Apostles).
 
 ![Fig.
-1.39](/images/AlexanderPhilo.jpg){:width="400px"}
+1.42](/images/AlexanderPhilo.jpg){:width="400px"}
 
-Fig. 1.39. (L) Alexander (grandson of King Herod) aka Gaius Julius
+Fig. 1.42. (L) Alexander (grandson of King Herod) aka Gaius Julius
 Alexander, Herodian Prince of Judaea aka Alexander the Alabarch aka
 (King/Tetrarch) Ptolemy (Alexander) bar Menneus aka Ptolemy of
 Mauretania aka "Jesus" in the bible. (R) Cleopatra (Thea Philopator) of
@@ -1015,9 +1030,9 @@ Adiabene/Edessa aka Ptolemy aka Yakov Zu Tolomoy aka Izates aka Jesus
 Emmanuel aka Monobazus of Adiabene [^23]
 
 ![Fig.
-1.40](/images/Josephus.jpg){:width="400px"}
+1.43](/images/Josephus.jpg){:width="400px"}
 
-Fig. 1.40. 'Josephus' bust which I identify as Tiberius Julius
+Fig. 1.43. 'Josephus' bust which I identify as Tiberius Julius
 Alexander. Compare it to Nerva's depictions. So, 'Josephus' was Philo of
 Alexandria's son. Tiberius Julius Alexander's son was named
 'Philopappos' and one of his mother's aliases was 'Alexandria bat
@@ -1025,9 +1040,9 @@ Matthias' which is where the pseudonym 'Joseph bar Matthias' comes from.
 Also, drop the initial b and final s in the name "Bar Mathias" and you
 get (Joseph of) Arimathea.
 
-![Fig. 1.41](/images/coin-abgar-phraates.png){:width="400px"}
+![Fig. 1.44](/images/coin-abgar-phraates.png){:width="400px"}
 
-Fig. 1.41. (L) and (R) show King Izates Monobazus of Edessa (known in
+Fig. 1.44. (L) and (R) show King Izates Monobazus of Edessa (known in
 Greek as the "Kingdom of Ourania" or in English as the "Kingdom of
 Heaven") wearing a crown of thorns. Izates or Izas is his title which is
 an ancient Greek translation of the Avestan word Yazatas (Persian:
@@ -1038,9 +1053,9 @@ source: The Alexander Mosaic, Huqoq, Israel.
 
 **5.3.7. Tiberius Julius Sauromates II**
 
-![Fig.1.42](/images/SauromatesII.jpg){:width="400px"}
+![Fig.1.45](/images/SauromatesII.jpg){:width="400px"}
 
-Fig. 1.42. Tiberius Julius Sauromates II, King of Bosphorus, who was the
+Fig. 1.45. Tiberius Julius Sauromates II, King of Bosphorus, who was the
 son of Tiberius Julius Cotys (aka Tiberius Julius Alexander aka Arrius
 Calpernius Piso aka Arrius Varus aka Emperor Nerva), great-grandson of
 Dynamis aka Cleopatra and Mark Antony. Does he look
@@ -1050,39 +1065,39 @@ referring to the Scythian tribe who came from the Pontic steppe. Sauromates has 
 means 'snake' or 'reptile' and 'mates' means 'man' or 'warrior'. Therefore, translated literally in Greek ΒΑCΙΛΕΩC CΑVΡΟΜΑΤΟΥ means "King of the
 snake people", or "king of the dragon people". In ancient Scythian/Iranian Saura = "sun" (cognate with Sanskrit Surya) and -matas = "ruler, lord", so Sauromates translates to "Sun Lord" or "Sun King". Also note that his father was Tiberius Julius Rhoemetalces and Rhoemetalces translates to "King of Rhoem" in ancient Tracian and at the root of Sauromates is "ROMA"? In Scythian, the root Roma or Ruma means "dragon" or "serpent" (Rome = "Place of the Dragon"). If Sauromatians or Sauromates originally connotated Rome/Rhome/Rum (Saromates: Sar- = King, -oma- = Rhoma, -tes = of = "King of Rome"?) then this would prove my theories beyond any doubt. He was the great (or great-great?)-grandson of Ptolemy XII Auletes aka Mark Antony aka Mithridates VI Eupator and his daughter Cleopatra aka Dynamis.
 
-![Fig.1.43](/images/SauromatesCross.jpg){:width="400px"}
+![Fig.1.46](/images/SauromatesCross.jpg){:width="400px"}
 
-Fig. 1.43. Coin of Tiberius Julius Sauromates II that displays a cross in the right corner.
+Fig. 1.46. Coin of Tiberius Julius Sauromates II that displays a cross in the right corner.
 
-![Fig.1.44](/images/SauromatesCrown.jpg){:width="400px"}
+![Fig.1.47](/images/SauromatesCrown.jpg){:width="400px"}
 
-Fig. 1.44. Another coin of Tiberius Julius Sauromates II that displays a cross and what appears to be a crown of thorns (source: bosporan-kingdom.com/769-5139).
+Fig. 1.47. Another coin of Tiberius Julius Sauromates II that displays a cross and what appears to be a crown of thorns (source: bosporan-kingdom.com/769-5139).
 
-![Fig.1.45](/images/Thorns.jpg){:width="400px"}
+![Fig.1.48](/images/Thorns.jpg){:width="400px"}
 
-Fig. 1.45. Another coin of Tiberius Julius Sauromates II where he is wearing what appears to be a crown of thorns (source: bosporan-kingdom.com/731-4539).
+Fig. 1.48. Another coin of Tiberius Julius Sauromates II where he is wearing what appears to be a crown of thorns (source: bosporan-kingdom.com/731-4539).
 
-![Fig.1.46](/images/SauromatesBust.jpg){:width="400px"}
+![Fig.1.49](/images/SauromatesBust.jpg){:width="400px"}
 
-Fig. 1.46. Bust of Tiberius Julius Sauromates II found at the theatre of Dionysos, Athens. The bust depicts him emerging from a cluster of acanthus leaves at the base symbolizing resurrection. Acanthus leaves are one of the most potent symbols of resurrection in ancient Mediterranean art. Acanthus leaves symbolize rebirth, immortality, and the cyclical nature of life in art and architecture. Acanthus leaves are often used in Christian art to depict the resurrection of Jesus Christ.
+Fig. 1.49. Bust of Tiberius Julius Sauromates II found at the theatre of Dionysos, Athens. The bust depicts him emerging from a cluster of acanthus leaves at the base symbolizing resurrection. Acanthus leaves are one of the most potent symbols of resurrection in ancient Mediterranean art. Acanthus leaves symbolize rebirth, immortality, and the cyclical nature of life in art and architecture. Acanthus leaves are often used in Christian art to depict the resurrection of Jesus Christ.
 
-![Fig.1.47](/images/SauromatesAquila.jpg){:width="400px"}
+![Fig.1.50](/images/SauromatesAquila.jpg){:width="400px"}
 
-Fig. 1.47. Coin of Tiberius Julius Sauromates II displaying the sacred Roman Imperial Eagle (Aquila) — the supreme military symbol of Rome. No foreign king would be allowed to use the Roman Aquila — this was punishable by death. The Aquila was only carried by Roman legions and appeared on coins of Roman Emperors and Ptolemaic Pharaohs only. (source: https://bosporan-kingdom.com/618-4052/)
+Fig. 1.50. Coin of Tiberius Julius Sauromates II displaying the sacred Roman Imperial Eagle (Aquila) — the supreme military symbol of Rome. No foreign king would be allowed to use the Roman Aquila — this was punishable by death. The Aquila was only carried by Roman legions and appeared on coins of Roman Emperors and Ptolemaic Pharaohs only. (source: https://bosporan-kingdom.com/618-4052/)
 
-![Fig.1.48](/images/KanishkaI.jpg){:width="400px"}
+![Fig.1.51](/images/KanishkaI.jpg){:width="400px"}
 
-Fig. 1.48. Was the father of Tiberius Julius Sauromates II named Tiberius Julius Rhoemetalces also Kanishka I, also known as Kanishka the Great? (Kanishka = "Khan-Isha" (Scythian: "Khan-Lord")) was an emperor of the Kushan dynasty (modern day Afghanistan through India). This would mean that the Flavians only seized the western administration and rewrote its history. The eastern administration (Kushan) continued the old system for centuries. Kanishka I was the leader of the "Yuezhi" ("Iudii"/"Jove") tribe.
+Fig. 1.51. Was the father of Tiberius Julius Sauromates II named Tiberius Julius Rhoemetalces also Kanishka I, also known as Kanishka the Great? (Kanishka = "Khan-Isha" (Scythian: "Khan-Lord")) was an emperor of the Kushan dynasty (modern day Afghanistan through India). This would mean that the Flavians only seized the western administration and rewrote its history. The eastern administration (Kushan) continued the old system for centuries. Kanishka I was the leader of the "Yuezhi" ("Iudii"/"Jove") tribe.
 
-![Fig.1.49](/images/TiberiusJuliusCotysII.jpg){:width="400px"}
+![Fig.1.52](/images/TiberiusJuliusCotysII.jpg){:width="400px"}
 
-Fig. 1.49. Coin depicting Tiberius Julius Cotys II who was the grandfather of Tiberius Julius Sauromates II. Was he also Simon bar Kokhba? Bar Kokhba means "Son of the Star". The star iconography is prominent in coins of Tiberius Julius Sauromates II and his son Rheskuporis V and directly links to the "Star and Crescent" symbolism on the coins of Asander/Julius Caesar and Dynamis/Cleopatra. He led the Bar Kokhba revolt (132-136 AD) against Rome. As heir to the dragon crown he would have had a claim to the emperor position.
+Fig. 1.52. Coin depicting Tiberius Julius Cotys II who was the grandfather of Tiberius Julius Sauromates II. Was he also Simon bar Kokhba? Bar Kokhba means "Son of the Star". The star iconography is prominent in coins of Tiberius Julius Sauromates II and his son Rheskuporis V and directly links to the "Star and Crescent" symbolism on the coins of Asander/Julius Caesar and Dynamis/Cleopatra. He led the Bar Kokhba revolt (132-136 AD) against Rome. As heir to the dragon crown he would have had a claim to the emperor position.
 
 Tiberius Julius Cotys II was the son of Tiberius Julius Sauromates I.
 
-![Fig.1.50](/images/SauromatesIBarKokhba.jpg){:width="400px"}
+![Fig.1.53](/images/SauromatesIBarKokhba.jpg){:width="400px"}
 
-Fig. 1.50. L. coin issued for Tiberius Julius Sauromates I. R. Coin issued for Simon Bar Kokhba. (Source: https://rpc.ashmus.ox.ac.uk/coins/3/867 and: https://en.wikipedia.org/wiki/Bar_Kokhba_Revolt_coinage)
+Fig. 1.53. L. coin issued for Tiberius Julius Sauromates I. R. Coin issued for Simon Bar Kokhba. (Source: https://rpc.ashmus.ox.ac.uk/coins/3/867 and: https://en.wikipedia.org/wiki/Bar_Kokhba_Revolt_coinage)
 
 Endnotes (Chapter 5)
 
@@ -1120,9 +1135,9 @@ Vespasians's mother was Vespasia Pollo. Pollio derives from Ptolemy, or Polemon.
 He was also 'Flavius Scaevinus' the conspirator involved in Nero's assassination.
 
 ![Fig.
-1.51](/images/Vespasian.jpg){:width="400px"}
+1.54](/images/Vespasian.jpg){:width="400px"}
 
-Fig. 1.51. L. Vespasian. R. Herod Agrippa I
+Fig. 1.54. L. Vespasian. R. Herod Agrippa I
 
 'Antonia Caenis' was Vespassian's mistress who was his first cousin who
 was Cleopatra (Thea Philopator) of Mauretania aka Cleopatra IX aka
@@ -1203,9 +1218,9 @@ The plagues were not natural. They were the final solution of the Flavian-Vatica
 The Flavians (the Pālava/Pahlavi clan, a junior branch of the R1 Sarmatian elite) were heavily intermarried with the Judeo-Anatolian J2 priesthood by Vespasian's reign. The haplotype R1a (the famed "Arya" gene) was the dominant haplogroup of the Roman elite before the Flavian empire. After the Flavian reign the haplotype J2/J1 became the dominant haplogroup among the Roman elite [^37](https://inf.news/en/science/bee8bab603736d7530f42b64ea756397.html). The Flavians then created a new ruling ethnicity in Rome—the Neo-Flavians—who were biologically the hybrid Pālava-J2 administrative class. The subsequent Catholic Church was the institutional memory of this coup, a permanent bureaucracy staffed by this new genetic elite, tasked with completing the erasure of their Dragon King predecessors. This is why they erased the Scythian origins of ancient civilizations and painted the Scythians (R1a) as monstrous foreigners. "Flavius" (Pālava/Pahlavi) eventually became Shabbos. From Constantine to Heraklios, for 500 years nearly every single Emperor bore the Flavius (Shabbos) title. By my count, 37 Roman and Byzantine emperors in all bore the honorary title "Flavius", and then later, "Phlabios" (https://en.wikipedia.org/wiki/Special:MobileDiff/1062698821)
 
 ![Fig.
-1.52](/images/VespasianBust.jpg){:width="400px"}
+1.55](/images/VespasianBust.jpg){:width="400px"}
 
-Fig. 1.52. Not only were their names and titles localized to different populations, but so were their depictions. L. The earliest bust of Vespasian and likely the most true to life. R. The Julio-Claudian inspired depiction that is most commonly associated with him.
+Fig. 1.55. Not only were their names and titles localized to different populations, but so were their depictions. L. The earliest bust of Vespasian and likely the most true to life. R. The Julio-Claudian inspired depiction that is most commonly associated with him.
 
 Vespasian then imported 100,000+ Jews into Italy (Josephus, Jewish War vi), gave them citizenship and institutional positions, and this began Romes descent into a multi-racialism/multi-culturalism.
  
@@ -1314,10 +1329,16 @@ Calami is a village located in the Kannur district of Kerala,
 Lost in history is that the greatest slave trade wasn't the Trans-Atlanic one, but the jewish (Calami) ran transfer of Ethiopians into India during the spice and marble trade. Dravidians are Ethiopians who the jews imported into India via South India and Sri Lanka. There is a straight line route from Ethiopia to Sri Lanka via boat. Also, during this slave trade the jews created a settlement in
     Ethiopia for their slave trade business, hence Ethiopian Jews being
     a thing, and Cochin Jews existing on the south west section of
-    India. "Habshi" is what Northern Indians called  Southern Indians
-    and Habesha comes from "Abyssinia" which refers to Ethiopia. These
-    Ethiopian slaves then mixed with indigenous Australoid/Denisovans
-    who were similar to Australian Aborigines. Eventually they mixed with the indigenous Scythians (likely by force and genocide run by the Calami).
+    India. 
+    
+  This was not mere commerce. It was demographic engineering designed to break the spine of the Aryan caste system.  
+    
+From at least 500 CE, Jewish merchant houses (the Radhanites, the Cochin Jews) controlled the sea route from the Horn of Africa to the Malabar coast. Ethiopian captives, sold by the J1-linked Solomonic kings of Aksum, were transported en masse to South India. The trade peaked after the collapse of the Gupta empire (6th century CE) and under the Rashtrakuta dynasty (8th–10th centuries), which used Habshi slave-soldiers to counter the power of the indigenous Kshatriya clans, many of whom still carried high frequencies of R1a-Z93.
+
+These Ethiopian slaves were not just labour. They were systematically bred with the local Dravidian-Australoid population, creating a new, genetically distinct underclass that diluted the older Indo-Aryan bloodlines. The term “Habshi” is what Northern Indians called  Southern Indians
+    and Habesha comes from "Abyssinia" which refers to Ethiopia. "Abyssinia" also refers to the Habshi military commanders—such as Malik Ambar in the Deccan—who eventually became kingmakers. By the time of the Bahmani Sultanate, the ruling elite of the Deccan was heavily African-admixed, and the old Kshatriya lineages had been either exterminated or pushed into the far north (Rajputs, Jats).
+
+Why? The J2/J1 priestly network, having overthrown the Bosphoran Dragon Kings, feared any resurgence of R1a-Z93 warrior aristocracies. India, with its still-surviving caste of Brahmins and Kshatriyas bearing the old steppe markers, was a potential source of revival. By flooding the subcontinent with millions of slaves of African and Australoid stock, the network ensured that any future rebellion would lack a pure genetic base. The caste system itself was a genetic cordon sanitaire to keep the old bloodlines pure, but the slave waves eroded it from below. The modern South Indian gene pool—full of E-M2 and H—is the gravestone of the Scythian lords who once ruled the Deccan.
 
 **7.5 The Middle East and North Africa: Invasions and Slave Colonization (250 - 650 CE)**
 
@@ -1332,6 +1353,8 @@ The destruction of the Aryans in the Middle East and North Africa was done in th
 Their primary targets were not cities, but the countryside—the latifundia estates still held by the old R1a landowning families. Systematic slaughter of adult males, enslavement of women and children.
 
 The Arabs also engaged in slave breeding. Cities like Basra and Kufa were not military camps; they were human hatcheries. The scale is understated. Estimates based on tax records suggest 5-7 million East African (Zanj) and Caucasian slaves were imported into Mesopotamia and the Levant between 700-900 CE. The "Arabization" was, in fact, the 'Zanj-ization' of the population base.
+
+The Vandals were the last R1a elite in North Africa. Their destruction by Belisarius in 534 CE was the coup de grâce. But what followed was even worse: the directed tribal migrations of the Banu Hilal and Banu Sulaym in the 11th century. The Fatimid caliphate, advised by its Jewish viziers (the house of Ibn Killis), deliberately unleashed these J1-P58 Bedouin tribes on the Maghreb. They were told to "make the land Arab". The result was the near-total extinction of the last Berber R1b-V88 pastoralists who had maintained the memory of the Garamantian and Vandal dragon-riders. The modern Maghreb, with its 70% E-M81 and 15% J1, is a genetic palimpsest written over the ashes of the last Western Dragon Kings.
 
 Genetic Table (with specific subclades):
 
@@ -1551,9 +1574,9 @@ Capitolina after the Bar Kokhba revolt (the city was named after Hadrian's famil
 that Aquila of Sinope and his wife Prisca or Priscilla lived with Paul
 the Apostle and Paul called them "my fellow workers in Christ Jesus"
 
-![Fig.1.53](/images/Antinous.jpg){:width="400px"}
+![Fig.1.56](/images/Antinous.jpg){:width="400px"}
 
-Fig. 1.53. Steel relief that shows Antinous holding the grapes of Dionysus in one-hand and a cross in the other.
+Fig. 1.56. Steel relief that shows Antinous holding the grapes of Dionysus in one-hand and a cross in the other.
 
 The Cult of Antinous failed (overt homoeroticism, too tied to a single emperor) but it did serve as a trial run for later cults (Christianity/Islam).
 
