@@ -31,7 +31,7 @@ Ethnic particularism is the cure: sharp, tribal, unapologetic loyalty to your ac
 
 **The Category Problem**
 
-- “White” is fake. A modern bureaucratic invention. Deracinating. Universalist poison designed to erase real ethnicity.  
+- “White” is fake. A modern bureaucratic invention. Deracinating. Universalist poison designed to erase real ethnicity [1].  
 - “European” does the same trick on steroids — turns distinct peoples into an interchangeable monolith.  
 - White and European are secularized variants of the phrase Christendom subjected to the Christian ethos of sin and set commandments of behavior.
 - Real ethnonationalism means specific groups only. No pan-White. Just your tribe.
@@ -110,3 +110,7 @@ Counter-script when they pull the “as a White person” move:
 Importantly, ethnic particularism doesn't require you to like your fellow Europeans or feel kinship with them. It's condition-based, and ethnically particular—you'd apply the same logic to any population.
 
 You only need to admit universalism has hard limits when existential stakes appear — and that ethnic particularism is the only framework letting Europeans defend themselves without starring as the villains in someone else’s redemption fantasy.interest.
+
+[1] The truth about "white" as a political and bureaucratic term: Whiteness studies (Ignatiev, Allen, et.al.) claim that "white" came about from slave owners trying to distinguish themselves from slaves. The reality is that southern Jewish elites were enthusiastic slaveholders and promoters of white identity. By 1860, roughly a quarter of the South’s 15,000–20,000 Jews owned enslaved people. From the 1740 naturalization petitions through the plantation records of the 19th century to the lobbying efforts of the early 20th century, American Jewish elites repeatedly and deliberately embraced, defended, and promoted whiteness. In 1683, Jewish merchants in New Netherland petitioned for full rights by arguing they were “no less entitled than other white inhabitants”. The Plantation Act 1740 explicitly allowed Jewish naturalization alongside Protestants, under the framework of “white” foreign residents. Then Judah P. Benjamin, who was a wealthy plantation owner and the founder of the Ku Klux Klan, is the personification of that strategy – a man who wielded whiteness like a sword to cut his way into the innermost circles of power.
+
+This may have originally been a tactic to blend into the European population rather than an attempt to deracinate the European masses, but it eventually became the latter.
