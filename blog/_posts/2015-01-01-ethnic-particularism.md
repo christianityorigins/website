@@ -25,15 +25,15 @@ He quotes the key historical fact:
 
 _“All human societies, including pre-liberal Western societies, were based on particularistic, kin-based ethics (in which kin members are treated differently from outsiders).”_
 
-Yet Duchesne ultimately pins the blame on industrialization and “Post-Fordism” as the mechanisms that dismantled these kin-based systems. This is where the analysis stops short. The real cancer is not the factory floor or the assembly line. The cancer is secularized Christianity itself — the universalist operating system that replaced kin-based ethics with a deracinating, guilt-driven global ethic. It flattens everything distinct into one grey, guilt-soaked blob.
+Yet Duchesne ultimately pins the blame on industrialization and "Post-Fordism" as the mechanisms that dismantled these kin-based systems. This is where the analysis stops short. The real cancer is not the factory floor or the assembly line. The cancer is secularized Christianity itself — the universalist operating system that replaced kin-based ethics with a deracinating, guilt-driven global ethic. It flattens everything distinct into one grey, guilt-soaked blob.
 
-Ethnic particularism is the cure: sharp, tribal, unapologetic loyalty to your actual subgroup. Italian. Polish. German. Breton. Not “White.” Not “European.” Just your bloodline.
+Ethnic particularism is the cure: sharp, tribal, unapologetic loyalty to your actual subgroup. Italian. Polish. German. Breton. Not "White". Not "European". Just your bloodline.
 
 **The Category Problem**
 
 - “White” is fake. A modern bureaucratic invention. Deracinating. Universalist poison designed to erase real ethnicity.  
 - “European” does the same trick on steroids — turns distinct peoples into an interchangeable monolith.  
-- White and European are secularized variants of the phrase Christendom subjected to the Christian ethos of sin and set commandments of behavior.
+- White and European are secularized variants of the phrase Christendom subjected to the Christian ethos of sin, set commandments of behavior, and moral policing.
 - Real ethnonationalism means specific groups only. No pan-White. Just your tribe.
 
 **Neo-Christianity: Why “White” Identity Is Still Church**
@@ -42,9 +42,9 @@ The entire Western matrix runs on recycled Christian firmware:
 
 - Leftism = secularized Protestant Puritanism on steroids. Original sin = Whiteness. Salvation = public self-hatred.  
 - Wokeism = Puritanism 2.0 with pronouns and hashtags.  
-- Conservatism = Catholic hierarchy cosplay. Tradition, guilt, top-down control — just swap the cross for “Western values.”
+- Conservatism = Catholic hierarchy cosplay. Tradition, guilt, top-down control — just swap the cross for "Western values".
 
-Call yourself “White” and you’re back in Christendom: 
+Call yourself "White" and you’re back in Christendom: 
 
 - Monotheism: Good vs evil (or left vs right)
 - Sinner vs saint  
@@ -68,9 +68,9 @@ Ditch the color. Rebrand hard.
 
 You exit the guilt matrix instantly.  
 
-Most importantly, no other European will ever again think of themself as your spokesperson/representtive/ambassador, nor the the judge of your behavior relative to their set commandments of white behavior. 
+Most importantly, no other European will ever again think of themself as your spokesperson/representative/ambassador, nor the the judge of your behavior relative to their set commandments of white behavior. 
 
-It’s just one specific tribe doing what every other tribe does openly and without apology. Then tribal advocacy becomes morally defensible because it’s no longer “White supremacy theater.”
+It’s just one specific tribe doing what every other tribe does openly and without apology. Then tribal advocacy becomes morally defensible because it’s no longer "White supremacy theater".
 
 **The Moral Justifications**
 
@@ -94,16 +94,16 @@ Refuse the label "white". Every single time.
 
 Two instant superpowers:
 
-1. All minority civil-rights protections now apply to you: “I’m Celto-Germanic, not White” → sue the employer or college forcing you into the White checkbox.
+1. All minority civil-rights protections now apply to you: "I’m Celto-Germanic, not White" → sue the employer or college forcing you into the White checkbox.
 
-2. Every self-appointed White spokesperson loses all power: HR drones, DEI deans, politicians, academics — their entire moral authority comes from representing “Whiteness.”. Atomize and they’re suddenly talking to no one.
+2. Every self-appointed White spokesperson loses all power: HR drones, DEI deans, politicians, academics — their entire moral authority comes from representing "Whiteness". Atomize and they’re suddenly talking to no one.
 
-Counter-script when they pull the “as a White person” move:
+Counter-script when they pull the "as a White person" move:
 
-- “You identifying as White is as legitimate as me identifying as green or purple.”  
-- “You represent yourself. You don’t speak for me.”  
-- “I’m not White. I’m Celto-Germanic.”  
-- “We are not the same.”
+- "You identifying as White is as legitimate as me identifying as green or purple". 
+- "You represent yourself. You don’t speak for me".  
+- "I’m not White. I’m Celto-Germanic".
+- "We are not the same".
 
 **Conclusion**
 
