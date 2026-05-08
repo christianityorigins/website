@@ -435,13 +435,7 @@ In Egypt, Ptolemy I Soter, who was a Scythian continuation of the Sarmatian snak
 
 The director of the Mouseion ("Place of the Muses") and the chief architect of the synthetic religions was not a man. It was a succession of Ptolemaic princesses who held the title The Muse Ourania (The Heavenly Muse). The Mouseion was named after her office. Arsinoë II Philadelphus (c. 316 BC – 270 BC), daughter of Ptolemy Soter, was refered to as "the tenth Muse" and she had a cult dedicated to her as Arsinoë Aphrodite Ourania. in some cases these females directors took on male aliases, for example, Philo of Alexandria was  Cleopatra (Thea Philopator) of Mauretania aka Cleopatra IX, Helene, Drusilla of Mauretania, Julia Ourania of Parthia, etc. 
 
-The Alexandrian School did not invent these ideas from nothing. They collected, systematized, and retroactively projected them into a coherent “ancient” history. For example, long before the Alexandrian School synthesized Serapis, a template for the "living god‑king" had already been carved into the record of the 5th dynasty (c. 2375 BCE).
-
-There was an Egyptian named  “Isesi-ankh” (Jesus Lives) who had a mother named Meresankh IV. Mari is the Scythian Mother Goddess who became Mary in the bible.
-
-Isesi-ankh bore the title z3 nswt (“King’s Son”). He was the son of pharaoh Djedkare Isesi, so he was the son of the King.
-
-Isesi‑ankh stands as either a genuine Old Kingdom archetype that the Alexandrian School later used as a template for its synthetic savior cults, or, more likely, a back‑dated fabrication inserted into the Fifth Dynasty timeline to give ancient legitimacy to the title "Son of God" and the mother‑goddess archetype that the Ptolemies and Flavians would deploy.
+As well as being a slave moralities, these Alexandrian School religions were weaponized psychosis—the product of severely inbred ruling elites who used psychotropic substances (See: 'The Sacred Mushroom and the Cross: A Study of the Nature and Origins of Christianity Within the Fertility Cults of the Ancient Near East' by John Marco Allegro) and they added these rambling to a slave morality system that was codified over centuries. The outer layer of these religions reads like the ravings of a deranged mind because, in a literal sense, it is.
 
 ![Fig.1.14](/images/PtolemySoterAuletes.jpg){:width="400px"}
 
