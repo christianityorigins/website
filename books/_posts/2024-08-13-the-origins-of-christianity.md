@@ -1016,7 +1016,7 @@ Alexander, Herodian Prince of Judaea aka Alexander the Alabarch aka
 Mauretania aka "Jesus" in the bible. (R) Cleopatra (Thea Philopator) of
 Mauretania aka Cleopatra IX aka Pythodorida Philometor aka Helene aka
 Drusilla of Mauretania aka Julia Ourania of Parthia aka Alexandra bat
-Mattathias aka 'Philo of Alexandria'.
+Mattathias (Matityahu is the Hebrew form of Mattathias, which itself is a variant of Mithridates ("Given by Mithra")) aka "Philo of Alexandria".
 
 **5.3.6. Izates II, King of Adiabene**
 
