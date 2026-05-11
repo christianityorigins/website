@@ -704,7 +704,7 @@ Fig. 1.26. Coin depicting Gaius Julius Ariobarzanes II, king of Armenia.
 
 ![Fig.1.27](/images/GaiusAsiniusPollio.jpg){:width="400px"}
 
-Fig. 1.27. Coin depicting Gaius Asinius Pollio who was Asander aka Juius Caesar's literary pen-name.
+Fig. 1.27. Coin depicting Gaius Asinius Pollio who was Asander aka Juius Caesar's literary pen-name. The name Pollio is a hypocoristic of Ptolemy (Ptollion → Pollio), same as Vespasia Polla. So Pollio = "of the Ptolemies".
 
 **5.2 Cleopatra VII aka Dynamis Ourania aka Pythodorida Philometor**
 
@@ -1471,6 +1471,8 @@ The "Old Kingdom" is a fictional pre-history for the Serapis Cult. The Pyramids 
 
 The "Roman Republic" and the bulk of the "Roman Empire" prior to Vespasian are literary phantoms. The events, consuls, and wars of the 1st centuries BCE and CE are not history but theological and political allegory back-projected onto the Italian peninsula.
 
+The core of what tourists see today—the Colosseum, the Forum, the triumphal arches—was a Flavian dynasty project, built primarily between 70 and 100 CE.
+
 Not a single manuscript of any Roman historian exists from before 70 CE. The earliest manuscript copies we possess are medieval, often from around 800–1100 CE. All Roman historical works - Livy, Tacitus, Suetonius - survive only in medieval copies, often centuries after the authors lived and filtered through centuries of monastic scribes whose patron was the Roman Church, the direct successor of the Flavian political project.
 
 The monumental ruins in Italy today are Flavian-era constructions (70–200 CE) built by the dynasty to create imperial legitimacy. The Chersonesus Colosseum in Crimea (https://en.wikipedia.org/wiki/Chersonesus#Remains) is the prototype for the Roman Colosseum.
@@ -1478,6 +1480,10 @@ The monumental ruins in Italy today are Flavian-era constructions (70–200 CE) 
 The "Roman Empire" was not born on the Tiber. It was a political and literary fabrication moved there after the true center of power—the Dragon Kingdom of the Bosphorus—was subverted and its history overwritten. The ruins we see are not the remains of an ancient Republic; they are the founding monuments of history's most successful forgery.
 
 Rome (Rhu-Ma) = "Place of the Dragon". Ialia = Vitalia, meaning "Land of the Vitelli/Vetal (a Scythian clan)". The "Italian" tribes (Samnites, Latins, Etruscans) were not native Mediterraneans. They were Scythian-Sarmatian colonial clans. The Etruscan Lasa deities are direct cognates of the Scythian Alasi (Lords).
+
+After the J2/J1 priestly-financier class completed its takeover, the capital shifted back east to its true home, Constantinople, and the physical city of Rome was abandoned and de-facto de-urbanized.
+
+Rome became a ghost town inhabited by a fraction of its former population. Its grand monuments, like the Forum, were repurposed into fortified compounds for warring clans, and later as quarries or even peasant farmsteads. This "Dark Age" period is not a sign of barbarian destruction, but the inevitable decay after the J2 priestly bureaucracy retreated to the Morea and Constantinople, leaving their empty propaganda stage to crumble.
 
 **8.5 The Vatican-Medici-Jesuit Forgery (14th - 18th centuries)**
 
