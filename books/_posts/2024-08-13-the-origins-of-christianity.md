@@ -1050,9 +1050,9 @@ Fig. 1.43. 'Josephus' bust which I identify as Tiberius Julius
 Alexander. Compare it to Nerva's depictions. So, 'Josephus' was Philo of
 Alexandria's son. Tiberius Julius Alexander's son was named
 'Philopappos' and one of his mother's aliases was 'Alexandria bat
-Matthias' which is where the pseudonym 'Joseph bar Matthias' comes from.
+Matthias' (Matityahu -> Hebrew form of Mattathias, which itself is a variant of Mithridates) which is where the pseudonym 'Joseph bar Matthias' comes from.
 Also, drop the initial b and final s in the name "Bar Mathias" and you
-get (Joseph of) Arimathea.
+get (Joseph of) Arimathea (Aria (Aryan) + Mathea (from Mithra/Mattathias)).
 
 ![Fig. 1.44](/images/coin-abgar-phraates.png){:width="400px"}
 
@@ -1473,9 +1473,9 @@ The "Roman Republic" and the bulk of the "Roman Empire" prior to Vespasian are l
 
 The core of what tourists see today—the Colosseum, the Forum, the triumphal arches—was a Flavian dynasty project, built primarily between 70 and 100 CE.
 
-Not a single manuscript of any Roman historian exists from before 70 CE. The earliest manuscript copies we possess are medieval, often from around 800–1100 CE. All Roman historical works - Livy, Tacitus, Suetonius - survive only in medieval copies, often centuries after the authors lived and filtered through centuries of monastic scribes whose patron was the Roman Church, the direct successor of the Flavian political project.
-
 The monumental ruins in Italy today are Flavian-era constructions (70–200 CE) built by the dynasty to create imperial legitimacy. The Chersonesus Colosseum in Crimea (https://en.wikipedia.org/wiki/Chersonesus#Remains) is the prototype for the Roman Colosseum.
+
+Not a single manuscript of any Roman historian exists from before 70 CE. The earliest manuscript copies we possess are medieval, often from around 800–1100 CE. All Roman historical works - Livy, Tacitus, Suetonius - survive only in medieval copies, often centuries after the authors lived and filtered through centuries of monastic scribes whose patron was the Roman Church and then rediscovered by Poggio Bracciolini (Apostolic Secretary to the Pope) who was a known forger. Almost all the classical Latin texts we have today (Tacitus, Lucretius, Quintilian, Cicero) were rediscovered by him.
 
 The "Roman Empire" was not born on the Tiber. It was a political and literary fabrication moved there after the true center of power—the Dragon Kingdom of the Bosphorus—was subverted and its history overwritten. The ruins we see are not the remains of an ancient Republic; they are the founding monuments of history's most successful forgery.
 
