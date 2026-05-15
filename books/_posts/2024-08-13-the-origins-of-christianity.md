@@ -1101,7 +1101,7 @@ Fig. 1.50. Coin of Tiberius Julius Sauromates II displaying the sacred Roman Imp
 
 ![Fig.1.51](/images/KanishkaI.jpg){:width="400px"}
 
-Fig. 1.51. Was the father of Tiberius Julius Sauromates II named Tiberius Julius Rhoemetalces also Kanishka I, also known as Kanishka the Great? (Kanishka = "Khan-Isha" (Scythian: "Khan-Lord")) was an emperor of the Kushan dynasty (modern day Afghanistan through India). This would mean that the Flavians only seized the western administration and rewrote its history. The eastern administration (Kushan) continued the old system for centuries. Kanishka I was the leader of the "Yuezhi" ("Iudii"/"Jove") tribe.
+Fig. 1.51. Was the father of Tiberius Julius Sauromates II named Tiberius Julius Rhoemetalces also Kanishka I, also known as Kanishka the Great? (Kanishka = "Khan-Isha" (Kanishka = Khan Jesus (Khan = Scythian Kha'n (supreme ruler), from Ka-Sar (Dragon King), and Isha (ईश) = Sanskrit for "Lord, Ruler"). In the Quran, Jesus is Isa. In Aramaic, Isho. So Khan-Isha = "Lord Jesus" – the exact functional equivalent of Iesus Christus) was an emperor of the Kushan dynasty (modern day Afghanistan through India). This would mean that the Flavians only seized the western administration and rewrote its history. The eastern administration (Kushan) continued the old system for centuries. Kanishka I was the leader of the "Yuezhi" ("Iudii"/"Jove") tribe.
 
 ![Fig.1.52](/images/TiberiusJuliusCotysII.jpg){:width="400px"}
 
@@ -1471,11 +1471,11 @@ The "Old Kingdom" is a fictional pre-history for the Serapis Cult. The Pyramids 
 
 The "Roman Republic" and the bulk of the "Roman Empire" prior to Vespasian are literary phantoms. The events, consuls, and wars of the 1st centuries BCE and CE are not history but theological and political allegory back-projected onto the Italian peninsula.
 
-The core of what tourists see today—the Colosseum, the Forum, the triumphal arches—was a Flavian dynasty project, built primarily between 70 and 100 CE.
+The core of what tourists see today—the Colosseum, the Forum, the triumphal arches—was a Flavian dynasty project, built primarily between 70 and 100 CE to create imperial legitimacy. The Chersonesus Colosseum in Crimea (https://en.wikipedia.org/wiki/Chersonesus#Remains) is the prototype for the Roman Colosseum.
 
-The monumental ruins in Italy today are Flavian-era constructions (70–200 CE) built by the dynasty to create imperial legitimacy. The Chersonesus Colosseum in Crimea (https://en.wikipedia.org/wiki/Chersonesus#Remains) is the prototype for the Roman Colosseum.
+A settlement on the Tiber settlement existed; it had walls, temples, and a port. But it was similar to how the British Empire had London as capital but also had Calcutta as a regional hub. Its importance was vastly exaggerated by the Flavian historians and then by the Medici, who invested in excavating and restoring those ruins to create tourist attractions and national pride.
 
-Not a single manuscript of any Roman historian exists from before 70 CE. The earliest manuscript copies we possess are medieval, often from around 800–1100 CE. All Roman historical works - Livy, Tacitus, Suetonius - survive only in medieval copies, often centuries after the authors lived and filtered through centuries of monastic scribes whose patron was the Roman Church and then rediscovered by Poggio Bracciolini (Apostolic Secretary to the Pope) who was a known forger. Almost all the classical Latin texts we have today (Tacitus, Lucretius, Quintilian, Cicero) were rediscovered by him.
+Not a single manuscript of any Roman historian exists from before 70 CE. The earliest manuscript copies we possess are medieval, often from around 800–1100 CE. All Roman historical works - Livy, Tacitus, Suetonius - survive only in medieval copies, often centuries after the authors lived and filtered through centuries of monastic scribes whose patron was the Roman Church and were then rediscovered by Poggio Bracciolini (Apostolic Secretary to the Pope) who was a known forger. Almost all the classical Latin texts we have today (Livy, Tacitus, Suetonius, Lucretius, Quintilian, Cicero) were rediscovered by him.
 
 The "Roman Empire" was not born on the Tiber. It was a political and literary fabrication moved there after the true center of power—the Dragon Kingdom of the Bosphorus—was subverted and its history overwritten. The ruins we see are not the remains of an ancient Republic; they are the founding monuments of history's most successful forgery.
 
