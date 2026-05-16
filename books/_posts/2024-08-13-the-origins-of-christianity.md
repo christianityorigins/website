@@ -1050,8 +1050,7 @@ Fig. 1.43. 'Josephus' bust which I identify as Tiberius Julius
 Alexander. Compare it to Nerva's depictions. So, 'Josephus' was Philo of
 Alexandria's son. Tiberius Julius Alexander's son was named
 'Philopappos' and one of his mother's aliases was 'Alexandria bat
-Matthias' (Matityahu -> Hebrew form of Mattathias, which itself is a variant of Mithridates) which is where the pseudonym 'Joseph bar Matthias' comes from.
-Also, drop the initial b and final s in the name "Bar Mathias" and you
+Matthias' (Matityahu -> Hebrew form of Mattathias, which itself is a variant of Mithridates) which is where the pseudonym 'Josephus Bar Matthias' comes from. Also, drop the initial b and final s in the name "Bar Mathias" and you
 get (Joseph of) Arimathea (Aria (Aryan) + Mathea (from Mithra/Mattathias)).
 
 ![Fig. 1.44](/images/coin-abgar-phraates.png){:width="400px"}
