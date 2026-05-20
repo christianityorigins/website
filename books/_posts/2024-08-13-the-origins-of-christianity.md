@@ -132,7 +132,7 @@ The people who assumed this role were the descendants of Mark Antony aka King He
 -   Amyntas Nikator aka Amyntas, King of Galatia, who was Mark Antony aka King Herod's son under his Mithridates VI Eupator of Pontus alias. He was also Jesus ben Fabus. (See:
     Jesus Christ Was Amyntas of Galatia (2010) by Ranajit Pal
     [^1]). The gens Fabia (Fabus) was one of the most ancient patrician families in ancient Rome.
--   Alexander (son of King Herod) aka Alexander Helios aka Juba II. Was he Jesus ben Panthera? "Panthera" is a Hellenized corruption of "Ptolemaios" (Ptolem -> Ptol -> Panther). "Jesus, son of Ptolemy". The Talmud (Bereshit Rabbah 46:10) calls Izates and Monobazus the "Sons of Ptolemy".
+-   Alexander (son of King Herod) aka Alexander Helios aka Juba II. Was he Jesus ben Panthera? "Panthera" is a Hellenized corruption of "Ptolemaios" (Ptolem -> Ptol -> Panther). "Jesus, son of Ptolemy". The Talmud (Bereshit Rabbah 46:10) calls Izates and Monobazus the "Sons of Ptolemy". The Aramaic word for "son of" is bar. "Bar Ptolemy" becomes Bartholomew in the Gospels.
 -   Alexander (grandson of King Herod) aka Ptolemy of Mauretania aka Monobazus I. Who was Jesus ben Sapphias?
 -   Izates II, King of Adiabene who was the son of Alexander (grandson of King Herod) and his sister-wife Cleopatra (Thea
 Philopator) of Mauretania. He was Mark Antony aka King Herod's great-grandson. He was was Jesus ben Gamala/Gamaliel (See: Cleopatra to Christ (2010) by Ralph Ellis. Iza‑ / Izad‑ = "lord" Iranian, and Zates = Dyeus/Zeus. The same name as Jesus.
