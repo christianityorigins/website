@@ -103,7 +103,7 @@ The historical record as we know it was systematically forged in three major pha
 
 The Medici did not create the foundational lie, but they financed, refined, and physically produced the "ancient" manuscripts that cemented it into Western consciousness (look up the similarities between Plato and Gemistus Pletho whose patron was also Cosimo de Medici). Their forger-in-chief was Poggio Bracciolini. Poggio Bracciolini held the position of Apostolic Secretary to the Pope which gave him access to the Vatican Library and is who is the one credited with "rediscovering" most ancient manuscripts from antiquity, but he was not working alone. He was part of a curia-wide network that included Lorenzo Valla, Niccolò Niccoli, and other humanists.
 
-Poggio Bracciolini's patron was Cosimo de' Medici who financed the Council of Florence (1438-1445). Cosimo's grandson was Lorenzo de' Medici ("Lorenzo the Magnificent"). Lorenzo's son was Pope Leo X.
+Poggio Bracciolini's patron was Cosimo de' Medici who financed the Council of Florence (1438-1445). The Council of Florence happened right before the fall of Constantinople (1453) which brought Byzantine manuscripts to Italy – which were then forged into "ancient" Greek and Roman texts. Cosimo's grandson was Lorenzo de' Medici ("Lorenzo the Magnificent"). Lorenzo's son was Pope Leo X.
 
 3) The Jesuit Operation (16th-18th centuries): The Jesuits, founded in 1540 by Ignatius of Loyola, were the scientific arm of the Vatican. They took over the forgery project and globalized it. Jesuit scholars fabricated chronologies for China, India, and the Middle East, backdating history by centuries to fit Biblical timelines.
 
