@@ -1119,21 +1119,23 @@ Fig. 1.51. Was the father of Tiberius Julius Sauromates II named Tiberius Julius
 
 Fig. 1.52. Coin depicting Tiberius Julius Cotys II who was the grandfather of Tiberius Julius Sauromates II. Tiberius Julius Cotys II was the son of Tiberius Julius Sauromates I.
 
-5.3.7.1 Simon Bar Kokhba
+**5.3.7.1 Simon Bar Kokhba**
 
 Tiberius Julius Cotys II was the grandfather of Tiberius Julius Sauromates II. Was he also Simon bar Kokhba? Bar Kokhba means "Son of the Star". The star iconography is prominent in coins of Tiberius Julius Sauromates II and his son Rheskuporis V and directly links to the "Star and Crescent" symbolism on the coins of Asander/Julius Caesar and Dynamis/Cleopatra. He led the Bar Kokhba revolt (132-136 AD) against Rome. As heir to the dragon crown he would have had a claim to the emperor position.
 
+Bar Kokhba served as the state's leader, crowning himself as nasi (lit. 'prince') and rabbinic scholars in his time such as Rabbi Akiva believed him to be the long-expected Messiah. He died during the Roman capture of the fortress of Betar in 135 CE, and was possibly crucified.
+
 ![Fig.1.53](/images/SaratokosGrapes.jpg){:width="400px"}
 
-Fig. 1.53.L. Coin of 	Simon Bar Kokhba showing a vine and grapes. R. A coin of Thracian king Saratokos displaying the same vine and grapes. 
+Fig. 1.53.L. Coin of 	Simon Bar Kokhba showing a vine and grapes. R. A coin of Thracian king Saratokos displaying the same vine and grapes.  The vine and grapes are the symbols of Dionysus, the dying-and-reviving god of ecstasy, wine, and blood. Mithridates VI Eupator, the father of the Bosporan line, explicitly titled himself Dionysus. The Dionysian mysteries involved the consumption of wine as the god's blood—the exact same sacrament later encoded in the Christian Eucharist ("drink this, for it is my blood").
 
 ![Fig.1.54](/images/KotysIIWreath.jpg){:width="400px"}
 
-Fig. 1.54. L. Coin of 	Simon Bar Kokhba showing a wreath. R. A coin of Thracian king Kotys II showing the same wreath
+Fig. 1.54. L. Coin of 	Simon Bar Kokhba showing a wreath. R. A coin of Thracian king Kotys II showing the same wreath.
 
 ![Fig.1.55](/images/SauromatesIBarKokhba.jpg){:width="400px"}
 
-Fig. 1.55. L. coin issued for Tiberius Julius Sauromates I. R. Coin issued for Simon Bar Kokhba. (Source: https://rpc.ashmus.ox.ac.uk/coins/3/867 and: https://en.wikipedia.org/wiki/Bar_Kokhba_Revolt_coinage). This same temple appears on coins of Herod Philip son of King Herod and Juba II.
+Fig. 1.55. L. coin issued for Tiberius Julius Sauromates I. R. Coin issued for Simon Bar Kokhba. (Source: https://rpc.ashmus.ox.ac.uk/coins/3/867 and: https://en.wikipedia.org/wiki/Bar_Kokhba_Revolt_coinage). This same temple appears on coins of Herod Philip son of King Herod and Juba II which indicates that they all held the same office. 
 
 Endnotes (Chapter 5)
 
