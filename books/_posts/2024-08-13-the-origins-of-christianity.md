@@ -62,6 +62,7 @@ Part 5: The Jesus Avatars: From Egypt to Galatia to Adiabene\
 5.3.5. The Successor Generations\
 5.3.6. Izates II, King of Adiabene\
 5.3.7. Tiberius Julius Sauromates II\
+5.3.7.1 Simon Bar Kokhba\
 Part 6: From Imperial Cult to Christianity\
 6\. Flavian Dynasty\
 Part 7: What Happened to the Scythians?\
@@ -1116,13 +1117,23 @@ Fig. 1.51. Was the father of Tiberius Julius Sauromates II named Tiberius Julius
 
 ![Fig.1.52](/images/TiberiusJuliusCotysII.jpg){:width="400px"}
 
-Fig. 1.52. Coin depicting Tiberius Julius Cotys II who was the grandfather of Tiberius Julius Sauromates II. Was he also Simon bar Kokhba? Bar Kokhba means "Son of the Star". The star iconography is prominent in coins of Tiberius Julius Sauromates II and his son Rheskuporis V and directly links to the "Star and Crescent" symbolism on the coins of Asander/Julius Caesar and Dynamis/Cleopatra. He led the Bar Kokhba revolt (132-136 AD) against Rome. As heir to the dragon crown he would have had a claim to the emperor position.
+Fig. 1.52. Coin depicting Tiberius Julius Cotys II who was the grandfather of Tiberius Julius Sauromates II. Tiberius Julius Cotys II was the son of Tiberius Julius Sauromates I.
 
-Tiberius Julius Cotys II was the son of Tiberius Julius Sauromates I.
+5.3.7.1 Simon Bar Kokhba
 
-![Fig.1.53](/images/SauromatesIBarKokhba.jpg){:width="400px"}
+Tiberius Julius Cotys II was the grandfather of Tiberius Julius Sauromates II. Was he also Simon bar Kokhba? Bar Kokhba means "Son of the Star". The star iconography is prominent in coins of Tiberius Julius Sauromates II and his son Rheskuporis V and directly links to the "Star and Crescent" symbolism on the coins of Asander/Julius Caesar and Dynamis/Cleopatra. He led the Bar Kokhba revolt (132-136 AD) against Rome. As heir to the dragon crown he would have had a claim to the emperor position.
 
-Fig. 1.53. L. coin issued for Tiberius Julius Sauromates I. R. Coin issued for Simon Bar Kokhba. (Source: https://rpc.ashmus.ox.ac.uk/coins/3/867 and: https://en.wikipedia.org/wiki/Bar_Kokhba_Revolt_coinage)
+![Fig.1.53](/images/SaratokosGrapes.jpg){:width="400px"}
+
+Fig. 1.53.L. Coin of 	Simon Bar Kokhba showing a vine and grapes. R. A coin of Thracian king Saratokos displaying the same vine and grapes. 
+
+![Fig.1.54](/images/KotysIIWreath.jpg){:width="400px"}
+
+Fig. 1.54. L. Coin of 	Simon Bar Kokhba showing a wreath. R. A coin of Thracian king Kotys II showing the same wreath
+
+![Fig.1.55](/images/SauromatesIBarKokhba.jpg){:width="400px"}
+
+Fig. 1.55. L. coin issued for Tiberius Julius Sauromates I. R. Coin issued for Simon Bar Kokhba. (Source: https://rpc.ashmus.ox.ac.uk/coins/3/867 and: https://en.wikipedia.org/wiki/Bar_Kokhba_Revolt_coinage). This same temple appears on coins of Herod Philip son of King Herod and Juba II.
 
 Endnotes (Chapter 5)
 
@@ -1160,9 +1171,9 @@ Vespasians's mother was Vespasia Pollo. Pollio derives from Ptolemy, or Polemon.
 He was also 'Flavius Scaevinus' the conspirator involved in Nero's assassination.
 
 ![Fig.
-1.54](/images/Vespasian.jpg){:width="400px"}
+1.56](/images/Vespasian.jpg){:width="400px"}
 
-Fig. 1.54. L. Vespasian. R. Herod Agrippa I
+Fig. 1.56. L. Vespasian. R. Herod Agrippa I
 
 'Antonia Caenis' was Vespassian's mistress who was his first cousin who
 was Cleopatra (Thea Philopator) of Mauretania aka Cleopatra IX aka
@@ -1243,9 +1254,9 @@ The plagues were not natural. They were the final solution of the Flavian-Vatica
 The Flavians (the Pālava/Pahlavi clan, a junior branch of the R1 Sarmatian elite) were heavily intermarried with the Judeo-Anatolian J2 priesthood by Vespasian's reign. The haplotype R1a (the famed "Arya" gene) was the dominant haplogroup of the Roman elite before the Flavian empire. After the Flavian reign the haplotype J2/J1 became the dominant haplogroup among the Roman elite [^37](https://inf.news/en/science/bee8bab603736d7530f42b64ea756397.html). The Flavians then created a new ruling ethnicity in Rome—the Neo-Flavians—who were biologically the hybrid Pālava-J2 administrative class. The subsequent Catholic Church was the institutional memory of this coup, a permanent bureaucracy staffed by this new genetic elite, tasked with completing the erasure of their Dragon King predecessors. This is why they erased the Scythian origins of ancient civilizations and painted the Scythians (R1a) as monstrous foreigners. "Flavius" (Pālava/Pahlavi) eventually became Shabbos. From Constantine to Heraklios, for 500 years nearly every single Emperor bore the Flavius (Shabbos) title. By my count, 37 Roman and Byzantine emperors in all bore the honorary title "Flavius", and then later, "Phlabios" (https://en.wikipedia.org/wiki/Special:MobileDiff/1062698821)
 
 ![Fig.
-1.55](/images/VespasianBust.jpg){:width="400px"}
+1.57](/images/VespasianBust.jpg){:width="400px"}
 
-Fig. 1.55. Not only were their names and titles localized to different populations, but so were their depictions. L. The earliest bust of Vespasian and likely the most true to life. R. The Julio-Claudian inspired depiction that is most commonly associated with him.
+Fig. 1.57. Not only were their names and titles localized to different populations, but so were their depictions. L. The earliest bust of Vespasian and likely the most true to life. R. The Julio-Claudian inspired depiction that is most commonly associated with him.
 
 Vespasian then imported 100,000+ Jews into Italy (Josephus, Jewish War vi), gave them citizenship and institutional positions, and this began Romes descent into a multi-racialism/multi-culturalism.
  
@@ -1644,9 +1655,9 @@ Capitolina after the Bar Kokhba revolt (the city was named after Hadrian's famil
 that Aquila of Sinope and his wife Prisca or Priscilla lived with Paul
 the Apostle and Paul called them "my fellow workers in Christ Jesus"
 
-![Fig.1.56](/images/Antinous.jpg){:width="400px"}
+![Fig.1.58](/images/Antinous.jpg){:width="400px"}
 
-Fig. 1.56. Steel relief that shows Antinous holding the grapes of Dionysus in one-hand and a cross in the other.
+Fig. 1.58. Steel relief that shows Antinous holding the grapes of Dionysus in one-hand and a cross in the other.
 
 The Cult of Antinous failed (overt homoeroticism, too tied to a single emperor) but it did serve as a trial run for later cults (Christianity/Islam).
 
