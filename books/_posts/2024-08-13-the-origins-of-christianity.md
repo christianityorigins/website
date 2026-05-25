@@ -229,6 +229,8 @@ population. They role-played as deities, religious figures, and various characte
 - PHARNA: Divine Glory, Radiance (Avestan xᵛarənah, Old Persian farnah, Parthian far, Greek Pharna‑, Kushan Pharro)
 - BAGA: God, Lord, Distributor (Persian Baga, Sanskrit Bhaga (bestower), Slavic Bog, Celtic Bagus (as in Bogitarus). The name Bacchus (the Roman Dionysus) may be a Latinized form of Baga)
 
+These seven morphemes appear in every royal name from the Bosporus to India to Britain. 
+
 King of Kings, Bearer of the Glory: any of the above + PHARNA (from Avestan xᵛarənah (divine glory) through its many reflexes: Old Persian farnah, Middle Persian farr/xwarrah (yielding Farrukh and Khosrow), Parthian frah/far (Phraates, “glory-bearer”), Greek pharna (Pharnaces, “endowed with glory”; Pharnabazus, “glory-arm”), Egyptian pr-ʿꜣ and Hebrew parʿōh (Pharaoh, the supreme Dragon King bearing the farnah, the fiery serpent uraeus as its visible sign), Armenian pʿaṙkʿ, Sogdian farn, and Kushan Bactrian φαρο (the deified Pharro). The examples: Phraates, Pharnaces, and Pharnabazus. Thus, the same core title of radiant kingship manifests across Achaemenid, Pontic-Bosporan, Parthian, Kushan, Sasanian, and Egyptian-Hebrew guises, all referring to the one continuous dynastic office of the Bearer of the Divine Glory).
 
 You can also identify their aliases through spouses. For example, the governor of Roman Egypt from 33 CE to 38, Aulus Avillius Flaccus, was also Polemon II of Pontus, who was
