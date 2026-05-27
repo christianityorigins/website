@@ -864,7 +864,7 @@ Fig. 1.33. Coin depicting Phraates IV, king of Parthia (Per-aa or Per-Nesu is a 
 
 ![Fig.1.34](/images/PhraatesIVSon.jpg){:width="400px"}
 
-Fig. 1.34. L. Coin depicting Phraates IV of Parthia that also shows his son. Compare his sons depiction to the image of M. Amyntas Nikator, king of the Greco-Bactrian Kingdom, and R. Eukratides I, king of the Greco-Bactrian Kingdom. These above two coins connect the Bosphoran Kingdon to Bactria.
+Fig. 1.34. L. Coin depicting Phraates IV of Parthia that also shows his son. Compare his sons depiction to the image of R. Amyntas Nikator, king of the Greco-Bactrian Kingdom. These above two coins connect the Bosphoran Kingdon to Bactria.
 
 ![Fig.1.35](/images/AriarathesIX.jpg){:width="400px"}
 
