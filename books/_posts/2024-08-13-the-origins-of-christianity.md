@@ -1141,11 +1141,11 @@ Fig. 1.55.L. Coin of 	Simon Bar Kokhba showing a vine and grapes. R. A coin of T
 
 ![Fig.1.56](/images/KotysIIWreath.jpg){:width="400px"}
 
-Fig. 1.56. L. Coin of 	Simon Bar Kokhba showing a wreath. R. A coin of Thracian king Kotys II showing the same wreath.
+Fig. 1.56. L. Coin of 	Simon Bar Kokhba showing a wreath. R. A coin of Thracian king Kotys II showing the same wreath. This wreath also appears on coins of Sauromates I. 
 
-![Fig.1.57](/images/SauromatesIBarKokhba.jpg){:width="400px"}
+![Fig.1.57](/images/BarKokhbaKotysII.jpg){:width="400px"}
 
-Fig. 1.57. L. coin issued for Tiberius Julius Sauromates I. R. Coin issued for Simon Bar Kokhba. (Source: https://rpc.ashmus.ox.ac.uk/coins/3/867 and: https://en.wikipedia.org/wiki/Bar_Kokhba_Revolt_coinage). This same temple appears on coins of Herod Philip son of King Herod and Juba II which indicates that they all held the same office. 
+Fig. 1.57. L. Coin of Simon Bar Kokhba showing the same temple that appears on coins of Herod Philip son of King Herod and Juba II which indicates that they all held the same office (notice the cross above the temple?). R. Coin of Kotys II that also shows a temple. 
 
 Endnotes (Chapter 5)
 
