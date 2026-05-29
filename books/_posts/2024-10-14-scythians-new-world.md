@@ -158,6 +158,9 @@ Clovis / Solutreans is a cover name for Cro-Magnon invaders from Atland. There i
 
 *   **Ocean Capable Ships:**
     *   "Mithridates' war fleet comprised 300 decked ships and 100 open biremes. Behind the existing fleet was perhaps the greatest naval arsenal in the world" (source: U.S. Naval Institute Proceedings, April 1924 https://www.usni.org/magazines/proceedings/1924/april/chapter-ancient-sea-power-mithridatic-wars). They carried Crimean grain to Greek armies operating in the Aegean and Adriatic. The distance from the Cimmerian Bosporus (Kerch Strait) to the Adriatic coast is 1,200 nautical miles through contested waters. This is not coast-hugging cabotage. This is open-sea navigation requiring celestial bearings, multi-week voyages, and heavy cargo capacity. If they could sail 1,200 miles to Italy, they could sail 3,000 miles to Cuba. The currents are actually easier westward than northward against the Bosporus outflow.
+    *   The massive Greek Syracusia was an enormous transport ship, sometimes described as the world's first cruise ship, capable of carrying 1,600 tons of cargo (hhttps://en.wikipedia.org/wiki/Syracusia)
+    *   The Romans, who relied on the Bosporan fleet as a client state, built massive, sea-worthy merchant ships. The Isis, which sailed between Egypt and Italy around 150 AD, was 55 meters (180 ft) long, with a beam of almost 14 meters (45 ft), and could carry over 1,000 tons of grain (https://en.wikipedia.org/wiki/Isis_(ship))
+    *   The Norse reached Canada around 1000 AD. They established a settlement at L'Anse aux Meadows, Newfoundland—proves that a Northern European power successfully crossed the Atlantic before the 16th century.
 *   **Black Sea Shipwreck (2017 Discovery):**
     *   2,400-year-old Greek merchant ship, perfectly preserved.
     *   Dates to Bosporan Kingdom era (Mithridates VI).
