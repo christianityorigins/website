@@ -164,7 +164,7 @@ Clovis / Solutreans is a cover name for Cro-Magnon invaders from Atland. There i
 *   **Black Sea Shipwreck (2017 Discovery):**
     *   2,400-year-old Greek merchant ship, perfectly preserved.
     *   Dates to Bosporan Kingdom era (Mithridates VI).
-    *   23 meters long, 6,000 amphorae capacity. Ocean-capable design (mortise-and-tenon joints).
+    *   23 meters long, 6,000 amphorae capacity. Ocean-capable design (mortise-and-tenon joints). (For reference, the ship Columbus sailed to the Americas on, The Santa María, was 19 meters long)
 *   **Carthaginian Naval Technology Absorption:**
     *   Carthage destroyed 146 BCE, but its navy and charts were absorbed by Rome/Bosporan network.
     *   Carthage knew the Atlantic currents (Canary Current to Caribbean).
