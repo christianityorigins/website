@@ -24,9 +24,7 @@ Published by Heretical Books
 
 This book traces Christianity back to its foundations — from the mythemes of Scythian snake-worshiping cults, to the Alexandrian School in Egypt and the Sarapis cult, to the Roman (Bosphoran) imperial cult — and then finishes with the subversion of the Bosphoran cult by the Flavian Dynasty (Vespasian, Titus).
 
-In contrast to conventional narratives, this work directly challenges mainstream historiography. My methodologies are:
-numismatic and onomastic evidence, and historical correlation and timeline analysis. The sources that inspired my work are listed in the 'Bibliography' section at the
-end of the book.
+Because the historical record has been forged in the three phases, this book relies only on evidence that couldn't be forged. My methodologies are: numismatic and onomastic evidence, historical correlation and timeline analysis, and genetic evidence.
 
 **Table of Contents**
 
