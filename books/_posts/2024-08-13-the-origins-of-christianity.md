@@ -1150,6 +1150,14 @@ Fig. 1.57. L. Coin of 	Simon Bar Kokhba showing a wreath. R. A coin of Thracian 
 
 Fig. 1.58. L. Coin of Simon Bar Kokhba showing the same temple that appears on coins of Herod Philip son of King Herod and Juba II which indicates that they all held the same office (notice the cross above the temple?). R. Coin of Kotys II that also shows a temple. 
 
+![Fig.1.59](/images/BarKokhbaPtolemyTree.jpg){:width="400px"}
+
+Fig. 1.59. L. Simon  Bar Kokhba coin. R. Coin of Alexander (grandson of King Herod) aka Gaius Julius Alexander, Herodian Prince of Judaea aka Alexander Lysimachus aka Alexander the Alabarch aka Tiberius Julius Alexander Major aka (King/Tetrarch) Ptolemy (Alexander) bar Menneus aka Ptolemy of Mauretania that shows the same tree that shows up in Simon  Bar Kokhba's coins. 
+
+![Fig.1.60](/images/BarKokhbaLyre.jpg){:width="400px"}
+
+Fig. 1.60. L. Simon  Bar Kokhba coin showing a kithara (Greek musical instrument). R. Coin of Scilurus, king of Scythia also showing a kithara.
+
 Endnotes (Chapter 5)
 
 (a) Apollonius of Tyre was married to the daughter of a king of Libya
@@ -1186,9 +1194,9 @@ Vespasians's mother was Vespasia Pollo. Pollio derives from Ptolemy, or Polemon.
 He was also 'Flavius Scaevinus' the conspirator involved in Nero's assassination.
 
 ![Fig.
-1.59](/images/Vespasian.jpg){:width="400px"}
+1.61](/images/Vespasian.jpg){:width="400px"}
 
-Fig. 1.59. L. Vespasian. R. Herod Agrippa I
+Fig. 1.61. L. Vespasian. R. Herod Agrippa I
 
 'Antonia Caenis' was Vespassian's mistress who was his first cousin who
 was Cleopatra (Thea Philopator) of Mauretania aka Cleopatra IX aka
@@ -1269,9 +1277,9 @@ The plagues were not natural. They were the final solution of the Flavian-Vatica
 The Flavians (the Pālava/Pahlavi clan, a junior branch of the R1 Sarmatian elite) were heavily intermarried with the Judeo-Anatolian J2 priesthood by Vespasian's reign. The haplotype R1a (the famed "Arya" gene) was the dominant haplogroup of the Roman elite before the Flavian empire. After the Flavian reign the haplotype J2/J1 became the dominant haplogroup among the Roman elite [^37](https://inf.news/en/science/bee8bab603736d7530f42b64ea756397.html). The Flavians then created a new ruling ethnicity in Rome—the Neo-Flavians—who were biologically the hybrid Pālava-J2 administrative class. The subsequent Catholic Church was the institutional memory of this coup, a permanent bureaucracy staffed by this new genetic elite, tasked with completing the erasure of their Dragon King predecessors. This is why they erased the Scythian origins of ancient civilizations and painted the Scythians (R1a) as monstrous foreigners. "Flavius" (Pālava/Pahlavi) eventually became Shabbos. From Constantine to Heraklios, for 500 years nearly every single Emperor bore the Flavius (Shabbos) title. By my count, 37 Roman and Byzantine emperors in all bore the honorary title "Flavius", and then later, "Phlabios" (https://en.wikipedia.org/wiki/Special:MobileDiff/1062698821)
 
 ![Fig.
-1.60](/images/VespasianBust.jpg){:width="400px"}
+1.62](/images/VespasianBust.jpg){:width="400px"}
 
-Fig. 1.60. Not only were their names and titles localized to different populations, but so were their depictions. L. The earliest bust of Vespasian and likely the most true to life. R. The Julio-Claudian inspired depiction that is most commonly associated with him.
+Fig. 1.62. Not only were their names and titles localized to different populations, but so were their depictions. L. The earliest bust of Vespasian and likely the most true to life. R. The Julio-Claudian inspired depiction that is most commonly associated with him.
 
 Vespasian then imported 100,000+ Jews into Italy (Josephus, Jewish War vi), gave them citizenship and institutional positions, and this began Romes descent into a multi-racialism/multi-culturalism.
  
@@ -1670,9 +1678,9 @@ Capitolina after the Bar Kokhba revolt (the city was named after Hadrian's famil
 that Aquila of Sinope and his wife Prisca or Priscilla lived with Paul
 the Apostle and Paul called them "my fellow workers in Christ Jesus"
 
-![Fig.1.61](/images/Antinous.jpg){:width="400px"}
+![Fig.1.63](/images/Antinous.jpg){:width="400px"}
 
-Fig. 1.61. Steel relief that shows Antinous holding the grapes of Dionysus in one-hand and a cross in the other.
+Fig. 1.63. Steel relief that shows Antinous holding the grapes of Dionysus in one-hand and a cross in the other.
 
 The Cult of Antinous failed (overt homoeroticism, too tied to a single emperor) but it did serve as a trial run for later cults (Christianity/Islam).
 
