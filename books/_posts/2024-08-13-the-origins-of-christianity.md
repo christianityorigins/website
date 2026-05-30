@@ -54,7 +54,7 @@ Part 4: The Bosphoran Connection\
 5.3.1. Ptolemy XII Auletes aka Mark Antony aka Mithridates VI Eupator\
 Part 5: The Jesus Avatars: From Egypt to Galatia to Adiabene\
 5.3.2. Ptolemy XIII Theos Philopator aka Gaius Octavius (Emperor Augustus) aka Rhoemetalces I\
-5.3.3. Amyntas Nikator aka Amyntas, King of Galatia\
+5.3.3. Ptolemy XIV Philopator aka Amyntas Nikator aka Amyntas, King of Galatia\
 5.3.3.1. Was Amyntas Nikator aka Amyntas, King of Galatia the Living Esus?\
 5.3.4. Alexander, son of King Herod aka Alexander Helios aka Juba II\
 5.3.5. The Successor Generations\
@@ -128,16 +128,18 @@ In the Bosporan Dragon King cult, the same prince would first be inaugurated as 
 
 Julius Caesar was elected Flamen Dialis (high priest of Jupiter) in his youth. He was anointed with oil (the unctio) which is functionally identical to the Hebrew meshiach (anointed) and the Greek christos. His adopted son (later in this book revealed to be his nephew) Octavian immediately styled himself Divi Filius (Son of the Divine One). Before this Augustus carried the title Divus Soter (Divine Soter), which is the same as Ie-Sous. Originally ancient Judaism was simply the Roman imperial cult. 
 
-The people who assumed this role were the descendants of Mark Antony aka King Herod (aka Mithridates VI Eupator of Pontus aka Ptolemy XII Auletes of Egypt):
+The people who assumed this role were the descendants of Ptolemy XII Auletes of Egypt aka Mark Antony aka King Herod aka Mithridates VI Eupator of Pontus.
 
--   Ptolemy XIII Theos Philopator aka Gaius Octavius (Emperor Augustus) aka Rhoemetalces I. Augustus carried the titles Divi Filius (Son of God) and Divus Soter (Divine Soter), which is the same as Ie-Sous/Jesus.
--   Amyntas Nikator aka Amyntas, King of Galatia, who was Mark Antony aka King Herod's son under his Mithridates VI Eupator of Pontus alias. He was also Jesus ben Fabus. (See:
-    Jesus Christ Was Amyntas of Galatia (2010) by Ranajit Pal
+-   Ptolemy of Cyprus (brother of Ptolemy XII Auletes) aka Julius Caesar aka Asander, King of Bosphorus aka Mithridates Chrestus.
+-   Ptolemy XIII Theos Philopator (son of Ptolemy XII Auletes) aka Gaius Octavius (Emperor Augustus) aka Rhoemetalces I. Augustus carried the titles Divi Filius (Son of God) and Divus Soter (Divine Soter), which is the same as Ie-Sous/Jesus.
+-   Ptolemy XIV Philopator (son of Ptolemy XII Auletes) aka Amyntas Nikator aka Amyntas, King of Galatia, who was Ptolemy XII Auletes of Egypt aka Mark Antony aka King Herod aka Mithridates VI Eupator of Pontus's son under his Mithridates VI Eupator of Pontus alias. He was also Jesus ben Fabus. (See:
+    Jesus Christ Was Amyntas of Galatia (2010) by Ranajit Pal. Esus (also refered to as Aesus, Aisus, Haesus, Hesus) was the name of the head Celtic deity in Galatia.
     [^1]). The gens Fabia (Fabus) was one of the most ancient patrician families in ancient Rome.
 -   Alexander (son of King Herod) aka Alexander Helios aka Juba II. Was he Jesus ben Panthera? "Panthera" is a Hellenized corruption of "Ptolemaios" (Ptolem -> Ptol -> Panther). "Jesus, son of Ptolemy". The Talmud (Bereshit Rabbah 46:10) calls Izates and Monobazus the "Sons of Ptolemy". The Aramaic word for "son of" is bar. "Bar Ptolemy" becomes Bartholomew in the Gospels.
--   Alexander (grandson of King Herod) aka Ptolemy of Mauretania aka Monobazus I. Who was Jesus ben Sapphias?
--   Izates II, King of Adiabene who was the son of Alexander (grandson of King Herod) and his sister-wife Cleopatra (Thea
-Philopator) of Mauretania. He was Mark Antony aka King Herod's great-grandson. He was was Jesus ben Gamala/Gamaliel (See: Cleopatra to Christ (2010) by Ralph Ellis. Iza‑ / Izad‑ = "lord" Iranian, and Zates = Dyeus/Zeus. The same name as Jesus.
+-   Alexander Helios (son of Ptolemy XII Auletes and his daughter Cleopatra) aka Alexander, son of King Herod aka Juba II.
+-   Ptolemy of Mauretania (son of Alexander Helios and his twin sister Cleopatra Selene II) aka Alexander, son of King Herod aka Monobazus I who was the son of Alexander Helios. Who was Jesus ben Sapphias?
+-   Izates II, King of Adiabene aka Yeshua Cleopatros who was the son of Alexander (grandson of King Herod) and his sister-wife Cleopatra (Thea
+Philopator) of Mauretania. He was Mark Antony aka King Herod's great-grandson. He was was Jesus ben Gamala/Gamaliel (See: Cleopatra to Christ (2010) by Ralph Ellis. Izates = Iza‑ / Izad‑ = "lord" Iranian, and Zates = Dyeus/Zeus. The same name as Jesus.
 [^2])
 -   Tiberius Julius Sauromates II
 
