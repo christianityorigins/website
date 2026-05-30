@@ -135,11 +135,10 @@ The people who assumed this role were the descendants of Ptolemy XII Auletes of 
 -   Ptolemy XIV Philopator (son of Ptolemy XII Auletes) aka Amyntas Nikator aka Amyntas, King of Galatia, who was Ptolemy XII Auletes of Egypt aka Mark Antony aka King Herod aka Mithridates VI Eupator of Pontus's son under his Mithridates VI Eupator of Pontus alias. He was also Jesus ben Fabus. (See:
     Jesus Christ Was Amyntas of Galatia (2010) by Ranajit Pal. Esus (also refered to as Aesus, Aisus, Haesus, Hesus) was the name of the head Celtic deity in Galatia.
     [^1]). The gens Fabia (Fabus) was one of the most ancient patrician families in ancient Rome.
--   Alexander (son of King Herod) aka Alexander Helios aka Juba II. Was he Jesus ben Panthera? "Panthera" is a Hellenized corruption of "Ptolemaios" (Ptolem -> Ptol -> Panther). "Jesus, son of Ptolemy". The Talmud (Bereshit Rabbah 46:10) calls Izates and Monobazus the "Sons of Ptolemy". The Aramaic word for "son of" is bar. "Bar Ptolemy" becomes Bartholomew in the Gospels.
--   Alexander Helios (son of Ptolemy XII Auletes and his daughter Cleopatra) aka Alexander, son of King Herod aka Juba II.
+-   Alexander Helios (son of Ptolemy XII Auletes and his daughter Cleopatra) aka Alexander, son of King Herod aka Juba II. "Juba" is a diminutive of "Iehuva" (Jove). So Juba = "little Jove". That is the title of a prince (like Caesarion). Juba II was the claimed royal heir of the Massylii tribe, which is the 'Messiah' lineage from David's firstborn son with Saul's daughter Michal. Juba II was titled "Ptolemy" upon accession in Mauretania. Was he Jesus ben Panthera? "Panthera" is a Hellenized corruption of "Ptolemaios" (Ptolem -> Ptol -> Panther). "Jesus, son of Ptolemy".
 -   Ptolemy of Mauretania (son of Alexander Helios and his twin sister Cleopatra Selene II) aka Alexander, son of King Herod aka Monobazus I who was the son of Alexander Helios. Who was Jesus ben Sapphias?
 -   Izates II, King of Adiabene aka Yeshua Cleopatros who was the son of Alexander (grandson of King Herod) and his sister-wife Cleopatra (Thea
-Philopator) of Mauretania. He was Mark Antony aka King Herod's great-grandson. He was was Jesus ben Gamala/Gamaliel (See: Cleopatra to Christ (2010) by Ralph Ellis. Izates = Iza‑ / Izad‑ = "lord" Iranian, and Zates = Dyeus/Zeus. The same name as Jesus.
+Philopator) of Mauretania. He was Mark Antony aka King Herod's great-grandson. The Talmud (Bereshit Rabbah 46:10) calls Izates and Monobazus the "Sons of Ptolemy". The Aramaic word for "son of" is bar. "Bar Ptolemy" becomes Bartholomew in the Gospels. He was was Jesus ben Gamala/Gamaliel (See: Cleopatra to Christ (2010) by Ralph Ellis. Izates = Iza‑ / Izad‑ = "lord" Iranian, and Zates = Dyeus/Zeus. The same name as Jesus.
 [^2])
 -   Tiberius Julius Sauromates II
 
@@ -1135,7 +1134,7 @@ Fig. 1.55. Coin depicting Tiberius Julius Cotys II who was the grandfather of Ti
 
 **5.3.7.1 Simon Bar Kokhba**
 
-Tiberius Julius Cotys II was the grandfather of Tiberius Julius Sauromates II. Was he also Simon bar Kokhba? Bar Kokhba means "Son of the Star". The star iconography is prominent in coins of Tiberius Julius Sauromates II and his son Rheskuporis V and directly links to the "Star and Crescent" symbolism on the coins of Asander/Julius Caesar and Dynamis/Cleopatra. He led the Bar Kokhba revolt (132-136 AD) against Rome. As heir to the dragon crown he would have had a claim to the emperor position.
+Tiberius Julius Cotys II was the grandfather of Tiberius Julius Sauromates II. Was he also Simon bar Kokhba? Bar Kokhba means "Son of the Star". The star is the morning star (Venus), which is the symbol of the Julian house. That is the title of a Julian prince. The star iconography is prominent in coins of Tiberius Julius Sauromates II and his son Rheskuporis V and directly links to the "Star and Crescent" symbolism on the coins of Asander/Julius Caesar and Dynamis/Cleopatra. He led the Bar Kokhba revolt (132-136 AD) against Rome. As heir to the dragon crown he would have had a claim to the emperor position.
 
 Bar Kokhba served as the state's leader, crowning himself as nasi (lit. 'prince') and rabbinic scholars in his time such as Rabbi Akiva believed him to be the long-expected Messiah. He died during the Roman capture of the fortress of Betar in 135 CE, and was possibly crucified.
 
@@ -1598,7 +1597,7 @@ Capitolina after the Bar Kokhba revolt (the city was named after Hadrian's famil
 that Aquila of Sinope and his wife Prisca or Priscilla lived with Paul
 the Apostle and Paul called them "my fellow workers in Christ Jesus"
 
-If Aquila = a rabbi named Akiva (the name “Akiva” is a Semitic rendering of the Latin Aquila, meaning “eagle”. The eagle was the symbol of Jupiter, of Roman imperium, and of the Flavian dynasty) then this would put all the pieces together. 
+Aquila's teacher was a rabbi named Akiva. The name "Akiva" is a Semitic rendering of the Latin Aquila, meaning "eagle". The eagle was the symbol of Jupiter, of Roman imperium, and of the Flavian dynasty), and if Aquilla was the same person as Akiva then this would put all the pieces together. 
 
 Rabbi Akiva was a claimed teacher of Aquila of Sinope aka Onkelos. His other students were Markianos of Alexandria
 aka Marcion (Greek Markion) of Sinope, also, Shimon bar Yohai aka Simon Peter
@@ -1617,7 +1616,7 @@ ignatius (the name "Meir" means "one who illuminates". Ignatius means
 firey one and Polycarp was famous for lighting himself on fire).
 
 Aquila aka Rabbi Akiva was likely Paul the Apostle. In Acts 22:3 "Paul" claims to
-have been educated at the feet of Gamaliel who was the teacher of rabbi
+have been educated at the feet of Gamaliel (Tiberius Gemellus?) who was the teacher of rabbi
 Akiva, and in Acts 18:2-3 and Romans 16:3 NASB, it is claimed that
 Aquila of Sinope and his wife Prisca or Priscilla lived with Paul the
 Apostle and Paul called them "my fellow workers in Christ Jesus.
