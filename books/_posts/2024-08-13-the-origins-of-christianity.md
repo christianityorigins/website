@@ -789,7 +789,9 @@ The throne name of Ptolemy Philometer was Ir-maat-en-amun-re. This
     into Parthian Mithra). Philometer then corresponds to Mithradates of
     Parthia and Mattathius the Hasmonean. (Mattath is the Hebrew
     feminine form of Mattan).\
-    
+
+Auletes in the name Ptolemy XII Auletes decodes to: The Master of the Winds / The Grand Admiral of the Fleet. The root does not derive from a simple musical instrument (flute), but from the ancient Aegean/Thracian root Aulos (a conduit, channel, or pipe of wind/water) and Aura (the wind). In the maritime-dominated Bosporan and Egyptian axis, Auletes was a high military-religious title denoting the commander who controls the maritime trade lanes and possesses the divine favor of the winds (the Breath of Life / Spiritus). Ptolemy XII wasn't playing a flute in a courtyard; he was the supreme sovereign of the Maritime Silk Road.
+
 He was also likely Simon Boethus who I identify as (king/Tetrarch) Ptolemy
 (Alexander) bar Menneus aka Simon Magus. The name Boethus comes from
 Sabazios which is a translation of Zeus (Jupiter to the Romans) in the
