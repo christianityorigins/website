@@ -136,9 +136,7 @@ Caesar = "Asar‑Ra" (Osiris‑Ra, or Osiris King - Egytian Asar was another nam
 
 Julius Caesar was elected Flamen Dialis (high priest of Jupiter) in his youth. He was anointed with oil (the unctio) which is functionally identical to the Hebrew meshiach (anointed) and the Greek christos. His adopted son (later in this book revealed to be his nephew) Octavian immediately styled himself Divi Filius (Son of the Divine One, or Son of God). Before this Augustus carried the title Divus Soter (Divine Soter), which is the same as Ie-Sous. 
 
-Originally ancient Judaism was simply the Roman imperial cult. 
-
-The people who assumed this role were the descendants of Ptolemy XII Auletes of Egypt aka Mark Antony aka King Herod aka Mithridates VI Eupator of Pontus.
+The people who assumed this Jesus role were the descendants of Ptolemy XII Auletes of Egypt aka Mark Antony aka King Herod aka Mithridates VI Eupator of Pontus.
 
 -   Ptolemy of Cyprus (brother of Ptolemy XII Auletes) aka Julius Caesar aka Asander, King of Bosphorus aka Mithridates Chrestus.
 -   Ptolemy XIII Theos Philopator (son of Ptolemy XII Auletes) aka Gaius Octavius (Emperor Augustus) aka Rhoemetalces I. Augustus carried the titles Divi Filius (Son of God) and Divus Soter (Divine Soter), which is the same as Ie-Sous/Jesus.
