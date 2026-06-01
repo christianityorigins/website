@@ -35,7 +35,8 @@ Part 1: Rome Was Located On the Cimmerian Bosphorus (Crimea–Kerch) River in Cr
 1.1\. The Numismatic Key: Coins of a Global Empire\
 1.2\. Ancient Alias Names List\
 2\. Name and Title Meanings\
-2.1. Biblical Figures\
+2.1\. The Name Jesus Christ\
+2.2. Biblical Figures\
 Part 2: Foundations of the Dragon Cult\
 3\. The Sarmatian Dragon Cult\
 Part 3: The Alexandrian Synthesis\
@@ -116,49 +117,6 @@ Buddhism and Stocism were the earliest philosophical expressions of these slave 
 
 Beyond the surface-level imperial fiction, all these Alexandrian School religions contained the same psychological weapon at their core: centralized texts and priesthoods which makes a population easier to control through proxy (up until the Protestant reformation most of the European population was illiterate. Then the church kept scripture in Latin, which only clergy could read. Reproducing or translating the bible was punishable by death. This is because the bible was written for a tiny, literate priestly elite who would then control the population on behalf of kings), moral codes like submission, self-sacrifice, obedience, loyalty, divine judgment, the concept of hell, the promise of inner peace through acceptance of one’s station, and monotheism which divides the population through binary thinking, ie., the opposition between good and evil, us vs them, left vs right, etc., which destroys tribalism/collectivism by splitting the population into two opposing groups. These religions were also likely designed to segment the populations by class, culture, and region to prevent unified resistance. For example, Mithraism was for military elites (requiring blood oaths, with a Mithraic initiate caste system and hierarchical structure). Serapism was for civilians (promising afterlife salvation). Christianity was for slaves ("turn the other cheek").
 
-The name Jesus was deliberately engineered as a syncretic, polyvalent title that would resonate in multiple languages and theological systems simultaneously.
-
--   Hebrew/Aramaic: "Yahweh saves" (Yeshua). 
--   Greek: "Divine Zeus" (Ie‑Zeus). 
--   Latin: "Divine Savior" (Divus Soter (Ie‑ = from Latin Ie‑ and ‑sous = from Greek sōs (safe, savior). The title Divus Soter was used for the deified emperor). 
--   Egyptian: "Lord Osiris" (Ie‑Asar. Ie‑ means divinity in Egyptian, ie. as in I-em-hotep and also in Indo-European and in Luwian means "lord" (borrowed into Egyptian through Anatolian intermediaries) ‑sous = from Egyptian Asar (Osiris) via Greek Osiris with the O‑ dropped and ‑sir‑ shifted to ‑sou‑. Thus Ie‑sous = "Lord Asar" (Lord Osiris)). 
--   Persian (Avestan): "Yazata" (Lord, Divine Being), Izates = Ie‑zates (Divine Zeus). 
--   Celtic: "Lord Esus" (Ie‑sus). 
--   Sanskrit: "Isha" (Lord, Ruler cognate with Latin Ie‑). The Kushan king Kanishka (whose name decodes as “Khan‑Isha”) is "Lord Jesus".
-
-Ie- means "divine" in Proto-Indo-European languages, and Ie- (or Ia-) means "Lord" in Anatolian Hieroglyphic Luwian and is used for deified kings. Iza‑ / Izad‑ = "lord" in Iranian, and Isa means lord in Sanskrit. YHWH is translated in the Bible as Lord. Ie- is cognate with Latin Iov- (Jove) as in Iovilius, "of Jove", giving rise to the gens name Iulius. Jupiter was also called Jove or Iove to the Romans. The Latin pronunciation of Iove would have been Yoh-Way, i.e., Yahweh/YHWH. The Septuagint uses Iē‑ to transliterate the Hebrew theophoric Yeho‑. The Greek name Ἰησοῦς (Iēsous) is a direct transliteration of the Hebrew theophoric name Yehoshua, via its shortened Second Temple form Yeshua. In the Toledoth Yeshu, and in some Talmudic passages, the name is actually written as (Yeshu), not (Yeshua). Iē‑ is therefore also semantically the same as the Hebrew Ye‑ (or Yeh‑ / Yehô‑). 
-
--Sous in Latin comes from sōs, or savior. Divus Soter (Divine Soter) was the title for the head of the Roman Imperial Cult and in the Flamen Dialis cult Julius Caesar was the high priest of Jupiter Optimus Maximus (Jupiter is the same as Zeus. Zeus = Dyēus = Jupiter = Jove (Iove). Jupiter comes from Dyēus Pter ("Sky Father") which is the original name of the chief god for the Proto-Indo-Europeans on the Pontic-Caspian Steppe. The name Zeus comes from the pronunciation of "Dyeus", and (I)Jupiter comes from the pronunciation of "Dyeus Pter" (Diespiter -> Iupiter)).   
-
-Therefore, Ie-sous / Iēsous phonetically and structurally translates across the satrapies to "The Living Manifestation of Zeus-Osiris". It was an imperial office, not a personal name.
-
-Christios/Kristos in Greek means annointed. Egyptian pharaohs were anointed with oil as part of their coronation (the seshet ceremony), and Persian king were installed with a ritual that included taking the khvarenah (divine glory, a luminous). The Hebrew kings, by contrast, were anointed with oil (meshiach). The Greeks translated meshiach as christos. Christios/Kristos is equivalent to Scythian Xšaθra, Persian "Kšatrapati", Hyksos "Khasut" in Egypt, Kshatriya in Sanskrit which also = Vedic "Krishna", Hebrew meshiach, etc. 
-
-Caesar = "Asar‑Ra" (Osiris‑Ra, or Osiris King - Egytian Asar was another name for Osiris), the sun god as the resurrected king. This contracts to Asera → Caesar. In the Bosporan Dragon King cult, the same prince would first be inaugurated as a "Christ" (satrap) – anointed with oil or poison (the Mithridatium). After his ritual death and resurrection (the kurgan ascension), he would be hailed as "Asar" – the divine king. Asar = the living king who will become Osiris (emphasizing his future divinity). Christ = the anointed one who is already the son of God (Horus) and will resurrect as Caesar (Osiris).
-
-Julius Caesar was elected Flamen Dialis (high priest of Jupiter) in his youth. He was anointed with oil (the unctio) which is functionally identical to the Hebrew meshiach (anointed) and the Greek christos. His adopted son (later in this book revealed to be his nephew) Octavian immediately styled himself Divi Filius (Son of the Divine One, or Son of God). Before this Augustus carried the title Divus Soter (Divine Soter), which is the same as Ie-Sous. 
-
-The people who assumed this Jesus role were the brother and descendants of Ptolemy XII Auletes of Egypt aka Mark Antony aka King Herod aka Mithridates VI Eupator of Pontus.
-
--   Ptolemy of Cyprus (brother of Ptolemy XII Auletes) aka Julius Caesar aka Asander, King of Bosphorus aka Mithridates Chrestus.
--   Ptolemy XV Caesar (Caesarion) (son of Ptolemy of Cyprus/Julius Caesar and Cleopatra/Dynamis). Resurrected as emperor Tiberius Julius Caesar Augustus aka Tiberius Julius Aspurgus Philoromaios, king of Bosphorus aka Kujula Kadphises (Ku- = "son of", -Jula = Julius and -phises is a variant of pharna). Caesar (from Etruscan Aesar, from Egyptian Asar = Osiris) attached to the diminutive -ion marks him as the "little Osiris"—the heir to the resurrected god‑king. His grandson was Kanishka I ("Khan-Isha", which translates to "Lord Jesus").
--   Ptolemy XIII Theos Philopator (son of Ptolemy XII Auletes) aka Gaius Octavius (Emperor Augustus) aka Rhoemetalces I. Augustus carried the titles Divi Filius (Son of God) and Divus Soter (Divine Soter), which is the same as Ie-Sous/Jesus.
--   Ptolemy XIV Philopator (son of Ptolemy XII Auletes) aka Amyntas Nikator aka Amyntas, King of Galatia, who was Ptolemy XII Auletes of Egypt aka Mark Antony aka King Herod aka Mithridates VI Eupator of Pontus's son under his Mithridates VI Eupator of Pontus alias. He was also Jesus ben Fabus. (See:
-    Jesus Christ Was Amyntas of Galatia (2010) by Ranajit Pal. Esus (also refered to as Aesus, Aisus, Haesus, Hesus) was the name of the head Celtic deity in Galatia.
-    [^1]). The gens Fabia (Fabus) was one of the most ancient patrician families in ancient Rome.
--   Alexander Helios (son of Ptolemy XII Auletes and his daughter Cleopatra) aka Alexander, son of King Herod aka Juba II. "Juba" is a diminutive of "Iehuva" (Jove). So Juba = "little Jove". That is the title of a prince (like Caesarion). Juba II was the claimed royal heir of the Massylii tribe, which is the 'Messiah' lineage from David's firstborn son with Saul's daughter Michal. Juba II was titled "Ptolemy" upon accession in Mauretania. Was he Jesus ben Panthera? "Panthera" is a Hellenized corruption of "Ptolemaios" (Ptolem -> Ptol -> Panther). "Jesus, son of Ptolemy".
--   Ptolemy of Mauretania (son of Alexander Helios and his twin sister Cleopatra Selene II) aka Alexander, son of King Herod aka Monobazus I who was the son of Alexander Helios. Who was Jesus ben Sapphias?
--   Izates II, King of Adiabene aka Yeshua Cleopatros who was the son of Alexander (grandson of King Herod) and his sister-wife Cleopatra (Thea
-Philopator) of Mauretania. He was Mark Antony aka King Herod's great-grandson. The Talmud (Bereshit Rabbah 46:10) calls Izates and Monobazus the "Sons of Ptolemy". The Aramaic word for "son of" is bar. "Bar Ptolemy" becomes Bartholomew in the Gospels. He was was Jesus ben Gamala/Gamaliel (See: Cleopatra to Christ (2010) by Ralph Ellis. Izates = Iza‑ / Izad‑ = "lord" Iranian, and Zates = Dyeus/Zeus. The same name as Jesus.
-[^2])
--   Tiberius Julius Sauromates II
-
-It is likely that all the descendants of Mark Antony aka king Herod took on this role, or roles that may be similar. For example, see: Jesus Among the Julio-Claudians (2021) by Charles N. Pope
-[^3] who claims that Aristobulus V of Chalcis, grandson of king Herod aka Marcus Junius Silanus Torquatus was Jesus, or The Herodian Messiah Case For Jesus As Grandson Of Herod (2010) by Joseph Raymond.
-[^4]
-
-Jesus Christ then became a composite literary character based on the defeated Satrap-King Izates II of Adiabene ("Kingdom of Heaven"), and other Jesus-avatars, after the First Jewish-Roman War (66–73 CE). The Flavian Dynasty weaponized his imperial cult and created a virus within the host: a "religion" that systematically inverted the original cult by transforming the governing elite's title into the name of a sacrificial victim. Tiberius Julius Alexander aka "Josephus", who was the Flavian court historian, was the prefect of Egypt at this time and had control of the Library of Alexandria and the Alexandrian School, and with the help of Alexandrian School scribes, is likely who was responsible for creating history's most devastating psy-op—a forged testament that was later used to shatter the very empire that authored it. He was also likely the one who burned down the Library of Alexandria soon after to cover up the tracks of his conspiracy. (Ironically, Tiberius Julius Alexander aka "Josephus" was the brother of Izates II who was Marcus Julius Alexander).
-
 What the reader needs to know before entering this book:
 
 -   Conventional history is a synthetic construct, a palimpsest written over multiple times by victors. The primary forgers were the Flavian emperors, the Vatican, and the Jesuits. What they overwrote is that the Egyptian-Persian-Indian-Greek-Roman elite were a Proto-Indo-European (PIE) Elite (Kurgan Culture) who were the horse-riding, chariot-inventing pastoralists from the Pontic-Caspian Steppe who, beginning around 4500 BC, began a systematic conquest of Europe, Anatolia, and the Indus Valley, and who ruled through proxy dynasties. The domestication of the horse, invention of the chariot, and advanced ship building technology allowed them to travel vast distances and Egypt, Persia, India, Greece, Rome,
@@ -190,7 +148,7 @@ The Foundational Avatar: Julius Caesar is Asander, king of Bosporus (also known 
 ![Fig.1.1](/images/caesarstar.jpg){:width="400px"}\
 ![Fig.1.2](/images/asandernike.jpg){:width="400px"}
 
-Fig. 1.1 & 1.2. (L) Julius Caesar. (R) Asander, king of Bosphorus depicting a Nike which was the Greek goddess of victory and a close companion of Zeus. Other depictions of Asander show the star and crescent that is visible in the Julius Caesar coin above [^5]. Another coin of Asander depicts a Phrygian cap which is closely associated with the Roman god Mithras: [^6]. This (https://bosporan-kingdom.com/224-3094/) coin of Asander displays a prow (front of a ship) that is also seen in Julius Caesar coins. The star and crescent in above coins was the symbol of the city of Byzantium/Constantinople long before the Ottomans used it. The legend was that Byzas, the founder, chose the site based on a vision of a crescent moon and a star. This symbol represented the fusion of the lunar goddess (Hecate/Artemis, who was associated with snakes) and the solar god (Apollo). By using this symbol, Asander and Caesar were not just using a random symbol; they were explicitly claiming lordship over the Bosphorus.
+Fig. 1.1 & 1.2. (L) Julius Caesar. (R) Asander, king of Bosphorus depicting a Nike which was the Greek goddess of victory and a close companion of Zeus. Other depictions of Asander show the star and crescent that is visible in the Julius Caesar coin above [^1]. Another coin of Asander depicts a Phrygian cap which is closely associated with the Roman god Mithras: [^2]. This (https://bosporan-kingdom.com/224-3094/) coin of Asander displays a prow (front of a ship) that is also seen in Julius Caesar coins. The star and crescent in above coins was the symbol of the city of Byzantium/Constantinople long before the Ottomans used it. The legend was that Byzas, the founder, chose the site based on a vision of a crescent moon and a star. This symbol represented the fusion of the lunar goddess (Hecate/Artemis, who was associated with snakes) and the solar god (Apollo). By using this symbol, Asander and Caesar were not just using a random symbol; they were explicitly claiming lordship over the Bosphorus.
 
 The Avatar Succession: Roman Emperors are Bosporan Kings
 
@@ -286,7 +244,7 @@ Alexander the Great's successors ("Diadochi") were Seleucus I Nicator who contro
 IV. Flavian Emperors
 
 - Vespasian
-  Aliases: Rhescuporis I, king of Bosphorus. Herod Agrippa I (See: The Royal Ancestry of Emperor Vespasian. Henry Davis, [^7]). Flavius Scaevinus. Also, Vologases I of Parthia?
+  Aliases: Rhescuporis I, king of Bosphorus. Herod Agrippa I (See: The Royal Ancestry of Emperor Vespasian. Henry Davis, [^3]). Flavius Scaevinus. Also, Vologases I of Parthia?
 - Titus (Tit‑us = Diodotus? which means "Given by Zeus" which is the exact same meaning as Mithridates ("Given by Mithra")). Aliases: Polemon II, Aulus Avillius Flaccus.
 
 V. Speculative
@@ -321,7 +279,7 @@ V. Speculative
     "Tale of the Shipwrecked Sailor". Josephus in Antiquities of the
     Jews, Book XX (Ch 9.4) refers to Paul (Saulus) as related to Herod
     Agrippa.
--  Pythagoras: "Pythagoras" = "Pythodorida" = "Python-Priestess". Pythagoras was not a man—he was a title held by the high priest/ess of the Delphic/Alexandrian serpent cult, possibly Cleopatra herself under a male avatar. The high priestess of the Temple of Apollo at Delphi was called Pythia [^8] who breathed serpent vapors (ethylene gas). Greek writers regarded the Hyperboreans as the mythical founders of Apollo's shrines at Delos and Delphi [^9]. The name "Pythagoras" is derived from the Greek words "Pythios" (Πύθιος), meaning "of Pythia" or "belonging to the Pythia ("Pythoness"), and "Agoras" is a direct linguistic link to "Agaroi", the name of the Scythian snake-venom priesthood.
+-  Pythagoras: "Pythagoras" = "Pythodorida" = "Python-Priestess". Pythagoras was not a man—he was a title held by the high priest/ess of the Delphic/Alexandrian serpent cult, possibly Cleopatra herself under a male avatar. The high priestess of the Temple of Apollo at Delphi was called Pythia [^4] who breathed serpent vapors (ethylene gas). Greek writers regarded the Hyperboreans as the mythical founders of Apollo's shrines at Delos and Delphi [^5]. The name "Pythagoras" is derived from the Greek words "Pythios" (Πύθιος), meaning "of Pythia" or "belonging to the Pythia ("Pythoness"), and "Agoras" is a direct linguistic link to "Agaroi", the name of the Scythian snake-venom priesthood.
 
 **2. Name and Title Meanings**
 
@@ -364,20 +322,71 @@ The Flavians didn't just remake their main enemy's cult, they rewrote history, i
     rhotacization in ancient Latin the /p/ and /r/ could be swapped).
 -   Vespasian: Vas/Bas was the royal abbreviation for the Greek word Basilius which = King. Ves‑ is also a contraction of Vah‑ / Bah‑, an honorific prefix (cf. Bahram, Vahram). Pas‑ is exactly the Paisa/Pahlav root, plus the adjectival suffix ‑ianus ("belonging to"). Thus Vespasianus = Ves‑pasianus = "Lord of the Pasa (Parthians)" or "King belonging to the Pahlav clan". Vespasians's mother was Vespasia Pollo. Pollio derives from Ptolemy, or Polemon. The hypocoristic (pet‑name) form of Ptolemy in Greek was Ptollion. In Latin, that became Pollio (the initial Pt‑ was simplified to P‑, as happened with many Greek loanwords). Ptolemy and Polemon are regional pronunciations of the same Dragon‑King title. In the bible Ptollion was a leader of the Pharisees during the 1st century BCE. Vespasia Pollo was a secret descendant of Cleopatra and her brother-husband Ptolemy XIII Theos Philopator (aka Gaius Octavius (Emperor Augustus) aka Polemon I of Pontus). Also, their "Sabine" origins are a cover for their Bosporan roots: Suetonius, a Flavian court historian, claims the Flavian family was of "Sabine" origin. This was a lie. They were not Sabine; they were Sabi—priestly Dragon Kings from Scythian Sabi, which means "seven" (a sacred number) and is the root of Sabazios (the Thracian Zeus) and Sabaoth (Lord of Hosts).
 
-2.1 Biblical Figures
+**2.1 The Name Jesus Christ**
 
-The genealogies in Genesis match the Bosporan king list when translated via Greek phonetic equivalents.
+The name Jesus was deliberately engineered as a syncretic, polyvalent title that would resonate in multiple languages and theological systems simultaneously.
+
+-   Hebrew/Aramaic: "Yahweh saves" (Yeshua). 
+-   Greek: "Divine Zeus" (Ie‑Zeus). 
+-   Latin: "Divine Savior" (Divus Soter (Ie‑ = from Latin Ie‑ and ‑sous = from Greek sōs (safe, savior). The title Divus Soter was used for the deified emperor). 
+-   Egyptian: "Lord Osiris" (Ie‑Asar. Ie‑ means divinity in Egyptian, ie. as in I-em-hotep and also in Indo-European and in Luwian means "lord" (borrowed into Egyptian through Anatolian intermediaries) ‑sous = from Egyptian Asar (Osiris) via Greek Osiris with the O‑ dropped and ‑sir‑ shifted to ‑sou‑. Thus Ie‑sous = "Lord Asar" (Lord Osiris)). 
+-   Persian (Avestan): "Yazata" (Lord, Divine Being), Izates = Ie‑zates (Divine Zeus). 
+-   Celtic: "Lord Esus" (Ie‑sus). 
+-   Sanskrit: "Isha" (Lord, Ruler cognate with Latin Ie‑). The Kushan king Kanishka (whose name decodes as “Khan‑Isha”) is "Lord Jesus".
+
+Ie- means "divine" in Proto-Indo-European languages, and Ie- (or Ia-) means "Lord" in Anatolian Hieroglyphic Luwian and is used for deified kings. Iza‑ / Izad‑ = "lord" in Iranian, and Isa means lord in Sanskrit. YHWH is translated in the Bible as Lord. Ie- is cognate with Latin Iov- (Jove) as in Iovilius, "of Jove", giving rise to the gens name Iulius. Jupiter was also called Jove or Iove to the Romans. The Latin pronunciation of Iove would have been Yoh-Way, i.e., Yahweh/YHWH. The Septuagint uses Iē‑ to transliterate the Hebrew theophoric Yeho‑. The Greek name Ἰησοῦς (Iēsous) is a direct transliteration of the Hebrew theophoric name Yehoshua, via its shortened Second Temple form Yeshua. In the Toledoth Yeshu, and in some Talmudic passages, the name is actually written as (Yeshu), not (Yeshua). Iē‑ is therefore also semantically the same as the Hebrew Ye‑ (or Yeh‑ / Yehô‑). 
+
+-Sous in Latin comes from sōs, or savior. Divus Soter (Divine Soter) was the title for the head of the Roman Imperial Cult and in the Flamen Dialis cult Julius Caesar was the high priest of Jupiter Optimus Maximus (Jupiter is the same as Zeus. Zeus = Dyēus = Jupiter = Jove (Iove). Jupiter comes from Dyēus Pter ("Sky Father") which is the original name of the chief god for the Proto-Indo-Europeans on the Pontic-Caspian Steppe. The name Zeus comes from the pronunciation of "Dyeus", and (I)Jupiter comes from the pronunciation of "Dyeus Pter" (Diespiter -> Iupiter)).   
+
+Therefore, Ie-sous / Iēsous phonetically and structurally translates across the satrapies to "The Living Manifestation of Zeus-Osiris". It was an imperial office, not a personal name.
+
+Christios/Kristos in Greek means annointed. Egyptian pharaohs were anointed with oil as part of their coronation (the seshet ceremony), and Persian king were installed with a ritual that included taking the khvarenah (divine glory, a luminous). The Hebrew kings, by contrast, were anointed with oil (meshiach). The Greeks translated meshiach as christos. Christios/Kristos is equivalent to Scythian Xšaθra, Persian "Kšatrapati", Hyksos "Khasut" in Egypt, Kshatriya in Sanskrit which also = Vedic "Krishna", Hebrew meshiach, etc. 
+
+Caesar = "Asar‑Ra" (Osiris‑Ra, or Osiris King - Egytian Asar was another name for Osiris), the sun god as the resurrected king. This contracts to Asera → Caesar. In the Bosporan Dragon King cult, the same prince would first be inaugurated as a "Christ" (satrap) – anointed with oil or poison (the Mithridatium). After his ritual death and resurrection (the kurgan ascension), he would be hailed as "Asar" – the divine king. Asar = the living king who will become Osiris (emphasizing his future divinity). Christ = the anointed one who is already the son of God (Horus) and will resurrect as Caesar (Osiris).
+
+Julius Caesar was elected Flamen Dialis (high priest of Jupiter) in his youth. He was anointed with oil (the unctio) which is functionally identical to the Hebrew meshiach (anointed) and the Greek christos. His adopted son (later in this book revealed to be his nephew) Octavian immediately styled himself Divi Filius (Son of the Divine One, or Son of God). Before this Augustus carried the title Divus Soter (Divine Soter), which is the same as Ie-Sous. 
+
+The people who assumed this Jesus role were the brother and descendants of Ptolemy XII Auletes of Egypt aka Mark Antony aka King Herod aka Mithridates VI Eupator of Pontus.
+
+-   Ptolemy of Cyprus (brother of Ptolemy XII Auletes) aka Julius Caesar aka Asander, King of Bosphorus aka Mithridates Chrestus.
+-   Ptolemy XV Caesar (Caesarion) (son of Ptolemy of Cyprus/Julius Caesar and Cleopatra/Dynamis). Resurrected as emperor Tiberius Julius Caesar Augustus aka Tiberius Julius Aspurgus Philoromaios, king of Bosphorus aka Kujula Kadphises (Ku- = "son of", -Jula = Julius and -phises is a variant of pharna). Caesar (from Etruscan Aesar, from Egyptian Asar = Osiris) attached to the diminutive -ion marks him as the "little Osiris"—the heir to the resurrected god‑king. His grandson was Kanishka I ("Khan-Isha", which translates to "Lord Jesus").
+-   Ptolemy XIII Theos Philopator (son of Ptolemy XII Auletes) aka Gaius Octavius (Emperor Augustus) aka Rhoemetalces I. Augustus carried the titles Divi Filius (Son of God) and Divus Soter (Divine Soter), which is the same as Ie-Sous/Jesus.
+-   Ptolemy XIV Philopator (son of Ptolemy XII Auletes) aka Amyntas Nikator aka Amyntas, King of Galatia, who was Ptolemy XII Auletes of Egypt aka Mark Antony aka King Herod aka Mithridates VI Eupator of Pontus's son under his Mithridates VI Eupator of Pontus alias. He was also Jesus ben Fabus. (See:
+    Jesus Christ Was Amyntas of Galatia (2010) by Ranajit Pal. Esus (also refered to as Aesus, Aisus, Haesus, Hesus) was the name of the head Celtic deity in Galatia.
+    [^6]). The gens Fabia (Fabus) was one of the most ancient patrician families in ancient Rome.
+-   Alexander Helios (son of Ptolemy XII Auletes and his daughter Cleopatra) aka Alexander, son of King Herod aka Juba II. "Juba" is a diminutive of "Iehuva" (Jove). So Juba = "little Jove". That is the title of a prince (like Caesarion). Juba II was the claimed royal heir of the Massylii tribe, which is the 'Messiah' lineage from David's firstborn son with Saul's daughter Michal. Juba II was titled "Ptolemy" upon accession in Mauretania. Was he Jesus ben Panthera? "Panthera" is a Hellenized corruption of "Ptolemaios" (Ptolem -> Ptol -> Panther). "Jesus, son of Ptolemy".
+-   Ptolemy of Mauretania (son of Alexander Helios and his twin sister Cleopatra Selene II) aka Alexander, son of King Herod aka Monobazus I who was the son of Alexander Helios. Who was Jesus ben Sapphias?
+-   Izates II, King of Adiabene aka Yeshua Cleopatros who was the son of Alexander (grandson of King Herod) and his sister-wife Cleopatra (Thea
+Philopator) of Mauretania. He was Mark Antony aka King Herod's great-grandson. The Talmud (Bereshit Rabbah 46:10) calls Izates and Monobazus the "Sons of Ptolemy". The Aramaic word for "son of" is bar. "Bar Ptolemy" becomes Bartholomew in the Gospels. He was was Jesus ben Gamala/Gamaliel (See: Cleopatra to Christ (2010) by Ralph Ellis. Izates = Iza‑ / Izad‑ = "lord" Iranian, and Zates = Dyeus/Zeus. The same name as Jesus.
+[^7])
+-   Tiberius Julius Sauromates II
+
+It is likely that all the descendants of Mark Antony aka king Herod took on this role, or roles that may be similar. For example, see: Jesus Among the Julio-Claudians (2021) by Charles N. Pope
+[^8] who claims that Aristobulus V of Chalcis, grandson of king Herod aka Marcus Junius Silanus Torquatus was Jesus, or The Herodian Messiah Case For Jesus As Grandson Of Herod (2010) by Joseph Raymond.
+[^9]
+
+Jesus Christ then became a composite literary character based on the defeated Satrap-King Izates II of Adiabene ("Kingdom of Heaven"), and other Jesus-avatars, after the First Jewish-Roman War (66–73 CE). The Flavian Dynasty weaponized his imperial cult and created a virus within the host: a "religion" that systematically inverted the original cult by transforming the governing elite's title into the name of a sacrificial victim. Tiberius Julius Alexander aka "Josephus", who was the Flavian court historian, was the prefect of Egypt at this time and had control of the Library of Alexandria and the Alexandrian School, and with the help of Alexandrian School scribes, is likely who was responsible for creating history's most devastating psy-op—a forged testament that was later used to shatter the very empire that authored it. He was also likely the one who burned down the Library of Alexandria soon after to cover up the tracks of his conspiracy. (Ironically, Tiberius Julius Alexander aka "Josephus" was the brother of Izates II who was Marcus Julius Alexander).
+
+**2.2 Biblical Figures**
+
+The genealogies in Genesis and the New Testament match the Bosporan king list when translated via Greek phonetic equivalents.
 
 -   Adam = Ateas. Ata in Scythian means "father, ancestor".
+-   Bartholomew = Bar‑Ptolemy (Son of Ptolemy). Bartholomew is a Dragon King prince – specifically, Alexander (son of Herod) or Alexander Helios (Juba II)
 -   Noah = Noas (Bosporan king, 1st c. CE also known as Tothorses). ΝΩΑΣ (Noas) is a direct Greek rendering of the Hebrew נֹחַ (Noach).
 -   Abraham = Abraamios (a Thracian king in Crimea, known from inscriptions), the father of Issac. Abraamios derives from Ab = Father (Semitic) + Raham = Arya (Sanskrit/Persian: "Noble") + Aram (the name for the land of the Arameans, a steppe-derived people). Abraham = Ab-Raham = "Father of the Aryans" or "Father of the Noble Ones". Related to Brahmin (Brahama) -> Ibrahim -> Abraham. A(Braha)m(in). Lord Rama (the greatest and seventh incarnation of God, hero of the Ramayana, protector of Dharma) in the ancient Vedas derives from this.
 -   Isaac = Isaakos (Greek form of “Isaac”) = Iesas (Bosporan prince). Also, remove the Hebrew theophoric Y- = -tzak = Hebrew rendering of Sacae (Scythians).
 -   Jacob = Iakobos = a known Bosporan ambassador to Rome.
 -   Joseph: This is not a Jewish name. It is the Egyptian Yusef, from Asar-Seph (Son of Osiris), a title identical in function to Caesar (Asar-King). Every "Joseph" in the biblical narrative is a high imperial official: Joseph in Egypt was the Vizier. Joseph of Arimathea was the Sanhedrin member who claimed the body. This was a title for the Prime Minister of the Dragon court. By using a text addressed to a "kratistos Epaphroditus" (the god Hermaphroditus, a form of Serapis), Josephus is signing his work as "Osiris-Son, the Prime Minister".
+-   Philip (Apostle) = Herod Philip = Tiberius Julius Aspurgus (Emperor Tiberius)
 -   The 12 tribes = the 12 clans of the Sarmatian federation around the Sea of Azov.
 -   King David = Diodotos (Bactrian king). Dwd = Diodotus (given by Zeus) in abbreviated form. The Greek Diodotus = Dio (Zeus) + dotus (given). The Hebrew Dwd is the same as the Thracian Dod (god), as in Dodona (oracle of Zeus).
+-   Mary (Mother of Jesus) = Mari, the Snake‑Legged Scythian Goddess. Mary is the same figure as Cleopatra VII (Dynamis). Cleopatra was called “the New Isis” – Isis is the Egyptian version of the Snake‑Legged Goddess.
+-   Mary Magdalene = Mariamne III (daughter of Aristobulus IV)
+-   Matthew = The Hebrew name Mattathias (Ματταθίας) is a direct translation of Mithridates (“given by Mithra”))
 -   Moses = Manes/Mannu-Kuras = Manu (Scythian Sage-King) = Menes (Egypt’s legendary founder). Also appears in "Monobazus" → “Manu Bazus” → Sarmatian-Mythological Sage King. The Iranian Manu is a legendary civilizer, and in India he becomes the first Lawgiver (the Manu Smriti = Scythian governance code). The biblical Moses defeats Pharaoh (actually Mitanni elite), parts waters with a serpent-staff—obvious encoding of dragon-kingship (Aži Dahāka). Moses takes on different masks: M enes – the first official Pharaoh (not real, a compilation of conquerors). Menes – the semi-mythical Median king, founder of the priest-class. Mannu-kuras – Proto-Mede, whose name becomes Cyrus. The name Kur-Ash = "Sun Man". The Exodus is not Judaic memory: it's a political memory of Mitanni-Scythian expulsion from Egypt after the religious revolution of Thutmose III → Horemheb wiped them out with a new priest-kingship in Amarna. He shows up in a number of religions: In Zoroastrianism he is Manushchihr, in Hinuduisn he is Manu, in Judaism he is Moses, in Norse mythology he is Mannus, etc.
 -   Solomon = Sol-Amūn or "Sun of Amun" which is a direct parallel to "Zeus-Ammon", a title Alexander carried. Also, Solemos is a Greek name for a Bosporan governor.
+-   Thomas = Didymus = Twin = Izates III (Son of Izates II)
 
 **3 The Sarmatian Dragon Cult**
 
