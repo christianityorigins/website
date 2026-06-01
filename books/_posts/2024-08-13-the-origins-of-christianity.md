@@ -121,9 +121,9 @@ The name Jesus was deliberately engineered as a syncretic, polyvalent title that
 -   Hebrew/Aramaic: "Yahweh saves" (Yeshua). 
 -   Greek: "Divine Zeus" (Ie‑Zeus). 
 -   Latin: "Divine Savior" (Divus Soter (Ie‑ = from Latin Ie‑ and ‑sous = from Greek sōs (safe, savior). The title Divus Soter was used for the deified emperor). 
--   Egyptian: "Lord Osiris" (Ie‑Asar. Ie‑ = as imeans divinity in Egyptian, ie. as in I-em-hotep and also in Indo-European and in Luwian "lord" (borrowed into Egyptian through Anatolian intermediaries) ‑sous = from Egyptian Asar (Osiris) via Greek Osiris with the O‑ dropped and ‑sir‑ shifted to ‑sou‑. Thus Ie‑sous = "Lord Asar" (Lord Osiris)). 
+-   Egyptian: "Lord Osiris" (Ie‑Asar. Ie‑ means divinity in Egyptian, ie. as in I-em-hotep and also in Indo-European and in Luwian means "lord" (borrowed into Egyptian through Anatolian intermediaries) ‑sous = from Egyptian Asar (Osiris) via Greek Osiris with the O‑ dropped and ‑sir‑ shifted to ‑sou‑. Thus Ie‑sous = "Lord Asar" (Lord Osiris)). 
 -   Persian (Avestan): "Yazata" (Lord, Divine Being), Izates = Ie‑zates (Divine Zeus). 
--   Celtic: Lord Esus” (Ie‑sus). 
+-   Celtic: "Lord Esus" (Ie‑sus). 
 -   Sanskrit: "Isha" (Lord, Ruler cognate with Latin Ie‑). The Kushan king Kanishka (whose name decodes as “Khan‑Isha”) is "Lord Jesus".
 
 Ie- means "divine" in Proto-Indo-European languages, and Ie- (or Ia-) means "Lord" in Anatolian Hieroglyphic Luwian and is used for deified kings. Iza‑ / Izad‑ = "lord" in Iranian, and Isa means lord in Sanskrit. YHWH is translated in the Bible as Lord. Ie- is cognate with Latin Iov- (Jove) as in Iovilius, "of Jove", giving rise to the gens name Iulius. Jupiter was also called Jove or Iove to the Romans. The Latin pronunciation of Iove would have been Yoh-Way, i.e., Yahweh/YHWH. The Septuagint uses Iē‑ to transliterate the Hebrew theophoric Yeho‑. The Greek name Ἰησοῦς (Iēsous) is a direct transliteration of the Hebrew theophoric name Yehoshua, via its shortened Second Temple form Yeshua. In the Toledoth Yeshu, and in some Talmudic passages, the name is actually written as (Yeshu), not (Yeshua). Iē‑ is therefore also semantically the same as the Hebrew Ye‑ (or Yeh‑ / Yehô‑). 
