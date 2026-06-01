@@ -138,9 +138,10 @@ Caesar = "Asar‑Ra" (Osiris‑Ra, or Osiris King - Egytian Asar was another nam
 
 Julius Caesar was elected Flamen Dialis (high priest of Jupiter) in his youth. He was anointed with oil (the unctio) which is functionally identical to the Hebrew meshiach (anointed) and the Greek christos. His adopted son (later in this book revealed to be his nephew) Octavian immediately styled himself Divi Filius (Son of the Divine One, or Son of God). Before this Augustus carried the title Divus Soter (Divine Soter), which is the same as Ie-Sous. 
 
-The people who assumed this Jesus role were the descendants of Ptolemy XII Auletes of Egypt aka Mark Antony aka King Herod aka Mithridates VI Eupator of Pontus.
+The people who assumed this Jesus role were the brother and descendants of Ptolemy XII Auletes of Egypt aka Mark Antony aka King Herod aka Mithridates VI Eupator of Pontus.
 
 -   Ptolemy of Cyprus (brother of Ptolemy XII Auletes) aka Julius Caesar aka Asander, King of Bosphorus aka Mithridates Chrestus.
+-   Ptolemy XV Caesar (Caesarion) (son of Ptolemy of Cyprus/Julius Caesar and Cleopatra/Dynamis). Resurrected as emperor Tiberius Julius Caesar Augustus aka Tiberius Julius Aspurgus Philoromaios, king of Bosphorus aka Kujula Kadphises (Ku- = "son of", -Jula = Julius and -phises is a variant of pharna). Caesar (from Etruscan Aesar, from Egyptian Asar = Osiris) attached to the diminutive -ion marks him as the "little Osiris"—the heir to the resurrected god‑king. His grandson was Kanishka I ("Khan-Isha", which translates to "Lord Jesus").
 -   Ptolemy XIII Theos Philopator (son of Ptolemy XII Auletes) aka Gaius Octavius (Emperor Augustus) aka Rhoemetalces I. Augustus carried the titles Divi Filius (Son of God) and Divus Soter (Divine Soter), which is the same as Ie-Sous/Jesus.
 -   Ptolemy XIV Philopator (son of Ptolemy XII Auletes) aka Amyntas Nikator aka Amyntas, King of Galatia, who was Ptolemy XII Auletes of Egypt aka Mark Antony aka King Herod aka Mithridates VI Eupator of Pontus's son under his Mithridates VI Eupator of Pontus alias. He was also Jesus ben Fabus. (See:
     Jesus Christ Was Amyntas of Galatia (2010) by Ranajit Pal. Esus (also refered to as Aesus, Aisus, Haesus, Hesus) was the name of the head Celtic deity in Galatia.
