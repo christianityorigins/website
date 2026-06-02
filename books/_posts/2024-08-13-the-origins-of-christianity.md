@@ -224,7 +224,7 @@ Alexander the Great's successors ("Diadochi") were Seleucus I Nicator who contro
   - Spouse/Consort: Cleopatra VII (Isis who in mythology was the wife of Osiris and the mother of Horus): Dynamis Ourania (Aphrodite Urania). Aliases: Pythodorida Philometor (Pytho- from python, and -doria from the Dorian tribe who were Scythian Greeks). Also, Amanirenas ("Amon is Lord"), Kandake of Kush?
   - Children:
     - Emperor Tiberius Julius Caesar Augustus. Alias: Tiberius Julius Aspurgus Philoromaios, king of Bosphorus (Aspurgos calls himself the son of "the great king of Asandrokhos" in an inscription. https://www.researchgate.net/publication/390912485_Aspurgos_-_the_king_of_Bosporan_state_98_BC_-_AD_38). Also likely Kujula Kadphises, prince of Bactria. Also, was he the legendary Chinese emperor Yu the Great (original name "Aži" or "Yazhi" (亞茲))? Julius, from Ioulius, related to Iove (Jove). Iove is linguistically linked to the Scythian tribal name Yuehzi (Yuezhi). He is "The Jove/Yuezhi King"? Also, Artaxias II king of Armenia? (Artaxes is Arta-Uksha which is the same as Kadphises or Gud-Vrsa)
-      - Spouse: Vipsania Agrippina. The name Vipsania is obscure, but Agrippina means "wild horse" (from agri- "wild" and -pina "mare"), and Tiberius Julius Aspurgus Philoromaios's wife, known only through numismatic evidence, was Gepae-pyris (Gepa- from hippos, "horse" in Greek, cf. Epona, Celtic horse goddess and -epyris (possibly "lady" or "queen"). Both names encode "Horse-Queen." This is a title for a Sarmatian noblewoman of the steppe horse-culture.
+      - Spouse: Vipsania Agrippina. The name Vipsania is obscure, but Agrippina means "wild horse" (from agri- "wild" and -pina "mare"), and Tiberius Julius Aspurgus Philoromaios's wife, known only through numismatic evidence, was Gepae-pyris (Gepa- from hippos, "horse" in Greek, cf. Epona, Celtic horse goddess and -epyris (possibly "lady" or "queen"). Both names encode "Horse-Queen." This is a title for a Sarmatian noblewoman of the steppe horse-culture. Vipsania Agrippina is the same as Agrippina the Elder who was Caligula's mother.
       - Children:
         - Tiberius Julius Mithridates III (Italian Avatar: Emperor Caligula)
         - Tiberius Julius Cotys I. Italian Avatar: Emperor Claudius = Rhoemetalces II of Bosporus (Reigns are nearly perfectly co-terminus. Polemon Pythodoros (Julius Caesar/Asander) and Pythodorida of Pontus (Cleopatra/Dynamis) had a daughter Antonia Tryphaena. Her son was Rhoemetalces II whose reign coincided with emperor Claudius)
@@ -317,21 +317,27 @@ The Flavians didn't just remake their main enemy's cult, they rewrote history, i
 
 **2.1 The Name Jesus Christ**
 
-The name Jesus was deliberately engineered as a syncretic, polyvalent title that would resonate in multiple languages and theological systems simultaneously.
+In the original Egyptian–Bosporan imperial cult, the living Dragon King bore the title Ie-Asar – "Lord Osiris". Osiris (Asar) was the primordial dying-and-resurrecting god-king, the model for every later avatar. The prefix Ie- (or Ia- ) meant "divine" or "lord" in Egyptian (as in I-em-hotep), and it is cognate with the Proto-Indo-European Ie- (divine, lord), which gave rise to Luwian Iya- (lord), Greek Ie- (divine), Latin Iov- (Jove), and Sanskrit Isha (lord).
 
--   Hebrew/Aramaic: "Yahweh saves" (Yeshua). 
--   Greek: "Divine Zeus" (Ie‑Zeus). 
--   Latin: "Divine Savior" (Divus Soter (Ie‑ = from Latin Ie‑ and ‑sous = from Greek sōs (safe, savior). The title Divus Soter was used for the deified emperor). 
--   Egyptian: "Lord Osiris" (Ie‑Asar. Ie‑ means divinity in Egyptian, ie. as in I-em-hotep and also in Indo-European and in Luwian means "lord" (borrowed into Egyptian through Anatolian intermediaries) ‑sous = from Egyptian Asar (Osiris) via Greek Osiris with the O‑ dropped and ‑sir‑ shifted to ‑sou‑. Thus Ie‑sous = "Lord Asar" (Lord Osiris)). 
--   Persian (Avestan): "Yazata" (Lord, Divine Being), Izates = Ie‑zates (Divine Zeus). 
--   Celtic: "Lord Esus" (Ie‑sus). 
--   Sanskrit: "Isha" (Lord, Ruler cognate with Latin Ie‑). The Kushan king Kanishka (whose name decodes as “Khan‑Isha”) is "Lord Jesus".
+When the Ptolemaic dynasty Hellenized the cult, they syncretized Osiris with Zeus (via Serapis). The title Ie-Asar was thus rendered into Greek as Ie-Zeus (Divine Zeus) – because Zeus was the Greek equivalent of Osiris in the Serapis theology. In the Latin West, the same title became Ie-Jove (Divine Jupiter) or Divus Soter (Divine Savior), as Julius Caesar – high priest of Jupiter – was the first deified emperor.
 
-Ie- means "divine" in Proto-Indo-European languages, and Ie- (or Ia-) means "Lord" in Anatolian Hieroglyphic Luwian and is used for deified kings. Iza‑ / Izad‑ = "lord" in Iranian, and Isa means lord in Sanskrit. YHWH is translated in the Bible as Lord. Ie- is cognate with Latin Iov- (Jove) as in Iovilius, "of Jove", giving rise to the gens name Iulius. Jupiter was also called Jove or Iove to the Romans. The Latin pronunciation of Iove would have been Yoh-Way, i.e., Yahweh/YHWH. The Septuagint uses Iē‑ to transliterate the Hebrew theophoric Yeho‑. The Greek name Ἰησοῦς (Iēsous) is a direct transliteration of the Hebrew theophoric name Yehoshua, via its shortened Second Temple form Yeshua. In the Toledoth Yeshu, and in some Talmudic passages, the name is actually written as (Yeshu), not (Yeshua). Iē‑ is therefore also semantically the same as the Hebrew Ye‑ (or Yeh‑ / Yehô‑). 
+The Greek form Iēsous (Ἰησοῦς) is a direct transliteration of the Aramaic Yeshua, which the Flavians later claimed meant "Yahweh saves". But the original Aramaic title of the Dragon King was not Yeshua. It was Ie-Zeus (or, in its more ancient Egyptian form, Ie-Asar). The Flavians altered the name to Yeshua while preserving the sound Ie-sous – which Greek speakers could still hear as "Divine Savior" (from sōtēr, not sōs). The -sous ending is simply the Greek masculine nominativ Soter.
 
--Sous in Latin comes from sōs, or savior. Divus Soter (Divine Soter) was the title for the head of the Roman Imperial Cult and in the Flamen Dialis cult Julius Caesar was the high priest of Jupiter Optimus Maximus (Jupiter is the same as Zeus. Zeus = Dyēus = Jupiter = Jove (Iove). Jupiter comes from Dyēus Pter ("Sky Father") which is the original name of the chief god for the Proto-Indo-Europeans on the Pontic-Caspian Steppe. The name Zeus comes from the pronunciation of "Dyeus", and (I)Jupiter comes from the pronunciation of "Dyeus Pter" (Diespiter -> Iupiter)).   
+Thus, Iēsous was a polyvalent Flavian engineering:
 
-Therefore, Ie-sous / Iēsous phonetically and structurally translates across the satrapies to "The Living Manifestation of Zeus-Osiris". It was an imperial office, not a personal name.
+To Aramaic-speaking Jews: "Yahweh saves" (Yeshua).
+
+To Greek-speaking pagans: "Divine Savior" (Ie-sōtēr) or "Divine Zeus" (Ie-Zeus).
+
+To Egyptians: "Lord Osiris" (Ie-Asar).
+
+To Persians: "Yazata" (divine being), as in the name Izates (Ie-zates).
+
+To Celts: "Lord Esus" (Ie-sus).
+
+To Indians: "Isha" (lord), as in Kanishka ("Khan-Isha" = Lord Jesus).
+
+Therefore, Ie-sous / Iēsous phonetically and structurally translates across the satrapies to "The Living Manifestation of Osiris-Zeus-Jupiter." It was an imperial office, not a personal name. The Flavian inversion turned this title of cosmic kingship into the name of a sacrificed criminal, completing the subversion of the Dragon King cult.
 
 Christios/Kristos in Greek means annointed. Egyptian pharaohs were anointed with oil as part of their coronation (the seshet ceremony), and Persian king were installed with a ritual that included taking the khvarenah (divine glory, a luminous). The Hebrew kings, by contrast, were anointed with oil (meshiach). The Greeks translated meshiach as christos. Christios/Kristos is equivalent to Scythian Xšaθra, Persian "Kšatrapati", Hyksos "Khasut" in Egypt, Kshatriya in Sanskrit which also = Vedic "Krishna", Hebrew meshiach, etc. 
 
