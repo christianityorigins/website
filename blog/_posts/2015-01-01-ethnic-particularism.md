@@ -38,7 +38,7 @@ Ethnic particularism is the cure: sharp, tribal, unapologetic loyalty to your ac
 
 **Neo-Christianity: Why “White” Identity Is Still Church**
 
-The entire Western matrix runs on recycled Christian firmware:
+Christianity invented the concept of universal inherited guilt and the entire Western matrix runs on recycled Christian firmware:
 
 - Leftism = secularized Protestant Puritanism on steroids. Original sin = Whiteness. Salvation = public self-hatred.  
 - Wokeism = Puritanism 2.0 with pronouns and hashtags.  
@@ -47,15 +47,16 @@ The entire Western matrix runs on recycled Christian firmware:
 Call yourself "White" and you’re back in Christendom: 
 
 - Monotheism: Good vs evil (or left vs right)
+- Original Sin/Inherited sin — You're "White," so you're born guilty of racism, colonialism, and systemic oppression (things you didn't personally do)
 - Sinner vs saint  
 - Universal commandments  
-- Public confession rituals.
+- Internal priesthood where leftist "Whites" become moral police and the arbiters of acceptable speech and behavior (they do this by claiming to represent universal principles. ie., anti-racism, equality, inclusion).
+
+The structure is identical. Only the vocabulary changed.
 
 Look at this Bluesky post — https://bsky.app/profile/jamellebouie.net/post/3ma7l5fgti22z  
 
-Every comment starts with the ritual disclaimer ("as a white person"), then the speaker crowns themselves spokesperson/representitive/ambassador for every European subgroup and performs piety by throwing their own under the bus.  
-
-That’s not politics. That’s church.
+Every comment starts with the ritual disclaimer ("as a white person"), then the speaker crowns themselves spokesperson/representitive/ambassador for every European subgroup and performs piety by throwing their own under the bus. In Christianity, self-flagellation signals moral hierarchy within the group. Progressive "Whites" who do penance then rank above "Whites" who don't.
 
 **The Ethnic Alternative**
 
@@ -72,22 +73,6 @@ Most importantly, no other European will ever again think of themself as your sp
 
 It’s just one specific tribe doing what every other tribe does openly and without apology. Then tribal advocacy becomes morally defensible because it’s no longer "White supremacy theater".
 
-**The Moral Justifications**
-
-1. Conditional / Existential: Helping a group facing literal erasure isn’t unjust. Non-Palestinians flood resources into Gaza right now and it’s celebrated. Apply the same logic when your own subtype is under threat. No double standard.
-
-2. Structural / Functional: Bounded ethnic communities actually work. Universalism destroys welfare states, environmental trust, and any real collective sacrifice. Small, high-trust tribes coordinate. Global blobs collapse.
-
-3. Biological / Tribal: Humans are wired for kin preference. Every other race does it shamelessly and never says sorry. Only Europeans are told it’s evil. Biology isn’t bigotry — it’s reality. Refuse to play and you lose everything. Simple.
-
-4. Ethnic / Cultural: Specific European identities exist. Languages, aesthetics, temperaments, traditions. They’re worth defending because they’re yours. Period.
-
-5. Economic / Material: Deindustrialization and open borders gutted working-class European communities. Prioritizing your own people’s jobs and neighborhoods isn’t hate — it’s pattern recognition. Globalization’s winners don’t share the losses.
-
-6. Self-Interested / Dynastic: Your descendants will compete against groups with ruthless ingroup preference. Playing nice while everyone else plays tribal isn’t virtue. It’s evolutionary suicide.
-
-Caveat: This only works if you actually identify with the subtype. “White” drags you straight back into the cancer.
-
 **Speaking the Language of Delineation**
 
 Refuse the label "white". Every single time.
@@ -98,13 +83,17 @@ Two instant superpowers:
 
 2. Every self-appointed White spokesperson loses all power: HR drones, DEI deans, politicians, academics — their entire moral authority comes from representing "Whiteness". Would a self-identified "White" person try to speak on behalf of, or judge the behavior of, an Italian. Polish. German. Breton, if they did not share that ancestry? Atomize and they’re suddenly talking to no one.
 
+Caveat: This only works if you actually identify with the subtype. “White” drags you straight back into the cancer.
+
 Counter-script when they pull the "as a White person" move:
 
-- "You identifying as White is as legitimate as me identifying as green or purple". 
+- "You self-identifying as White is as legitimate as me self-identifying as green or purple". 
 - "You represent yourself. You don’t speak for me".  
 - "I’m not White. I’m Celto-Germanic".
 - "We are not the same".
 
+Then even atomize down to class. For example, the moral policing system depends on gatekeepers controlling the category of representation. If you shift the frame to class, they have no special standing. A university administrator or professor has zero authority to speak for working-class interests—they're the class enemy regardless of their ethnicity.
+
 **Conclusion**
 
-Ethnic particularism does not require liking your fellow Europeans or feeling any broad kinship with them. It is modular, conditional, and narrowly ethnic: you advocate for your specific people—or your own ancestral mix, such as Celto-Germanic or Anglo-Slavic. In this sense, ethnic particularism is precisely what defeats universalism's grip (appointed representatives and internal moral police). You advocate for your specific group's interests because you occupy that structural position and it serves your material outcomes.
+Ethnic particularism does not require liking your fellow Europeans or feeling any broad kinship with them. It is modular, conditional, and narrowly ethnic: you advocate for your specific people—or your own ancestral mix, such as Celto-Germanic or Anglo-Slavic. In this sense, ethnic particularism is precisely what defeats universalism's grip (appointed representatives and internal moral police). You advocate for your specific group's interests because you occupy that structural position and it serves your material outcomes. Playing nice while everyone else plays tribal isn’t virtue. It’s evolutionary suicide.
