@@ -586,6 +586,11 @@ The Bar Kokhba Revolt was not a Jewish revolt – it was a R1a Scythian counter-
 
 The Mishnah and Talmud were compiled after the revolt by the surviving J1 Cohanim, who rewrote history to make the revolt look like a national tragedy, not an ethnic civil war.
 
+Endnotes (Chapter 4.3)
+
+(a) The name of Levi (son of Jacob) bears a striking resemblance to Leviathan, a mystical serpent mentioned in the Old Testament books of Job, Psalms, and Isaiah. The Levites were Saka/Scythians which is where the name Satan in the bible comes from after Flavian/J1/J2 Cohanim Jewish revision. The serpent in later biblical texts conflate this serpent with Satan (in Revelation 12, Satan is explicitly named "that old serpent" who makes war against God's people before being cast down").
+(b) The neanderthal-human hybrids are the basis of the Nepilim in the bible (hybrids of imposing size and strength)
+
 **5 Rome On the Bosphorus River**
 
 Much of the history of the Western Roman Empire was conjured up by the Flavians, Church Fathers, Jesuits, Poggio Bracciolini, and medieval forgers,
