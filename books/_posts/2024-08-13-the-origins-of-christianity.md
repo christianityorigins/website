@@ -321,7 +321,7 @@ In the original Egyptian–Bosporan imperial cult, the living Dragon King bore t
 
 When the Ptolemaic dynasty Hellenized the cult, they syncretized Osiris with Zeus (via Serapis). The title Ie-Asar was thus rendered into Greek as Ie-Zeus (Divine Zeus) – because Zeus was the Greek equivalent of Osiris in the Serapis theology. In the Latin West, the same title became Ie-Jove (Divine Jupiter) or Divus Soter (Divine Savior), as Julius Caesar – high priest of Jupiter – was the first deified emperor.
 
-The Greek form Iēsous (Ἰησοῦς) is a direct transliteration of the Aramaic Yeshua, which the Flavians later claimed meant "Yahweh saves". But the original Aramaic title of the Dragon King was not Yeshua. It was Ie-Zeus (or, in its more ancient Egyptian form, Ie-Asar). The Flavians altered the name to Yeshua while preserving the sound Ie-sous – which Greek speakers could still hear as "Divine Savior" (from sōtēr, not sōs). The -sous ending is simply the Greek masculine nominativ Soter.
+The Greek form Iēsous (Ἰησοῦς) is a direct transliteration of the Aramaic Yeshua, which the Flavians later claimed meant "Yahweh saves". But the original Aramaic title of the Dragon King was not Yeshua. It was Ie-Zeus (or, in its more ancient Egyptian form, Ie-Asar). The Flavians altered the name to Yeshua while preserving the sound Ie-sous – which Greek speakers could still hear as "Divine Savior" (from sōtēr, not sōs). The -sous ending is simply the Greek masculine nominative Soter.
 
 Thus, Iēsous was a polyvalent Flavian engineering:
 
@@ -1731,9 +1731,11 @@ Muhammad, or "The "Praised One" is a direct Arabic translation of the Scythian t
 
 Allah and Muhammad the red-headed warlord then became parodies of Attila the Hun [^39] and his uncle Ruglia waging war against Rome (Edom) because they wanted the Arabs to attack eastern Rome. 
 
-So, Talmudic jews who were hiding out in the Himyarite Kingdom after
+So, J2/J1 Talmudic jews who were hiding out in the Himyarite Kingdom after
 Emperor Hadrian kicked them out of judea, and who were students of Rabbi Akiva, basically just cut-and-pasted
-from one of the Bosphoran/Adiabene  imperial cults of the time, which was basically Yazidism, and created Islam as a warrior morality to weaponize the Arabs to attack R1a Scythians. 
+from one of the Bosphoran/Adiabene imperial cults of the time, which was basically Yazidism, and created Islam as a warrior morality to weaponize the Arabs to attack R1a Scythians. 
+
+The concept of Jihad (struggle) is the exact inverse of Christianity's "turn the other cheek". Where Christianity pacified the Western subjects, Islam militarized the Eastern subjects, directing their aggression outward against the remaining Scythian-Aryan elite.
 
 The Arab conquests were not a spontaneous eruption from the desert. They were a meticulously planned J2 coup d'état against both the Byzantine and Sassanid empires from within, using a new religion as the unifying ideology for the multi-ethnic slave-soldier armies. The ultimate goal was the complete erasure of the Dragon King bloodline and its replacement with a manageable, slave-soldier population. The Arab conquests swept across the Middle East and North Africa, carrying out the systematic genocide and replacement of the remaining R1a-V88 Berber and R1a-Z93 Parthian/Sassanid elites. The religion of Islam provided the perfect ideological justification: submission to a single, abstract God whose earthly stewards were the ulama (the J2 priestly class). The Caliphate was the new Flavian dynasty, ruling a restored universal empire from Baghdad, with Islam as its Christianity and the Arabs as its Germanic legions.
 
