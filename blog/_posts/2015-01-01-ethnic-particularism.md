@@ -29,13 +29,6 @@ Yet Duchesne ultimately pins the blame on industrialization and "Post-Fordism" a
 
 So what's the cure? A return to ethnic particularism. Sharp, tribal, unapologetic loyalty to your actual subgroup. Italian. Polish. German. Breton. Not "White". Not "European". Just your bloodline.
 
-**Universalism as Erasure**
-
-- “White” is fake. A modern bureaucratic invention. Deracinating. Universalist poison designed to erase real ethnicity.  
-- “European” does the same trick on steroids — turns distinct peoples into an interchangeable monolith.  
-- White and European are secularized variants of the phrase Christendom subjected to the Christian ethos of sin, set commandments of behavior, and moral policing.
-- Real ethnonationalism means specific groups only. No pan-White. Just your tribe.
-
 **Neo-Christianity: Why “White” Identity Is Still Church**
 
 The Church sought to dissolve organic tribal boundaries to forge a single, borderless community of believers—transcending the ancient world through the doctrine of "neither Jew nor Greek"—modern Leftism operates on an identical universalist impulse. It demands the systematic dissolution of distinct historical, cultural, and ethnic identities in favor of an abstract, global humanity.  
@@ -45,6 +38,12 @@ As the metaphysics of the Church receded, the historical concept of "Christendom
 - Leftism functions as a secularized variant of radical Protestant Puritanism. Within this framework, "Whiteness" is weaponized as a form of immutable Original Sin, while salvation is sought through the ritual of public self-hatred and moral penance.  
 - Wokeism acts as Puritanism 2.0, updating traditional moral policing with the language of pronouns, hashtags, and digital call-outs.
 - Conservatism operates as a form of Catholic hierarchy cosplay; it preserves the familiar structures of top-down control, inherited guilt, and rigid tradition, merely swapping out the Christian cross for the secularized banner of "Western values".
+
+**Universalism as Erasure**
+
+- “White” is a modern bureaucratic invention. Deracinating. Universalist poison designed to erase real ethnicity. It is secularized "christendom" subjected to the Christian ethos of sin, set commandments of behavior, and moral policing.
+- “European” does the same trick on steroids — turns distinct peoples into an interchangeable monolith.  
+- Real ethnonationalism means specific groups only. No pan-White. Just your tribe.
 
 Call yourself "White" and you’re back in Christendom: 
 
@@ -96,8 +95,10 @@ Counter-script when they pull the "as a White person" move:
 - "I’m not White. I’m Celto-Germanic".
 - "We are not the same".
 
-Then even introduce class and materialism as the final disruption. For example, the moral policing system depends on gatekeepers controlling the category of representation. If you shift the frame to class, they have no special standing. A politician, university administrator or professor has zero authority to speak for working-class interests—they're the class enemy regardless of their ethnicity.
+Then even introduce class and materialism as the final disruption. For example, the moral policing system depends on gatekeepers controlling the category of representation. If you shift the frame to class, they have no special standing. A politician, university administrator, or professor has zero authority to speak for working-class interests—they're the class enemy regardless of their ethnicity.
 
 **Conclusion**
 
-Ethnic particularism does not require liking your fellow Europeans or feeling any broad kinship with them. It is modular, conditional, and narrowly ethnic: you advocate for your specific people—or your own ancestral mix, such as Celto-Germanic or Anglo-Slavic. In this sense, ethnic particularism is precisely what defeats universalism's grip (appointed representatives and internal moral police). You advocate for your specific group's interests because you occupy that structural position and it serves your material outcomes. Playing nice while everyone else plays tribal isn’t virtue. It’s evolutionary suicide.
+Ethnic particularism does not require liking your fellow Europeans or feeling any broad kinship with them. It is modular, conditional, and narrowly ethnic: you advocate for your specific people—or your own ancestral mix, such as Celto-Germanic or Anglo-Slavic. In this sense, ethnic particularism is precisely what defeats universalism's grip (appointed representatives and internal moral police). You advocate for your specific group's interests because you occupy that structural position and it serves your material outcomes. 
+
+Your descendants will compete against groups with ruthless ingroup preference. Playing nice while everyone else plays tribal isn’t virtue. It’s evolutionary suicide.
