@@ -141,7 +141,11 @@ The foundation of this book rests on a single, verifiable fact: the ruling elite
 
 1.1 The Numismatic Key: Coins of a Global Empire
 
-Coins are the un-lying testimony. They cannot be forged by later historians. The following coins prove that the figures known to us as separate historical entities were, in fact, the same individuals or offices operating across different administrative regions.
+The city referred to in history books as ancient Byzantium in modern day Turkey was actually called 'Basileía tôn Rhômaíôn' ('Kingdom of the Romans') and the people of that region called themselves Rhōmaîoi (Romans). Basileía tôn Rhômaíôn was surrounded by the kingdoms of Thrace, Pontus, Bithynia, Paphlagonia, Galatia and the Bosporan Kingdom. Coins prove that all these regions were ruled by a single family, who match up with the Roman emperor list up to Domitian, and they were Scythian-Thracians.
+
+Rhouma in Crimea was the original power center. Then the Roman (Constantinople-on-the-Bosporus), centered on Constantinople/Bosporus river in modern day Istanbul, was the "second Rome" (Basileía Rhōmaíōn). Mizraim in Egypt was the third Rome, and Rome on the Tiber in Italy was a Western military-administrative garrison named after the core.
+
+The following coins prove that the figures known to us as separate historical entities were, in fact, the same individuals or offices operating across different administrative regions.
 
 The Foundational Avatar: Julius Caesar is Asander, king of Bosporus (also known as "Asandrokhos". -khos = Persian xšaya/Sanskrit Kshatriya/Greek "Christ". So, "Asander-Christ").
 
