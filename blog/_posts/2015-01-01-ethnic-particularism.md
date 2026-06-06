@@ -29,7 +29,7 @@ Yet Duchesne ultimately pins the blame on industrialization and "Post-Fordism" a
 
 So what's the cure? A return to ethnic particularism. Sharp, tribal, unapologetic loyalty to your actual subgroup. Italian. Polish. German. Breton. Not "White". Not "European". Just your bloodline.
 
-**The Category Problem**
+**Universalism as Erasure**
 
 - “White” is fake. A modern bureaucratic invention. Deracinating. Universalist poison designed to erase real ethnicity.  
 - “European” does the same trick on steroids — turns distinct peoples into an interchangeable monolith.  
@@ -38,11 +38,13 @@ So what's the cure? A return to ethnic particularism. Sharp, tribal, unapologeti
 
 **Neo-Christianity: Why “White” Identity Is Still Church**
 
-Christianity invented the concept of universal inherited guilt and the entire Western matrix runs on recycled Christian firmware:
+The Church sought to dissolve organic tribal boundaries to forge a single, borderless community of believers—transcending the ancient world through the doctrine of "neither Jew nor Greek"—modern Leftism operates on an identical universalist impulse. It demands the systematic dissolution of distinct historical, cultural, and ethnic identities in favor of an abstract, global humanity.  
 
-- Leftism = secularized Protestant Puritanism on steroids. Original sin = Whiteness. Salvation = public self-hatred.  
-- Wokeism = Puritanism 2.0 with pronouns and hashtags.  
-- Conservatism = Catholic hierarchy cosplay. Tradition, guilt, top-down control — just swap the cross for "Western values".
+As the metaphysics of the Church receded, the historical concept of "Christendom" was simply re-coded into the secular, bureaucratic monolith of "Whiteness". This structural inheritance manifests across the contemporary political spectrum:  
+
+- Leftism functions as a secularized variant of radical Protestant Puritanism. Within this framework, "Whiteness" is weaponized as a form of immutable Original Sin, while salvation is sought through the ritual of public self-hatred and moral penance.  
+- Wokeism acts as Puritanism 2.0, updating traditional moral policing with the language of pronouns, hashtags, and digital call-outs.
+- Conservatism operates as a form of Catholic hierarchy cosplay; it preserves the familiar structures of top-down control, inherited guilt, and rigid tradition, merely swapping out the Christian cross for the secularized banner of "Western values".
 
 Call yourself "White" and you’re back in Christendom: 
 
@@ -58,9 +60,11 @@ Look at this Bluesky post — https://bsky.app/profile/jamellebouie.net/post/3ma
 
 Every comment starts with the ritual disclaimer ("as a white person"), then the speaker crowns themselves spokesperson/representitive/ambassador for every European subgroup and performs piety by throwing their own under the bus. In Christianity, self-flagellation signals moral hierarchy within the group. Progressive "Whites" who do penance then rank above "Whites" who don't.
 
-**The Ethnic Alternative**
+**The Strategy of Deconstruction: Atomization and Particularism**
 
-Ditch the color. Rebrand hard.
+To control a population, you must first strip them of their organic, defensive legalities and local historical contexts. The system achieves this by forcing vastly different European ethnic groups into a single, bureaucratic category: "White". By turning the Italian, the Pole, the German, and the Breton into an interchangeable monolith, the system successfully strips them of their particularity and renders them legible to centralized administration.
+
+However, you can deconstruct this system by simply identifying with your ethnic subtype:
 
 - Only ever identify with your ethnic group (Italian/Polish/German/English, etc)
 - If you're a mutt call yourself Celto-Germanic, or Anglo-Germanic, etc.
@@ -92,7 +96,7 @@ Counter-script when they pull the "as a White person" move:
 - "I’m not White. I’m Celto-Germanic".
 - "We are not the same".
 
-Then even atomize down to class. For example, the moral policing system depends on gatekeepers controlling the category of representation. If you shift the frame to class, they have no special standing. A university administrator or professor has zero authority to speak for working-class interests—they're the class enemy regardless of their ethnicity.
+Then even introduce class and materialism as the final disruption. For example, the moral policing system depends on gatekeepers controlling the category of representation. If you shift the frame to class, they have no special standing. A politician, university administrator or professor has zero authority to speak for working-class interests—they're the class enemy regardless of their ethnicity.
 
 **Conclusion**
 
