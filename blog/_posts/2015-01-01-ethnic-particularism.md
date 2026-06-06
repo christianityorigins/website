@@ -27,7 +27,7 @@ _“All human societies, including pre-liberal Western societies, were based on 
 
 Yet Duchesne ultimately pins the blame on industrialization and "Post-Fordism" as the mechanisms that dismantled these kin-based systems. This is where the analysis stops short. The real cancer is not the factory floor or the assembly line. The cancer is secularized Christianity itself — the universalist operating system that replaced kin-based ethics with a deracinating, guilt-driven global ethic. It flattens everything distinct into one grey, guilt-soaked blob.
 
-So what's the cure? Ethnic particularism. Sharp, tribal, unapologetic loyalty to your actual subgroup. Italian. Polish. German. Breton. Not "White". Not "European". Just your bloodline.
+So what's the cure? A return to ethnic particularism. Sharp, tribal, unapologetic loyalty to your actual subgroup. Italian. Polish. German. Breton. Not "White". Not "European". Just your bloodline.
 
 **The Category Problem**
 
