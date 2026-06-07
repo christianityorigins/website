@@ -106,3 +106,5 @@ Then even introduce class and materialism as the final disruption. For example, 
 **Conclusion**
 
 Ethnic particularism does not require liking your fellow Europeans or feeling any broad kinship with them. It is modular, conditional, and narrowly ethnic: you advocate for your specific people—or your own ancestral mix, such as Celto-Germanic or Anglo-Slavic. In this sense, ethnic particularism is precisely what defeats universalism's grip (appointed representatives and internal moral police). You advocate for your specific group's interests because you occupy that structural position and it serves your material outcomes.
+
+But the true destination of this deconstruction is the reclamation of the sovereign individual. True liberalism recognizes that the smallest, most absolute minority on earth is the individual. By dismantling the administrative categories from within, we clear the path for a society where people are judged solely by their specific material actions and character, finally liberated from the universalist priesthood.
