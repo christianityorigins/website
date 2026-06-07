@@ -29,7 +29,7 @@ Yet Duchesne ultimately pins the blame on industrialization and 'Post-Fordism' a
 
 That operating system is secularized Christianity itself. Long before the advent of the modern corporation, the Church established the metaphysical blueprint for globalism by dissolving particularistic kin-bonds in favor of a borderless community of believers. Christianity spent 1,000 years domesticating Europe. By the time the Enlightenment arrived, the work was already done. This universalist drive simply sublimated into the bureaucratic state and the global market. It flattened everything distinct into one grey, guilt-soaked blob turning organic European ethnicities into an interchangeable administrative monolith designed for easy economic manipulation.
 
-So what's the cure? A return to ethnic particularism. Sharp, tribal, unapologetic loyalty to your actual subgroup. Italian. Polish. German. Breton. Not "White". Not "European". Just your bloodline.
+To deconstruct this administrative matrix, the abstract category must be dismantled from within through a return to ethnic particularism. This requires a pivot away from the modern, bureaucratic classifications of 'White' or 'European' and a reclamation of sharp, unapologetic loyalty to the actual subgroup. Whether Italian, Polish, German, or Breton, aligning strictly with one's bloodline acts as a defensive boundaries against the universalist operating system.  
 
 **Neo-Christianity: Why “White” Identity Is Still Church**
 
