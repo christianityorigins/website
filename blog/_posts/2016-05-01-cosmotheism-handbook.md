@@ -27,7 +27,7 @@ There are different interpretations of the cosmotheist cosmology, but here are t
 
 3 Friedrich Nietzsche's Will to Power
 
-Friedrich Nietzsche identifies the "Will to Power"`(Wille zur Macht) [1] as the main driving force in the universe. This applies to Cosmotheism by becoming the cosmic engine of evolution, driving all beings toward greater power, consciousness, and ultimately, the realization of a god-like state within the unified cosmos.
+Friedrich Nietzsche identifies the "Will to Power"`(Wille zur Macht) as the main driving force in the universe. This applies to Cosmotheism by becoming the cosmic engine of evolution, driving all beings toward greater power, consciousness, and ultimately, the realization of a god-like state within the unified cosmos.
 
 The Will to Power is the will to master the space around us; the will to be free, to compete and to dominate and conquer. But first and foremost it means actualizing our will onto this world. 
 
@@ -40,5 +40,3 @@ Core Idea: You’re a piece of the cosmic puzzle, not a stranger to it. The divi
 5 Practices and Observances
 
 In cosmotheist religions, rituals are about bringing someone to self-realization. For example, rituals like yoga, meditation, self-inquiry, stargazing to reflect on cosmic unity, and engaging in scientific inquiry to deepen understanding are all ways to help the individual realize their true nature as a manifestation of the divine. The goal is to awaken the individual's inner divinity and is aimed at helping the individual realize their true nature as the ultimate reality, fostering a sense of unity with the universe.
-
-1. https://archive.is/20g7W
