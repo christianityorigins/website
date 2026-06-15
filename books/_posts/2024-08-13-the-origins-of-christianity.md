@@ -631,6 +631,8 @@ prestige as Cyrus and Alexander.
 
 Asander was also called Asandrokhos (https://www.researchgate.net/publication/390912485Aspurgos-the_king_of_Bosporan_state_98_BC-_AD_38). The -Khos in Scythian is xsha/khsha which means "power, dominion, rule". It is the direct root of Xšayathiya (Persian "King"), Kshatriya (Sanskrit "Warrior-King"), and Caesar (via Kaisar). The suffix -khos is a Hellenized form of this root. The Kushan Empire (1st-3rd c. CE) claimed descent from the Yuezhi (Jove/Jupiter). Tiberius Julius Aspurgus, king of Bosphorus aka Emperor Tiberius calls himself the son of "the great king of Asandrokhos" in an inscription. He was Kujula Kadphises, prince of the Kushans in Bactria.
 
+He was also Mithridates Chrestus who was the brother of Mithridates VI Eupator. Mithridates Chrestus was recorded to have been killed by his brother Mithridates VI Eupator and then succeded by Asander, but this was an avatar switch or Flavian fiction. 
+
 One of the main conspirators in the assassination of Julius Caesar was named Gaius Trebonius. In the Bosporus, the historical record states that around 17 BCE, a usurper named Scribonius appeared, claiming to be a relative of Asander's wife, Dynamis. He seizes power and Asander, in despair, commits suicide. "Trebonius" and "Scribonius" are linguistically congruent. This is obviously a literary trope, or imperial fiction. 
 
 **5.1.1 Julius Caesar was a Title**
