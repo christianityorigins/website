@@ -19,7 +19,8 @@ Part 1: The Genetic Blueprint
 1.3 The Indigenous Hunter-Gatherers (The Substrate)  
 2 The Genetic Conquest: How R1a/R1b Replaced G2a at the Top  
 3 Case Studies: The Genetic Stratigraphy of Civilization  
-4 Timeline  
+4 Timeline\
+4.1 The Swastika\
 5 Key Historical Figures & Their Aliases  
 5.1 The Primordial Patriarch: Ateas the Scythian  
 5.2 Later Dragon Bloodline Descendants  
@@ -337,6 +338,16 @@ The Final Consolidation
     *   This is the foundational event. All subsequent "empires" are either his direct descendants or rebel satraps attempting to reclaim his title.
 *   c. 600-500 BCE: The Akrosander hegemony begins to fragment, leading to civil wars between his descendant lines.
 *   c. 429-339 BCE: Ateas the Scythian. The last great emperor of the direct Akrosander bloodline, ruling from the Danube to the Caucasus. His name "Ateas" (Forefather) is a title claiming direct descent from Akrosander. Ateas the Scythian was also Artaxerxes II Memnon ("Kai Bahman") of Persia aka Phillip II in Macedonia aka Nectanebo II in Egypt aka Evagoras I of Salamis (Cyprus).
+
+**5.1 The Swastika**
+
+The Swastika's appearence on ancient artifacts and petroglyphs throughout Europe, in every group ranging from the Vinça culture in the Balkans to the Celts, Germanics, Slavs, Baltics, Greco-Romans, Illyrians, as well as, the coins of the Paratarajas, the Parthians, the Kushans, and the Indo-Scythians is not a coincidence. It is the unified graphic signature of the same trans-continental, pre-Flavian ruling class. 
+
+The swastika originated in in the Palaeolithic age, somewhere on the Pontic steppe. It was a symbol that represented eternity, i.e. something that keeps happening over and over and over again. You see a lot of this kind of stuff in European paganism.
+
+It also represents the centre of the universe (North Star), rotated by Ursula Minor or the Plough, aand it also represents the origins of the Aryan peoples at the knave of the Earth (North Pole).
+
+The swastika was not merely a symbol of good luck or a solar emblem. It was the graphic, unforgeable signature of the Dragon King's divine right to rule. 
 
 **6. Key Historical Figures & Their Aliases**
 
