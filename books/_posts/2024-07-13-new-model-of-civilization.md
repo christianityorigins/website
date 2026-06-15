@@ -341,7 +341,7 @@ The Final Consolidation
 
 **5.1 The Swastika**
 
-The Swastika's appearence on ancient artifacts and petroglyphs throughout Europe, in every group ranging from the Vinça culture in the Balkans to the Celts, Germanics, Slavs, Baltics, Greco-Romans, Illyrians, as well as, the coins of the Paratarajas, the Parthians, the Kushans, and the Indo-Scythians is not a coincidence. It is the unified graphic signature of the same trans-continental, pre-Flavian ruling class. 
+The Swastika (Gammadion, Tetraskelion, Fylfot, et.al) appears on ancient artifacts and petroglyphs throughout Europe, in every group ranging from the Vinça culture in the Balkans to the Celts, Germanics, Slavs, Baltics, Greco-Romans, Illyrians, as well as, the coins of the Paratarajas, the Parthians, the Kushans, and the Indo-Scythians and this is not a coincidence. It is the unified graphic signature of the same trans-continental, pre-Flavian ruling class. 
 
 The swastika originated in in the Palaeolithic age, somewhere on the Pontic steppe. It was a symbol that represented eternity, i.e. something that keeps happening over and over and over again. You see a lot of this kind of stuff in European paganism.
 
