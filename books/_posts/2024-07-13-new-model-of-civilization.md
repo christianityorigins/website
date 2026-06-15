@@ -813,27 +813,32 @@ There was a Jesuit named Jean Hardouin who said that a 14th Century Jesuit consp
 
 **15. Expanded Notes: Suppressed Histories & New Connections**
 
-1. The Carthaginian Deception:
+**1. The Carthaginian Deception**
+
 Carthage was not a Phoenician colony. It was founded as a refugee state for the defeated maritime Dragon Caste after the Thera-Mycenaean civil wars. The "Phoenician" identity was a cover.
 *   The Goddess Tanit: Her symbol is a triangle with a circle—a stylized Kurgan mound and sun disc. Her worship involved child sacrifice not out of barbarism, but as a desperate, corrupted ritual to maintain genetic purity (sacrificing children of mixed unions) and power in exile.
 *   Hannibal Barca: His family name "Barca" means "Lightning" (cf. Sanskrit *Barqa*, Hebrew *Barak*). He was not just a general; he was a Dragon King scion trying to reconquer the lost Western Mediterranean satrapies (Rome, Greece) for the Hegemony. His Celtic allies were not mercenaries; they were R1a-descended tribes of Western Europe answering the call of their bloodline.
 
-**2. The Etruscan Enigma Solved:**
+**2. The Etruscan Enigma Solved**
+
 The Etruscans (Rasna) were not a mystery. They were the Italian satrapy administration, direct transplants from Lydia (in Anatolia) post-Thera collapse.
 *   The "Lydian Origin" Legend: It's true. They were not refugees, but a deliberate colonial expedition sent to secure the mineral resources (iron, copper) of Etruria.
 *   The *Aesar*: The Etruscan word for "god," *Aesar*, is Aži-Sar. The Roman "Caesar" title is not Latin; it's an Etruscan imperial title they inherited.
 *   The Tarquin Kings: The last kings of Rome were not tyrants. They were the legitimate Etruscan (Aryan) governors. Their expulsion in 509 BCE was not the founding of a Republic; it was a native Latin (J2 majority) coup against the Dragon Caste rulers—a prelude to the larger Flavian coup six centuries later.
 
-**3. Attilla the Hun**\
+**3. Attilla the Hun**
+
 Attila the Hun = Priscus Attalus (Roman usurper). The name Attila is a diminutive of Ata (Scythian "Forefather"), the same root as Ateas and Adam. It means "Little Father" or "Son of the Dragon." His brother's name, Bleda, is a corruption of Bleda/Belisarius, linking to the Bel/Baal priestly title. Attila was the title of the last legitimate Bosporan Emperor attempting to reclaim the Western administration from the J2/J1 papal-financier class. The legend that Attila received the "Sword of Mars" (the Sword of the War God) is a corrupted memory of the Scythian Akinakes, the sacred iron sword that the Scythians worshipped as the embodiment of Ares/Targitaos. Attila was not a barbarian; he was performing the ancient steppe ritual of the Xšaθra investiture, the same ritual that consecrated Asander and Alexander. Attila did not seek to destroy Rome. He sought to reintegrate the Western garrison into the Eastern (Constantinopolitan/Bosporan) fold and to purge the J2/J1 Levantine financial administration that had usurped control of the Gallic and Italian mints. His demand for Honoria's hand in marriage was not a lust for a princess; it was a dynastic claim—Honoria (Honorius) carried the R1b-V88/R1a-Z93 genetic memory of the old Western Sarmatian nobility. The Church invented Pope Leo I "miraculously" turning him back. In reality, a treaty was signed recognizing Attila's suzerainty, followed by a biological weapon attack—the same Yersinia pestis vector used later by Justinian—released in his camp, causing his "nosebleed death" (hemorrhagic plague). This allowed the J2/J1 faction in Constantinople (the Papal States' silent partners) to claim a divine victory.
 
 **4. The True Purpose of the "Viking" Age**
+
 The Viking raids (793–1066 CE) are painted as pagan barbarism. In reality, they were the final counter-offensive of the Dragon Caste refugia against the Holy Roman Empire (the Vatican's military arm).
 *   The Drakkar: The name Drakkar is a linguistic fossil: Draco (Dragon) + Kar (Scythian/Sanskrit Kara, "Army"). It was the "Dragon Army" mobilized from the fjords—the refugia of the Gothic/Sarmatian Alans who had fled north after the fall of the Bosporan core and the Vandals.
 *   Rus' Khaganate: The founders of the Rus' state, Rurik and his brothers Sineus and Truvor, were not "invited" Slavs. They were the last of the R1a-Z93 Khazar (Aka-Xšaθra-Sar) elite returning to reclaim Rhouma (Crimea) and Novgorod (The New City). Rurik = Ruric = Rex Ruricus (King of the Rurik/Rauraci, a Sarmatian tribe). His dynasty's symbol was the Rarog—a fiery falcon plunging down—which is the exact same motif as the Scythian Simurgh/Senmurv (the dragon-peacock).
 *   The Christianization of Scandinavia: This was not a conversion of faith. It was a Flavian-Vatican takeover of the last operational Dragon Caste command structure. By co-opting Harald Bluetooth and Olaf Tryggvason, the Vatican eliminated the Draco fleet admirals and replaced the Drakkar with the Cog—the trading ship of the Venetian-Genoese financier cartel (the Medici precursors). The end of the Viking Age was the end of the Scythian naval hegemony.
   
 **5. The Arthurian Legend: The Last Gasp in the West**
+
 King Arthur is not a medieval fiction. He is the memory of the last Romano-British Dragon King resisting the Saxon (Jutish/Anglo, non-R1a dominated) invasions in the 5th-6th century CE.
 *   Camelot: Likely based on a real Sarmatian cavalry fort in Britain. The Romans stationed Sarmatian (R1a-Z93) auxiliaries in Britain. They never left.
 *   Excalibur: The "sword in the stone" is a mistranslation. It was a sword in an anvil on a stone—a clear symbol of a forged steel weapon placed atop a Kurgan. Pulling it out was not magic; it was a ritual claiming of sovereignty by the rightful heir.
