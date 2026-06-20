@@ -1113,9 +1113,9 @@ Calpernius Piso aka Arrius Varus aka Emperor Nerva), great-grandson of
 Dynamis aka Cleopatra and Mark Antony. Does he look
 familiar? ΒΑCΙΛΕΩC CΑVΡΟΜΑΤΟΥ in the above coin translates to "King of
 the Sauromatians". Sauromates is a Greek rendering of 'Sarmatian',
-referring to the Scythian tribe who came from the Pontic steppe. Sauromates has different meanings depending on the language. In Greek 'Saur'
+referring to the Scythian tribe who came from the Pontic steppe. In Greek 'Saur'
 means 'snake' or 'reptile' and 'mates' means 'man' or 'warrior'. Therefore, translated literally in Greek ΒΑCΙΛΕΩC CΑVΡΟΜΑΤΟΥ means "King of the
-snake people", or "king of the dragon people". In ancient Scythian/Iranian Saura = "sun" (cognate with Sanskrit Surya) and -matas = "ruler, lord", so Sauromates translates to "Sun Lord" or "Sun King". Also note that his father was Tiberius Julius Rhoemetalces and Rhoemetalces translates to "King of Rhoem" in ancient Tracian and at the root of Sauromates is "ROMA"? In Scythian, the root Roma or Ruma means "dragon" or "serpent" (Rome = "Place of the Dragon"). If Sauromatians or Sauromates originally connotated Rome/Rhome/Rum (Saromates: Sar- = King, -oma- = Rhoma, -tes = of = "King of Rome"?) then this would prove my theories beyond any doubt. He was the great (or great-great?)-grandson of Ptolemy XII Auletes aka Mark Antony aka Mithridates VI Eupator and his daughter Cleopatra aka Dynamis.
+snake people", or "king of the dragon people", but that is just a Greek folk-etymology. The Greeks likely associated the name Sauromates with snakes due to the Sarmatian's scaled armor or reverence of snakes. In ancient Scythian/Iranian Saura = "sun" (cognate with Sanskrit Surya) and -matas = "ruler, lord", so Sauromates translates to "Sun Lord" or "Sun King". Also note that his father was Tiberius Julius Rhoemetalces and Rhoemetalces translates to "King of Rhoeme" in ancient Tracian and at the root of Sauromates is "ROMA"? Saura-mates likely originally connotated "Sun King of Rome". He was the great (or great-great?)-grandson of Ptolemy XII Auletes aka Mark Antony aka Mithridates VI Eupator and his daughter Cleopatra aka Dynamis.
 
 ![Fig.1.49](/images/SauromatesCross.jpg){:width="400px"}
 
