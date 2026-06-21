@@ -1538,7 +1538,11 @@ The "Old Kingdom" is a fictional pre-history for the Serapis Cult. The Pyramids 
 
 The "Roman Republic" and the bulk of the "Roman Empire" prior to Vespasian are literary phantoms. The events, consuls, and wars of the 1st centuries BCE and CE are not history but theological and political allegory back-projected onto the Italian peninsula.
 
-The core of what tourists see today—the Colosseum, the Forum, the triumphal arches—was a Flavian dynasty project, built primarily between 70 and 100 CE to create imperial legitimacy. The Chersonesus Colosseum in Crimea (https://en.wikipedia.org/wiki/Chersonesus#Remains) is the prototype for the Roman Colosseum.
+In conventional history, Rome is a sprawling, multi-million-citizen megacity that ruled the world from an inland river in Italy. From a logistical, maritime, and economic perspective, this is a structural impossibility. True ancient empires were maritime networks; power belonged to the controllers of the major sea gates and grain nodes (Crimea/Bosporus, Alexandria, Byzantium, Carthage, Antioch). It was not the capital of a global empire, but a massive, highly fortified military garrison and Western fiscal terminal.
+
+The core of what tourists see today are actually Renaissance and Baroque reconstructions, completions, or outright fabrications.
+
+The Roman Colosseum was a Flavian dynasty project, built primarily between 70 and 100 CE to create imperial legitimacy. The Chersonesus Colosseum in Crimea (https://en.wikipedia.org/wiki/Chersonesus#Remains) is the prototype for the Roman Colosseum.
 
 A settlement on the Tiber settlement existed; it had walls, temples, and a port. But it was similar to how the British Empire had London as capital but also had Calcutta as a regional hub. Its importance was vastly exaggerated by the Flavian historians and then by the Medici, who invested in excavating and restoring those ruins to create tourist attractions and national pride.
 
