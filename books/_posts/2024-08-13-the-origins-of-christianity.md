@@ -169,7 +169,7 @@ Fig. 1.4. Coin depicting Marcus Antonius Polemon I, king of Pontus which was the
 Fig. 1.5. L. Coin depicting Ptolemy XIII Theos Philopator the brother-husband of Cleopatra. Compare it to the Rhoemetalces I, king of Bosphorus aka Emperor Augustus (Octavian) coin above. R. Coin depicting Archelaus, king of Caesarea, Cappadocia (modern-day Kayseri, Turkey). Archelaus of Cappadocia was married to  Pythodorida of Pontus (Cleopatra/Dynamis). Polemon Pythodoros (Julius Caesar/Asander) was also married to Pythodorida of Pontus.
 
 ![Fig.1.6](/images/HerodPhilip.jpg){:width="400px"}\
-Fig. 1.6. Coin depicting Herod Philip son of King Herod (Ptolemy XII Auletes aka Mark Antony aka Mithridates VI Eupator). 
+Fig. 1.6. Coin depicting Herod Philip son of King Herod (Ptolemy XII Auletes aka Mark Antony aka Mithridates VI Eupator). The temple on the reverse side of the coin also appears on coins of Juba II and Simon bar Kokhba indicating that they all held the same office. 
 
 ![Fig.1.7](/images/AspurgusTiberius.jpg){:width="400px"}\
 Fig. 1.7. L. Tiberius Julius Aspurgus I, king of Bosphorus. R. Emperor Tiberius Caesar Augustus.
@@ -567,11 +567,13 @@ For example, the Celtic languages are surprisingly Semitic with a verb-subject-o
 
 The original Jews were not a Semitic tribe from Canaan. They were the Yuezhi – the Dragon Kings’ priestly caste who spread from Central Asia to Europe. 
 
-After the destruction of the Temple and the crushing of the Bosporan‑Adiabene revolt, the Flavians deported or killed the R1a‑Z93 Scythian‑Aryan priest‑elite (the original "Jews"), and then imported loyal temple administrators from client kingdoms in the Caucasus and Upper Mesopotamia: Armenia (heavily J2‑M67/M92), Georgia (high J2a‑M319), and Adiabene/Osrhoene (J1‑P58, J2‑M172). (these J2 and J1 lineages were also literal human-neanderthal hybrids [^12]).
+After the destruction of the Temple and the crushing of the Bosporan‑Adiabene revolt, the Flavians deported or killed the R1a‑Z93 Scythian‑Aryan priest‑elite (the original "Jews"), and then imported loyal temple administrators from client kingdoms in the Caucasus and Upper Mesopotamia: Armenia (heavily J2‑M67/M92), Georgia (high J2a‑M319), and Adiabene/Osrhoene (J1‑P58, J2‑M172).
 
-Even today, the Cohanim Jews (High Priests) are overwhelmingly J1-P58 haplotype. The Levite Jews (Temple Assistants) are overwhelmingly steppe R1a. The demographic replacement among ancient Jewish elite traces back to the same time when J2/J1 also supplanted R1a to become the dominant haplogroup among the Roman elite (https://inf.news/en/science/bee8bab603736d7530f42b64ea756397.html). This is why they erased the Scythian origins of ancient civilizations and painted the Scythians (R1a) as monstrous foreigners (see: Chapter 8. Who Forged History?). 
+Even today, the Cohanim Jews (High Priests) are overwhelmingly J1-P58 haplotype. They are a hybrid of Anatolian farmers (J2) and Semitic pastoralists (J1). The Levite Jews (Temple Assistants) are overwhelmingly steppe R1a. (J1/J2 are low neanderthal admixture, while Levite R1a has high neanderthal admixture [^12]. Neanderthal admixture is a signal of the Dragon Caste)
 
-They were originally Khazars from the steppe. Khazar derives from the Dragan King title: "Caesar" = "Kesari" = "Xerxes" -> Xšathra-sar -> Khassar -> Khazar, which is also at the root of the title "Khan" (Aesar -> Aesar -> A'sar -> Ha'sar -> Kha'sar -> Khan). 
+The demographic replacement among ancient Jewish elite traces back to the same time when J2/J1 also supplanted R1a to become the dominant haplogroup among the Roman elite (https://inf.news/en/science/bee8bab603736d7530f42b64ea756397.html). This is why they erased the Scythian origins of ancient civilizations and painted the Scythians (R1a) as monstrous foreigners (see: Chapter 8. Who Forged History?). 
+
+The Levite Jews were originally Khazars from the steppe. Khazar derives from the Dragan King title: "Caesar" = "Kesari" = "Xerxes" -> Xšathra-sar -> Khassar -> Khazar, which is also at the root of the title "Khan" (Aesar -> Aesar -> A'sar -> Ha'sar -> Kha'sar -> Khan). 
 
 The Bar Kokhba Revolt was not a Jewish revolt – it was a R1a Scythian counter-revolt against the J1/J2 Flavian collaborators. The leader, Simon bar Kokhba ("Son of the Star"), was a R1a Scythian prince – his coins bear the star and crescent. The R1a Levites were decimated, while the J1 Cohanim survived. Hadrian's decimation of the Jewish population was selective. He targeted the R1a Levites (the rebel warriors) but spared the J1 Cohanim (the collaborators). This is why the Cohanim today are J1 and the Levites are R1a – the Levites were nearly wiped out, while the Cohanim flourished under Roman protection.
 
