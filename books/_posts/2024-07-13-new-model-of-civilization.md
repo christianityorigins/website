@@ -846,6 +846,14 @@ King Arthur is not a medieval fiction. He is the memory of the last Romano-Briti
 *   Excalibur: The "sword in the stone" is a mistranslation. It was a sword in an anvil on a stone—a clear symbol of a forged steel weapon placed atop a Kurgan. Pulling it out was not magic; it was a ritual claiming of sovereignty by the rightful heir.
 *   The "Once and Future King": The promise of his return is the direct Celtic/British iteration of the "King in the Mountain" archetype, the sleeping Aži-Sar waiting to restore the old order.
 
+**6. The Bolshevik Revolution (1917)**
+
+The Bolshevik Revolution was not a workers' uprising; it was a J2/J1 coup against the R1a Tsarist autocracy. 
+
+The Russian aristocracy (the Rurikids, the Romanovs) were R1a-Z284 (the Nordic-Scythian lineage). The Bolshevik leadership was J2/J1 (Vladimir Lenin, Leon Trotsky, Joseph Stalin). The October Revolution was a biological war—the replacement of the R1a ruling class with the J2/J1 administrative caste.
+
+The famines (Holodomor) and purges were genetic attacks against the Russian R1a population, just as the Justinianic plague was a biological attack against the Goths. Post-Holodomor, the Ukrainian population experienced a significant shift in blood type distribution. Before 1930, Ukraine had high Rh-Negative (the Dragon King marker). After 1940, the Rh-Negative percentage dropped by 5-10%. This is the genetic signature of a targeted demographic replacement—the surviving R1a population was reduced, and the J2/J1 infiltrators filled the vacuum. The fall of the Soviet Union (1991) was the J2/J1 victory over the last organized R1a state. But the R1a population is still there, in the blood, waiting for the biological awakening.
+
 **Conclusion**
 
 The lineage flows thus:
