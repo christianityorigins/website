@@ -852,9 +852,9 @@ The Bolshevik Revolution was not a workers' uprising; it was a J2/J1 coup agains
 
 The Russian aristocracy (the Rurikids, the Romanovs) were R1a-Z284 (the Nordic-Scythian lineage). The Bolshevik leadership was J2/J1 (Vladimir Lenin, Leon Trotsky, Joseph Stalin). The October Revolution was a biological war—the replacement of the R1a ruling class with the J2/J1 administrative caste.
 
-The famines (Holodomor) and purges were genetic attacks against the Russian R1a population, just as the Justinianic plague was a biological attack against the Goths. Post-Holodomor, the Ukrainian population experienced a significant shift in blood type distribution. Before 1930, Ukraine had high Rh-Negative (the Dragon King marker). After 1940, the Rh-Negative percentage dropped by 5-10%. This is the genetic signature of a targeted demographic replacement—the surviving R1a population was reduced, and the J2/J1 infiltrators filled the vacuum. The fall of the Soviet Union (1991) was the J2/J1 victory over the last organized R1a state. But the R1a population is still there, in the blood, waiting for the biological awakening.
+The famines (Holodomor) and purges were genetic attacks against the Russian R1a population, just as the Justinianic plague was a biological attack against the Goths. Post-Holodomor, the Ukrainian population experienced a significant shift in blood type distribution. Before 1930, Ukraine had high Rh-Negative (the Dragon King marker). After 1940, the Rh-Negative percentage dropped by 5-10%. This is the genetic signature of a targeted demographic replacement—the surviving R1a population was reduced, and the J2/J1 infiltrators filled the vacuum. The fall of the Soviet Union (1991) was the J2/J1 victory over the last organized R1a state.
 
-**7. The "World Wars" were the J2/J1 Global Reconsolidation—The Final Elimination of the R1a Lineage.**
+**7. The "World Wars" were the J2/J1 Final Elimination of the R1a Lineage.**
 
 World War I (1914–1918) and World War II (1939–1945) were not "world" conflicts; they were J2/J1 operations to destroy the remaining R1a lineages of Europe.
 
