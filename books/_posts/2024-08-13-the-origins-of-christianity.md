@@ -570,7 +570,7 @@ The original Jews were not a Semitic tribe from Canaan. They were the Yuezhi –
 
 After the destruction of the Temple and the crushing of the Bosporan‑Adiabene revolt, the Flavians deported or killed the R1a‑Z93 Scythian‑Aryan priest‑elite (the original "Jews"), and then imported loyal temple administrators from client kingdoms in the Caucasus and Upper Mesopotamia: Armenia (heavily J2‑M67/M92), Georgia (high J2a‑M319), and Adiabene/Osrhoene (J1‑P58, J2‑M172).
 
-Even today, the Cohanim Jews (High Priests) are overwhelmingly J1-P58 haplotype. They are a hybrid of Anatolian farmers (J2) and Semitic pastoralists (J1). The Levite Jews (Temple Assistants) are overwhelmingly steppe R1a. (J1/J2 are low neanderthal admixture, while Levite R1a has high neanderthal admixture [^12]. Neanderthal admixture is a signal of the Dragon Caste)
+Even today, the Cohanim Jews (High Priests) are overwhelmingly J1-P58 haplotype. They are a hybrid of Anatolian farmers (J2) and Semitic pastoralists (J1). The Levite Jews (Temple Assistants) are overwhelmingly steppe R1a.
 
 The demographic replacement among ancient Jewish elite traces back to the same time when J2/J1 also supplanted R1a to become the dominant haplogroup among the Roman elite (https://inf.news/en/science/bee8bab603736d7530f42b64ea756397.html). This is why they erased the Scythian origins of ancient civilizations and painted the Scythians (R1a) as monstrous foreigners (see: Chapter 8. Who Forged History?). 
 
@@ -582,7 +582,8 @@ The Mishnah and Talmud were compiled after the revolt by the surviving J1 Cohani
 
 Endnotes (Chapter 4.3)
 
-(a) The name of Levi (son of Jacob) bears a striking resemblance to Leviathan, a mystical serpent mentioned in the Old Testament books of Job, Psalms, and Isaiah. The Levites were Saka/Scythians which is where the name Satan in the bible comes from after Flavian/J1/J2 Cohanim Jewish revision. The serpent in later biblical texts conflate this serpent with Satan (in Revelation 12, Satan is explicitly named "that old serpent" who makes war against God's people before being cast down").
+(a) The name of Levi (son of Jacob) bears a striking resemblance to Leviathan, a mystical serpent mentioned in the Old Testament books of Job, Psalms, and Isaiah. The serpent in later biblical texts conflate this serpent with Satan (in Revelation 12, Satan is explicitly named "that old serpent" who makes war against God's people before being cast down"). The Levites were Saka/Scythians which is where the name Satan in the bible comes from after Flavian/J1/J2 Cohanim Jewish revision.\
+(b) J1/J2 are low neanderthal admixture, while Levite R1a has high neanderthal admixture [^12]. Neanderthal admixture is a signal of the Dragon Caste.
 (b) The neanderthal-human hybrids are the basis of the Nepilim in the bible (hybrids of imposing size and strength)
 
 **5 Rome On the Bosphorus River**
