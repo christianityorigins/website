@@ -866,7 +866,7 @@ WWII: World War II was fought essentially to save European Jewry. None of the al
 
 The death toll of WW2 was  70 to 85 million, mostly R1a Europeans.
 
-The "United Nations": The UN was established by the J2/J1 victors as a global administrative body—the Flavian-J2 "New World Order". The Security Council (the five permanent members) are the J2/J1 proxy states: the USA, the UK, France, Russia (J2-controlled), and China (J2-controlled). The UN is the modern Flavian empire.
+After WW2 the United Nations (UN) was established by the J2/J1 victors as a global administrative body—the Flavian-J2 "New World Order". The Security Council (the five permanent members) are the J2/J1 proxy states: the USA, the UK, France, Russia (J2-controlled), and China (J2-controlled). The UN is the modern Flavian empire.
 
 **Conclusion**
 
