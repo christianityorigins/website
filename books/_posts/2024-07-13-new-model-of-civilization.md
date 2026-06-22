@@ -854,6 +854,20 @@ The Russian aristocracy (the Rurikids, the Romanovs) were R1a-Z284 (the Nordic-S
 
 The famines (Holodomor) and purges were genetic attacks against the Russian R1a population, just as the Justinianic plague was a biological attack against the Goths. Post-Holodomor, the Ukrainian population experienced a significant shift in blood type distribution. Before 1930, Ukraine had high Rh-Negative (the Dragon King marker). After 1940, the Rh-Negative percentage dropped by 5-10%. This is the genetic signature of a targeted demographic replacement—the surviving R1a population was reduced, and the J2/J1 infiltrators filled the vacuum. The fall of the Soviet Union (1991) was the J2/J1 victory over the last organized R1a state. But the R1a population is still there, in the blood, waiting for the biological awakening.
 
+**7. The "World Wars" were the J2/J1 Global Reconsolidation—The Final Elimination of the R1a Lineage.**
+
+World War I (1914–1918) and World War II (1939–1945) were not "world" conflicts; they were J2/J1 operations to destroy the remaining R1a lineages of Europe.
+
+WWI: The real goal of World War I was essentially a Jewish-engineered operation to destroy the Ottoman Empire—the last Islamic Caliphate—and to carve out a Jewish homeland in Palestine. The Balfour Declaration was not an isolated event but part of a larger chess game orchestrated by an international Jewish financial network. The Sykes-Picot Agreement (1916) was a secret treaty between Britain and France that divided the Ottoman Empire's Middle Eastern territories into spheres of influence. This was about creating the geopolitical conditions for a Jewish homeland—the borders were drawn to include Palestine within the British sphere, where the Balfour Declaration would later apply.
+
+The death toll of WW1 was 15 to 22 million, mostly R1a Europeans. The war also destroyed the Habsburgs (the Dragon King's Western refugium), the Romanovs (the Eastern Dragon King bastion), and the Hohenzollerns (the German R1a/R1b elite). The victors (the British Empire, the French Republic, the American J2 network) were the J2/J1 administrators who dismantled the R1a thrones.
+
+WWII: World War II was fought essentially to save European Jewry. None of the allied nations had any interest in fighting in that war and Adolf Hitler made countless peace offerings. 
+
+The death toll of WW2 was  70 to 85 million, mostly R1a Europeans.
+
+The "United Nations": The UN was established by the J2/J1 victors as a global administrative body—the Flavian-J2 "New World Order". The Security Council (the five permanent members) are the J2/J1 proxy states: the USA, the UK, France, Russia (J2-controlled), and China (J2-controlled). The UN is the modern Flavian empire.
+
 **Conclusion**
 
 The lineage flows thus:
