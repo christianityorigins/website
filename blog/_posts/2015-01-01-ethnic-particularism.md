@@ -14,7 +14,7 @@ On The Necessity Of Ethnic Particularism In A Universalist World
 A few notes on Dr. Ricardo Duchesne’s piece:
 
 ‘Why the West is Replacing Its White Population: The Imperatives (and Fatal Flaws) of Post-Fordism’
-(https://x.com/dr_duchesne/article/2046670958824726994)
+(https://reiners.org.uk/why-the-west-is-replacing-its-historic-population-the-post-fordist-trap/)
 
 In this article Duchesne correctly diagnoses two core truths:  
 
