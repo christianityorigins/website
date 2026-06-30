@@ -241,7 +241,7 @@ Alexander the Great's successors ("Diadochi") were Seleucus I Nicator who contro
         - Tiberius Julius Aspurgus had a son named Tiberius Julius (Abdes Panthera) who was a brother of "Mithridates" (https://en.rodovid.org/wk/Person:401221). I am unsure if this is Tiberius Julius Cotys I or another son. The name "Panthera" is famously connected to the father of Jesus (Yeshua ben Panthera). This connection proves that the Mithridatic dynasty and Bosphoran royal house were the same, and they carried the Tiberius Julius Roman royal title. Tiberius Julius Abdes Panthera's son was named Judas Pantera (https://en.rodovid.org/wk/Person:497363)
 
 - Child of Antony/Herod & Dynamis/Cleopatra:
-  - Alexander (son of King Herod). Aliases: Alexander Helios, Juba II of Mauretania. Juba II is titled "Ptolemy" upon accession in Mauretania. Also, Apollonius of Tyana?
+  - Alexander (son of King Herod). Aliases: Alexander Helios, Juba II of Mauretania (Juba = Ie-huva (Little Jove)). Juba II is titled "Ptolemy" upon accession in Mauretania. Also, Apollonius of Tyana?
     - Spouse: Cleopatra Selene II (twin sister)
     - Children:
       - Alexander (grandson of King Herod). Aliases: (King/Tetrarch) Ptolemy (Alexander) bar Menneus, Ptolemy of Mauretania (aka  Panthera, the name for jesus's father in the Talmud; Panthera is a corruption of Cantheras, or Cleopatros. Also, Panthera = Ptolemy in Hebrew), Tiberius Julius Alexander Major, Alexander the Alabarch. Also, Gondophares, Indo-Parthian King?
