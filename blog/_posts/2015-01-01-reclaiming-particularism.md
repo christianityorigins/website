@@ -1,13 +1,13 @@
 ---
 layout: default
 open_links_in_new_tab: true
-title: "Against Abstract Categories: Reclaiming Particular Identities in a Universalist System"
+title: "Deconstructing the Monolith: Reclaiming Particular Identities in a Universalist System"
 date: 2015-01-01
 category: blog
 ---
 
 
-Against Abstract Categories: Reclaiming Particular Identities in a Universalist System
+Deconstructing the Monolith: Reclaiming Particular Identities in a Universalist System
 
 **By Ralph Perrier**  
 
@@ -43,9 +43,8 @@ As the metaphysics of the Church receded, the historical concept of "Christendom
 
 **Universalism as Erasure**
 
-- Universalist systems require erasure of particular identities. “White” is a modern bureaucratic invention that does this job. Deracinating. Universalist poison designed to erase real ethnicity. It is secularized "christendom" subjected to the Christian ethos of sin, set commandments of behavior, and moral policing.
+- Universalist systems require erasure of particular identities. "Whiteness" is not a biological term, but an artificial, administrative, and legal construct invented to flatten distinct European cultures into a monolithic labor class. It eventually evolved into secularized "christendom" subjected to the Christian ethos of sin, set commandments of behavior, and moral policing.
 - “European” does the same trick on steroids — turns distinct peoples into an interchangeable monolith.  
-- Real ethnonationalism means specific groups only. No pan-White. Just your tribe.
 
 Call yourself "White" and you’re back in Christendom: 
 
@@ -53,7 +52,7 @@ Call yourself "White" and you’re back in Christendom:
 - Original Sin/Inherited sin — You're "White," so you're born guilty of racism, colonialism, and systemic oppression (things you didn't personally do)
 - Sinner vs saint  
 - Universal commandments  
-- Internal priesthood where leftist "Whites" become moral police and the arbiters of acceptable speech and behavior (they do this by claiming to represent universal principles. ie., anti-racism, equality, inclusion).
+- Moral policing/internal priesthood where leftist "Whites" become moral police and the arbiters of acceptable speech and behavior (they do this by claiming to represent universal principles. ie., anti-racism, equality, inclusion).
 
 The structure is identical. Only the vocabulary changed.
 
@@ -107,4 +106,4 @@ Then even introduce class and materialism as the final disruption. For example, 
 
 Ethnic particularism does not require liking your fellow Europeans or feeling any broad kinship with them. It is modular, conditional, and narrowly ethnic: you advocate for your specific people—or your own ancestral mix, such as Celto-Germanic or Anglo-Slavic. In this sense, ethnic particularism is precisely what defeats universalism's grip (appointed representatives and internal moral police). You advocate for your specific group's interests because you occupy that structural position and it serves your material outcomes.
 
-But the true destination of this deconstruction is the restoration of classical liberalism: the only political tradition that actually opposes institutional tyranny. Classical liberalism's core principle is simple—and radical: the individual, not the collective, not the institution, not the credentialed gatekeepers, is the irreducible unit of moral and political life. This means no one—no DEI bureaucrat, no progressive priesthood, no institutional authority—gets unilateral power to define your identity, judge your character, or police your speech based on group membership. 
+But the true destination of this deconstruction is a recognition that people should be understood through their actual historical contexts and material conditions, rather than through artificial boxes printed on a census form or an HR questionnaire. This is the restoration of classical liberalism: the only political tradition that actually opposes institutional tyranny. Classical liberalism's core principle is simple—and radical: the individual, not the collective, not the institution, not the credentialed gatekeepers, is the irreducible unit of moral and political life.
