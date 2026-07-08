@@ -50,7 +50,7 @@ Every polytheistic ancestral European religion is similar, the deities just have
 
 Some polytheistic religious followers see the polytheistic deities as sentient personal gods, others see them as allegorical personifications of natural forces (numen/animism) or as emanations or forms/symbolic representations of a particular quality or principle. A naturalistic cosmotheist sees the fundamental laws of nature—gravity, thermodynamics, evolution—as the very substance of the divine order. The “gods” are archaic ways of naming and relating to these immutable forces. Thor’s thunder is not a separate supernatural act; it is the atmospheric discharge that follows natural law, held sacred.
 
-Many secular Pagans (2) are inspired by Carl Jung were the polytheistic deities are archetypes (3) of the collective unconsciousness (4) and rituals are ways of inducing 'active imagination' (5) or a part of the process of 'individuation' (6).
+Many secular Pagans (2) are inspired by Carl Jung where the polytheistic deities are archetypes (3) of the collective unconsciousness (4) and rituals are ways of inducing 'active imagination' (5) or a part of the process of 'individuation' (6).
 
 3 Beliefs
 
