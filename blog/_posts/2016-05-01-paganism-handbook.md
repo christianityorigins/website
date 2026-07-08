@@ -28,7 +28,7 @@ Specific ethnic "Pagan" European religions are: Heathenry is Germanic Paganism (
 
 2.1 Pantheism
 
-Prehistoric European religions (Neolithic, Bronze Age) were pantheisc. Pantheism is a philosophical and religious belief that God or a divine reality is identical with the universe, or that the universe is a manifestation of God. This perspective posits that everything in the universe is interconnected and part of a larger, unified whole. 
+Prehistoric European religions (Neolithic, Bronze Age) were pantheistic. Pantheism is a philosophical and religious belief that God or a divine reality is identical with the universe, or that the universe is a manifestation of God. This perspective posits that everything in the universe is interconnected and part of a larger, unified whole. 
 
 2.1.1 Types of Pantheism
 
