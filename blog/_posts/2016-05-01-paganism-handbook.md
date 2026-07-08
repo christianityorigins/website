@@ -60,7 +60,7 @@ In pantheistic religions, pantheistic cosmology posits that the universe is imbu
 
 In pantheistic religions, rituals are about bringing someone to self-realization. For example, rituals like yoga, meditation, self-inquiry, stargazing to reflect on cosmic unity, and engaging in scientific inquiry to deepen understanding are all ways to help the individual realize their true nature as a manifestation of the divine. The goal is to awaken the individual's inner divinity and is aimed at helping the individual realize their true nature as the ultimate reality, fostering a sense of unity with the universe.
 
-Core Idea: You’re a piece of the cosmic puzzle, not a stranger to it. The divine is in everything; self-awareness is key. Self-realization in cosmotheism is not just personal growth but an alignment with the universe’s evolutionary drive toward greater complexity and consciousness.
+Core Idea: You’re a piece of the cosmic puzzle, not a stranger to it. The divine is in everything; self-awareness is key. Self-realization in pantheism is not just personal growth but an alignment with the universe’s evolutionary drive toward greater complexity and consciousness.
 
 5 Footnotes
 
