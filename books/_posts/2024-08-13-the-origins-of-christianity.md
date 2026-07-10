@@ -228,6 +228,8 @@ Polemon II of Pontus dies around the same time Titus becomes emperor.
 The way to connect them is through the fact that they were all married
 to the same woman, Berenice, granddaughter of King Herod (Bernice was also married to a man named "Marcus Antonius Polemo II" so that would make his father Marcus Antonius Polemon I aka Polemon of Laodicea https://en.wikipedia.org/wiki/Polemon_of_Laodicea).
 
+Also note how so many obscure ancestry client kings, prefects, and secretaries interlink via the same small pool of Herodian/Ptolemaic women and Tiberius Julius/Marcus Antonius names.
+
 I. The Ptolemaic, Julio-Claudian & Bosphoran Bloodline
 
 Alexander the Great's successors ("Diadochi") were Seleucus I Nicator who controlled a large chunk of the eastern territories, including Mesopotamia and Persia, Diodotus I Soter who controlled Bactria (possibly also India under the alias Ashoka the Great), and Ptolemy I Soter who controlled Egypt. Mainstream history presents the Ptolemies, Seleucids, Attalids, and Romans as separate, often warring entities. This is a Flavian-Vatican fabrication. In reality, they were four branches of a single Scythian-Sarmatian dynasty, a "Tetrarchy", administering different sectors of the empire from the Bosphoran center.
@@ -1667,36 +1669,13 @@ story"Tale of the Shipwrecked Sailor".
 
 So, these J1 haplotyped jews in Roman used their connections to power to subvert the empire with a mind virus. They may have already been scribes working for the Flavians in subverting the cult of King Izates of Adiabene and realized at the time the power of slave morality religions. 
 
-Zeus became Baal-Zebub in the Bible: Zeus Belos (Greek: Zeus Baal) ->
-Baal-Zebul -> Baal-Zebub ("Lord of the Flies") in 2 Kings 1:2-3.Jesus
-calls Satan "Beelzebul" (Matthew 12:24)---a deliberate mockery of
-Zeus-Baal. Scythian Sar (king) became Esau (Edom) the progenitor of the
+Zeus became Baal-Zebub in the Bible: The Hebrew "Baal" (Lord) is a direct cognate of the Phrygian "Bagus" (Lord), the Persian "Baga" (God), and the Scythian "Boga" (God). The Flavian scribes took the Dragon King's title ("Lord") and turned it into the "Lord of Flies". The "Zebub" (flies) is a deliberate mockery of the Scythian "Sabazios" (the Thracian Zeus) in 2 Kings 1:2-3.Jesus calls Satan "Beelzebul" (Matthew 12:24)---a deliberate mockery of
+Zeus-Baal. The Scythians were known as the Saka to the Persians and the Sakai to the Greeks. The Hebrew "Satan" is a direct phonetic rendering of the same root. Scythian Sar (king) became Esau (Edom) the progenitor of the
 Edomites in the bible, a metaphor for the forces of oppression and
-injustice. Saka (Scythian tribe) is a near-perfect homophone for the name of Satan (adversary). The Jewish
-version of Antichrist (Armilus) is based on Romulus (Armilus is a Hebrew
-corruption or adaptation of the Latin name Romulus). Lucifer, or "lucem
-ferre", which means "light-bearer" or "morning star", is Venus who was
-the Roman goddess whose functions encompassed love, beauty, desire, sex,
-fertility, prosperity, and victory. In Roman mythology, she was the
-ancestor of the Roman people through her son, Aeneas. The Greco-Egyptian
-deity Serapis (the horned deity) became the image of Satan. Sin (also called Nanna or Suen) is a Mesopotamian god of the moon. He was worshiped as the lunar deity whose symbol was the crescent moon. Sin was considered the son of the sky god Enlil and the grain goddess Ninlil, and the father of the sun god Shamash (Sumerian Utu) as well as the goddess Ishtar (Inanna). Together, Sin, Shamash, and Ishtar formed an important astral triad in Mesopotamian religion. In Norse
-mythology Iðunn/Idun (equivalent to Greek Hebe, and Celtic Brigid), is
-the goddess of youth, her name means "giver of eternal youth". The other
-gods get golden apples from her. She stores them in a basket and they
-keep the gods young until the end of the world. Idun became Eve in the
-bible the archetypal sinner whose actions brought death into the world
-(Romans 5:12). Inanna (equivalent to Freyja (Norse mythology), Aphrodite
-(Greek mythology), Venus (Roman mythology), and Morrigan (Celtic
-mythology)), the ancient goddess of war, love, and fertility, became the
-Whore of Babylon (Friday the 13th was the day to honor Freyja). Artemis,
-the goddess of the wilderness, wild animals, nature, vegetation,
-childbirth, care of children, and chastity, became recast as a witch
-(19:24). (The demonization of Venus (lucifer), Idun/Hebe/Brigid,
-Inanna/Freyja/Aphrodite/Venus, Artemis, and other female Pagan deities,
-was designed to instil a strong hatred of women among European men). The
-Mark of the Beast (666) refers to emperor Nero (take Nero's name and
-title in Greek (Nero Caesar), and transliterate it into Hebrew and then
-take the numerical value). Also, the jews' hated enemy in the bible are
+injustice. The Jewish
+version of Antichrist (Armilus) is based on Romulus the founder of Rome (Armilus is a Hebrew
+corruption or adaptation of the Latin name Romulus). The Greco-Egyptian
+deity Serapis (the horned deity) became the image of Satan. Sin (also called Nanna or Suen) is a Mesopotamian god of the moon. He was worshiped as the lunar deity whose symbol was the crescent moon. Sin was considered the son of the sky god Enlil and the grain goddess Ninlil, and the father of the sun god Shamash (Sumerian Utu) as well as the goddess Ishtar (Inanna). Together, Sin, Shamash, and Ishtar formed an important astral triad in Mesopotamian religion. Also, the jews' hated enemy in the bible are
 the Celts (Gog or Goy). Flavius Josephus in the 'Antiquities of the
 Jews'. Book I. Chapter 1: "For Gomer founded those whom the Greeks now
 call Galatians [Galls], but were then called Gomerites. Magog founded
@@ -1707,6 +1686,25 @@ called Scythians". Josephus is suggesting that the Hebrew word "Goy"
 as a leader from the land of Magog in the north, who will gather a
 coalition of nations to attack Israel, but will be defeated by God in a
 great battle.
+
+The Flavian scribes systematically inverted the female deities of the Dragon Kings into demonic figures. This was designed to instil a strong hatred of women among European men. Lucifer, or "lucem
+ferre", which means "light-bearer" or "morning star", is Venus who was
+the Roman goddess whose functions encompassed love, beauty, desire, sex,
+fertility, prosperity, and victory. In Roman mythology, she was the
+ancestor of the Roman people through her son, Aeneas. Idun (Hebe, Brigid - the archetypal fertility goddess) became Eve in the
+bible the archetypal sinner whose actions brought death into the world
+(Romans 5:12). Inanna (equivalent to Freyja (Norse mythology), Aphrodite
+(Greek mythology), Venus (Roman mythology), and Morrigan (Celtic
+mythology)), the ancient goddess of war, love, and fertility, became the
+Whore of Babylon (Friday the 13th was the day to honor Freyja). Artemis,
+the goddess of the wilderness, wild animals, nature, vegetation,
+childbirth, care of children, and chastity, became recast as a witch
+(19:24). In Norse mythology Iðunn/Idun (equivalent to Greek Hebe, and Celtic Brigid), is
+the goddess of youth, her name means "giver of eternal youth". The other
+gods get golden apples from her. She stores them in a basket and they
+keep the gods young until the end of the world.
+
+Through demonizing women they centralized authority in male priests. The Church Father became the new "fathers" of the Christian community, replacing the Dragon King's matrilineal priests. In Pagan European cultures women were the teachers of the youth. Why did they do this? Author Ammon Hillman in his book 'Original Sin: Sex, Drugs, and the Church' (2012), who speaks Koine Greek, claims that the authors of the bible demonized women because women in Pagan cultures were the teachers and the early priests were pedophiles who wanted access to children. The systematic abuse of children by catholic priests over the past century (https://en.wikipedia.org/wiki/Catholic_Church_sexual_abuse_cases) wasn't a bug, it was a feature.
 
 **9.2 The Cult of Antinous**
 
