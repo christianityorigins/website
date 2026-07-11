@@ -574,7 +574,7 @@ The Hittites were an Indo-European Anatolian people whose empire was centered in
 
 So Ezekiel is saying, in plaintext: "Jerusalem, your father is an Aryan dragon-priest from the steppe, and your mother is an Anatolian serpent-queen from the Hittite highlands". This is not a Jewish origin story. It is an encoded confession that Jerusalem's true founders were the steppe-descended elite of Anatolia.
 
-The name Israel comes from Isauria. In south-central Anatolia, there was a mountainous region called Isauria. Its inhabitants were the Isaurians. The name Isauria is usually derived from Hittite or Luwian, but let’s decode it  as: Is- = the divine prefix (as in Isis, Isesi, Iesous) and -Ura from city. Isaura cognates to "Isa-Ura" (Jesus City). Isauria was located in Galatia (Galatia = Galilee from the bible, lingusitically identical). The king of this region was Ptolemy XIV Philopator (son of Ptolemy XII Auletes) aka Amyntas Nikator aka Amyntas, King of Galatia, who was Ptolemy XII Auletes of Egypt aka Mark Antony aka King Herod aka Mithridates VI Eupator of Pontus's son under his Mithridates VI Eupator of Pontus alias. He was also Jesus ben Fabus (See Chapter: 5.2.2. Amyntas Nikator aka Amyntas, King of Galatia)
+The name Israel comes from Isauria. In south-central Anatolia, there was a mountainous region called Isauria. Its inhabitants were the Isaurians. The name Isauria is usually derived from Hittite or Luwian, but let’s decode it  as: Is- = the divine prefix (as in Isis, Isesi, Iesous) and -Ura from city. Isaura cognates to "Isa-Ura" ("Jesus City", or "City of God"). Isauria was located in Galatia (Galatia = Galilee from the bible, lingusitically identical). The king of this region was Ptolemy XIV Philopator (son of Ptolemy XII Auletes) aka Amyntas Nikator aka Amyntas, King of Galatia, who was Ptolemy XII Auletes of Egypt aka Mark Antony aka King Herod aka Mithridates VI Eupator of Pontus's son under his Mithridates VI Eupator of Pontus alias. He was also Jesus ben Fabus (See Chapter: 5.2.2. Amyntas Nikator aka Amyntas, King of Galatia)
 
 This region was populated by the Celts (Galatians) who came to ancient Anatolia and were conquered or allied with the Scythian-led Bosporan/Pontic empire. The Galatians adopted the Dragon King's cult (Esus Christos) as a client state. So there was a "Celticization" of the Jewish religion as a secondary syncretism.
 
@@ -582,7 +582,7 @@ For example, the Celtic languages are surprisingly Semitic with a verb-subject-o
 
 **4.3 Modern Jews**
 
-The original Jews were not a Semitic tribe from Canaan. They were the Yuezhi – the Dragon Kings’ priestly caste who spread from Central Asia to Europe. 
+The original Jews were not a Semitic tribe from Canaan. They were the Gens Julii – the Dragon Kings’ priestly caste who spread from Central Asia to Europe. 
 
 After the destruction of the Temple and the crushing of the Bosporan‑Adiabene revolt, the Flavians deported or killed the R1a‑Z93 Scythian‑Aryan priest‑elite (the original "Jews"), and then imported loyal temple administrators from client kingdoms in the Caucasus and Upper Mesopotamia: Armenia (heavily J2‑M67/M92), Georgia (high J2a‑M319), and Adiabene/Osrhoene (J1‑P58, J2‑M172).
 
@@ -965,7 +965,7 @@ Amyntas was the brother of Ptolemy XIII Theos Philopator aka Gaius Octavius (Emp
 
 Amyntas ruled an empire that stretched from modern-day Turkey through India, but likely further as his reign coincides with the "Yellow Emperor" Zhao of Han, an archetype that he fits perfectly with.
 
-His palace at Isauria refers to Isis (also known as Isa or Aset) who was the mother of Horus (Cleopatra identified herself with the Greco-Egyptian goddess Isis and in Egyptian mythology the son of Isis was Horus), and Jesus is called Isa in the Quran. -Ura is a city suffix so this makes "Isaura" (Isa-Ura) literally "Jesus City".
+His palace at Isauria refers to Isis (also known as Isa or Aset) who was the mother of Horus (Cleopatra identified herself with the Greco-Egyptian goddess Isis and in Egyptian mythology the son of Isis was Horus), and Jesus is called Isa in the Quran. -Ura is a city suffix so this makes "Isaura" (Isa-Ura) literally "Jesus City", or "City of God".
  
 Galatia = Galilee: The names are linguistically identical. "Galatia" is the Greek form of "Galilee." His kingdom was the biblical "Galilee".
 
