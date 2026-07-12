@@ -44,9 +44,7 @@ Unlike worldviews that look outward to an afterlife or a cosmic escape hatch (su
 
 The Ancestral European Roots: Immanence vs. Transcendence
 
-Modern monotheistic religions are transcendent—they teach that God is a separate entity who created the universe from nothing and sits outside of it.
-
-Ancient European religions were fundamentally immanent—the sacred was found within nature, not outside it.
+Modern monotheistic religions are transcendent—they teach that God is a separate entity who created the universe from nothing and sits outside of it. Ancient European religions were fundamentally immanent—the sacred was found within nature, not outside it.
 
 Areté and Degenry (The Pursuit of Excellence): In Hellenism, the ultimate goal of human life is Areté—a virtue translating directly to "excellence of any kind" or "living up to one's full potential". The Germanic equivalent was being a degen (a person of honorable achievement and utility). The program here is radical self-improvement. You are expected to sharpen your mind, strengthen your body, master your craft, and act with courage. It is an ancient blueprint for modern self-actualization.
 
