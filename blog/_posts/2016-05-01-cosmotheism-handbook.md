@@ -16,7 +16,7 @@ Contents
 
 1 Cosmotheism
 
-Cosmotheism is the philosophical and spiritual view that the universe itself is divine and that all existence is interconnected within this cosmic whole. It posits that the cosmos is not merely a backdrop for life but is a living, conscious entity in which everything is an expression of the divine. This perspective encourages a deep appreciation for nature and the universe as sacred. The scientific basis for cosmotheism lies in the concept of unity and interconnectedness, where everything is composed of the same fundamental building blocks, such as atoms and subatomic particles. We are literally made of stardust. This narrative provides a "cosmic genealogy".
+Cosmotheism is the philosophical and spiritual view that the universe itself is divine and that all existence is interconnected within this cosmic whole. It posits that the cosmos is an evolutionary entity, in a constant state of ever growing complexity — that eventually has produced conscious life, and that everything in the cosmos is an expression of the divine. The scientific basis for cosmotheism lies in the concept of unity and interconnectedness, where everything is composed of the same fundamental building blocks, such as atoms and subatomic particles.
 
 2 Types of Cosmotheism
 
