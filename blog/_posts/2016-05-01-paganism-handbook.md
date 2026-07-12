@@ -15,8 +15,10 @@ CONTENTS
 2.2 Friedrich Nietzsche's Will to Power\
 2.3 Polytheism \
 3 Core Beliefs \
-4 Practices and Rituals \
-5 Footnotes
+3.1 Program and Goals\
+4 Common Themes\
+5 Practices and Rituals \
+6 Footnotes
 
 1 Definitions
 
@@ -54,15 +56,32 @@ Many secular Pagans (2) are inspired by Carl Jung where the polytheistic deities
 
 3 Beliefs
 
-In pantheistic religions, pantheistic cosmology posits that the universe is imbued with a spiritual dimension. This means that the divine (or Will to Power) is not a separate and transcendent entity but rather an inherent aspect of the universe, and humans are not separate from the divine but rather an unfolding or manifestation of it. Therefore, in cosmotheist cosmologies, self-realization or self-actualization is often seen as the process of recognizing and embodying one's true nature as an expression of the divine. This can be seen as a form of self-deification.
+In pantheistic religions, pantheistic cosmology posits that the universe is imbued with a spiritual dimension. This means that the divine (or Will to Power) is not a separate and transcendent entity but rather an inherent aspect of the universe, and humans are not separate from the divine but rather an unfolding or manifestation of it. Therefore, in pantheistic cosmologies, self-realization or self-actualization is often seen as the process of recognizing and embodying one's true nature as an expression of the divine. This can be seen as a form of self-deification.
 
-4 Practices and Rituals
+3.1 Program and Goals
+
+3.1 The "Program" and Goals of these religions were active human flourishing
+
+Unlike worldviews that look outward to an afterlife or a cosmic escape hatch (such as a literal heaven or salvation from sin), ancestral European religions feature an entirely different program. Their goal is not to leave this world behind, but to fully inhabit it. 
+
+For a secular person, the core objectives of these traditions translate into three clear, actionable human goals:
+
+*   Areté and Degenry (The Pursuit of Excellence): In Hellenism, the ultimate goal of human life is Areté*—a virtue translating directly to "excellence of any kind" or "living up to one's full potential". The Germanic equivalent was being a degen (a person of honorable achievement and utility). The program here is radical self-improvement. You are expected to sharpen your mind, strengthen your body, master your craft, and act with courage. It is an ancient blueprint for modern self-actualization.
+*   Leaving a Worthy Echo (Functional Immortality): Because these traditions historically lacked a dogma of heavenly rewards, immortality was measured by the footprint you left behind. The Hávamál (an Old Norse wisdom poem) famously states: "Cattle die, kinsmen die, you yourself must also die; but I know one thing that never dies: the reputation of each one who dies". For a secular individual, this is a powerful reminder that our only true immortality is the legacy we leave in the minds of our descendants and the positive impact we leave on the world.
+
+4 Common Themes
+
+Ancestor veneration: In ancestral traditions, you don't worship your ancestors as ghosts; you honor them as the literal reason you exist. For a secular person, an ancestor ritual is an exercise in evolutionary gratitude.
+
+Determinism: The Germanic peoples called it Wyrd (the root of the modern word weird). It wasn't viewed as a divine script written by a god, but rather as a vast, interconnected web of cause and effect. The ancient European "Norns" or "Fates" didn't control you; they simply spun the threads of causality.
+
+5 Practices and Rituals
 
 In pantheistic religions, rituals are about bringing someone to self-realization. For example, rituals like yoga, meditation, self-inquiry, stargazing to reflect on cosmic unity, and engaging in scientific inquiry to deepen understanding are all ways to help the individual realize their true nature as a manifestation of the divine. The goal is to awaken the individual's inner divinity and is aimed at helping the individual realize their true nature as the ultimate reality, fostering a sense of unity with the universe.
 
 Core Idea: You’re a piece of the cosmic puzzle, not a stranger to it. The divine is in everything; self-awareness is key. Self-realization in pantheism is not just personal growth but an alignment with the universe’s evolutionary drive toward greater complexity and consciousness.
 
-5 Footnotes
+6 Footnotes
 
 1\. Druidism is the religion that was subverted to make Christianity, so Christians going to Druidism can continue celebrating the same traditions, symbolism, and holidays, just with a pantheistic cosmology. Druidic Calendar: Yule (Winter Solstice) - December 21/22 Celebrate the rebirth of the sun (Christian Equivalent: Christmas (December 25)). Imbolc - February 1/2 Mark the midpoint between Yule and the spring equinox (Christian Equivalent: Candlemas (February 2)). Ostara (Spring Equinox) - March 20/21 Welcome the return of spring with eggs, rabbits, and feasting (Cristian Equivalent: Easter (movable date, typically in March or April)). Beltane - May 1/2 Honor the spirits of the land and the cycles of nature (Christian Equivalent: May Day (May 1) or Ascension Day (movable date, typically in May)). Litha (Summer Solstice) - June 20/21 Celebrate the peak of the sun's power (Christian Equivalent: St. John's Day (June 24)). Lammas - July 31/August 1 Mark the beginning of harvest time (Christian Equivalent: Feast of the Transfiguration (August 6) or Lammas Sunday (movable date, typically in August)). Mabon (Autumn Equinox) - September 20/21 Celebrate the second harvest (Christian Equivalent: Michaelmas (September 29) or Harvest Festival (movable date, typically in September or October)). Samhain - October 31/November 1 Honor the ancestors (Christian Equivalent: All Saints' Eve (October 31) or All Souls' Day (November 2)) \
 2\. https://en.wikipedia.org/wiki/Secular_paganism [link]. These Pagans don't worship a particular thing, they just appreciate the unity of existence, or seek to understand the ultimate nature of reality. Ancestor veneration is the only worship they do. \
