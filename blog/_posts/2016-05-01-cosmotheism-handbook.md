@@ -42,7 +42,11 @@ Core Idea: You’re a piece of the cosmic puzzle, not a stranger to it. The divi
 
 Unlike worldviews that look outward to an afterlife or a cosmic escape hatch (such as a literal heaven or salvation from sin), Cosmotheiest religions feature an entirely different program. Their goal is not to leave this world behind, but to fully inhabit it.
 
-For a cosmotheist, the core objectives of these traditions translate into three clear, actionable human goals:
+The Ancestral European Roots: Immanence vs. Transcendence
+
+Modern monotheistic religions are transcendent—they teach that God is a separate entity who created the universe from nothing and sits outside of it.
+
+Ancient European religions were fundamentally immanent—the sacred was found within nature, not outside it.
 
 Areté and Degenry (The Pursuit of Excellence): In Hellenism, the ultimate goal of human life is Areté—a virtue translating directly to "excellence of any kind" or "living up to one's full potential". The Germanic equivalent was being a degen (a person of honorable achievement and utility). The program here is radical self-improvement. You are expected to sharpen your mind, strengthen your body, master your craft, and act with courage. It is an ancient blueprint for modern self-actualization.
 
@@ -50,4 +54,4 @@ Leaving a Worthy Echo (Functional Immortality): Because these traditions histori
 
 5 Practices and Observances
 
-In cosmotheist religions, rituals are about bringing someone to self-realization. For example, rituals like yoga, meditation, self-inquiry, stargazing to reflect on cosmic unity, and engaging in scientific inquiry to deepen understanding are all ways to help the individual realize their true nature as a manifestation of the divine. The goal is to awaken the individual's inner divinity and is aimed at helping the individual realize their true nature as the ultimate reality, fostering a sense of unity with the universe.
+In cosmotheist religions, rituals are about bringing someone to self-realization. For example, rituals like yoga, meditation, self-inquiry, stargazing to reflect on cosmic unity, and engaging in scientific inquiry to deepen understanding are all ways to help the individual realize their true nature as a manifestation of the divine. For a naturalistic cosmotheist, learning physics, biology, or astronomy isn't just an academic exercise—it is a core practice. If we are the universe experiencing itself, then uncovering the laws of thermodynamics or decoding the genome is literally the cosmos discovering its own inner workings. The goal is to awaken the individual's inner divinity and is aimed at helping the individual realize their true nature as the ultimate reality, fostering a sense of unity with the universe.
