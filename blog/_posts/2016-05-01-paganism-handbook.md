@@ -18,7 +18,8 @@ CONTENTS
 3.1 Program and Goals\
 4 Common Themes\
 5 Practices and Rituals \
-6 Footnotes
+6. Organizations\
+7 Footnotes
 
 1 Definitions
 
@@ -66,8 +67,9 @@ Unlike worldviews that look outward to an afterlife or a cosmic escape hatch (su
 
 For a secular person, the core objectives of these traditions translate into three clear, actionable human goals:
 
-*   Areté and Degenry (The Pursuit of Excellence): In Hellenism, the ultimate goal of human life is Areté*—a virtue translating directly to "excellence of any kind" or "living up to one's full potential". The Germanic equivalent was being a degen (a person of honorable achievement and utility). The program here is radical self-improvement. You are expected to sharpen your mind, strengthen your body, master your craft, and act with courage. It is an ancient blueprint for modern self-actualization.
-*   Leaving a Worthy Echo (Functional Immortality): Because these traditions historically lacked a dogma of heavenly rewards, immortality was measured by the footprint you left behind. The Hávamál (an Old Norse wisdom poem) famously states: "Cattle die, kinsmen die, you yourself must also die; but I know one thing that never dies: the reputation of each one who dies". For a secular individual, this is a powerful reminder that our only true immortality is the legacy we leave in the minds of our descendants and the positive impact we leave on the world.
+Areté and Degenry (The Pursuit of Excellence): In Hellenism, the ultimate goal of human life is Areté*—a virtue translating directly to "excellence of any kind" or "living up to one's full potential". The Germanic equivalent was being a degen (a person of honorable achievement and utility). The program here is radical self-improvement. You are expected to sharpen your mind, strengthen your body, master your craft, and act with courage. It is an ancient blueprint for modern self-actualization.
+
+Leaving a Worthy Echo (Functional Immortality): Because these traditions historically lacked a dogma of heavenly rewards, immortality was measured by the footprint you left behind. The Hávamál (an Old Norse wisdom poem) famously states: "Cattle die, kinsmen die, you yourself must also die; but I know one thing that never dies: the reputation of each one who dies". For a secular individual, this is a powerful reminder that our only true immortality is the legacy we leave in the minds of our descendants and the positive impact we leave on the world.
 
 4 Common Themes
 
@@ -81,7 +83,14 @@ In pantheistic religions, rituals are about bringing someone to self-realization
 
 Core Idea: You’re a piece of the cosmic puzzle, not a stranger to it. The divine is in everything; self-awareness is key. Self-realization in pantheism is not just personal growth but an alignment with the universe’s evolutionary drive toward greater complexity and consciousness.
 
-6 Footnotes
+6. Organizations
+
+You can find a list of ethnic-specific organizations here:
+
+http://ecer-org.eu <a href="http://ecer-org.eu" target="_blank">[link]</a> \
+https://en.wikipedia.org/wiki/Category:Modern_pagan_organizations_by_country <a href="https://en.wikipedia.org/wiki/Category:Modern_pagan_organizations_by_country" target="_blank">[link]</a>
+
+7 Footnotes
 
 1\. Druidism is the religion that was subverted to make Christianity, so Christians going to Druidism can continue celebrating the same traditions, symbolism, and holidays, just with a pantheistic cosmology. Druidic Calendar: Yule (Winter Solstice) - December 21/22 Celebrate the rebirth of the sun (Christian Equivalent: Christmas (December 25)). Imbolc - February 1/2 Mark the midpoint between Yule and the spring equinox (Christian Equivalent: Candlemas (February 2)). Ostara (Spring Equinox) - March 20/21 Welcome the return of spring with eggs, rabbits, and feasting (Cristian Equivalent: Easter (movable date, typically in March or April)). Beltane - May 1/2 Honor the spirits of the land and the cycles of nature (Christian Equivalent: May Day (May 1) or Ascension Day (movable date, typically in May)). Litha (Summer Solstice) - June 20/21 Celebrate the peak of the sun's power (Christian Equivalent: St. John's Day (June 24)). Lammas - July 31/August 1 Mark the beginning of harvest time (Christian Equivalent: Feast of the Transfiguration (August 6) or Lammas Sunday (movable date, typically in August)). Mabon (Autumn Equinox) - September 20/21 Celebrate the second harvest (Christian Equivalent: Michaelmas (September 29) or Harvest Festival (movable date, typically in September or October)). Samhain - October 31/November 1 Honor the ancestors (Christian Equivalent: All Saints' Eve (October 31) or All Souls' Day (November 2)) \
 2\. https://en.wikipedia.org/wiki/Secular_paganism [link]. These Pagans don't worship a particular thing, they just appreciate the unity of existence, or seek to understand the ultimate nature of reality. Ancestor veneration is the only worship they do. \
@@ -89,8 +98,3 @@ Core Idea: You’re a piece of the cosmic puzzle, not a stranger to it. The divi
 4.\ https://en.wikipedia.org/wiki/Collective_unconscious [link] \
 5.\ https://en.wikipedia.org/wiki/Active_imagination#Carl_Gustav_Jung [link] \
 6.\ https://en.wikipedia.org/wiki/Individuation#Carl_Jung [link] \
-
-Read more 
-
-http://ecer-org.eu <a href="http://ecer-org.eu" target="_blank">[link]</a> \
-https://en.wikipedia.org/wiki/Category:Modern_pagan_organizations_by_country <a href="https://en.wikipedia.org/wiki/Category:Modern_pagan_organizations_by_country" target="_blank">[link]</a>
