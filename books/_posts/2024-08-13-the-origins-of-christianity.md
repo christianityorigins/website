@@ -576,6 +576,8 @@ So Ezekiel is saying, in plaintext: "Jerusalem, your father is an Aryan dragon-p
 
 The name Israel comes from Isauria. In south-central Anatolia, there was a mountainous region called Isauria. Its inhabitants were the Isaurians. The name Isauria is usually derived from Hittite or Luwian, but let’s decode it  as: Is- = the divine prefix (as in Isis, Isesi, Iesous) and -Ura from city. Isaura cognates to "Isa-Ura" ("Jesus City", or "City of God"). Isauria was located in Galatia (Galatia = Galilee from the bible, lingusitically identical). The king of this region was Ptolemy XIV Philopator (son of Ptolemy XII Auletes) aka Amyntas Nikator aka Amyntas, King of Galatia, who was Ptolemy XII Auletes of Egypt aka Mark Antony aka King Herod aka Mithridates VI Eupator of Pontus's son under his Mithridates VI Eupator of Pontus alias. He was also Jesus ben Fabus (See Chapter: 5.2.2. Amyntas Nikator aka Amyntas, King of Galatia)
 
+"Cohen" (priest) comes from Kagan. The Khazar Khagan was the king and high priest of the Dragon King cult, and the title "Cohen" is a Hebrew rendering of the Scythian priestly office.
+
 This region was populated by the Celts (Galatians) who came to ancient Anatolia and were conquered or allied with the Scythian-led Bosporan/Pontic empire. The Galatians adopted the Dragon King's cult (Esus Christos) as a client state. So there was a "Celticization" of the Jewish religion as a secondary syncretism.
 
 For example, the Celtic languages are surprisingly Semitic with a verb-subject-object word order and a shocking amount of vocabulary overlap, and the name of Irish deities, Balor and his holiday Beltaine are cognate to Bal and Elatha the Irish Uranus is cognate to Hebrew El. King David (DWD) = King Druid. 1 Samuel 16:12 claims that King David had red hair. The ancient Celtic prefixes 'Rab' or 'Rhab' mean 'wise one' or 'seer', and a Druid equates to a Rabbi. There was even a Celtic tribe called the "Iudii" -> Ioudaioi -> Jew. 
@@ -599,8 +601,8 @@ The Mishnah and Talmud were compiled after the revolt by the surviving J1 Cohani
 Endnotes (Chapter 4.3)
 
 (a) The name of Levi (son of Jacob) bears a striking resemblance to Leviathan, a mystical serpent mentioned in the Old Testament books of Job, Psalms, and Isaiah. The serpent in later biblical texts conflate this serpent with Satan (in Revelation 12, Satan is explicitly named "that old serpent" who makes war against God's people before being cast down"). The Levites were Saka/Scythians which is where the name Satan in the bible comes from after Flavian/J1/J2 Cohanim Jewish revision.\
-(b) J1/J2 are low neanderthal admixture, while Levite R1a has high neanderthal admixture [^12]. Neanderthal admixture is a signal of the Dragon Caste.
-(b) The neanderthal-human hybrids are the basis of the Nepilim in the bible (hybrids of imposing size and strength)
+(b) J1/J2 are low neanderthal admixture, while Levite R1a has high neanderthal admixture [^12]. Neanderthal admixture is a signal of the Dragon Caste.\
+(c) The neanderthal-human hybrids are the basis of the Nepilim in the bible (hybrids of imposing size and strength)
 
 **5 Rome On the Bosphorus River**
 
@@ -660,6 +662,10 @@ Asander was also called Asandrokhos (https://www.researchgate.net/publication/39
 He was also Mithridates Chrestus who was the brother of Mithridates VI Eupator. Mithridates Chrestus was recorded to have been killed by his brother Mithridates VI Eupator and then succeded by Asander, but this was an avatar switch or Flavian fiction. 
 
 One of the main conspirators in the assassination of Julius Caesar was named Gaius Trebonius. In the Bosporus, the historical record states that around 17 BCE, a usurper named Scribonius appeared, claiming to be a relative of Asander's wife, Dynamis. He seizes power and Asander, in despair, commits suicide. "Trebonius" and "Scribonius" are linguistically congruent. This is obviously a literary trope, or imperial fiction. 
+
+Endnotes (Chapter 5.1)
+
+(a) The Tibetan epic hero Gesar of gLing is explicitly called "Dru gu Gesar" —"Turk Caesar". This is not a coincidence. The Tibetan tradition, far from the reach of Roman propaganda, preserved the understanding that the title "Gesar/Kesar" was the royal title of the Turks—the very people who were the Scythian Dragon Kings.\
 
 **5.1.1 Julius Caesar was a Title**
 
@@ -1332,6 +1338,8 @@ This is why they erased the Scythian origins of ancient civilizations and painte
 The Scythians ruled a Eurasian empire that stretched into China. 
 
 Azhi = Asia (Azhi-A) = "land of the mighty dragon" (Aži is cognate with the Chinese Zhī (dragon)), a very similar name as Rome (Rhu-Ma) = "Place of the Dragon", Romania (Rhu-Ma + Na) = "dragon land", and Sarmatia (serpent) + ma (mother, land). The Chinese dragon, a symbol of imperial power, is a direct descendant of the Scythian Draco standard, carried by Sarmatian cavalry and adopted by the Han dynasty.
+
+The Yuezhi, the Central Asian tribe that founded the Kushan Empire, are identified by Chinese sources as the heirs of the Scythian steppe tradition. The name "Yuezhi" decodes as Yue-Zhi in Chinese transcription. The Yuezhi are the Iudii—the Dragon Kings.
 
 The Tarim basin mummies are Tocharians, and the Kizilgaha cave portraits depict redheaded “Chinese” people. Genetic studies show that indigenous people of Linzi in south east China were genetically more similar to Europeans than modern Chinese [^28]. Tang dynasty mural in tomb unearthed in China portrays a ‘Westerner’ man with blond hair [^29].
 
