@@ -188,6 +188,7 @@ Clovis / Solutreans is a cover name for Cro-Magnon invaders from Atland. There i
 
 *   **Quetzalcoatl / Kukulkan / Viracocha is Aži Dahāka:**
     *   The "Feathered Serpent" is the Mesoamerican avatar of the Dragon King.
+    *   The name America is not based on Amerigo Vespucci, but existed in ancient Peru. Amaruca, meaning "Land of the Plumed Serpent" is linked to Incan mythology's Amaru. The Incan Amaru, the Aztec Quetzalcoatl, the Scythian Aži Dahāka, the Egyptian Uraeus, and the Celtic Esus are all regional variations of the same Dragon King archetype.
     *   Biography Lock: White, bearded king from east, brings civilization, opposed by dark rival, promises to return. Identical to Osiris, Izates/Jesus archetype.
     *   Not a local myth. It is the global Dragon Crown founder template.
 *   **Pyramid Construction Blueprint:**
