@@ -19,9 +19,7 @@ Preface\
 
 The texts under this cover are essays on a wide range of topics related to Christianity and religion that were originally blog posts.
 
-The first essay was inspired by an article I read by Dr. Ricardo Duchesne called ‘Why the West is Replacing Its White Population: The Imperatives (and Fatal Flaws) of Post-Fordism’. This article reminded me of a time when I was in university. I witnessed every group organize along ethnic grounds to advocate for their tribal interests. At the same time there waa a small right wing group of about ten people that attempted to organize for "white" student rights. The counter protesters where all white themselves and they outnumbered to other group by by atleast fifty.
-
-I pondered what I saw for awhile and came to the conclusion that Europeans have been systematically domesticated by the state and Christianity to the point where they see these counter-protests as ways of signaling their peity. They are unconsciously following the blueprint outlined in their bible. This is universalism that eventually sublimated into bureaucracy. As I wrote: "Christianity spent 1,000 years domesticating Europe. By the time the Enlightenment arrived, the work was already done". I propose that a return to ethnic particularism is the way to deconstruct this system.
+The first essay was inspired by an article I read by Dr. Ricardo Duchesne called ‘Why the West is Replacing Its White Population: The Imperatives (and Fatal Flaws) of Post-Fordism’.
 
 The second essay is how feudalism and christianity are interlinked, one to enforce the other, andv vice versa. Also how the modern western bureaucratic state is built on this foundation.
 
