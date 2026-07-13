@@ -13,7 +13,7 @@ By Ralph Perrier
  
 Preface\
 1 Deconstructing the Monolith: Reclaiming Particular Identities in a Universalist System\
-2 How Western Institutions Are Engineered to Break You\
+2 How Western Institutions Are Engineered to Break You
 
 **Preface**
 
@@ -21,7 +21,7 @@ The texts under this cover are essays on a wide range of topics related to Chris
 
 The first essay was inspired by an article I read by Dr. Ricardo Duchesne called ‘Why the West is Replacing Its White Population: The Imperatives (and Fatal Flaws) of Post-Fordism’.
 
-The second essay is how feudalism and christianity are interlinked, one to enforce the other, andv vice versa. Also how the modern western bureaucratic state is built on this foundation.
+The second essay is how Feudalism and Christianity are interlinked, one to enforce the other, and vice versa. Also how the modern western bureaucratic state is built on this foundation.
 
 **1  Deconstructing the Monolith: Reclaiming Particular Identities in a Universalist System**
 
