@@ -6,7 +6,7 @@ updated: 2016-04-01 09:00:00 +0200
 
 If you appreciate my work please consider supporting me!<br /><br />
 
-<b>Patreon:</b> <a href="https://www.givesendgo.com/ralphperrier" target="_blank">https://www.givesendgo.com/ralphperrier</a>
+<b>GiveSendGo:</b> <a href="https://www.givesendgo.com/ralphperrier" target="_blank">https://www.givesendgo.com/ralphperrier</a>
 
 <b>Email:</b> <a href="mailto:christianityexposed@yandex.com" target="_blank">Email</a>
 
