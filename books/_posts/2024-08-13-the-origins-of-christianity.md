@@ -153,8 +153,6 @@ The foundation of this book rests on a single, verifiable fact: the ruling elite
 
 The city referred to in history books as ancient Byzantium in modern day Turkey was actually called 'Basileía tôn Rhômaíôn' ('Kingdom of the Romans') and the people of that region called themselves Rhōmaîoi (Romans). Basileía tôn Rhômaíôn was surrounded by the kingdoms of Thrace, Pontus, Bithynia, Paphlagonia, Galatia and the Bosporan Kingdom. Coins prove that all these regions were ruled by a single family, who match up with the Roman emperor list up to Domitian, and they were Scythian-Thracians.
 
-Rhouma in Crimea was the original power center. Then the Roman (Constantinople-on-the-Bosporus), centered on Constantinople/Bosporus river in modern day Istanbul, was the "second Rome" (Basileía Rhōmaíōn). Mizraim in Egypt was the third Rome, and Rome on the Tiber in Italy was a Western military-administrative garrison named after the core.
-
 The following coins prove that the figures known to us as separate historical entities were, in fact, the same individuals or offices operating across different administrative regions.
 
 The Foundational Avatar: Julius Caesar is Asander, king of Bosporus (also known as "Asandrokhos". -khos = Persian xšaya/Sanskrit Kshatriya/Greek "Christ". So, "Asander-Christ").
@@ -172,7 +170,7 @@ The following side-by-side comparisons prove that the Julio-Claudian and Flavian
 Fig. 1.3. L. Rhoemetalces I, king of Bosphorus. R. Emperor Augustus (Octavian). Talces = the Thracian word for "king" or "ruler". Rhoemetalces = "king of Rhoeme", or "king of Rome" in ancient Thracian.
 
 ![Fig.1.4](/images/PolemonI2.jpg){:width="400px"}\
-Fig. 1.4. Coin depicting Marcus Antonius Polemon I, king of Pontus which was the kingdom next to the Bosphoran Kingdom. The star also appears on coins of emperor Augustus. His brother was Marcus Antonius Polemon Pythodoros (Polemon II of Pontus) and Polemon I's son with Pythodorida of Pontus was Zeno-Artaxias III. 
+Fig. 1.4. Coin depicting Marcus Antonius Polemon I, king of Pontus which was the kingdom next to the Bosphoran Kingdom. The star also appears on coins of emperor Augustus. His brother was Marcus Antonius Polemon Pythodoros (Polemon II of Pontus) and Polemon I's son with Pythodorida of Pontus was Zeno-Artaxias III. His name itself encodes Mark Antony's lineage.
 
 ![Fig.1.5](/images/PtolemyXIIIArchelaus.jpg){:width="400px"}
 
@@ -202,6 +200,17 @@ Fig. 1.12. L. Rhescuporis I, king of Bosphorus. R. Emperor Vespasian.
 
 ![Fig.1.13](/images/PolemonIITitus.jpg){:width="400px"}\
 Fig. 1.13. L. Polemon II, king of Bosphorus. R. Emperor Titus.
+
+The star is the Julian house symbol (Morning Star = Venus). This is the same symbol on:
+
+-Ptolemy XII Auletes aka Mark Antony aka Mithridates VI Eupator's coins
+-Julius Caesar/Asander's coins
+-Dynamis/Cleopatra's coins
+-Emperor Augustus (Octavian)/Marcus Antonius Polemon I, king of Pontus/Herod Phillip's coins
+-Juba II's coins
+-Bar Kokhba's coins ("Son of the Star" = the Star of Caesar (Sidus Iulium))
+
+This is a dynastic legitimacy mark within the Julian/Dragon King system—not a quality control stamp. This countermark proves they were part of a larger unified system, not independent kings.
 
 1.2 Ancient Alias Names List
 
