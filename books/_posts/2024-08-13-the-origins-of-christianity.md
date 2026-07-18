@@ -119,7 +119,7 @@ Christianity is a Flavian dynasty derivative of one of the slave morality religi
 
 Religion was the technology that the Ptolemaic dynasty used to control the vast and disparate populations they ruled and they created religions in every single conquered land. They would take local customs and create a syncretic man-god representing the Ptolemaic pharaoh (the principle of 'Interpretatio Graeca'). This system had one primary function: to psychologically pacify conquered populations and prevent unified rebellion. They would package these religions as sects of local religions because getting people to abandon their religions for a new one is an impossible task. However, there are thousands of sects of major religions today, many with different prophets (e.g., Christianity as Judaism's "fulfillment"). 
 
-Beyond the surface-level imperial fiction, all these Alexandrian School religions contained the same psychological weapon at their core: centralized texts and priesthoods which makes a population easier to control through proxy (up until the Protestant Reformation most of the European population was illiterate. Then the church kept scripture in Latin, which only clergy could read. Reproducing or translating the bible was punishable by death. This is because the bible was written for a tiny, literate priestly elite who would then control the population on behalf of kings), moral codes like submission, self-sacrifice, obedience, loyalty, divine judgment, the concept of hell, the promise of inner peace through acceptance of one’s station, and monotheism which divides the population through binary thinking, ie., the opposition between good and evil, us vs them, left vs right, etc., which destroys tribalism/collectivism by splitting the population into two opposing groups. These religions were also likely designed to segment the populations by class, culture, and region to prevent unified resistance. For example, Mithraism was for military elites (requiring blood oaths, with a Mithraic initiate caste system and hierarchical structure). Serapism was for civilians (promising afterlife salvation). Christianity was for slaves ("turn the other cheek").
+Beyond the surface-level imperial fiction, all these Alexandrian School religions contained the same psychological weapon at their core: centralized texts and priesthoods which makes a population easier to control through proxy (up until the Protestant Reformation most of the European population was illiterate. Then the church kept scripture in Latin, which only clergy could read. Reproducing or translating the bible was punishable by death. This is because the bible was written for a tiny, literate priestly elite who would then control the population on behalf of kings), moral codes like submission ("turn the other cheek", "the meek shall inherit the earth", "he who raises the sword will die by the sword", etc.), self-sacrifice, obedience, loyalty, divine judgment, the concept of hell, the promise of inner peace through acceptance of one’s station, and monotheism which divides the population through binary thinking, ie., the opposition between good and evil, us vs them, left vs right, etc., which destroys tribalism/collectivism by splitting the population into two opposing groups. These religions were also likely designed to segment the populations by class, culture, and region to prevent unified resistance. For example, Mithraism was for military elites (requiring blood oaths, with a Mithraic initiate caste system and hierarchical structure). Serapism was for civilians (promising afterlife salvation). Christianity was for slaves ("turn the other cheek").
 
 What the reader needs to know before entering this book:
 
@@ -160,7 +160,7 @@ The Foundational Avatar: Julius Caesar is Asander, king of Bosporus (also known 
 ![Fig.1.1](/images/caesarstar.jpg){:width="400px"}\
 ![Fig.1.2](/images/asandernike.jpg){:width="400px"}
 
-Fig. 1.1 & 1.2. (L) Julius Caesar. (R) Asander, king of Bosphorus depicting a Nike which was the Greek goddess of victory and a close companion of Zeus. Other depictions of Asander show the star and crescent that is visible in the Julius Caesar coin above [^1]. Another coin of Asander depicts a Phrygian cap which is closely associated with the Roman god Mithras: [^2]. This (https://bosporan-kingdom.com/224-3094/) coin of Asander displays a prow (front of a ship) that is also seen in Julius Caesar coins. The star and crescent in above coins was the symbol of the city of Byzantium/Constantinople long before the Ottomans used it. The legend was that Byzas, the founder, chose the site based on a vision of a crescent moon and a star. This symbol represented the fusion of the lunar goddess (Hecate/Artemis, who was associated with snakes) and the solar god (Apollo). By using this symbol, Asander and Caesar were not just using a random symbol; they were explicitly claiming lordship over the Bosphorus.
+Fig. 1.1 & 1.2. (L) Julius Caesar. (R) Asander, king of Bosphorus depicting a Nike which was the Greek goddess of victory and a close companion of Zeus. Other depictions of Asander show the star and crescent that is visible in Julius Caesar's coins [^1]. Another coin of Asander depicts a Phrygian cap which is closely associated with the Roman god Mithras [^2]. This (https://bosporan-kingdom.com/224-3094/) coin of Asander displays a prow (front of a ship) that is also seen in Julius Caesar coins. The star and crescent in Julius Caesar and Asanders coins is the Dragon King symbol translated across the regional avatars of the Dragon Kingdom. The star is Ishtar/Venus (Mesopotamia), Aphrodite (Greece), Sidus Iulium/"Julian Star" (Rome) (Caesar claimed descent from Venus (Aeneas)). The crescent is Sin (Moon god), Hecate/Artemis (Greek), the "Mari" (Scythian Snake-Goddess). This is the same symbol on Ptolemy XII Auletes aka Mark Antony aka Mithridates VI Eupator's coins, Julius Caesar/Asander's coins, Dynamis/Cleopatra's coins, Emperor Augustus (Octavian)/Marcus Antonius Polemon I, king of Pontus/Herod Phillip's coins, Juba II's coins, Bar Kokhba's coins ("Son of the Star" = the Star of Caesar (Sidus Iulium)). This is a dynastic legitimacy mark within the Julian/Dragon King system—not a quality control stamp. This countermark proves they were part of a larger unified system.
 
 The Avatar Succession: Roman Emperors are Bosporan Kings
 
@@ -200,17 +200,6 @@ Fig. 1.12. L. Rhescuporis I, king of Bosphorus. R. Emperor Vespasian.
 
 ![Fig.1.13](/images/PolemonIITitus.jpg){:width="400px"}\
 Fig. 1.13. L. Polemon II, king of Bosphorus. R. Emperor Titus.
-
-The star is the Julian house symbol (Morning Star = Venus). This is the same symbol on:
-
--Ptolemy XII Auletes aka Mark Antony aka Mithridates VI Eupator's coins
--Julius Caesar/Asander's coins
--Dynamis/Cleopatra's coins
--Emperor Augustus (Octavian)/Marcus Antonius Polemon I, king of Pontus/Herod Phillip's coins
--Juba II's coins
--Bar Kokhba's coins ("Son of the Star" = the Star of Caesar (Sidus Iulium))
-
-This is a dynastic legitimacy mark within the Julian/Dragon King system—not a quality control stamp. This countermark proves they were part of a larger unified system, not independent kings.
 
 1.2 Ancient Alias Names List
 
@@ -276,7 +265,7 @@ IV. Flavian Emperors
 
 - Vespasian
   Aliases: Rhescuporis I, king of Bosphorus. Herod Agrippa I (See: The Royal Ancestry of Emperor Vespasian. Henry Davis, [^3]). Flavius Scaevinus. Also, Vologases I of Parthia?
-- Titus (Tit‑us = Diodotus? which means "Given by Zeus" which is the exact same meaning as Mithridates ("Given by Mithra")). Aliases: Polemon II, Aulus Avillius Flaccus.
+- Titus (from Titan; the elder gods who ruled before the Olympians in Greek Mythology, or Tit‑us = Diodotus? which means "Given by Zeus" which is the exact same meaning as Mithridates ("Given by Mithra")). Aliases: Polemon II, Aulus Avillius Flaccus.
 
 V. Speculative
 
