@@ -560,6 +560,8 @@ Khazar derives from the Dragan King title Kha-Sar	(King of Kings). "Caesar" = "K
 
 Moses = Manes/Mannu-Kuras = Manu (Scythian Sage-King) = Menes (Egypt’s legendary founder), but this name/title was reappropriated for the Sarapis Cult as Moses = Osarseph (Osar (Osiris) and seph (son) = Son of Osirus). The Greek rendering of Moses and Osarseph is identical. Osarseph appears in accounts by the Egyptian priest Manetho, who described him as a renegade priest leading a group of lepers in rebellion, eventually adopting the name "Moses" (Josephus. 'Against Apion' discussing Manetho's account of Osarseph). Osarseph also = Serapis. The "Ser" symbol in Ser-apis is the same as seph meaning "son of". Serapis can be interpreted as "Son of Osiris-Apis", which evolved into "Son of Osiris". So, Serapis is just another word for Osarseph. Solomon = Sol-Amūn or "Sun of Amun" which is a direct parallel to "Zeus-Ammon", a title for Alexander the Great. Abraham: The father of Isaac is Abraham, the foundational patriarch. Ab = Father (Semitic). Raham = Arya (Sanskrit/Persian: "Noble"). Aram (the name for the land of the Arameans, a steppe-derived people). Abraham = Ab-Raham = "Father of the Aryans" or "Father of the Noble Ones". Related the Brahmin (Brahama) -> Ibrahim -> Abraham. A(Braha)m(in).
 
+The Star of David is the Remphan which is a term used in the Bible, specifically in Acts 7:43, to refer to an object of idolatrous worship associated with the planet Saturn. It is linked to the Babylonian god Kiyyun, also known as Chiun. The coins of Kiyyum show the Hexagram Star of David. This symbol was originally a fusion of the trident and a Sarmatian tamga, a clan symbol of the steppe nomads. Then it was used as a magical symbol in Kabbalah and, centuries later, was forced upon Jews as a mark of shame by the Nazis, a fact which ironically led to its widespread adoption as a symbol of pride and identity.
+
 The Pentateuch is a Hebraized translation of Plato’s Laws and Republic, overlaid on a Scythian tribal genealogy (the 12 clans of the Sarmatian federation), and codified at the Alexandrian School in Egypt. The myth of the jewish people and the Laws of Moses were based on Plato's hypothetical colony of Magnesia from his thesis called "The Laws" (347 BC) in which the proposed charter for the Cretan colony of Magnesia was modeled in large part on Athenian legal and constitutional traditions. Ancestor received law from a deity, hereditary priesthood rather than king, as well as the division into 12 tribes were all part of the formula. Plato's Timaeus (360 BC) is where the story of Abraham comes from. Plato's Timaeus is also the source for Genesis 1-11 15. Homer's Odyssey was the source of Genesis 24, 42-46. The biblical concept of hell was stolen from Plato's Replublic ('Myth of Er'), and the spiritual plane of Heaven is ripped off from Plato's 'World of Forms'. Exodus is just a semitized retcon of Jason and the Argonauts, and the Oracles Against the Nations plagiarize the Sibylline Oracles.
 
 **4.2 Location of Ancient Jerusalem (Hiero-Solyma)**
@@ -1377,6 +1379,14 @@ heir, and Caesar was their bloodline successor. The Persian narrative is
 a Flavian forgery to hide their stolen legacy. Alexander conquered
 Persia as vengeance for Persian enslavement of Scythia.
 
+Chandragupta Maurya is consistently referred to as Sandrokottos or Androcottos. Andragoras is a Greek rendering of the same name. The -cotta/-gotta suffix is a common Greek way of rendering Indian names; for example, the Buddhist monk Buddhaghosa was known in Greek as Budda-gotta, and the initial "S" is just a Greek prefix (like in Sandros for Alexander). Andragoras's name means "Scythian Man" or "Messenger of the Dragon" (Andras = man, and agoras = the Sycthian priesthood).
+
+Thus, this was a dynastic title and Andragoras (Seleucid satrap) (https://en.wikipedia.org/wiki/Andragoras_(Seleucid_satrap)) and Andragoras the Parthian (https://en.wikipedia.org/wiki/Andragoras_(4th_century_BC)) who was the ancestor of the subsequent kings of Parthia (Justin 41.4; Ammianus Marcellinus 23.6.2), were Alexander's heirs using this title (or likely his nephews through "Dara" (Darius III) aka Seleucus I Nicator as Andragoras claimed Seleucid descent)
+
+The name "Narisanka" is given as an alternate name for Andragoras. This is intriguing because it could be an Iranian translation of an Indian title like Narendra-simha (Lion-King). This itself is derived from the Avestan Nairyosangha, which means "man of words" and refers to a divine messenger of Ahura Mazda.
+
+Arsaces I, the founder of the Parthian Empire is claimed to have killed Andragoras during the Seleucid-Parthian Wars, but this is likely an avatar switch, or he was his successor. 
+
 In the book the Alexander Romance, a book that has its earliest copy
 dating back a couple of centuries after his life, Alexander accepts
 mortality only after achieving complete satisfaction in his conquests.
@@ -1442,7 +1452,7 @@ Lost in history is that the greatest slave trade wasn't the Trans-Atlanic one, b
     a thing, and Cochin Jews existing on the south west section of
     India. 
     
-  This was not mere commerce. It was demographic engineering designed to break the spine of the Aryan caste system.  
+This was not mere commerce. It was demographic engineering designed to break the spine of the Aryan caste system.  
     
 From at least 500 CE, Jewish merchant houses (the Radhanites, the Cochin Jews) controlled the sea route from the Horn of Africa to the Malabar coast. Ethiopian captives, sold by the J1-linked Solomonic kings of Aksum, were transported en masse to South India. The trade peaked after the collapse of the Gupta empire (6th century CE) and under the Rashtrakuta dynasty (8th–10th centuries), which used Habshi slave-soldiers to counter the power of the indigenous Kshatriya clans, many of whom still carried high frequencies of R1a-Z93.
 
