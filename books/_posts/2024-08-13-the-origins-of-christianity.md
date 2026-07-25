@@ -311,13 +311,15 @@ When the Ptolemaic dynasty Hellenized the cult, they syncretized Osiris with Zeu
 
 The Greek form Iēsous (Ἰησοῦς) is a direct transliteration of the Aramaic Yeshua, which the Flavians later claimed meant "Yahweh saves". But the original Aramaic title of the Dragon King was not Yeshua. It was Ie-Zeus (or, in its more ancient Egyptian form, Ie-Asar). The Flavians altered the name to Yeshua while preserving the sound Ie-sous – which Greek speakers could still hear as "Divine Savior" (from sōtēr, not sōs). The -sous ending is simply the Greek masculine nominative Soter.
 
-Thus, Iēsous was a polyvalent Flavian engineering:
+Thus, the name "Iesous" was chosen deliberately by the Flavians because:
 
 To Aramaic-speaking Jews: "Yahweh saves" (Yeshua).
 
-To Greek-speaking pagans: "Divine Savior" (Ie-sōtēr) or "Divine Zeus" (Ie-Zeus).
+To Greek-speaking pagans: "Divine Zeus" (Ie-Zeus). In Mycenaean Greek (the earliest attested form of Greek), the word ijo meant "son" so I-Zeus could also mean "Son of Zeus" (the exact same as Dionysus - Dios (of Zeus) + nysos (son)), or "Son of God". (In Greek mythology Ieso was the Greek healing goddess, daughter of Asclepius, granddaughter of Apollo who was the son of Zeus. Iesous is phonetically identical, meaning "Healer" or "One who brings recovery". Ieso (Son of Zeus) was a priest/ess in the cult of Zeus/Apollo)
 
 To Egyptians: "Lord Osiris" (Ie-Asar).
+
+To Romans: Ie-Jove (Divine Jupiter) or Divus Soter (Divine Savior). Titles Julius Caesar and Augustus carried.
 
 To Persians: "Yazata" (divine being), as in the name Izates (Ie-zates).
 
