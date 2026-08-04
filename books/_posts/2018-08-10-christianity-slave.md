@@ -12,18 +12,341 @@ Deconstructing the Monolith: Reclaiming Particular Identities in a Universalist 
 By Ralph Perrier
  
 Preface\
-1 Deconstructing the Monolith: Reclaiming Particular Identities in a Universalist System\
-2 How Western Institutions Are Engineered to Break You
+1 The Invention of "White": How a Legal Fiction Dissolved the European Tribes\
+2 Deconstructing the Monolith: Reclaiming Particular Identities in a Universalist System\
+3 How Western Institutions Are Engineered to Break You
 
 **Preface**
 
-The texts under this cover are essays on a wide range of topics related to Christianity and religion that were originally blog posts.
+The texts under this cover are essays on a wide range of topics related that were originally blog posts.
 
-The first essay was inspired by an article I read by Dr. Ricardo Duchesne called ‘Why the West is Replacing Its White Population: The Imperatives (and Fatal Flaws) of Post-Fordism’.
+The first essay is the culmination of my investigation into how disparate European ethnicities became deracinated and combined into an easily controlled monolith category.
 
-The second essay is how Feudalism and Christianity are interlinked, one to enforce the other, and vice versa. Also how the modern western bureaucratic state is built on this foundation.
+The second essay was inspired by my previous investigation and an article I read by Dr. Ricardo Duchesne called ‘Why the West is Replacing Its White Population: The Imperatives (and Fatal Flaws) of Post-Fordism’.
 
-**1  Deconstructing the Monolith: Reclaiming Particular Identities in a Universalist System**
+The third essay is how Feudalism and Christianity are interlinked, one to enforce the other, and vice versa. Also how the modern western bureaucratic state is built on this foundation.
+
+
+**The Invention of "White": How a Legal Fiction Dissolved the European Tribes**
+
+Preface: The Problem with "White"\
+Part I: The World Before "White"\
+Chapter 1: The Christian Template—How the Church Invented Universalism\
+Chapter 2: The European Tribes of Colonial America—They Did Not See Themselves as One Race\
+Chapter 3: The Christian/Heathen Binary—The Law Before "White"\
+Part II: The Invention of "White" (1691–1723)\
+Chapter 4: Virginia Invents the Color Line\
+Chapter 5: The Jewish Anomaly—Neither Christian, Nor African, Nor Slave\
+Part III: Jewish Agency and the Expansion of "White" (1740–1790)\
+Chapter 6: The Plantation Act of 1740—Deracinating the European Tribes\
+Chapter 7: The Lopez-Elizer Litigation (1761–1762)—Jurisdiction Shopping to Override Christian Tribalism\
+Chapter 8: The Revolutionary Era—Jewish Political Entrepreneurship\
+Chapter 9: The Masonic Vector—Universal Brotherhood as Ideological Template\
+Chapter 10: The 1790 Naturalization Act—Codification of the Deracinated Monolith\
+Part IV: The Resistance and the Triumph of the Monolith (1790–1860)\
+Part V: The Genealogy of Universalism\
+Conclusion: "White" as a Bureaucratic Weapon\
+Footnotes & Sources
+
+**Preface: The Problem with "White"**
+
+The term "white" is treated as natural today. It is not. It had to be invented.
+
+The standard narrative peddled by whiteness studies—that "white" emerged during slavery to distinguish slave owners from slaves—is incomplete. Ignatiev, Allen, and their acolytes have the chronology wrong. They ignore the Jewish angle. They overstate planter intentionality. They miss the deeper genealogy.
+
+Here is the truth: disparate European groups in colonial America—English, German, Dutch, Scots-Irish, Swedes, Huguenots—did not see themselves as a unified "white" race. They saw each other as distinct peoples, distinct nations, distinct races. Benjamin Franklin's 1751 'Observations Concerning the Increase of Mankind' is devastating proof: he explicitly called Germans "swarthy," grouped the Spanish, Italians, French, Russians, and Swedes under "swarthy Complexions," and reserved "white" primarily for the English and Saxons. He feared Pennsylvania would become "a Colony of Aliens" who would "Germanize us instead of our Anglifying them." This is not the language of a man who believed in a pan-European "white" identity. This is the language of a man who saw Germans as a separate, inferior race that would pollute the English stock.
+
+No pan-European "white" identity existed organically. "White" was a top-down legal construct imposed from above. It was a bureaucratic weapon designed to serve specific interests. This essay will trace who created it, when, where, and why.
+
+**Part I: The World Before "White"**
+
+**Chapter 1: The Christian Template—How the Church Invented Universalism**
+
+Long before the planters of Virginia needed a color line, the Catholic Church had already spent a millennium dissolving the tribal boundaries of Europe.
+
+Pauline Christianity's central theological innovation was to declare that in Christ "there is neither Jew nor Greek, bond nor free, male nor female." This was a direct assault on ethnic particularism. The early Church consciously positioned itself as a deracinated assembly, drawing converts from dozens of nations and stripping them of their ancestral cults. It replaced the covenant of a specific people with a universal body of believers accessible to anyone through faith.
+
+The Roman Empire had a form of universal citizenship after 212 CE (the *Constitutio Antoniniana*), but it did not dissolve local ethnic identities—Gauls remained Gauls, Syrians remained Syrians. What *did* dissolve them was the Catholic Church, which built a single, pan-European canon law, a single liturgical language, and a single hierarchy that treated all baptized persons as members of the *corpus Christianum*. The Church systematically suppressed pagan tribal cults, local customary laws, and pre-Christian genealogies. Monastic schools taught a Latin curriculum that overwrote Germanic oral traditions. The Gregorian Reforms centralized authority in Rome, breaking the power of local lords to control church appointments.
+
+The result: by the High Middle Ages, "Christendom" was a genuinely deracinated category. A Christian in Poland, a Christian in Castile, and a Christian in Ireland were all part of the same mystical body, irrespective of their ethnic origins. This was a universalist solvent poured over the tribes of Europe.
+
+The Protestant Reformation broke this universalism. Luther's German Bible and Cranmer's English Prayer Book re‑sacralised vernacular languages. National churches subordinated Rome's authority to local princes. The Peace of Augsburg (1555) and the Peace of Westphalia (1648) institutionalised 'cuius regio, eius religio'—the religion of the prince determines the religion of the people. Ethnic nations regained their religious distinctiveness.
+
+But the template of deracination did not disappear. It merely fractured. Each Protestant state retained the universalist impulse within its own borders. The idea that a single identity—Christian, subject, eventually racial—could absorb the diversity of local identities survived the Reformation. It was transferred from the Church to the state.
+
+The English colonists who arrived in Virginia and Massachusetts were not Catholics, but they were the heirs of a millennium of Catholic deracination. They brought with them the assumption that religion, not blood, defined a people. This is why their earliest legal codes divided the world into "Christians" and "heathen," not into "English" and "African." The category "Christian" was already a deracinated monolith; it had absorbed Angles, Saxons, Jutes, Danes, Normans, and Celts into a single legal identity in England itself.
+
+The Church provided the metaphysical blueprint. The state would later repurpose it.
+
+**Chapter 2: The European Tribes of Colonial America—They Did Not See Themselves as One Race**
+
+Despite the Christian template, the European groups in colonial America did not think of themselves as a single race. The evidence is overwhelming.
+
+The English saw themselves as a distinct people. Legal records refer to "Englishmen," not "whites." Virginia's 1655 act declared that children born in the colony shall be "accounted as Englishmen, not as aliens." The English considered themselves the superior stock, the carriers of civilization.
+
+The Germans were viewed with suspicion and contempt. Franklin called them "Palatine Boors" who "will never adopt our Language or Customs, any more than they can acquire our Complexion." He warned that they would "Germanize us instead of our Anglifying them." The English did not consider Germans their racial equals. Germans were "swarthy." They were aliens. They were a threat.
+
+The Dutch maintained their own language, churches, and legal customs in New York well into the eighteenth century. They intermarried within their own community. They saw themselves as a nation apart.
+
+The Scots-Irish were considered a lawless, violent people, distinct from the English. They settled the frontier, clashed with the English establishment, and were viewed with barely concealed contempt.
+
+The Huguenots petitioned for separate townships in New York as late as 1696. They wanted to preserve their French identity, their language, their church.
+
+The Swedes in Delaware maintained their own Lutheran churches and distinct community structures.
+
+In legal records before 1691, the term "white" appears nowhere. The law divided people into "Christians" and "negroes" (or "heathens"). The 1662 Virginia act declared that children follow the condition of the mother, with "Christian" vs. "negro" as the operative classes. The 1667 act closed the conversion loophole: baptism does not free a slave.
+
+There was no pan-European identity. There was English, German, Dutch, Scots-Irish—each a separate "race" in the eyes of the others.
+
+**Chapter 3: The Christian/Heathen Binary—The Law Before "White"**
+
+Before "white" became the law's preferred term, the operative binary was Christian vs. heathen.
+
+The 1662 Virginia act: children follow the condition of the mother; "Christian" vs. "negro" as operative classes.
+
+The 1667 act: baptism does not free a slave—closing the conversion loophole that had allowed some slaves to claim freedom through Christian conversion.
+
+The 1705 Virginia Slave Code created a three‑tier system: "Christian white servants" vs. "Jews, Moors, Mahometans" vs. "negroes, mulattos, Indians."
+
+This binary created a problem: where do Jews fit?
+
+Jews were not Christian. They were not African. They were not enslaved. They existed in a legal limbo. They could not testify against Christians in court. They could not hold office in most colonies. In some colonies, they could not own land. They were tolerated but not fully included.
+
+The Christian/heathen binary could not accommodate them. The law needed a new category—one that could include Jews without granting them the full privileges of Christians, and one that could exclude Africans and Indians without relying on religious conversion (which could be faked or forced).
+
+"White" solved this problem perfectly.
+
+**Part II: The Invention of "White" (1691–1723)**
+
+**Chapter 4: Virginia Invents the Color Line**
+
+The first documented use of the word "white" in an English colonial statute to designate European‑Americans as a social category occurred in Virginia in 1691.
+
+The 1691 Virginia act "for prevention of that abominable mixture and spurious issue" imposed penalties on "whatsoever English or other white man or woman" who married a "negro, mulatto, or Indian." It did not say "any Englishman"; it said "white man," deliberately covering the German, the Dutchman, the Huguenot. The same act banished any "white woman" who bore a child by a negro.
+
+This was the first statutory erasure: the law refused to recognise the European nations, compressing them into a single term for the purpose of racial control.
+
+The 1705 Virginia Slave Code extended this. It declared that "All servants imported and brought into this Country... who were not Christians in their Native Country... shall be slaves." It created a three‑tier system: "Christian white servants" vs. "Jews, Moors, Mahometans" vs. "negroes, mulattos, Indians."
+
+By 1723, Virginia had formally replaced "Christian" with "white" in the statutes defining who could bear arms, vote, and give testimony.
+
+Why the shift?
+
+The planters needed an immutable boundary. The baptism loophole had failed—slaves could convert to Christianity and claim freedom. The planters needed a marker that could not be changed, that was visible on the body, that was heritable. "White" was the solution.
+
+The planters also needed to prevent another Bacon's Rebellion (1676), where poor European laborers and African slaves had united against the planter elite. By dividing the free labour force from the enslaved labour force along a colour line, the planters ensured that European labourers would identify with their masters rather than with their fellow workers of African descent.
+
+The motive was economic and military—preventing cross‑racial insurrection.
+
+**Chapter 5: The Jewish Anomaly—Neither Christian, Nor African, Nor Slave**
+
+Jews in colonial America were a small but commercially significant minority. They were concentrated in New York, Newport, and Charleston. They were merchants, shippers, financiers. They were not planters. They were not slaves.
+
+Their legal status was unstable. They could not testify against Christians in court. They could not hold office. In some colonies, they could not own land. They were tolerated because they were useful—they provided credit, trade connections, commercial expertise—but they were not full members of the Christian commonwealth.
+
+The problem: they were not Christian, but they were not African. The law had no category for them.
+
+The 1705 Virginia Slave Code placed "Jews, Moors, Mahometans" in a separate category from "Christian white servants" and from "negroes, mulattos, Indians." Jews were neither fully included nor fully excluded. They were a third category—an anomaly.
+
+This anomaly would prove to be the catalyst for the expansion of "white."
+
+Jews needed a term that was not "Christian," not "English," not "Protestant," to legally disappear into the ruling caste. "White" served that purpose perfectly.
+
+**Part III: Jewish Agency and the Expansion of "White" (1740–1790)**
+
+**Chapter 6: The Plantation Act of 1740—Deracinating the European Tribes**
+
+The Plantation Act 1740 (13 Geo. II, c. 7) was officially titled "An Act for Naturalizing such foreign Protestants and others therein mentioned, as are settled or shall settle in any of His Majesty's Colonies in America."
+
+This act was a revolution in legal categorisation. It created a single uniform naturalisation process for any foreign Protestant—and for Jews—who had lived seven years in the colonies. It required making specific declarations concerning royal allegiance, profession of the Christian faith, and the payment of two shillings.
+
+The critical effect: it lumped the German, the Dutchman, the Huguenot, and the Jew into one statutory class, giving them identical legal standing.
+
+This was not an accident.
+
+The act was drafted at the request of London's Sephardic merchants, organised through the Bevis Marks Committee of Deputies (established 1702). The driving force was Joseph Salvador (Sr.) , the leading Sephardic financier of the time, a director of the East India Company, and the man widely credited with orchestrating the passage of both the 1727 oath act and the 1740 Plantation Act. He was a personal friend of the Walpole administration and lobbied directly for the Jewish clause.
+
+Salvador's memo to the Duke of Newcastle on January 14, 1753, explicitly stated what the Jewish community wanted: "that any person professing the Jewish religion whom it may in future be thought proper to Naturalise, shall in lieu of taking the Holy Sacrament, take the oaths of Supremacy and Allegiance."[^1]
+
+He gave seven reasons for the bill, including:
+- Rich Jews were going to other countries instead of England because of the sacramental test
+- The law could be written to encourage only "those that may be thought worthy and useful" (i.e., "the Rich Jews") while discouraging "the middling and lower sort"
+- Jews "have by Experience been found to be true Friends to the Government in all its Parts"
+
+The Whig government was already indebted to Jewish financiers for their support during the 1745 Jacobite Rebellion. Sampson Gideon, a key Jewish financier, had helped stabilise the country's money system.
+
+The bill passed the Lords unanimously on April 16, 1753, and received royal assent on June 7.
+
+What this proves: Jewish merchants were not passive recipients of legal categories. They were active lobbyists at the highest level of the British state, writing legislation, cultivating relationships with prime ministers and dukes, and explicitly arguing that Jews should be naturalised on the same terms as Christians.
+
+The 1740 Act's effect: it collapsed the distinction between European nationalities and between Christians and Jews for naturalisation purposes. Every European was now, in the eyes of the law, a potential "British subject" via a simple administrative procedure. The statute deracinated the European arrivals by making their national origin legally irrelevant.
+
+**Chapter 7: The Lopez‑Elizer Litigation (1761–1762)—Jurisdiction Shopping to Override Christian Tribalism**
+
+The Lopez case is where the rubber meets the road. It demonstrates Jewish legal strategy in action.
+
+September 1761: Aaron Lopez and Isaac Elizer filed a joint petition for naturalisation with the Rhode Island Superior Court. Lopez was the wealthiest merchant in Newport, a Sephardic Jew of Portuguese origin.
+
+March 1762: The Rhode Island Superior Court rejected their petition because they were not Christians.
+
+Lopez's response: He didn't accept the ruling. Using connections he had developed in Boston, Lopez moved temporarily to Swansea, Massachusetts, established residence there, and received his naturalisation papers in October 1762.[^2]
+
+What this means: Lopez engaged in jurisdiction shopping. When Rhode Island's Christian definition of citizenship blocked him, he exploited the 1740 Act's imperial override to get naturalised in a more favourable jurisdiction, then returned to Rhode Island with his new legal status. This was not passive assimilation. It was strategic legal manoeuvring to force a supra‑Christian, imperial definition of belonging onto a colony that wanted to maintain its Christian particularity.
+
+The Rhode Island Jewish Historical Notes confirm: "Most of those who came to Newport had been naturalized in New York. They were freemen of the city, enjoying complete religious freedom and limited political recognition."[^3]
+
+Lopez was part of a network of Jewish merchants who understood the legal system well enough to exploit jurisdictional differences. They were naturalised in New York, then moved to Newport. When Newport blocked them, they used Massachusetts. This was a deliberate strategy to establish Jewish presence in multiple colonies with full legal rights, creating precedents that would be hard to reverse.
+
+The Massachusetts Superior Court's decision was functionally a declaration that a Sephardic Jew was legally indistinguishable from a Protestant European settler. The imperial statute and the imperial court crushed the local ethnic boundary.
+
+**Chapter 8: The Revolutionary Era—Jewish Political Entrepreneurship**
+
+The Revolution provided Jews with new opportunities to dissolve the remaining Christian barriers to citizenship.
+
+Moses Michael Hays (1775) : The most direct evidence of Jewish influence over the founding generation. Hays was a Portuguese Jew, a close friend of Paul Revere, and a significant financial backer of the Revolution. In 1775, Hays refused to sign a revolutionary loyalty oath because it contained the phrase "upon the true faith of a Christian." He wrote a public letter supporting the Revolution but demanding the phrase be removed. The phrase was removed. Hays gladly signed. [^4]
+
+Hays was not a marginal figure. He would later be elected Grand Master of the Massachusetts Grand Lodge of Freemasons from 1788–1792, with Paul Revere as his Deputy. He was the only Jewish brother to hold prominent office in the Grand Lodge of Massachusetts. Hays's daughter married into the family of Myer Myers, a prominent New York silversmith who made objects for George Washington.
+
+Hays successfully lobbied to remove Christian language from a revolutionary loyalty oath in 1775—fifteen years before the Seixas‑Washington exchange. This shows a pattern: Jewish leaders using their institutional positions (Masonic lodges, merchant networks) to dissolve Christian particularity in civic oaths and legal documents.
+
+Haym Salomon: The most famous Jewish financier of the Revolution. Salomon brokered French loans to the American government, selling bills of exchange to American merchants. He gave interest‑free loans to James Madison and other government officials. He died bankrupt in 1785, and his descendants were never repaid by the government. Salomon's role shows that Jewish merchants were essential financial infrastructure for the Revolution. The American government could not have functioned without Jewish brokers handling French loans. This gave Jewish leaders leverage—not direct control, but a seat at the table when legal categories were being negotiated.
+
+Francis Salvador: Born in London to a wealthy Sephardic family, Salvador emigrated to South Carolina in 1773 and within a year was elected to the First Provincial Congress of South Carolina. He was the first professing Jew to serve in a colonial legislature. South Carolina's revolutionary constitution used the word "white" to define electors, and Salvador's presence as a Jewish legislator normalised the assumption that "white" included Jews. He died in the Revolution.
+
+Jonas Phillips (1787) : A Jewish merchant in Philadelphia, Phillips petitioned the Constitutional Convention to eliminate religious tests for officeholders. He argued that "all men have a natural right" to hold office regardless of religion. His petition was a direct challenge to the Christian particularism that still infected many state constitutions.[^5]
+
+Moses Seixas and the Washington Exchange (1790) : This is one of the most famous documents in American Jewish history—and its significance is usually missed.
+
+Seixas was not just a synagogue warden. He was a successful merchant and banker, co‑founder of the Bank of Rhode Island, and Grand Master of the Grand Lodge of Free and Accepted Masons of Rhode Island.
+
+The August 17, 1790 letter: Seixas wrote to Washington not as a supplicant but as a claimant. He didn't ask for rights. He stated that Jews were entitled to them:
+
+> "Deprived as we heretofore have been of the invaluable rights of free Citizens, we now...behold a Government, which to bigotry gives no sanction, to persecution no assistance — but generously affording to All liberty of conscience, and immunities of Citizenship: deeming every one, of whatever Nation, tongue, or language equal parts of the great governmental Machine."[^6]
+
+Washington's reply: He didn't just agree. He adopted Seixas's language almost verbatim:
+
+> "All possess alike liberty of conscience and immunities of citizenship. It is now no more that toleration is spoken of, as if it was by the indulgence of one class of people that another enjoyed the exercise of their inherent natural rights."[^7]
+
+The Mount Vernon encyclopedia notes: "Seixas's letter was among the first to assert that America was founded on the principle of religious liberty."
+
+Seixas was setting the terms of the debate. He wasn't asking Washington to be generous. He was telling Washington what the Constitution already meant—and Washington agreed. This is Jewish political agency at the highest level: a Jewish merchant‑Mason defining the meaning of American citizenship for the first President, who then enshrines it as national doctrine.
+
+Even more striking: Seixas wrote a second letter to Washington on the same day, as Grand Master of King David's Lodge, using Masonic universalist language ("the Sovereign Architect of the Universe") rather than Jewish particularist language. This dual strategy—Jewish communal letter + Masonic universalist letter—shows sophisticated political messaging. Seixas was making the Jewish case through both particularist and universalist channels simultaneously.[^8]
+
+Chapter 9: The Masonic Vector—Universal Brotherhood as Ideological Template
+
+The Masonic connection is not incidental. Freemasonry provided the ideological infrastructure that made deracination feel not just legal, but noble.
+
+Freemasonry's explicit ideology was a "universal brotherhood" that transcended nationality and religion. Its lodges were spaces where men of different European stocks and different faiths could meet as equals—at least in theory. The Masonic ideal of a "universal man," stripped of particularist loyalties, served as the perfect template for the deracinated "white" citizen.
+
+The overlap between Masonic lodges and the legal profession in the 1770s–1790s is striking. Many of the lawyers who drafted state constitutions and the 1790 Naturalization Act were Masons. The Masonic ritual substituted the "Great Architect of the Universe" for the Christian God, creating a deistic, universalist language that could include Jews without offending Christians.
+
+The Jewish Masonic leadership was not accidental. Jews had been excluded from guilds and civic corporations in Europe; Masonry was one of the few institutions where they could gain social standing. In America, Jewish Masons like Hays and Seixas rose to the highest ranks precisely because Masonry valued universalist principles over ethnic or religious particularity.
+
+Hays's removal of the Christian oath in 1775 is a direct example of Masonic universalism influencing public law. As Grand Master, he had the institutional authority to insist that a civic oath could not demand Christian faith. Seixas's dual letters to Washington—one as a Jew, one as a Mason—show that he understood the power of the universalist frame. The Masonic letter spoke of "the Sovereign Architect of the Universe," a phrase that could be accepted by deists, Christians, and Jews alike. This was the language of the new republic.
+
+The Masonic lodges were laboratories of deracination. In them, Englishmen, Germans, and Frenchmen learned to call each other "brother" and to subordinate their national identities to a universal brotherhood. That same logic was then applied to citizenship: the "white" citizen was the political equivalent of the Masonic brother—a man stripped of ethnic particularity, defined only by his adherence to a universal code.
+
+Thus, Freemasonry provided the ideological template for the deracinated monolith. It was not the only source—the Church had already paved the way—but it was the most immediate and most powerful vector in the revolutionary era. The fact that Jewish leaders like Hays and Seixas were at the forefront of Masonic governance is not a coincidence. They understood that the universalist brotherhood was the safest vehicle for Jewish inclusion. And they used it to dissolve the Christian tribal barriers that still stood in their way.
+
+**Chapter 10: The 1790 Naturalization Act—Codification of the Deracinated Monolith**
+
+The Naturalization Act of 1790 limited naturalisation to "free white persons."
+
+Congressional debates show that John Page of Virginia explicitly welcomed Jews. The racial restriction passed with "no recorded opposition"—it was "so sufficiently settled that discussion was unnecessary."
+
+Why "white" and not "Christian" or "European"?
+
+Because by 1790, the colonial precedents (1740 Act, Lopez case, Hays's oath removal, Seixas's letter) had already normalised Jewish inclusion. The Masonic universalism of the revolutionary generation had further eroded the Christian particularism of the old colonial orders. "White" was the only term broad enough to include Jews while excluding Africans and Indians.
+
+The 1740 Act had already collapsed the distinction between European nationalities. The Lopez case had enforced that deracination against local Christian tribalism. Hays had removed the Christian oath requirement. Seixas had defined American citizenship as "to bigotry gives no sanction." The 1790 Act simply codified what the Jewish‑Masonic lobby had been building for fifty years.
+
+"White" was the only term that could include the Jew without granting the African or the Indian access to citizenship.**
+
+**Part IV: The Resistance and the Triumph of the Monolith (1790–1860)**
+
+The European ethnic groups did not accept this deracination quietly.
+
+German petitions** for separate laws and language rights in Pennsylvania (1728).
+
+Dutch Reformed Church petitions** to preserve Dutch worship in New York (1764).
+
+Huguenot petitions** for separate townships in New York (1696).
+
+The Paxton Boys: Scots‑Irish resistance to Quaker/English rule (1763).
+
+The 1754 Salem riot: English, German, and Scots‑Irish labourers attacking Jews, shouting they were "no Christians and no whites."
+
+Jacob Henry (1809) : North Carolina House of Commons speech defending his right to office as a Jew. He argued that the state constitution's religious test did not apply to Jews.
+
+Solomon Etting and Jacob I. Cohen: Maryland "Jew Bill" campaign (1797–1826). They fought for decades to remove the religious test for officeholding in Maryland.
+
+Judah P. Benjamin: Louisiana legal arguments expanding "white" to include Jews and Latin Europeans in the antebellum period.
+
+But the resistance failed. The bureaucratic category triumphed. By 1860, "white" was the constitutional boundary of American citizenship
+
+**Part V: The Genealogy of Universalism**
+
+Three groups had the motivation to create a monolithic category:
+
+1. The Catholic Church created the original template of deracination—a universal community of believers that transcended tribal boundaries. The Church spent a millennium dissolving the ethnic identities of Europe, replacing them with a single Christian identity.
+
+2. The Planter State needed a simple, immutable boundary to control labour. The baptism loophole failed. The planters needed a marker that could not be changed. "White" was the solution. It prevented another Bacon's Rebellion by dividing European labourers from African slaves.
+
+3. The Jews needed a term that was not "Christian," not "English," not "Protestant" to legally disappear into the ruling caste. As a diasporic people, Jews have repeatedly found their greatest security not in tribal societies that value blood and soil, but in universalist empires that subordinate ethnic particularity to a single legal order.
+
+4. Freemasonry provided the ideological glue—a universalist brotherhood that made deracination seem virtuous rather than coercive. Jewish Masonic leaders used this ideology to advance their legal absorption, and the founding generation—many of them Masons—adopted the universalist language as the official rhetoric of the new republic.
+
+The pattern is identical in colonial America: Jews did not invent the deracinated category. They encountered it as a pre‑existing Catholic‑imperial‑Masonic product and used it as the safest vehicle for their own legal absorption.
+
+The Sephardic merchants who lobbied for the 1740 Act were doing exactly what their ancestors had done for a millennium—appealing to a higher, imperial legal order to overrule the tribal exclusivity of local Christian communities. The Masonic lodges gave them an additional institutional platform to normalise that universalism.
+
+The Rhode Island Assembly denied naturalisation to Lopez because it saw itself as an English Christian commonwealth. Lopez appealed to the imperial statute and the Massachusetts court, which enforced the deracinated, universal "subject" category against the local tribe. The move is structurally identical to medieval Jews seeking royal charters against town guilds—and to Masonic brothers invoking universal brotherhood against local bigotries.
+
+**Conclusion: "White" as a Bureaucratic Weapon**
+
+The term "white" was not organic. It did not emerge from the natural self‑understanding of European peoples. It was imposed from above.
+
+The colonial government invented the monolith "white" between 1691 and 1705 as a labour‑control mechanism, to close the baptism loophole and to unify the free labour force against African slaves after Bacon's Rebellion. The motive was economic and military—preventing cross‑racial insurrection.
+
+Jews, as a small but commercially vital anomaly, destabilised the older "Christian" monolith, forcing the state to find a colour term that included them. They then actively seized on that colour term, litigated it, and expanded it through the 1740 Act and the 1762 Lopez case to dissolve the specific European tribal identities that would have excluded them. They were aided by Freemasonry, which provided a universalist ideology that made deracination palatable to the revolutionary generation.
+
+By 1790, the term "white" was so juridically entrenched and so useful to both the planters and the Jewish‑Masonic interest that it became the constitutional boundary of American citizenship.
+
+Neither actor could have accomplished this alone. The state needed a term to control labour that would not be disrupted by religious conversion or Jewish exceptionalism. Jews needed a term that was not "Christian," not "English," not "Protestant," to legally disappear into the ruling caste. The Masons needed a universalist category that could unify the revolutionary elite across religious and ethnic lines. The word "white" served all three purposes perfectly. It was a state tool for racialised labour control, a Jewish tool for deracinating the European tribes and ensuring absorption, and a Masonic tool for universalist fraternity.
+
+European ethnic groups never accepted it fully—witness Europe today, where different European groups see themselves as apart from other ethnic groups. "White" remains a bureaucratic fiction, a legal construct, a weapon of the state. It was never natural. It was always imposed.
+
+The legacy: a deracinated legal fiction that continues to structure American identity. A term invented by planters to control labour, exploited by Jews to dissolve tribal barriers, and sanctified by Masons as universal brotherhood, has become the foundational category of American citizenship. It is time to admit that "white" is not a race. It is a bureaucracy.
+
+**Footnotes & Sources**
+
+[^1]: Joseph Salvador, "Mr. Salvador's Paper concerning the Jews," delivered to the Duke of Newcastle, January 14, 1753. Reproduced in the archives of the Bevis Marks Synagogue, London. See also: *Transactions of the Jewish Historical Society of England*, vol. 10 (1924), pp. 110–115.
+
+[^2]: Aaron Lopez Papers, Newport Historical Society; American Jewish Historical Society, New York. The naturalisation petition and court records are also discussed in Leon Hühner, "The Struggle for Religious Liberty in North Carolina," *Publications of the American Jewish Historical Society* 16 (1907): 37–58.
+
+[^3]: Rhode Island Jewish Historical Notes, vol. 1, no. 2 (1954), p. 12. Also cited in Morris U. Schappes, *A Documentary History of the Jews in the United States, 1654–1875* (New York: Schocken, 1971), pp. 78–82.
+
+[^4]: Records of the Massachusetts Grand Lodge; see also Samuel Oppenheim, "The Jews and the Revolution," *American Jewish Historical Society* 24 (1916): 55–78. Hays's loyalty oath incident is documented in the Massachusetts State Archives, Revolutionary War Documents.
+
+[^5]: Jonas Phillips to the President and Members of the Convention, September 1787. Printed in *The Documentary History of the Ratification of the Constitution*, vol. 3, pp. 451–453.
+
+[^6]: Moses Seixas to George Washington, August 17, 1790. George Washington Papers, Library of Congress. Transcription available at the Mount Vernon website.
+
+[^7]: George Washington to the Hebrew Congregation of Newport, August 18, 1790. Ibid.
+
+[^8]: Seixas's second letter, as Grand Master of King David's Lodge, is held in the Grand Lodge of Rhode Island archives. The dual correspondence is analyzed in Jacob Rader Marcus, *Early American Jewry*, vol. 2 (Philadelphia: Jewish Publication Society, 1953), pp. 318–325.
+
+Additional Sources:
+
+- Benjamin Franklin, *Observations Concerning the Increase of Mankind* (1751).
+- Virginia Slave Code of 1705 (relevant sections, Appendix F).
+- Plantation Act 1740 (13 Geo. II, c. 7), text in Appendix A.
+- Simon W. Rosendale, "The Naturalization Act of 1790," *American Jewish Historical Society* 1 (1893): 35–45.
+- Theodore G. Tappert, *The Jews in Early Pennsylvania* (Philadelphia, 1908).
+- John J. Appel, "The Jewish Naturalization Act of 1753," *Jewish Social Studies* 23, no. 1 (1961): 3–25.
+
+**2  Deconstructing the Monolith: Reclaiming Particular Identities in a Universalist System**
 
 **Introduction: A Classical Liberal Critique of Right-Wing Grievance**
 
@@ -120,7 +443,7 @@ Ethnic particularism does not require liking your fellow Europeans or feeling an
 
 But the true destination of this deconstruction is a recognition that people should be understood through their actual historical contexts and material conditions, rather than through artificial boxes printed on a census form or an HR questionnaire. This is the restoration of classical liberalism: the only political tradition that actually opposes institutional tyranny. Classical liberalism's core principle is simple—and radical: the individual, not the collective, not the institution, not the credentialed gatekeepers, is the irreducible unit of moral and political life.
 
-**2 How Western Institutions Are Engineered to Break You**
+**3 How Western Institutions Are Engineered to Break You**
 
 You are not born free. You are born into a cage.
 
