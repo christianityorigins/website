@@ -88,7 +88,7 @@ category: books
 
 ## Preface: The Problem of "White"
 
-The term is treated as natural today. It is not. It had to be invented.
+This book is inspired by an article I wrote entitled 'Deconstructing the Monolith: Reclaiming Particular Identities in a Universalist System'.
 
 Disparate European groups in colonial America—English, German, Dutch, Scots-Irish—did not see themselves as a unified "white" race. Benjamin Franklin's 1751 Observations Concerning the Increase of Mankind is devastating proof: he explicitly called Germans "swarthy," grouped the Spanish, Italians, French, and Russians under "swarthy Complexions," and reserved "white" primarily for the English and Saxons. He feared Pennsylvania would become "a Colony of Aliens" who would "Germanize us instead of our Anglifying them." This proves no pan‑European "white" identity existed organically.
 
@@ -96,11 +96,9 @@ European colonists did not see themselves as a single race. "White" was a top-do
 
 The standard narrative (Ignatiev, Allen) is incomplete: it ignores the Jewish angle and overstates planter intentionality.
 
-The central question of this book: How did a legal category, invented in 1691 Virginia to control labor, become a universal moral identity that allows a person of German descent to speak for and judge a person of English descent?
+The question I was exploring was how did a legal category become a universal moral identity that allows a person of German descent to speak for and judge a person of English descent?
 
-Thesis Statement: "White" is not a race. It is the secularized form of Christian universalism. It inherited the structure of Christendom: a universal moral body, a doctrine of original sin (structural racism), a priesthood (activists and academics), rituals of confession (public mea culpas), and the authority to judge all members of the body. This book traces that inheritance from the Pauline Church to the colonial legal codes, through the Puritan covenant, the abolitionist pulpit, and the Civil Rights confessional.
-
-Methodological Note: This is a genealogy, not a history. It traces the structure of ideas, not every chronological detail. It is speculative, unfiltered, and unafraid to name the actors and mechanisms that shaped this transformation.
+My conclusion was that white is the secularized form of Christian universalism. It inherited the structure of Christendom: a universal moral body, a doctrine of original sin (structural racism), a priesthood (activists and academics), rituals of confession (public mea culpas), and the authority to judge all members of the body. This book traces that inheritance from the Pauline Church to the colonial legal codes, through the Puritan covenant, the abolitionist pulpit, and the Civil Rights confessional.
 
 ---
 
