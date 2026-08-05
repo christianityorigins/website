@@ -1,0 +1,31 @@
+<!-- Top Announcement Bar -->
+<div id="announcement-bar" style="background-color: #111; color: #fff; padding: 10px 40px; text-align: center; position: sticky; top: 0; z-index: 9999; font-family: -apple-system, BlinkMacSystemFont, 'Segoe UI', Roboto, sans-serif; border-bottom: 1px solid #333;">
+
+  {% comment %} 
+    IMPORTANT: Replace "/book-products/your-book-slug/" with the actual URL 
+    of your book's page on your Jekyll site.
+  {% endcomment %}
+  <a href="/book-products/your-book-slug/" style="color: #fff; text-decoration: none; display: inline-block; font-size: 14px; letter-spacing: 0.5px;">
+    <strong>NOW AVAILABLE!: <em>The Dragon Kings of Crimea, Volume Two: The Birth of Christianity — From Serapis Cult to Flavian Forgery at Amazon.com</em></strong>
+  </a>
+
+  <!-- Close (X) Button -->
+  <button id="close-announcement" style="position: absolute; right: 15px; top: 50%; transform: translateY(-50%); background: none; border: none; color: #aaa; font-size: 24px; cursor: pointer; padding: 0 10px; line-height: 1;" aria-label="Close announcement">
+    &times;
+  </button>
+</div>
+
+<script>
+  (function() {
+    // Check if the user has closed the bar before
+    if (localStorage.getItem('fidelity_announcement_closed') === 'true') {
+      document.getElementById('announcement-bar').style.display = 'none';
+    }
+
+    // Listen for clicks on the X button
+    document.getElementById('close-announcement').addEventListener('click', function() {
+      localStorage.setItem('fidelity_announcement_closed', 'true');
+      document.getElementById('announcement-bar').style.display = 'none';
+    });
+  })();
+</script>
