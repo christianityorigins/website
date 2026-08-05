@@ -8,13 +8,9 @@ Welcome to the homepage of Ralph Perrier. I am an independent researcher who has
 <br><br>
 For academic discussion and inquiries: <a href="mailto:christianityexposed@yandex.com" target="_blank">Email</a>. Follow and chat with me on <a rel="me" href="https://mastodon.cloud/@RalphPerrier" target="_blank">Mastodon</a>
 
-<p>Current Book Projects</p>
+<p>Current Writing Projects</p>
 
-{% for post in site.categories["books"] %}
-  {% unless post.draft %}
-      <a href="{{ post.url }}">{{ post.title }}</a> — {{ post.date | date: "%-d %B %Y" }}<br>
-  {% endunless %}
-{% endfor %}
+{% for post in site.posts %}  {% unless post.draft %}      <a href="{{ post.url }}">{{ post.title }}</a> ({{ post.category | capitalize }}) — {{ post.date | date: "%-d %B %Y" }}<br>  {% endunless %}{% endfor %}
 <br>
 
  I am an independent researcher who depends on the support of my readers. Please <a rel="me" href="https://hereticalbooks.com/donate/" target="_blank">donate</a> today.
