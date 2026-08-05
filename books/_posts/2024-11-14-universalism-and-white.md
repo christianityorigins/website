@@ -84,7 +84,6 @@ category: books
 - Appendix E: Jacob Henry's speech (1809)
 - Appendix F: Virginia Slave Code of 1705 (relevant sections)
 
----
 
 ## Preface: The Problem of "White"
 
@@ -96,11 +95,9 @@ European colonists did not see themselves as a single race. "White" was a top-do
 
 The standard narrative (Ignatiev, Allen) is incomplete: it ignores the Jewish angle and overstates planter intentionality.
 
-The question I was exploring was how did a legal category become a universal moral identity that allows a person of German descent to speak for and judge a person of English descent?
+The question I was exploring in the aforementioned article was how did a legal category become a universal moral identity that allows a person of German descent to speak for and judge a person of English descent?
 
-My conclusion was that white is the secularized form of Christian universalism. It inherited the structure of Christendom: a universal moral body, a doctrine of original sin (structural racism), a priesthood (activists and academics), rituals of confession (public mea culpas), and the authority to judge all members of the body. This book traces that inheritance from the Pauline Church to the colonial legal codes, through the Puritan covenant, the abolitionist pulpit, and the Civil Rights confessional.
-
----
+My conclusion was that white has evolved into a secularized form of Christian universalism. After becoming encoded into law as a deracinating term for disparate European tribes so that they could be a controllable monolith it then inherited the structure of Christendom through the Puritan abolitionists, Social Gospel promoters, Frankfurt School, and finally, through the Civil Rights activists. White is now Christendom, a universal moral body, a doctrine of original sin (structural racism), a priesthood (activists and academics), rituals of confession (public mea culpas), and the authority to judge all members of the body. This book traces that inheritance from the Pauline Church to the colonial legal codes, through the Puritan covenant, the abolitionist pulpit, Boasian anthropology and the Frankfurt School, and the Civil Rights confessional.
 
 ## Part I: The World Before "White"
 
