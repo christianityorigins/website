@@ -4,7 +4,7 @@ open_links_in_new_tab: true
 title:  "Deconstructing the Monolith: Reclaiming Particular Identities in a Universalist System"
 date:   2018-08-10 09:00:00 +0200
 updated: 2024-07-10 19:46:50 +0200
-category: books
+category: blog
 ---
 
 Deconstructing the Monolith: Reclaiming Particular Identities in a Universalist System
