@@ -38,7 +38,7 @@ category: books
 
 **Part II: The Invention of "White" (1691–1740)**
 - Chapter 5: Virginia Invents the Color Line
-- Chapter 6: The Jewish Anomaly
+- Chapter 6: Why White Instead of European? The Jewish Anomaly
 - Chapter 7: The Plantation Act of 1740
 - Chapter 8: The Lopez-Elizer Litigation (1761–1762)
 - Chapter 9: The Revolutionary Era — Jewish Political Entrepreneurship
@@ -355,7 +355,7 @@ Why the shift? Planters needed an immutable boundary after the baptism loophole 
 
 The planter motive: Preventing another Bacon's Rebellion by dividing European laborers from African slaves.
 
-### Chapter 6: The Jewish Anomaly
+### Chapter 6: Why White Instead of European? The Jewish Anomaly
 
 Jews in Virginia: excluded from "Christian white" category in 1705.
 
