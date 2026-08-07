@@ -508,8 +508,6 @@ Congressional debates: John Page of Virginia explicitly welcomes Jews.
 
 The racial restriction passes with "no recorded opposition" — "so sufficiently settled that discussion was unnecessary."
 
-Why "white" and not "Christian" or "European"? Because by 1790, the colonial precedents (1740 Act, Lopez case, Hays's oath removal) had already normalized Jewish inclusion. "White" was the only term broad enough to include Jews while excluding Africans and Indians.
-
 Why "white" and not "Christian" or "European"? Because by 1790, the colonial precedents (1740 Act, Lopez case, Hays's oath removal, Seixas's letter) had already normalized Jewish inclusion. The Masonic universalism of the revolutionary generation had further eroded the Christian particularism of the old colonial orders. "White" was the only term broad enough to include Jews while excluding Africans and Indians.
 
 This is why European wasn't chosen as a universal category for European tribes.
