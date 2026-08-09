@@ -440,7 +440,7 @@ Hays was not a marginal figure. He was the head of the most influential fraterna
 
 #### 9.2 Moses Seixas and the Washington Exchange (1790): Jewish Leaders Dictating the Terms of American Citizenship
 
-The Seixas-Washington exchange is one of the most famous documents in American Jewish history, but its significance for your thesis is usually missed.
+The Seixas-Washington exchange is one of the most famous documents in American Jewish history, but its significance is usually missed.
 
 Seixas was not just a synagogue warden. He was:
 - A successful merchant and banker
@@ -523,11 +523,11 @@ These men did not sit in a colonial court, but they drafted the legislation that
 
 Already covered, but worth restating: Lopez was a Sephardic merchant in Newport, one of the wealthiest men in the colonies. When Rhode Island's Christian exclusivism blocked him, he hired lawyers and petitioned the Massachusetts Superior Court. This was litigation, not legislation, but it set a common-law precedent that a Jew occupied the same legal tier as a Protestant European. Chief Justice Thomas Hutchinson's ruling did not use the word "white," but the functional effect was to declare that the 1740 Act's broad imperial category overrode the local tribal boundary.
 
-Now we come to the earliest court case where Jews explicitly petitioned to be classed under the deracinated European monolith. The term "white" had been in colonial statutes for 60 years by 1762. But it was the Plantation Act 1740—an imperial statute—that first created a uniform naturalisation class for all European Protestants and Jews. That Act was lobbied by London Sephardic merchants, as you have documented. It forced Jews into the same statutory box as Christian Europeans for the purposes of subjecthood.
+Now we come to the earliest court case where Jews explicitly petitioned to be classed under the deracinated European monolith. The term "white" had been in colonial statutes for 60 years by 1762. But it was the Plantation Act 1740—an imperial statute—that first created a uniform naturalisation class for all European Protestants and Jews. That Act was lobbied by London Sephardic merchants, as I have documented. It forced Jews into the same statutory box as Christian Europeans for the purposes of subjecthood.
 
 When Aaron Lopez and Isaac Elizer sued in Massachusetts in 1762 to enforce the 1740 Act against Rhode Island's tribal Christian exclusivism, they were not petitioning for the word "white" to be invented—it already existed. They were petitioning for the legal recognition that Jews belonged within the deracinated European class that the slave codes already called "white." The Massachusetts Superior Court's decision was functionally a declaration that a Sephardic Jew was legally indistinguishable from an English Protestant settler.
 
-This was a top‑down judicial imposition against the local English tribe in Rhode Island, which had refused to absorb the Jew. The imperial statute and the imperial court crushed the local ethnic boundary. In your framework, this is a clear instance of Jews using the state to dissolve a European tribal barrier and fold themselves into the monolithic category.
+This was a top‑down judicial imposition against the local English tribe in Rhode Island, which had refused to absorb the Jew. The imperial statute and the imperial court crushed the local ethnic boundary. In my framework, this is a clear instance of Jews using the state to dissolve a European tribal barrier and fold themselves into the monolithic category.
 
 #### 11.3 Moses Michael Hays (Massachusetts, Post‑Revolution)
 
@@ -543,11 +543,11 @@ Franks, a Jewish merchant, was not a legislator but was deeply involved in legal
 
 #### 11.6 The New York Naturalization Pattern
 
-Leon Hühner's article (which you cited) documents several Jewish naturalisations in New York under the 1740 Act. The names include Judah Hays, Hayman Levy, and Uriah Hendricks. These men lined up before colonial courts in the 1740s and 1750s, swore the modified oath, and were admitted as natural-born subjects. Each individual case was a minor precedent, reinforcing the administrative practice that Jews fell within the privileged class. No single case was as dramatic as Lopez, but the cumulative effect was the creation of a custom—and courts look to custom when interpreting statutes.
+Leon Hühner's article (which I cited) documents several Jewish naturalisations in New York under the 1740 Act. The names include Judah Hays, Hayman Levy, and Uriah Hendricks. These men lined up before colonial courts in the 1740s and 1750s, swore the modified oath, and were admitted as natural-born subjects. Each individual case was a minor precedent, reinforcing the administrative practice that Jews fell within the privileged class. No single case was as dramatic as Lopez, but the cumulative effect was the creation of a custom—and courts look to custom when interpreting statutes.
 
 #### 11.7 Simon W. Rosendale (The Historiographer)
 
-Rosendale, whom you mentioned, was a late‑19th‑century Jewish lawyer and former New York Attorney General. He wrote the article celebrating the 1740 Act and the Lopez case as the foundation of Jewish civil rights in America. His purpose was explicitly to demonstrate that Jews had been legally absorbed into the white citizenry from the earliest colonial period. He can be cited in your paper as evidence of how Jewish legal thinkers understood and commemorated this process.
+Rosendale, whom I mentioned, was a late‑19th‑century Jewish lawyer and former New York Attorney General. He wrote the article celebrating the 1740 Act and the Lopez case as the foundation of Jewish civil rights in America. His purpose was explicitly to demonstrate that Jews had been legally absorbed into the white citizenry from the earliest colonial period. He can be cited as evidence of how Jewish legal thinkers understood and commemorated this process.
 
 ## Part III: The Secularizing of the Covenant (1790–1900)
 
