@@ -8,17 +8,17 @@ category: blog
 Contents
 
 1 Cosmotheism\
-2 Types of Cosmotheism \
+2 Cosmology \
 3 Friedrich Nietzsche's Will to Power \
 4 Beliefs \
-4.1 Program and Goals\
-5 Practices and Observances\
+5 Program and Goals\
+6 Practices and Observances
 
 1 Cosmotheism
 
 Cosmotheism is the philosophical and spiritual view that the universe itself is divine and that all existence is interconnected within this cosmic whole. It posits that the cosmos is an evolutionary entity, in a constant state of ever growing complexity — that eventually has produced conscious life, and that everything in the cosmos is an expression of the divine. The scientific basis for cosmotheism lies in the concept of unity and interconnectedness, where everything is composed of the same fundamental building blocks, such as atoms and subatomic particles.
 
-2 Types of Cosmotheism
+2 Cosmology
 
 There are different interpretations of the cosmotheist cosmology, but here are two:
 
@@ -38,18 +38,10 @@ In cosmotheist religions, cosmotheist cosmology posits that the universe is imbu
 
 Core Idea: You’re a piece of the cosmic puzzle, not a stranger to it. The divine is in everything; self-awareness is key. Self-realization in cosmotheism is not just personal growth but an alignment with the universe’s evolutionary drive toward greater complexity and consciousness.
 
-4.1 Program and Goals
+5 Program and Goals
 
 Unlike worldviews that look outward to an afterlife or a cosmic escape hatch (such as a literal heaven or salvation from sin), Cosmotheiest religions feature an entirely different program. Their goal is not to leave this world behind, but to fully inhabit it.
 
-The Ancestral European Roots: Immanence vs. Transcendence
-
-Modern monotheistic religions are transcendent—they teach that God is a separate entity who created the universe from nothing and sits outside of it. Ancient European religions were fundamentally immanent—the sacred was found within nature, not outside it.
-
-Areté and Degenry (The Pursuit of Excellence): In Hellenism, the ultimate goal of human life is Areté—a virtue translating directly to "excellence of any kind" or "living up to one's full potential". The Germanic equivalent was being a degen (a person of honorable achievement and utility). The program here is radical self-improvement. You are expected to sharpen your mind, strengthen your body, master your craft, and act with courage. It is an ancient blueprint for modern self-actualization.
-
-Leaving a Worthy Echo (Functional Immortality): Because these traditions historically lacked a dogma of heavenly rewards, immortality was measured by the footprint you left behind. The Hávamál (an Old Norse wisdom poem) famously states: "Cattle die, kinsmen die, you yourself must also die; but I know one thing that never dies: the reputation of each one who dies". For a secular individual, this is a powerful reminder that our only true immortality is the legacy we leave in the minds of our descendants and the positive impact we leave on the world.
-
-5 Practices and Observances
+6 Practices and Observances
 
 In cosmotheist religions, rituals are about bringing someone to self-realization. For example, rituals like yoga, meditation, self-inquiry, stargazing to reflect on cosmic unity, and engaging in scientific inquiry to deepen understanding are all ways to help the individual realize their true nature as a manifestation of the divine. For a naturalistic cosmotheist, learning physics, biology, or astronomy isn't just an academic exercise—it is a core practice. If we are the universe experiencing itself, then uncovering the laws of thermodynamics or decoding the genome is literally the cosmos discovering its own inner workings. The goal is to awaken the individual's inner divinity and is aimed at helping the individual realize their true nature as the ultimate reality, fostering a sense of unity with the universe.
