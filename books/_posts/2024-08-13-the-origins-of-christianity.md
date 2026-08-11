@@ -159,6 +159,8 @@ The Foundational Avatar: Julius Caesar is Asander, king of Bosporus. Asander = A
 
 There was a Central Asian tribe called the Yuezhi. They were also called the Asii (the Asa-people), also recorded as Asii, Osii, Ossii, Asoi, Asioi, Asini or Aseni. Asii = Asa = the Lords. The title "Julius" is the Roman-Latin pronunciation of a title that in its Central Asian Tocharian form was Asii (the Asa-people). It is the western branch of the same "Asa" tree. This is the same root as the Egyptian Asar (Osiris), Sanskrit (Asura/Lord, later demonized by Brahmin orthodoxy), Avestan Ahura (Lord, as in Ahura Mazda), Old Persian Asa (Lord, ruler), Thracian/Phrygian (Asa/Lord, god), Etruscan Aesar (God), Norse Aesir (The chief gods Odin, Thor, etc.), Celtic Esus (Lord who was crucified in Gallic myth), Tocharian As- (lord). Asa (Lord) is a cognate of Arya (Noble). It is the self-designation of the ruling elite.
 
+The “Yuezhi” are the “Iudii”/”Jove” (also Yehuda or Judah) tribe—the same Scythian-Celtic priestly class.
+ 
 The Tocharians or Asii spoke a language close to Celtic and the title "Caesar" existed in the Celtic world at least 50–100 years before Julius Caesar was born. It was not a Roman family name. It was a Celtic chieftain title (https://en.wikipedia.org/wiki/Caesorix https://en.wikipedia.org/wiki/Caesarus)
 
 The Galatians in ancient Anatolia were Celtic and worshiped Esus who was a dying-and-rising god who was crucified. He was associated with carpentry and part of a trinity. The Celtic word Esus ("Lord") is the exact cognate of Asa (the root of Yuezhi/Asii).
