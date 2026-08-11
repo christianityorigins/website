@@ -161,7 +161,7 @@ There was a Central Asian tribe called the Yuezhi. They were also called the Asi
 
 Thus, Julius and As- are the same name rendered in different languages. These names are linguistic fossils of an ancient, pan-Eurasian elite identity—the "Asa" people—who spread from the steppes and established themselves as ruling classes across a vast geography, from the Atlantic to the Pacific.
 
-Asander was also known through inscriptions as Asaandros ("Lord-Man" = "Man of the Asii"), "Asandrokhos" (-khos = Persian xšaya/Sanskrit Kshatriya/Greek "Christ". So, "Lord-Man-Christ"), and "Asandrochus" (Epigraphica Pontica II: New Inscription of Pythodoris from Panticapaeum. Saprykin Sergey Yu., Fedoseev Nikolay F.) (Asander-Ochus, or Lord King/Ochus, as in continuing the line of Achaemenid king Artaxerxes III Ochus. The suffix -ochus (or -ochos) is the Greek rendering of the Old Persian xšāyaθiya, meaning "king").
+Asander was also known through inscriptions as Asaandros ("Lord" + “Andros” means “man” or “son of man” in Greek. Jesus is referred to as “the son of man” 81 times in the four canonical gospels), "Asandrokhos (https://www.researchgate.net/publication/390912485Aspurgos-the_king_of_Bosporan_state_98_BC-_AD_38).) (-khos = Persian xšaya/Sanskrit Kshatriya/Greek "Christ". So, "Lord-Man-Christ"), and "Asandrochus" (Epigraphica Pontica II: New Inscription of Pythodoris from Panticapaeum. Saprykin Sergey Yu., Fedoseev Nikolay F.) (Asander-Ochus, or Lord King/Ochus, as in continuing the line of Achaemenid king Artaxerxes III Ochus. The suffix -ochus (or -ochos) is the Greek rendering of the Old Persian xšāyaθiya, meaning "king").
 
 ![Fig.1.1](/images/caesarstar.jpg){:width="400px"}\
 ![Fig.1.2](/images/asandernike.jpg){:width="400px"}
@@ -704,11 +704,6 @@ The Egyptian name "Asar" was another name for Osiris. "Ra"
 Caesarus also referred to a Celtic chieftain who likely took on a divine
 role. For example, Caesorix was the leader of the Cimbri tribe during
 the Cimbrian War.
-
-Gaius Julius Caesar was a title, and Gaius Julius Caesar could
-conceivably translate to: Chieftain of the Iudii or Iudaiei tribe from
-Galatia, or Lord Asar/Aesus (pronunced ah-soos) of the Iudii or Iudaiei
-tribe from Galatia.
 
 Russian historian and mathematician Anatoly Fomenko wrote several books
 where he claimed that the city of Yoros = Jerusalem = Troy and it was
