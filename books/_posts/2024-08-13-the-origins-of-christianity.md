@@ -159,7 +159,15 @@ The Foundational Avatar: Julius Caesar is Asander, king of Bosporus. Asander = A
 
 There was a Central Asian tribe called the Yuezhi. They were also called the Asii (the Asa-people), also recorded as Asii, Osii, Ossii, Asoi, Asioi, Asini or Aseni. Asii = Asa = the Lords. The title "Julius" is the Roman-Latin pronunciation of a title that in its Central Asian Tocharian form was Asii (the Asa-people). It is the western branch of the same "Asa" tree. This is the same root as the Egyptian Asar (Osiris), Sanskrit (Asura/Lord, later demonized by Brahmin orthodoxy), Avestan Ahura (Lord, as in Ahura Mazda), Old Persian Asa (Lord, ruler), Thracian/Phrygian (Asa/Lord, god), Etruscan Aesar (God), Norse Aesir (The chief gods Odin, Thor, etc.), Celtic Esus (Lord who was crucified in Gallic myth), Tocharian As- (lord). Asa (Lord) is a cognate of Arya (Noble). It is the self-designation of the ruling elite.
 
-Thus, Julius and As- are the same name rendered in different languages. These names are linguistic fossils of an ancient, pan-Eurasian elite identity—the "Asa" people—who spread from the steppes and established themselves as ruling classes across a vast geography, from the Atlantic to the Pacific.
+The Tocharians or Asii spoke a language close to Celtic and the title "Caesar" existed in the Celtic world at least 50–100 years before Julius Caesar was born. It was not a Roman family name. It was a Celtic chieftain title (https://en.wikipedia.org/wiki/Caesorix https://en.wikipedia.org/wiki/Caesarus)
+
+The Galatians in ancient Anatolia were Celtic and worshiped Esus who was a dying-and-rising god who was crucified. He was associated with carpentry and part of a trinity. The Celtic word Esus ("Lord") is the exact cognate of Asa (the root of Yuezhi/Asii).
+
+The Celts were the western branch of the same Asa-caste that produced the Yuezhi, the Scythians, and the Etruscans. Their god Esus was the Celtic version of the Asa-Lord.
+
+When Julius Caesar took the name Caesar, he was not taking a Roman family name. He was claiming a Celtic/Etruscan (Aesar) chieftain title—the title of the "Lord-King" that had been used by Celtic chieftains for generations.
+
+Thus, Julius and As- (Yuezhi) and Caesar/Asa/Aesar are the same names rendered in different languages. These names are linguistic fossils of an ancient, pan-Eurasian elite identity—the "Asa" people—who spread from the steppes and established themselves as ruling classes across a vast geography, from the Atlantic to the Pacific.
 
 Asander was also known through inscriptions as Asaandros ("Lord" + “Andros” means “man” or “son of man” in Greek. Jesus is referred to as “the son of man” 81 times in the four canonical gospels), "Asandrokhos (https://www.researchgate.net/publication/390912485Aspurgos-the_king_of_Bosporan_state_98_BC-_AD_38).) (-khos = Persian xšaya/Sanskrit Kshatriya/Greek "Christ". So, "Lord-Man-Christ"), and "Asandrochus" (Epigraphica Pontica II: New Inscription of Pythodoris from Panticapaeum. Saprykin Sergey Yu., Fedoseev Nikolay F.) (Asander-Ochus, or Lord King/Ochus, as in continuing the line of Achaemenid king Artaxerxes III Ochus. The suffix -ochus (or -ochos) is the Greek rendering of the Old Persian xšāyaθiya, meaning "king").
 
