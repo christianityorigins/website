@@ -38,7 +38,7 @@ Part 1: Rome Was Located On the Cimmerian Bosphorus (Crimea–Kerch) River in Cr
 2.1\. The Name Jesus Christ\
 2.2. Biblical Figures\
 Part 2: Foundations of the Dragon Cult\
-3\. The Sarmatian Dragon Cult\
+3\. The Asii Origin\
 Part 3: The Alexandrian Synthesis\
 4\. The Alexandrian School\
 4.1. Serapis Cult\
@@ -391,9 +391,7 @@ The genealogies in Genesis and the New Testament match the Bosporan king list wh
 -   Solomon = Sol-Amūn or "Sun of Amun" which is a direct parallel to "Zeus-Ammon", a title Alexander carried. Also, Solemos is a Greek name for a Bosporan governor.
 -   Thomas = Didymus = Twin = Izates III (Son of Izates II)
 
-**3 The Sarmatian Dragon Cult**
-
-The Asii Origin.
+**3 The Asii Origin**
 
 The Hyperboreans were the proto-Asii. They were a real Bronze Age civilization in the Ural-Volga region of modern Russia who spread their culture southward via the Kurgan hypothesis (c. 4000 BC). They were the survivors of the Doggerland (a vast temperate lowland connecting Britain to the continent) cataclysm (c. 6150 BC), when a submarine landslide off Norway (the Storegga Slide) caused a massive tsunami that flooded the North Sea plain. The legends of an advanced people "from beyond the North Wind" living in a circular city (Plato's Atlantis) are memories of Doggerland's circular megalithic complexes. Their civilization was based on megalithic architecture and a sophisticated, rune-like symbolic language. After the flood, the survivors—the "Dragon Bloodline"—fled eastward to the Pontic-Caspian Steppe, becoming the equestrian Scythians. They carried with them the technology of megalith building (hence Stonehenge, built by their descendants as a memory of their lost homeland) and the core of the "Dragon" religion.
 
