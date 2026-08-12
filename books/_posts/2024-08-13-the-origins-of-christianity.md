@@ -394,9 +394,13 @@ The genealogies in Genesis and the New Testament match the Bosporan king list wh
 
 The Hyperboreans were the proto-Asii. They were a real Bronze Age civilization in the Ural-Volga region of modern Russia who spread their culture southward via the Kurgan hypothesis (c. 4000 BC). They were the survivors of the Doggerland (a vast temperate lowland connecting Britain to the continent) cataclysm (c. 6150 BC), when a submarine landslide off Norway (the Storegga Slide) caused a massive tsunami that flooded the North Sea plain. The legends of an advanced people "from beyond the North Wind" living in a circular city (Plato's Atlantis) are memories of Doggerland's circular megalithic complexes. Their civilization was based on megalithic architecture and a sophisticated, rune-like symbolic language. After the flood, the survivors—the "Dragon Bloodline"—fled eastward to the Pontic-Caspian Steppe, becoming the equestrian Scythians. They carried with them the technology of megalith building (hence Stonehenge, built by their descendants as a memory of their lost homeland) and the core of the "Dragon" religion.
 
-The Greek Asii/Asiani/Asioi and the Latin Alani are the same people with regional names. The name Alan is an Iranian dialectal form of the Old Iranian word Aryāna, which means "Aryan". It is a direct cognate of Iran.
+The Asii/Asiani/Asioi and the Alani are the same people with regional names. Ptolemy (fl. 127-148 AD) records that one of the Alan tribes in the vicinity of the Don was called the Asaioi—the ancestors of the modern Ossetians (https://jis.ut.ac.ir/article_76722.html). The name Alan is an Iranian dialectal form of the Old Iranian word Aryāna, which means "Aryan". It is a direct cognate of Iran.
 
-The Roxolani (-olani = - alani) were the same tribe. When Alexander (Al-As-andros = the Asii Lord Man) married Roxana he was marring a heiress to the Roxolani. Al-As-andros = As-andros = Asander. The exact same title.
+The Roxolani (-olani = - alani) were the same tribe. Historian George Vernadsky suggested that the name Rocas (a tribe conquered by the Ostrogoths in the 4th century) may be a corruption of Ruxs-As—"Light-Asii". The Rosomoni, mentioned by Jordanes, may also be related, interpreted as the "Ros Men". The name "Rus" is not a Viking invention. It is the Asii self-designation—the "Shining Asii" who later gave their name to the Russians. The Roxolani are the bridge between the ancient Asii and the modern Russian people.
+
+When Alexander (Al-As-andros = the Asii Lord Man) married Roxana he was marring a heiress to the Roxolani. Al-As-andros = As-andros = Asander. The exact same title.
+
+The Assi were the zero-point of history. Every royal title with As- , every god with As- , every place with As- , every word for being and bone in the Indo-European family, is a fossil of their administration.
 
 **The Asii Global Lexicon (Proving their Reach).**
 
@@ -421,10 +425,12 @@ The Roxolani (-olani = - alani) were the same tribe. When Alexander (Al-As-andro
 | **Sabazios** | Saba-zios = "Host of As" | Thracian Zeus = Asii war-banner |
 | **Iesous/Iaso** | Ie-sous = "Divine Zeus" | Asii healer-king title |
 
+The Flavian-Vatican forgery operation did not merely rewrite history—it erased the Asii from the historical record, replacing their global hegemony with a fragmented, inverted narrative. But the coins still say As. The Jats still say Asinder. The Ossetians still call themselves As. The Russians are still the Roxolani—the "Shining Asii". And the river Narmada still flows from the Asii mountains to the Asii sea.
+
 **The Dragon Cult.**
 
-- The serpent (Azhi in Avestan) was the Asii symbol of wisdom, metallurgy, and royal power.
-- All serpent-deities [^11] are localized masks of the Asii imperial cult:
+The serpent (Azhi in Avestan) was the Asii symbol of wisdom, metallurgy, and royal power. All serpent-deities [^11] are localized masks of the Asii imperial cult:
+
   - Scythian: Snake-Legged Goddess, Papaios
   - Egyptian: Nehebkau, Uraeus, Apep
   - Sumerian/Babylonian: Ningishzida, Tiamat, Mušḫuššu
@@ -433,7 +439,7 @@ The Roxolani (-olani = - alani) were the same tribe. When Alexander (Al-As-andro
   - Vedic: Nāgendra, Nāga
   - Norse: Jörmungandr
   - Biblical: Nehushtan, Leviathan
-- Foundation myth: Hercules (Targiatos) impregnated the Snake-Legged Goddess—the Asii king-making ritual.
+  - Foundation myth: Hercules (Targiatos) impregnated the Snake-Legged Goddess—the Asii king-making ritual.
 
 Kings who took on the snake/dragon/serpent/Asi/Azhi Dahaka title: Azhdahak, which is the Armenian form of the name of the Avestan Azhi Dahaka, was associated with the Median king Astyages (564–550 BC) who was the grandfather of Cyrus the Great. Tigranes II/the Great, King of Armenia (140–55 BC) was also called Azhdahak. Tiberius Julius Sauromates II, King of Bosphorus ('Saur'
 means 'lizard' or 'reptile', and 'mates' means 'man' or 'warrior'). The roots of the snake titles were: Aži-, Azhd-, -zates, Sauro-, Draco-.
@@ -474,12 +480,12 @@ means 'lizard' or 'reptile', and 'mates' means 'man' or 'warrior'). The roots of
 - c. 1600–1200 BC: Hittites—Asii in Anatolia; enforcement arm of the Mitanni.
 - c. 1595–1155 BC: Kassite Dynasty—Aryan rulers of Babylon.
 - c. 1500 BC: Mitanni—Aryan horse lords in Syria (Vedic names: Mitra, Varuna, Indra). Empire stretches from Mediterranean to Indus.
-- c. 1500 BC: Vedic India—Aryan chariot kings. *Rigveda* composed.
+- c. 1500 BC: Vedic India—Aryan chariot kings. Rigveda composed.
 
 **The Great Upheaval (c. 1200–700 BC)**
 
 - c. 1200 BC: Bronze Age Collapse—Asii civil war. Assyria rises under Chaldean priests (Kalani/Jews). Sea Peoples (Sherden = Sarmatians, Peleset = Philistines) are Asii factions rebelling against the Mitanni center. Thera eruption (c. 1600 BC) triggers the conflict.
-- c. 705–330 BC: "Achaemenid" Persia—a reconsolidation of Scythian power under a rival Saka clan. Cyrus the Great's title *Kurush* = "Sun Lord" = *Mithra*.
+- c. 705–330 BC: "Achaemenid" Persia—a reconsolidation of Scythian power under a rival Saka clan. Cyrus the Great's title Kurush = "Sun Lord" = Mithra.
 - c. 650–620 BC: Akrosander/Akrosas—first explicit Asii World Empire. He rules through regional avatars:
   - Egypt: Psamtik I (founder of 26th Dynasty)
   - Media: Cyaxares (overlord who destroys Assyria)
@@ -493,7 +499,7 @@ Fig. 1.14. Showing three generations. L. Ateas the Scythian (Ata- or Atha-, mean
 
 - c. 429–339 BC: Ateas the Scythian (Ata- = "Forefather"). Last great Asii emperor. Also:
   - Artaxerxes II Memnon (Persia)
-  - Philip II (Macedonia)
+  - Amyntas III (Macedonia)
   - Nectanebo II (Egypt)
   - Evagoras I (Cyprus)
   - [Fig. 1.14: Ateas → Philip → Alexander]
