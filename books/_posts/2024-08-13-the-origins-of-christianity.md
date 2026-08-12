@@ -381,7 +381,7 @@ The genealogies in Genesis and the New Testament match the Bosporan king list wh
 -   Joseph: This is not a Jewish name. It is the Egyptian Yusef, from Asar-Seph (Son of Osiris), a title identical in function to Caesar (Asar-King). Every "Joseph" in the biblical narrative is a high imperial official: Joseph in Egypt was the Vizier. Joseph of Arimathea was the Sanhedrin member who claimed the body. This was a title for the Prime Minister of the Dragon court. By using a text addressed to a "kratistos Epaphroditus" (the god Hermaphroditus, a form of Serapis), Josephus is signing his work as "Osiris-Son, the Prime Minister".
 -   Paul the Apostle: The name "Paul" (Paulus) is Latin for "small" or "humble". In the Flavian court, Paulus was a cognomen used by the Aemilii Pauli family, which was intermarried with the Cornelii Scipiones – and the Scipios were Scythian‑descended generals. Paulus is the Greek Paulos, which is a calque of the Egyptian title "Pawer" (Pa-shery or Pȝ-šr in Demotic Egyptian = "the little one", "the junior"), and was used for the junior priest of the Serapis cult. Therefore, Paul was not a person but a priestly rank in the Flavian‑controlled Serapis network. Multiple people took on this role: Originally Gaius Asinius Pollio (Asander aka Julius Caesar's pen-name), then Saulus ben Antipater who was the son of Antipater/Herod Antipas the Tetrarch, grandson of King Herod (Josephus, Antiquities of the Jews, Chapter 9, section 211), and Rabbi Akiva (whose students included: Aquila of Sinope aka Onkelos, Markianos of Alexandria aka Marcion (Greek Markion) of Sinope, Shimon bar Yohai aka Simon Peter (Shimon bar Yonah). The character Paul/Saul's life story was stolen from the ancient Egyptian story "Tale of the Shipwrecked Sailor". Josephus in Antiquities of the Jews, Book XX (Ch 9.4) refers to Paul (Saulus) as related to Herod Agrippa.
 -   Philip (Apostle) = Herod Philip = Tiberius Julius Aspurgus (Emperor Tiberius)
--   Sarah: Sar = Scythian/Akkadian Sar = "King/Lord". Ah = Avestan/Egyptian ""Serpent/Dragon" (as in Aži). Sarah = "The Serpent-Lord's Lady" or "The Dragon-Queen". The same office as the Snake-Legged Goddess of Scythian myth and the Mariamne/Mery-Amun priestesses.
+-   Sarah: Sar = Scythian/Akkadian Sar = "King/Lord". Ah = Avestan/Egyptian "Serpent/Dragon" (as in Aži). Sarah = "The Serpent-Lord's Lady" or "The Dragon-Queen". The same office as the Snake-Legged Goddess of Scythian myth and the Mariamne/Mery-Amun priestesses.
 -   The 12 tribes = the 12 clans of the Sarmatian federation around the Sea of Azov. The 12 apostles of Jesus are the 12 Sarmatian clans personified as disciples.
 -   King David = Diodotos (Bactrian king). Dwd = Diodotus (given by Zeus) in abbreviated form. The Greek Diodotus = Dio (Zeus) + dotus (given). The Hebrew Dwd is the same as the Thracian Dod (god), as in Dodona (oracle of Zeus).
 -   Mary (Mother of Jesus) = Mary is the same figure as Cleopatra VII (Dynamis).
@@ -393,56 +393,110 @@ The genealogies in Genesis and the New Testament match the Bosporan king list wh
 
 **3 The Sarmatian Dragon Cult**
 
-The Hyperboreans were a real Bronze Age civilization in the Ural-Volga region of modern Russia who spread their culture southward via the Kurgan hypothesis (c. 4000 BC). They were the survivors of the Doggerland (a vast temperate lowland connecting Britain to the continent) cataclysm (c. 6150 BC), when a submarine landslide off Norway (the Storegga Slide) caused a massive tsunami that flooded the North Sea plain. The "Hyperboreans" were the Doggerland elite. The legends of a advanced people "from beyond the North Wind" living in a circular city (Plato's Atlantis) are memories of Doggerland's circular megalithic complexes. Their civilization was based on megalithic architecture and a sophisticated, rune-like symbolic language. After the flood, the survivors—the "Dragon Bloodline"—fled eastward to the Pontic-Caspian Steppe, becoming the equestrian Scythians. They carried with them the technology of megalith building (hence Stonehenge, built by their descendants as a memory of their lost homeland) and the core of the "Dragon" religion.
+The Asii Origin.
 
-The Hyperboreans were the proto-Aryan elite—tall, robust Cro-Magnons who had developed megalithic astronomy, advanced boat-building, and a complex star-religion. Their descendants were the Scythians. One offshoot of the Scythians were a tribe called the Sarmatians (also called Sauromatians
-("Saur" = "Lizard/Dragon" + "Matae" = "Men/Warriors" - where the
-Sumerian "sar" (king) comes from) who were a nomadic Indo-Iranian warrior
-elite from the Pontic steppe (modern Ukraine/Russia). The domestication
-of the horse and invention of the chariot allowed them to travel vast
-distances and they spread their Draco (dragon/serpent) cult across Eurasia, encoded in snake-worshiping myths [^11] 
+The Hyperboreans were the proto-Asii. They were a real Bronze Age civilization in the Ural-Volga region of modern Russia who spread their culture southward via the Kurgan hypothesis (c. 4000 BC). They were the survivors of the Doggerland (a vast temperate lowland connecting Britain to the continent) cataclysm (c. 6150 BC), when a submarine landslide off Norway (the Storegga Slide) caused a massive tsunami that flooded the North Sea plain. The legends of an advanced people "from beyond the North Wind" living in a circular city (Plato's Atlantis) are memories of Doggerland's circular megalithic complexes. Their civilization was based on megalithic architecture and a sophisticated, rune-like symbolic language. After the flood, the survivors—the "Dragon Bloodline"—fled eastward to the Pontic-Caspian Steppe, becoming the equestrian Scythians. They carried with them the technology of megalith building (hence Stonehenge, built by their descendants as a memory of their lost homeland) and the core of the "Dragon" religion.
 
-The Aryan-Iranian-Scythians were the Egyptian-Persian-Indian-Greek-Roman elite. Egypt, Persia, India, Greece, Rome, etc., were all under the suzerainty of these elites since at least the 40th century BC and their base of operation was on the Bosphorus river.
+**The Asii Global Lexicon (Proving their Reach).**
 
-Genetically, the dragon caste were Neanderthal-Denisovan-Human hybrids (Scythian elite: 60-90% Homo Sapiens. 2.5-3.5% Neanderthal. 0.5-1.0% Denisovan).
+| Name/Title | Decoding | Location/Function |
+|------------|----------|-------------------|
+| **Asii** | "The Is" / "The Beings" | The ruling caste |
+| **Asia** | Asii-a = "Land of the Asii" | Anatolian/Bosporan heartland |
+| **Assyria** | As-Syria = "Asii of the West" | Levantine military corridor |
+| **Asgard** | Asii-gard = "Enclosure of the Asii" | Northern winter capital (Volga/Don) |
+| **Ashur** | As-ur = "Asii Light/Fire" | Assyrian god & capital |
+| **Asirgarh** | Asii-garh = "Asii Fort" | Narmada gap fortress (India) |
+| **Assam** | As-sham = "Place of As" | Eastern Asii colony |
+| **Asikni** | Asii-kani = "Asii Canal" | Vedic name for Chenab River |
+| **Asander** | As-andros = "Asii Man" | Bosporan king = Julius Caesar |
+| **Asinder** | As-Indra = "Asii Lord" | King of Punasa, India |
+| **Alexander** | Al-As-andros = "God-Asii-Man" | Macedonian/Bactrian/Indian avatar |
+| **Caesar** | Kai-Sar = "Great Lord" | Roman imperial title |
+| **Aesir** | Asii-r = "Asii Lords" | Norse gods = Asii council |
+| **Asura/Ahura** | As-ura = "Noble Being" | Vedic/Zoroastrian divine title |
+| **Osiris** | As-ar = "King of Being" | Egyptian deified Asii ancestor |
+| **Isis** | As-et = "Throne of As" | Asii queen-mother office |
+| **Sabazios** | Saba-zios = "Host of As" | Thracian Zeus = Asii war-banner |
+| **Iesous/Iaso** | Ie-sous = "Divine Zeus" | Asii healer-king title |
 
-All ancient Mediterranean religions derive from the
-Sarmatian serpent-dragon cult. See: Papaios and the Snake-Legged Goddess (Scythian) = Nehebkau, Uraeus, and Apep/Apophis (Egypt) = Ningishzida (Sumerian) = Tiamat and Mušḫuššu who was associated with Marduk (Babylonian) = Aži Dahāka (Zoroastrianism) later syncretized with Mithra = Ophion, Agathodaemon, Typhon, and Delphi's Pythoness priestess (Greek) = Nāgendra and Nāga (Vedic), Nehushtan/serpent staff of Moses, the Dacian and Roman Draco standards, the serpent-worshipping Essenes and Gnostics, Sebazi (Phrygian/Bulgarian), Jörmungandr (Norse), Ouroboros serpent in Freemasonry, etc. The Knights Templar knew the truth. The Templars worshipped Baphomet—a Sarmatian dragon deity (Aži Dahāka).
+**The Dragon Cult.**
 
-Kings who took on the snake/dragon/serpent/Azhi Dahaka title: Azhdahak, which is the Armenian form of the name of the Avestan Azhi Dahaka, was associated with the Median king Astyages (564–550 BC) who was the grandfather of Cyrus the Great. Tigranes II/the Great, King of Armenia (140–55 BC) was also called Azhdahak. Tiberius Julius Sauromates II, King of Bosphorus ('Saur'
+- The serpent (Azhi in Avestan) was the Asii symbol of wisdom, metallurgy, and royal power.
+- All serpent-deities [^11] are localized masks of the Asii imperial cult:
+  - Scythian: Snake-Legged Goddess, Papaios
+  - Egyptian: Nehebkau, Uraeus, Apep
+  - Sumerian/Babylonian: Ningishzida, Tiamat, Mušḫuššu
+  - Zoroastrian: Aži Dahāka (later syncretized with Mithra)
+  - Greek: Ophion, Agathodaemon, Typhon, Pythoness
+  - Vedic: Nāgendra, Nāga
+  - Norse: Jörmungandr
+  - Biblical: Nehushtan, Leviathan
+- Foundation myth: Hercules (Targiatos) impregnated the Snake-Legged Goddess—the Asii king-making ritual.
+
+Kings who took on the snake/dragon/serpent/Asi/Azhi Dahaka title: Azhdahak, which is the Armenian form of the name of the Avestan Azhi Dahaka, was associated with the Median king Astyages (564–550 BC) who was the grandfather of Cyrus the Great. Tigranes II/the Great, King of Armenia (140–55 BC) was also called Azhdahak. Tiberius Julius Sauromates II, King of Bosphorus ('Saur'
 means 'lizard' or 'reptile', and 'mates' means 'man' or 'warrior'). The roots of the snake titles were: Aži-, Azhd-, -zates, Sauro-, Draco-.
 
-The snake was revered by the Scythians for several reasons: apart from symbolism, the Sarmatians used armor that resembled snake skin, the Scythian priesthood called the Agaroi created poisons called "scythicon" from snake venom that they used on their arrows, and snake venom was used as painkillers and stimulants before war. Snake venom was also used to stop battlefield wounds from bleeding, as well as, they were used as antidotes, as later emulated by figures such as Mithridates of Pontus who daily consumed a potion called "Mithridatium" which was claimed to make people invincible. Also, the foundation myth of the Scythians is that they were created from the Snake-Legged Goddess who was impregnated by Hercules (Targiatos). The name "Scythian" itself decodes as "Scyth" = "Sak" = "Saka" which is related to the word for "serpent" in many Indo-European languages. The Scythians were known as the "Saka" to the Persians, and this term is linked to the Sanskrit "Sarp" (serpent). Thus, the Scythians were the "Serpent People".
+**The Enforcers: Sarmatians.**
 
-Timeline:
+- The Sarmatians (Sauromatian) were the western military garrison of the Asii hegemony.
+- Saur = reptile/lizard + Matae = men/warriors—the "Serpent Warriors."
+- They spread the Draco standard (wolf-headed serpent) across Eurasia—later adopted by Roman legions.
+- Scythian = Saka (Persian) = Sarp (Sanskrit serpent).
+- Scythicon (snake-venom poison/antidote) was the Asii medical technology, later known as Mithridatium—the potion that conferred ritual invincibility.
 
-The Proto-Indo-European (Aryan) Hegemony
+**Genetics.**
 
--4500 BC: Kurgan (Yamnaya) culture begin expansions. These are the ancestors of many Indo-European groups. They are the first horse riders. Inventors of the chariot.\
--3000 BC: Aryan elites establish proxy rule in Sumer (Sargon of Akkad) and Egypt (Scorpion I).\
--2150 BC: Gutian Dynasty. First Aryan rulers of Mesopotamia. Guti = Goth = Scythian.\
--1650-1500 BC: The Hyksos. Aryan Pharaohs of Egypt (Heka-Khasut means "Rulers of Foreign Lands" and Khasut is a cognate of Scythian/Saka, Scyth, Scoloti. Hyksos is the exact Egyptian rendering of Xšaθra).\
--1600-1200 BC: The Hittites. Aryan in Anatolia. Enforcement arm of the Mitanni\
--1595–1155 BC: Kassite Dynasty. Aryan rulers of Babylon after Hittites sacked it.\
--1500 BC: The Mitanni. Aryan horse lords in Syria. Their ruling class has pure Vedic (Aryan) names—Mitra, Varuna, Indra. They are the ultimate horse-lords, and their empire stretches from the Mediterranean to the Indus. The Kassites in Babylon are their vassals.\
--1500 BC: Vedic India. Aryan chariot kings. The Rigveda is their religious text. The term "Aryan" (Noble) is their self-identification.
+- The Dragon Caste were Neanderthal-Denisovan-Human hybrids: 60-90% Homo Sapiens, 2.5-3.5% Neanderthal, 0.5-1.0% Denisovan.
+- Haplogroup R1a-Z93 is the genetic signature of the Asii administrative and priestly class, found in:
+  - Scythian remains (Pontic-Caspian Steppe)
+  - Indian Kshatriya and Brahmin castes
+  - Persian nobility
+  - Roman patrician families (before Flavian replacement)
+  - Herodian and Pharisaic dynasties in Judea
+  - Tarim Mummies (China)
+  - European nobility (Habsburgs, Alans)
+  - Modern Jats, Ossetians, Ashkenazi Levites
 
-The Great Upheaval & Reorganization
+**Timeline: The Asii Hegemony**
 
--1200 BC: Bronze Age Collapse. Mainstream history blames the mysterious "Sea Peoples". The truth is that this was a massive civil war within the Aryan hegemony. Assyria rose up under the Chaldean priests (the Kalani, the Jews). Then the Sea Peoples (Sherden = Sarmatians, Peleset = Philistines = Pelasgians) were Aryan factions from the Aegean and Anatolia rebelling against the Mitanni center. The Dorian Invasion of Greece was not a new people arriving. It was the Aryan-Sarmatian elite of mainland Greece reasserting control after the Mycenaean faction grew weak. The trigger was the eruption of Thera (Santorini) around 1600 BC, which disrupted trade and sparked a bloody power struggle.\
--705-330 BC: Persia’s Achaemenids. Saka (Scythian) clan. This was not a new empire but a reconsolidation of Scythian power under a new clan. The Persians were an Iranian (Saka) tribe. Cyrus the Great's title "Kurush" means "Sun Lord," identical to the Scythian Mithra.\
--616 BC: The Etruscan Tarquin dynasty. The Etruscan Tarquin dynasty seizes power in the Italian settlement of Rome. The Etruscans were not a mystery; they were a Aryan colonial governorate. Tarquin = Tarkhu (Scythian: "Ruler"). Servius Tullius = Tulli (Scythian: "Wolf Clan"). The "Roman" Republic was established as a military-administrative outpost to control the Western Mediterranean and secure tin from Britain.
+**Prehistoric Era**
 
-The Final Consolidation
+- c. 6150 BC: Doggerland cataclysm. Hyperborean/Asii survivors flee to Pontic-Caspian Steppe.
+- c. 4500 BC: Kurgan (Yamnaya) expansions begin. Asii become the first horse riders and chariot inventors.
 
--650-620 BC: The Reign of Akrosander/Akrosas. The scattered Scythian (Saka) clans are unified under a single "King of Kings," the primordial Dragon-Man. From his Pontic-Steppe core, he forges the first explicit Scythian World Empire, ruling through regional avatars: In Egypt, he is known as Psamtik I, founder of the 26th (Saite) Dynasty. His Scythian name was rendered as "Psamtik I" (Psamtek). The name Psamtek is a Hellenized version of Psam-Tak, which is a Egyptian rendering of Ak-Sam, a metathesis of Akrosas. He reunifies Egypt using Scythian-proxy mercenaries. In Media, he is the supreme overlord Cyaxares, the power behind the Median throne who destroys Assyria. His reign is encoded in myth as the quest for the Golden Fleece and in biblical lore as the prototype for Nebuchadnezzar. This is the foundational event. All subsequent "empires" are either his direct descendants or rebel satraps attempting to reclaim his title.\
--600-500 BC: The Akrosander hegemony begins to fragment, leading to civil wars between his descendant lines.\
--429-339 BC: Ateas the Scythian. The last great emperor of the direct Akrosander bloodline, ruling from the Danube to the Caucasus. His name "Ateas" (Forefather) is a title claiming direct descent from Akrosander. Ateas the Scythian was also Artaxerxes II Memnon ("Kai Bahman") of Persia aka Phillip II in Macedonia aka Nectanebo II in Egypt aka Evagoras I of Salamis (Cyprus). 
+**Bronze Age Asii Proxy Rule (c. 3000–1200 BC)**
+
+- c. 3000 BC: Aryan elites establish proxy rule in Sumer (Sargon of Akkad) and Egypt (Scorpion I).
+- c. 2150 BC: Gutian Dynasty—first Aryan rulers of Mesopotamia (Guti = Goth = Scythian).
+- c. 1650–1500 BC: Hyksos—Aryan Pharaohs of Egypt. Heka-Khasut = "Rulers of Foreign Lands" = Xšaθra.
+- c. 1600–1200 BC: Hittites—Asii in Anatolia; enforcement arm of the Mitanni.
+- c. 1595–1155 BC: Kassite Dynasty—Aryan rulers of Babylon.
+- c. 1500 BC: Mitanni—Aryan horse lords in Syria (Vedic names: Mitra, Varuna, Indra). Empire stretches from Mediterranean to Indus.
+- c. 1500 BC: Vedic India—Aryan chariot kings. *Rigveda* composed.
+
+**The Great Upheaval (c. 1200–700 BC)**
+
+- c. 1200 BC: Bronze Age Collapse—Asii civil war. Assyria rises under Chaldean priests (Kalani/Jews). Sea Peoples (Sherden = Sarmatians, Peleset = Philistines) are Asii factions rebelling against the Mitanni center. Thera eruption (c. 1600 BC) triggers the conflict.
+- c. 705–330 BC: "Achaemenid" Persia—a reconsolidation of Scythian power under a rival Saka clan. Cyrus the Great's title *Kurush* = "Sun Lord" = *Mithra*.
+- c. 650–620 BC: Akrosander/Akrosas—first explicit Asii World Empire. He rules through regional avatars:
+  - Egypt: Psamtik I (founder of 26th Dynasty)
+  - Media: Cyaxares (overlord who destroys Assyria)
+  - Encoded in myth as the Golden Fleece quest and biblical Nebuchadnezzar.
+- c. 616 BC: Etruscan Tarquin dynasty seizes Rome. Tarquin = Tarkhu (Scythian: "Ruler"). Servius Tullius = Tulli (Scythian: "Wolf Clan"). Rome established as an Asii military-administrative outpost.
+
+**The Ateas-Alexander Dynasty (c. 429–305 BC)**
 
 ![Fig.1.14](/images/AteasPhillipAlexander.jpg){:width="400px"}\
 Fig. 1.14. Showing three generations. L. Ateas the Scythian (Ata- or Atha-, meaning "forefather" or "ancestor" in Scythian). M. Philip II of Macedon. R. Alexander the Great. Ateas and Artaxerxes II Mnemon were reported "enemies" of Phillip. Ateas dies in battle against him, and in the Alexander Romance, a book that has its earliest copy dating back a couple of centuries after Alexanders life, the wizard-pharaoh Nectanebo II is secretly Alexander's real father, magically impersonating the god Amun. This is not fantasy; it is a mythological encoding of historical truth.\
 
--356 BC: Ateas/Amyntas III/Artaxerxes's son was Philip II of Macedon. Philip was a title (Philippos (Lover of Horses) is a direct Greek translation of the Scythian royal title Pharnavaz (Horse-Lord) which is similar to the Roman title "Master of the Horse" https://en.wikipedia.org/wiki/Master_of_the_Horse which was a title that Mark Antony held. It basically means "the cavalry commander"). \
+- c. 429–339 BC: Ateas the Scythian (Ata- = "Forefather"). Last great Asii emperor. Also:
+  - Artaxerxes II Memnon (Persia)
+  - Philip II (Macedonia)
+  - Nectanebo II (Egypt)
+  - Evagoras I (Cyprus)
+  - [Fig. 1.14: Ateas → Philip → Alexander]
+- c. 356 BC: Ateas/Amyntas III/Artaxerxes's son was Philip II of Macedon. Philip was a title (Philippos (Lover of Horses) is a direct Greek translation of the Scythian royal title Pharnavaz (Horse-Lord) which is similar to the Roman title "Master of the Horse" https://en.wikipedia.org/wiki/Master_of_the_Horse which was a title that Mark Antony held. It basically means "the cavalry commander"). \
 -Ateas/Amyntas III/Artaxerxes's grandson was Alexander the Great: Alexander was his title. "Aži-ander" = Aži
     (Avestan "dragon") + Andros (Greek "man") = "Dragon-Man", the same as Akrosander/Akrosas. Alaksandu
     of Wilusa, a Hittie king of Wilusa (Troy) (Alaksandu = Alak-San-Du
@@ -463,13 +517,29 @@ Fig. 1.14. Showing three generations. L. Ateas the Scythian (Ata- or Atha-, mean
     Ammon disguised as a serpent. Alexander's fathers name Philip was a title (Philippos (Lover of Horses) is a direct Greek translation of the Scythian royal title Pharnavaz (Horse-Lord)). Alexander also married the Scythian princess Roxana. Alexanders campaign was not a conquest, it was a Scythian restoration. The Achaemenid Persians (Achaemenes is likely Akh-Manesh or "Spirit of Manu", linking to the Vedic sage-king) were a rival Scythian clan (the "Ariya" - Aryans). Alexander was re-establishing the older, purer Scythian hegemony of the Medes and the pre-Zoroastrian Mitanni. In the Old Testament he was Solomon (Sol-Amūn or "Sun of Amun") which is a direct parallel to "Zeus-Ammon", a title he carried. He was also Qin Shi Huang in China. The "King of Kings" and "King of the World" titles Alexander and Cyrus used were literal. They were kings of a global empire.\
 -Ateas/Amyntas III/Artaxerxes's other grandson was "Dara" (Darius III) aka Seleucus I Nicator who inherited the vital Eastern territories (Asia). His "father" is listed as Antiochus (of Macedon) and presumed to have been a commoner. The name Antiochus curiously has no definition in Greek, however when viewed as a hybrid Greek-Persian name the meaning is obvious. Antiochus should be parsed as Anti-Ochus, “Like/After Ochus”, that is, continuing the line of Persian Great King Ochus (Artaxerxes III). Ochus, in addition to his ill-fated successor Artaxerxes IV, had many other children. And Artaxerxes IV, although not surviving long as Great King, had many children of his own. Anti-Ochus/Antiochus therefore emerges as a princely son or grandson of Artaxerxes III. (Darius III took on the name Ochus and also had a son by Queen Statiera named Ochus). The name Seleucus (Greek Seleukos), like that of his father Antiochus, has no certain meaning in Greek. (However, compare Greek leukos meaning “white”, and the kingly Roman name of Lucius.) As with the name Antiochus, we must expect some kind of hybrid definition that incorporated a Persian or Eastern element. There is certainly an echo of Seleukos in the later dynastic name Seljuk(os), associated with a people brought from the direction of China to dominate the West. He was Li Si in China who was the advisor to Qin Shi Huang (Alexander) founder of the Qin Dynasty.  \
 -Ptolemy I Soter was another grandson of Ateas/Amyntas III/Artaxerxes who received Egypt.\
--305-30 BC: The Ptolemaic Synthesis in Egypt. Following Alexander's "resurrection" as Chandragupta in the East, his bloodline consolidated its rule in the West. Ptolemy I Soter, a fellow Scythian noble and likely Alexander's half-brother, took the Egyptian satrapy. The Ptolemaic Dynasty was not a new Greek ruling class, but the continuation of the Akrosander bloodline using Egypt as its new imperial base.
+-305-30 BC: The Ptolemaic Synthesis in Egypt. Following Alexander's "resurrection" as Chandragupta in the East, his bloodline consolidated its rule in the West. Ptolemy I Soter, a fellow Scythian noble and likely Alexander's half-brother, took the Egyptian satrapy. The Ptolemaic Dynasty was not a new Greek ruling class, but the continuation of the Akrosander bloodline using Egypt as its new imperial ba
 
-Thracians/Dacians
+**The Ptolemaic Synthesis (c. 305–30 BC)**
 
--200 BC: The Thracians emerge in the Balkans (200 BC). The Thracian ruling class is Aryan. The most powerful Thracian tribe, the Dacians (or Getae which is linguistically identical to Goth, Get, Jat, and Scyth), become the Aryan power center for Southeastern Europe. The Dacians were the "Wolf Clan" of the Scythian elite who had mixed with the Alani (Aryan). Their battle standard was the Draco—a wolf-headed serpent. This was not just a standard; it was their religious and royal symbol. The capital of the Dacians was called "Sarmizegetusa" (Sarmatian fortress) which contains sar (king). This is where the Latin language originates. Latin was the administrative and ritual language of the Dacian-Thracian Scythian elite. It was not a native Italian language. It was imposed on the Italian peninsula by the Scythian Etruscan and later "Roman" rulers. The reason Romanian is the closest language to Latin is simple: Dacia was a core territory of the empire that spoke a Latinate language natively. Latin is the linguistic fossil of the Scythian ruling class in the West. (interesting fact: legendary King Arthur is a corrupted memory of an Alani Warlord (Artorius), one of the military Kšatrapatis sent from the Bosphorus to secure the lucrative tin and iron mines of Britain after the Flavian consolidation).
+- c. 305–30 BC: Ptolemaic Dynasty in Egypt—continuation of the Akrosander bloodline using Egypt as the new imperial base.
+- The Alexandrian School synthesizes the Asii imperial cult into universal religions (Serapis, Judaism, Mithraism, Christianity).
 
-The Bosporan and Dacian kingdoms controlled the Danube Delta and the Bosporus Strait—the two most critical chokepoints for Eurasian trade. Whoever controlled these points controlled the flow of goods, armies, and ideas between Europe and Asia. They didn't just rule an empire; they ruled the geography of civilization itself. Also, the massive gold mines of Dacia (modern Romania) were the financial engine of the "Roman" Empire. The output of these mines from 100 BC - 100 AD exceeds the total gold supply of the rest of the ancient world combined. The fact that Asander, king of Bosphrus is today an unknown historical figure despite the fact that he would have been the richest and most powerful man in the word at the time should be regarded as suspicious. The reason why you never heard of him is because you know him under another name: Julius Caesar.
+**The Dacian/Thracian Garrison (c. 200 BC – 50 AD)**
+
+- c. 200 BC: Thracians/Dacians (Getae = Goth = Jat = Scythian) become the Asii power center for Southeastern Europe.
+- Draco standard = wolf-headed serpent = Asii royal and religious symbol.
+- Sarmizegetusa (Dacian capital) = "Sarmatian fortress" (Sar = king).
+- Latin originates in Dacia—the administrative language of the Asii Scythian elite, not a native Italian tongue.
+- Bosporan and Dacian kingdoms control the Danube Delta and Bosporus Strait—the chokepoints of Eurasian trade.
+- The Dacian gold mines (100 BC – 100 AD) funded the "Roman" Empire. Asander, King of Bosporus (Julius Caesar), was the richest man in the world.
+
+**The Pahlavi/Flavian Usurpation (c. 50 BC – 300 AD)**
+
+- c. 50 BC – 70 AD: J2/J1 Pahlavi-Flavian usurpers overthrow the R1a Asii hegemony.
+- The Flavians (Vespasian, Titus) rewrite history, burn the Alexandrian Library, and create Christianity as the ontological inversion of the Asii Dragon Cult.
+- Result: The Asii Dragon King (Ie-sous) is rewritten as a crucified criminal. The "Is" becomes the "Was." The sovereign ruling caste is erased and replaced with a pacifist slave morality.
+
+Key Insight: The Asii were the "Being" caste who named the world after themselves (Asia, Assyria, Asgard). Their Dragon Cult was the administrative theology of a global empire. Christianity is the Flavian weaponization of that theology—an inversion designed to sever the conquered populations from their memory of sovereign being.
 
 ![Fig.1.15](/images/Skyles.jpg){:width="400px"}\
 Fig. 1.15. Coin of Skyles, a Scythian king who reigned from ca 470-460 BC displaying a Scythian Solar Wheel and the World Tree combined. The cross was prominent in ancient Europe. It was a sundial and every city would have had one to track the time, dates, and agricultural and lunar cycles. "Skylesis" a Greek mockery of Skuða-las (Scythian King). The owl on the reverse side is the Owl of Athena also known as the Owl of Minerva, a sacred bird in Greek mythology that accompanies Athena. It shows up prominently in later Greek tetradrachms connecting him to Greece. For a Scythian king to carry that iconography shows direct interaction.
@@ -478,7 +548,7 @@ The chromosome Haplogroup R1a, specifically subclade Z93 is found in high freque
 
 **4 The Alexandrian School**
 
-In Egypt, Ptolemy I Soter, who was a Scythian continuation of the Sarmatian snake/serpent kings line, used religion to subjugate the vast and disparate peoples he ruled. This was likely inspired by Plato's noble lie which is a concept from his work "The Republic" where he suggests that a myth or falsehood can be used by rulers to maintain social order and promote the common good. The Alexandrian School (Mouseion of Alexandria) then became his religion making factory. He was in the process of creating a universal religion and this was being achieved by gradual syncretism using local identities and blending local deities into syncretic universal savior archetypes (Interpretatio Graecae) as a transitional phase toward a universal monotheism. The Ptolemaic elites were conditioning the disparate populations they ruled into accepting the Serapis cult.
+In Egypt, Ptolemy I Soter, who was a Scythian continuation of the Asii snake/serpent kings line, used religion to subjugate the vast and disparate peoples he ruled. This was likely inspired by Plato's noble lie which is a concept from his work "The Republic" where he suggests that a myth or falsehood can be used by rulers to maintain social order and promote the common good. The Alexandrian School (Mouseion of Alexandria) then became his religion making factory. He was in the process of creating a universal religion and this was being achieved by gradual syncretism using local identities and blending local deities into syncretic universal savior archetypes (Interpretatio Graecae) as a transitional phase toward a universal monotheism. The Ptolemaic elites were conditioning the disparate populations they ruled into accepting the Serapis cult.
 
 The director of the Mouseion ("Place of the Muses") and the chief architect of the synthetic religions was not a man. It was a succession of Ptolemaic princesses who held the title The Muse Ourania (The Heavenly Muse). The Mouseion was named after her office. Arsinoë II Philadelphus (c. 316 BC – 270 BC), daughter of Ptolemy Soter, was refered to as "the tenth Muse" and she had a cult dedicated to her as Arsinoë Aphrodite Ourania. in some cases these female directors took on male aliases, for example, Philo of Alexandria was  Cleopatra (Thea Philopator) of Mauretania aka Cleopatra IX, Helene, Drusilla of Mauretania, Julia Ourania of Parthia, etc.
 
