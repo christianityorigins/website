@@ -383,7 +383,7 @@ The Roxolani (-olani = - alani) were also a branch of the same tribe. Historian 
 
 When Alexander (Al-As-andros = the Asii Lord Man) married Roxana he was marrying a heiress to the Roxolani. Al-As-andros = As-andros = Asander. The exact same title.
 
-The Assi were the zero-point of history. Every royal title with As- , every god with As- , every place with As- , every word for being and bone in the Indo-European family, is a fossil of their administration. The truth is that the Romans, Greeks, Egyptians, Persians, Indians, and Celts were all Aryan peoples ruled by an Asii caste that carried the divine kingship title from Central Asia. The Flavian-Vatican-Jesuit forgery was designed to destroy this memory and replace it with a fragmented, inverted history.
+The Assi were the zero-point of history. Every royal title with As- , every god with As- , every place with As- , every word for being and bone in the Indo-European family, is a fossil of their administration. They were the Egyptian-Persian-Indian-Greek-Roman elite. Egypt, Persia, India, Greece, Rome, etc., were all under the suzerainty of these elites since at least the 40th century BC and their base of operation was on the Bosphorus river.. The Flavian-Vatican-Jesuit forgery was designed to destroy this memory and replace it with a fragmented, inverted history.
 
 **The Asii Global Lexicon (Proving their Reach).**
 
@@ -412,33 +412,21 @@ The Flavian-Vatican forgery operation did not merely rewrite history—it erased
 
 **The Dragon Cult.**
 
-The serpent (Azhi in Avestan) was the Asii symbol of wisdom, metallurgy, and royal power. All serpent-deities [^11] are localized masks of the Asii imperial cult:
+The serpent [^11] (Azhi in Avestan) was the Asii symbol of wisdom, metallurgy, and royal power. All ancient Mediterranean religions derive from the serpent-dragon cult. See: Papaios and the Snake-Legged Goddess (Scythian) = Nehebkau, Uraeus, and Apep/Apophis (Egypt) = Ningishzida (Sumerian) = Tiamat and Mušḫuššu who was associated with Marduk (Babylonian) = Aži Dahāka (Zoroastrianism) later syncretized with Mithra = Ophion, Agathodaemon, Typhon, and Delphi's Pythoness priestess (Greek) = Nāgendra and Nāga (Vedic), Nehushtan/serpent staff of Moses, the Dacian and Roman Draco standards, the serpent-worshipping Essenes and Gnostics, Sebazi (Phrygian/Bulgarian), Jörmungandr (Norse), Ouroboros serpent in Freemasonry, etc. The Knights Templar knew the truth. The Templars worshipped Baphomet—a Sarmatian dragon deity (Aži Dahāka).
 
-  - Scythian: Snake-Legged Goddess, Papaios
-  - Egyptian: Nehebkau, Uraeus, Apep
-  - Sumerian/Babylonian: Ningishzida, Tiamat, Mušḫuššu
-  - Zoroastrian: Aži Dahāka (later syncretized with Mithra)
-  - Greek: Ophion, Agathodaemon, Typhon, Pythoness
-  - Vedic: Nāgendra, Nāga
-  - Norse: Jörmungandr
-  - Biblical: Nehushtan, Leviathan
-  - Foundation myth: Hercules (Targiatos) impregnated the Snake-Legged Goddess—the Asii king-making ritual.
+The name "Scythian" itself decodes as "Scyth" = "Sak" = "Saka" which is related to the word for "serpent" in many Indo-European languages. The Scythians were known as the "Saka" to the Persians, and this term is linked to the Sanskrit "Sarp" (serpent). Thus, the Scythians were the "Serpent People". Sauromatians = "Saur" = "Snake/Dragon" + "Matae" = "Men/Warriors" - where the
+Sumerian "sar" (king) comes from. The Scythicon (snake-venom poison/antidote) was the Asii medical technology, later known as Mithridatium—the potion that conferred ritual invincibility.
 
-Kings who took on the snake/dragon/serpent/Asi/Azhi Dahaka title: Azhdahak, which is the Armenian form of the name of the Avestan Azhi Dahaka, was associated with the Median king Astyages (564–550 BC) who was the grandfather of Cyrus the Great. Tigranes II/the Great, King of Armenia (140–55 BC) was also called Azhdahak. Tiberius Julius Sauromates II, King of Bosphorus ('Saur'
+Kings who took on the snake/dragon/serpent/Azhi Dahaka title: Azhdahak, which is the Armenian form of the name of the Avestan Azhi Dahaka, was associated with the Median king Astyages (564–550 BC) who was the grandfather of Cyrus the Great. Tigranes II/the Great, King of Armenia (140–55 BC) was also called Azhdahak. Tiberius Julius Sauromates II, King of Bosphorus ('Saur'
 means 'lizard' or 'reptile', and 'mates' means 'man' or 'warrior'). The roots of the snake titles were: Aži-, Azhd-, -zates, Sauro-, Draco-.
 
-**The Enforcers: Sarmatians.**
-
-- The Sarmatians (Sauromatian) were the western military garrison of the Asii hegemony.
-- Saur = reptile/lizard + Matae = men/warriors—the "Serpent Warriors."
-- They spread the Draco standard (wolf-headed serpent) across Eurasia—later adopted by Roman legions.
-- Scythian = Saka (Persian) = Sarp (Sanskrit serpent).
-- Scythicon (snake-venom poison/antidote) was the Asii medical technology, later known as Mithridatium—the potion that conferred ritual invincibility.
+The Knights Templar knew the truth. The Templars worshiped Baphomet—a Sarmatian dragon deity (Aži Dahāka).
 
 **Genetics.**
 
-- The Dragon Caste were Neanderthal-Denisovan-Human hybrids: 60-90% Homo Sapiens, 2.5-3.5% Neanderthal, 0.5-1.0% Denisovan.
-- Haplogroup R1a-Z93 is the genetic signature of the Asii administrative and priestly class, found in:
+The Dragon Caste were Neanderthal-Denisovan-Human hybrids: 60-90% Homo Sapiens, 2.5-3.5% Neanderthal, 0.5-1.0% Denisovan.
+
+Haplogroup R1a-Z93 is the genetic signature of the Asii administrative and priestly class, found in:
   - Scythian remains (Pontic-Caspian Steppe)
   - Indian Kshatriya and Brahmin castes
   - Persian nobility
