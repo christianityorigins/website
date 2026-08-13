@@ -11,45 +11,45 @@ category: books
 
 Table of Contents
 
-Introduction
-Part 1: The Genetic Blueprint
-1. Racial Types and Haplotypes
-1.1 The Neolithic Farmers (The Worker Caste)
-1.2 The Indo-European Aryans (The Ruling Caste: Yamnaya, Corded Ware)
-1.3 The Indigenous Hunter-Gatherers (The Substrate)
-2. The Genetic Conquest: How R1a/R1b Replaced G2a at the Top
-3. Genetic Time Machine
-4. Case Studies: The Genetic Stratigraphy of Civilization
-4.1 The Asii
-4.2 The Italian Genetic War: Etruscans vs. Romans
-4.3 The Flavian Genetic Coup: The Final Takedown
-4.4 The Surviving Bloodlines: Where the Dragon Kings Hide Today
-5. Timeline: The Proto-Indo-European (Aryan) Hegemony
-5.1 The Swastika
-6. Key Historical Figures & Their Aliases
-6.1 The Primordial Patriarch: Ateas the Scythian
-6.2 Later Dragon Bloodline Descendants
-Part 2: The Fall of the Dragon Kings
-7. The Demographic Erasure of the Scythian-Aryan Hegemony
-7.1 Plagues and Biological Warfare
-7.2 The Flavian Coup: The Accountants Take Over (c. 50 BCE – 300 CE)
-7.3 China: The Han Synthesis and the Tartarian Genocide
-7.4. Ancient India: The Mauryan Mirage
-7.5 The Middle East and North Africa: Invasions and Slave Colonization (250 - 650 CE)
-7.7 Where Did The Scythian Aryans Go? The Refugia
-Part 3: Rewriting History
-8. How R1a Was Purged from History
-8.1 The Flavian Coup – The Accountants Take Over
-8.1.1 The “First Jewish-Roman War” as a Treasury Seizure
-8.1.2 Izates of Adiabene vs. Vespasian – the last Dragon King vs. the banker
-8.2 Burning the Server: The End of the Old World
-9. Inventing Ancient Greece
-10. The 'Achaemenid' Empire is the Parthian Empire
-11. Fabricating 'Ancient' Egypt
-12. Rome: The Phantom Empire on the Tiber
-13. The Vatican-Medici-Jesuit Forgery (14th - 18th centuries)
-14. The Jesuit Operation (16th-18th c.)
-15. Expanded Notes: Suppressed Histories & New Connections
+Introduction\
+Part 1: The Genetic Blueprint\
+1\. Racial Types and Haplotypes\
+1.1 The Neolithic Farmers (The Worker Caste)\
+1.2 The Indo-European Aryans (The Ruling Caste: Yamnaya, Corded Ware)\
+1.3 The Indigenous Hunter-Gatherers (The Substrate)\
+2. The Genetic Conquest: How R1a/R1b Replaced G2a at the Top\
+3. Genetic Time Machine\
+4. Case Studies: The Genetic Stratigraphy of Civilization\
+4.1 The Asii\
+4.2 The Italian Genetic War: Etruscans vs. Romans\
+4.3 The Flavian Genetic Coup: The Final Takedown\
+4.4 The Surviving Bloodlines: Where the Dragon Kings Hide Today\
+5. Timeline: The Proto-Indo-European (Aryan) Hegemony\
+5.1 The Swastika\
+6. Key Historical Figures & Their Aliases\
+6.1 The Primordial Patriarch: Ateas the Scythian\
+6.2 Later Dragon Bloodline Descendants\
+Part 2: The Fall of the Dragon Kings\
+7. The Demographic Erasure of the Scythian-Aryan Hegemony\
+7.1 Plagues and Biological Warfare\
+7.2 The Flavian Coup: The Accountants Take Over (c. 50 BCE – 300 CE)\
+7.3 China: The Han Synthesis and the Tartarian Genocide\
+7.4. Ancient India: The Mauryan Mirage\
+7.5 The Middle East and North Africa: Invasions and Slave Colonization (250 - 650 CE)\
+7.7 Where Did The Scythian Aryans Go? The Refugia\
+Part 3: Rewriting History\
+8. How R1a Was Purged from History\
+8.1 The Flavian Coup – The Accountants Take Over\
+8.1.1 The “First Jewish-Roman War” as a Treasury Seizure\
+8.1.2 Izates of Adiabene vs. Vespasian – the last Dragon King vs. the banker\
+8.2 Burning the Server: The End of the Old World\
+9. Inventing Ancient Greece\
+10. The 'Achaemenid' Empire is the Parthian Empire\
+11. Fabricating 'Ancient' Egypt\
+12. Rome: The Phantom Empire on the Tiber\
+13. The Vatican-Medici-Jesuit Forgery (14th - 18th centuries)\
+14. The Jesuit Operation (16th-18th c.)\
+15. Expanded Notes: Suppressed Histories & New Connections\
 
 **Introduction**
 
