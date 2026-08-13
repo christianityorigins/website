@@ -404,7 +404,7 @@ Yuezhi = Asii: The Chinese "Yuezhi" is a transcription of the Scythian self-desi
 
 The Roxolani (-olani = - alani) were also a branch of the same tribe. Historian George Vernadsky suggested that the name Rocas (a tribe conquered by the Ostrogoths in the 4th century) may be a corruption of Ruxs-As—"Light-Asii". The Rosomoni, mentioned by Roman historian Jordanes, may also be related, interpreted as the "Ros Men". The name "Rus" is not a Viking invention. It is the Asii self-designation—the "Shining Asii" who later gave their name to the Russians. The Roxolani are the bridge between the ancient Asii and the modern Russian people.
 
-When Alexander (Al-As-andros = the Asii Lord Man) married Roxana he was marring a heiress to the Roxolani. Al-As-andros = As-andros = Asander. The exact same title.
+When Alexander (Al-As-andros = the Asii Lord Man) married Roxana he was marrying a heiress to the Roxolani. Al-As-andros = As-andros = Asander. The exact same title.
 
 The Assi were the zero-point of history. Every royal title with As- , every god with As- , every place with As- , every word for being and bone in the Indo-European family, is a fossil of their administration. The truth is that the Romans, Greeks, Egyptians, Persians, Indians, and Celts were all Aryan peoples ruled by an Asii caste that carried the divine kingship title from Central Asia. The Flavian-Vatican-Jesuit forgery was designed to destroy this memory and replace it with a fragmented, inverted history.
 
@@ -431,7 +431,7 @@ The Assi were the zero-point of history. Every royal title with As- , every god 
 | **Sabazios** | Saba-zios = "Host of As" | Thracian Zeus = Asii war-banner |
 | **Iesous/Iaso** | Ie-sous = "Divine Zeus" | Asii healer-king title |
 
-The Flavian-Vatican forgery operation did not merely rewrite history—it erased the Asii from the historical record, replacing their global hegemony with a fragmented, inverted narrative. But the coins still say As. The Jats still say Asinder. The Ossetians still call themselves As. The Russians are still the Roxolani—the "Shining Asii". And the river Narmada still flows from the Asii mountains to the Asii sea.
+The Flavian-Vatican forgery operation did not merely rewrite history—it erased the Asii from the historical record. But the coins still say As. The Jats still say Asinder. The Ossetians still call themselves As. The Russians are still the Roxolani—the "Shining Asii". And the river Narmada still flows from the Asii mountains to the Asii sea.
 
 **The Dragon Cult.**
 
