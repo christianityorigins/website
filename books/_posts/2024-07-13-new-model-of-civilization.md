@@ -11,40 +11,45 @@ category: books
 
 Table of Contents
 
-Introduction  
-Part 1: The Genetic Blueprint  
-1 Racial Types and Haplotypes  
-1.1 The Neolithic Farmers (The Worker Caste)  
-1.2 The Indo-European Aryans (The Ruling Caste)  
-1.3 The Indigenous Hunter-Gatherers (The Substrate)  
-2 The Genetic Conquest: How R1a/R1b Replaced G2a at the Top  
-3 Case Studies: The Genetic Stratigraphy of Civilization  
-4 Timeline\
-4.1 The Swastika\
-5 Key Historical Figures & Their Aliases  
-5.1 The Primordial Patriarch: Ateas the Scythian  
-5.2 Later Dragon Bloodline Descendants  
-Part 2: The Fall of the Dragon Kings  
-6 The Demographic Erasure of the Scythian-Aryan Hegemony  
-6.1 Plagues and Biological Warfare
-6.2 The Flavian Coup: The Accountants Take Over (c. 50 BCE – 300 CE)  
-6.3 China: The Han Synthesis and the Tartarian Genocide  
-6.4 Ancient India: The Mauryan Mirage  
-6.5 The Middle East and North Africa: Invasions and Slave Colonization (250 - 650 CE)\
-7.5 Where Did The Scythian Aryans Go? The Refugia  
-Part 3: Rewriting History  
-8 How R1a Was Purged from History  
-8.1 The Flavian Coup – The Accountants Take Over  
-8.1.1 The “First Jewish-Roman War” as a Treasury Seizure  
-8.1.2 Izates of Adiabene vs. Vespasian – The Last Dragon King vs. The Banker  
-9 Inventing Ancient Greece  
-10 The 'Achaemenid' Empire is the Parthian Empire  
-11 Fabricating 'Ancient' Egypt  
-12 Rome: The Phantom Empire on the Tiber  
-13 The Vatican-Medici-Jesuit Forgery (14th - 18th Centuries)  
-14 The Jesuit Operation (16th-18th c.)  
-15 Expanded Notes: Suppressed Histories & New Connections  
-Conclusion
+Introduction
+Part 1: The Genetic Blueprint
+1. Racial Types and Haplotypes
+1.1 The Neolithic Farmers (The Worker Caste)
+1.2 The Indo-European Aryans (The Ruling Caste: Yamnaya, Corded Ware)
+1.3 The Indigenous Hunter-Gatherers (The Substrate)
+2. The Genetic Conquest: How R1a/R1b Replaced G2a at the Top
+3. Genetic Time Machine
+4. Case Studies: The Genetic Stratigraphy of Civilization
+4.1 The Asii
+4.2 The Italian Genetic War: Etruscans vs. Romans
+4.3 The Flavian Genetic Coup: The Final Takedown
+4.4 The Surviving Bloodlines: Where the Dragon Kings Hide Today
+5. Timeline: The Proto-Indo-European (Aryan) Hegemony
+5.1 The Swastika
+6. Key Historical Figures & Their Aliases
+6.1 The Primordial Patriarch: Ateas the Scythian
+6.2 Later Dragon Bloodline Descendants
+Part 2: The Fall of the Dragon Kings
+7. The Demographic Erasure of the Scythian-Aryan Hegemony
+7.1 Plagues and Biological Warfare
+7.2 The Flavian Coup: The Accountants Take Over (c. 50 BCE – 300 CE)
+7.3 China: The Han Synthesis and the Tartarian Genocide
+7.4. Ancient India: The Mauryan Mirage
+7.5 The Middle East and North Africa: Invasions and Slave Colonization (250 - 650 CE)
+7.7 Where Did The Scythian Aryans Go? The Refugia
+Part 3: Rewriting History
+8. How R1a Was Purged from History
+8.1 The Flavian Coup – The Accountants Take Over
+8.1.1 The “First Jewish-Roman War” as a Treasury Seizure
+8.1.2 Izates of Adiabene vs. Vespasian – the last Dragon King vs. the banker
+8.2 Burning the Server: The End of the Old World
+9. Inventing Ancient Greece
+10. The 'Achaemenid' Empire is the Parthian Empire
+11. Fabricating 'Ancient' Egypt
+12. Rome: The Phantom Empire on the Tiber
+13. The Vatican-Medici-Jesuit Forgery (14th - 18th centuries)
+14. The Jesuit Operation (16th-18th c.)
+15. Expanded Notes: Suppressed Histories & New Connections
 
 **Introduction**
 
@@ -262,18 +267,46 @@ THE SUMERIAN ENIGMA: Missing Royal DNA
     *   Kings and High Priests: R1a-Z93
 *   Linguistic Evidence: The sudden appearance of Sumerian as a language isolate is explained if it was the administrative creole created by R1a elites to rule J2 agricultural populations.
 
-**4.1 The Sarmatian Connection: The Military Arm of the Hegemony**
+**4.1 The Asii**
 
-Sarmatian data is crucial:
-*   Sarmatian Y-DNA: R1a, R1b, J1, G2a
+The Aryans were the broader confederation of Indo-Iranian clans—the horse-riding, chariot-using pastoralists who spread from the Pontic-Caspian Steppe into Europe, Anatolia, and South Asia. They were the ethnic and linguistic foundation of the ancient world. The Asii were the ruling caste. Roman historian Justin in 'Liber Historiarum Philippicarum' makes this explicit: "The Asii were the reges—the kings—of the Tochari. The Tochari and Sakaraucae were Aryan/Iranian peoples. The Asii ruled them".
 
-This isn't random diversity—it's the genetic organizational chart of the Hegemony:
-*   R1a-Z93: The supreme ruling lineage ("Dragon Kings")
-*   R1b: The Western European allied lineages (Celtic/Gallic nobility)
-*   J1: The Semitic-speaking administrative/financial class
-*   G2a: The Caucasus-derived military aristocracy (heavy cavalry)
+The Asii (the Asa-people), also recorded as Asii, Osii, Ossii, Asoi, Asioi, Asini or Aseni/Asiani/Asioi and the Alani are the same people with regional names. Ptolemy (fl. 127-148 AD) records that one of the Alan tribes in the vicinity of the Don was called the Asaioi—the ancestors of the modern Ossetians (https://jis.ut.ac.ir/article_76722.html). The name Alan is an Iranian dialectal form of the Old Iranian word Aryāna, which means "Aryan". The Alans (the western branch of the Asii) were the same people carrying the same "As" title westward.
 
-The Sarmatians weren't "barbarians"—they were the mobile military police of the Aryan world empire, deployed to trouble spots from Britain to China.
+The Aššuwa of Hittite records are the exact same political and military entity, only located in Anatolia because the "Hittite" empire was a regional satrapy of the Asii hegemony. The name Aššuwa is simply the Hittite/Anatolian rendering of the Scythian self-designation As. The Hittite suffix -wa or -uwa is a gentilic, meaning "Land of the As" or "People of the As". It is linguistically identical in function to the Iranian suffix -ii (Asii = People of As). Thus, Aššuwa = Asii. They are the exact same ethnonym with different grammatical endings. The capital of Aššuwa was Troy. A Hittie king of Wilusa (Troy) was named Alaksandu of Wilusa and he predated Alexander the Great by 800 years proving Alexander was a title of a Asii king. When the gens Iulia claimed descent from Aeneas of Troy, they were not inventing a myth. They were preserving a dynastic memory: they were the Italian branch of the Aššuwa-Asii imperial caste. The Trojan War was not a Greek conquest. It was a civil war within the Asii confederation—the western (Achaean/Greek) Asii against the Anatolian (Trojan).
+
+Yuezhi = Asii: The Chinese "Yuezhi" is a transcription of the Scythian self-designation "Asii" or "Asiani". The title "Julius" is the Roman-Latin pronunciation of Yuezhi (pronounced Yoot-chi -> Iudii -> Jove (also Yehuda or Judah)). It is the western branch of the same "Asa" tree. This is the same root as the Egyptian Asar (Osiris), Sanskrit (Asura/Lord, later demonized by Brahmin orthodoxy), Avestan Ahura (Lord, as in Ahura Mazda), Old Persian Asa (Lord, ruler), Thracian/Phrygian (Asa/Lord, god), Etruscan Aesar (God), Norse Aesir (The chief gods Odin, Thor, etc.), Celtic Esus (Lord who was crucified in Gallic myth), Tocharian As- (lord). Asa (Lord) is a cognate of Arya (Noble). It is the self-designation of the ruling elite. Asa was rendered in Etruscan as Aesar which also means Lord (the Greek language adds a K prefix to foreign words so Aesar becomes Greek "Kaesar" which becomes Latin Caesar). Latin as "Iulii"—the people of the "As" lords. Iulii → Julius: The name "Iulius" is simply the Latin rendering of the same root.
+
+The Roxolani (-olani = - alani) were also a branch of the same tribe. Historian George Vernadsky suggested that the name Rocas (a tribe conquered by the Ostrogoths in the 4th century) may be a corruption of Ruxs-As—"Light-Asii". The Rosomoni, mentioned by Roman historian Jordanes, may also be related, interpreted as the "Ros Men". The name "Rus" is not a Viking invention. It is the Asii self-designation—the "Shining Asii" who later gave their name to the Russians. The Roxolani are the bridge between the ancient Asii and the modern Russian people.
+
+When Alexander (Al-As-andros = the Asii Lord Man) married Roxana he was marrying a heiress to the Roxolani. Al-As-andros = As-andros = Asander. The exact same title.
+
+The Assi were the zero-point of history. Every royal title with As-, every god with As- , every place with As- , every word for being and bone in the Indo-European family, is a fossil of their administration. They were the Egyptian-Persian-Indian-Greek-Roman elite. Egypt, Persia, India, Greece, Rome, etc., were all under the suzerainty of these elites since at least the 40th century BC and their base of operation was on the Bosphorus river.. The Flavian-Vatican-Jesuit forgery was designed to destroy this memory and replace it with a fragmented, inverted history.
+
+**The Asii Global Lexicon (Proving their Reach).**
+
+| Name/Title | Decoding | Location/Function |
+|------------|----------|-------------------|
+| **Asii** | "The Is" / "The Beings" | The ruling caste |
+| **Asia** | Asii-a = "Land of the Asii" | Anatolian/Bosporan heartland |
+| **Assyria** | As-Syria = "Asii of the West" | Levantine military corridor |
+| **Asgard** | Asii-gard = "Enclosure of the Asii" | Northern winter capital (Volga/Don) |
+| **Ashur** | As-ur = "Asii Light/Fire" | Assyrian god & capital |
+| **Asirgarh** | Asii-garh = "Asii Fort" | Narmada gap fortress (India) |
+| **Assam** | As-sham = "Place of As" | Eastern Asii colony |
+| **Asikni** | Asii-kani = "Asii Canal" | Vedic name for Chenab River |
+| **Asander** | As-andros = "Asii Man" | Bosporan king = Julius Caesar |
+| **Asinder** | As-Indra = "Asii Lord" | King of Punasa, India |
+| **Alexander** | Al-As-andros = "God-Asii-Man" | Macedonian/Bactrian/Indian avatar |
+| **Caesar** | Kai-Sar = "Great Lord" | Roman imperial title |
+| **Aesir** | Asii-r = "Asii Lords" | Norse gods = Asii council |
+| **Asura/Ahura** | As-ura = "Noble Being" | Vedic/Zoroastrian divine title |
+| **Osiris** | As-ar = "King of Being" | Egyptian deified Asii ancestor |
+| **Isis** | As-et = "Throne of As" | Asii queen-mother office |
+| **Sabazios** | Saba-zios = "Host of As" | Thracian Zeus = Asii war-banner |
+| **Iesous/Iaso** | Ie-sous = "Divine Zeus" | Asii healer-king title |
+
+The Flavian-Vatican 'damnatio memoriae' operation attempted to erase the Asii from the historical record. But the coins still say As. The Jats still say Asinder. The Ossetians still call themselves As. The Russians are still the Roxolani—the "Shining Asii". And the river Narmada still flows from the Asii mountains to the Asii sea.
 
 **4.2 The Italian Genetic War: Etruscans vs. Romans**
 
@@ -420,7 +453,7 @@ The Ateas Restoration (900-339 BCE): After centuries of fragmentation ("Dark Age
 
 **6.2 Later Dragon Bloodline Descendants**
 
-Note on Aliases: The ancient world was governed by a transregional aristocratic network that reused titulature, divine archetypes, and dynastic names to project localized legitimacy. They role-played as deities, religious figures, and various characters as if they were actors in a play. This was done partially for obscuration, but also because people wouldn't accept foreign kings or kings with foreign names, and also, for theological requirements: a god-king had to manifest in different regions according to local religious expectations. However, as their names were mostly job titles an etymology across languages (Latin, Greek, "Old Persian," Sanskrit, Aramaic) reveals a unified administrative lexicon, and you can also identify their aliases through spouses. For example, the governor of Roman Egypt from 33 CE to 38, Aulus Avillius Flaccus, was also Polemon II of Pontus, who was
+The ancient world was governed by a transregional aristocratic network that reused titulature, divine archetypes, and dynastic names to project localized legitimacy. They role-played as deities, religious figures, and various characters as if they were actors in a play. This was done partially for obscuration, but also because people wouldn't accept foreign kings or kings with foreign names, and also, for theological requirements: a god-king had to manifest in different regions according to local religious expectations. However, as their names were mostly job titles an etymology across languages (Latin, Greek, "Old Persian," Sanskrit, Aramaic) reveals a unified administrative lexicon, and you can also identify their aliases through spouses. For example, the governor of Roman Egypt from 33 CE to 38, Aulus Avillius Flaccus, was also Polemon II of Pontus, who was
 the prince of the Bosporan, Pontus, Cilicia, and Cappadocia, which was
 the regional alias of Emperor Titus. The character of Aulus Avillius
 Flaccus dies at the same time Polemon II of Pontus takes power, and then
@@ -753,7 +786,7 @@ This was not a revolt. It was the Adiabene financial faction (led by Tiberius Ju
 
 **8.1.2 Izates of Adiabene vs. Vespasian – the last Dragon King vs. the banker**
 
-**5.3 Burning the Server: The End of the Old World**
+**8.2 Burning the Server: The End of the Old World**
 The post-coup actions of the Flavians were systematic:
 1.  Assassinate the Bloodline: Izates II executed. His relatives hunted.
 2.  Destroy the Records: The Library of Alexandria burned (likely by Tiberius Julius Alexander). This erased the master database of avatar lineages, tax rolls, and historical records.
