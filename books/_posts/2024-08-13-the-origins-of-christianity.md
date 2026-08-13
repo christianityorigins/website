@@ -508,7 +508,6 @@ Fig. 1.14. Showing three generations. L. Ateas the Scythian (Ata- or Atha-, mean
   - Amyntas III (Macedonia)
   - Nectanebo II (Egypt)
   - Evagoras I (Cyprus)
-  - [Fig. 1.14: Ateas → Philip → Alexander]
 - c. 356 BC: Ateas/Amyntas III/Artaxerxes's son was Philip II of Macedon. Philip was a title (Philippos (Lover of Horses) is a direct Greek translation of the Scythian royal title Pharnavaz (Horse-Lord) which is similar to the Roman title "Master of the Horse" https://en.wikipedia.org/wiki/Master_of_the_Horse which was a title that Mark Antony held. It basically means "the cavalry commander"). \
 -Ateas/Amyntas III/Artaxerxes's grandson was Alexander the Great: Alexander was his title. "Aži-ander" = Aži
     (Avestan "dragon") + Andros (Greek "man") = "Dragon-Man", the same as Akrosander/Akrosas. Alaksandu
