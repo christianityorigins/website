@@ -418,9 +418,7 @@ The name "Scythian" itself decodes as "Scyth" = "Sak" = "Saka" which is related 
 Sumerian "sar" (king) comes from. The Scythicon (snake-venom poison/antidote) was the Asii medical technology, later known as Mithridatium—the potion that conferred ritual invincibility.
 
 Kings who took on the snake/dragon/serpent/Azhi Dahaka title: Azhdahak, which is the Armenian form of the name of the Avestan Azhi Dahaka, was associated with the Median king Astyages (564–550 BC) who was the grandfather of Cyrus the Great. Tigranes II/the Great, King of Armenia (140–55 BC) was also called Azhdahak. Tiberius Julius Sauromates II, King of Bosphorus ('Saur'
-means 'lizard' or 'reptile', and 'mates' means 'man' or 'warrior'). The roots of the snake titles were: Aži-, Azhd-, -zates, Sauro-, Draco-.
-
-The Knights Templar knew the truth. The Templars worshiped Baphomet—a Sarmatian dragon deity (Aži Dahāka).
+means 'snake' or 'dragon', and 'mates' means 'man' or 'warrior'). The roots of the snake titles were: Aži-, Azhd-, -zates, Sauro-, Draco-.
 
 **Genetics.**
 
