@@ -2,7 +2,7 @@
 layout: default
 open_links_in_new_tab: true
 title: "From Christendom to Whiteness: Universalism, Deracination, and the Secularization of the Elect"
-date: 2024-11-14
+date: 2024-10-10
 category: books
 ---
 
