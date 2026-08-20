@@ -220,7 +220,7 @@ the regional alias of Emperor Titus. The character of Aulus Avillius
 Flaccus dies at the same time Polemon II of Pontus takes power, and then
 Polemon II of Pontus dies around the same time Titus becomes emperor.
 The way to connect them is through the fact that they were all married
-to the same woman, Berenice, granddaughter of King Herod (Bernice is recorded to have been married to Aulus Avillius Flaccus and Marcus Julius Alexander (nephew of Philo of Alexandria, brother of Tiberius Julius Alexander). These two marraiges connect her to the Alexandrian Jewish plutocracy and the Roman Egyptian administration. Herod of Chalcis (Herodian). This connects her to the Judean royal house. Polemon II of Pontus/Cilicia (descendant of Mark Antony through Antonia Tryphaena). This connects her to the Bosporan dynasty's own claimed ancestry. Titus Flavius (Flavian dynasty). This connects her to the imperial house that destroyed Jerusalem. She was also married to a man named "Marcus Antonius Polemo II" who was the son of Marcus Antonius Polemon I aka Polemon of Laodicea https://en.wikipedia.org/wiki/Polemon_of_Laodicea. Marcus Antonius Polemo II is the same as Polemon II of Pontus/Cilicia proving the Bosphoran royal house carried the Marcus Antonius title. These people are all the same man adopting localized identities and titles). Berenice's brother, Marcus Julius Agrippa II, governed all foreign Roman territories except Egypt during the Flavian period. Egypt was governed by her brother-in-law Tiberius Julius Alexander. This means the entire Eastern imperial administration was controlled by two men both related to Berenice.
+to the same woman, Berenice, granddaughter of King Herod (Bernice is recorded to have been married to Aulus Avillius Flaccus and Marcus Julius Alexander (nephew of Philo of Alexandria, brother of Tiberius Julius Alexander). These two marraiges connect her to the Alexandrian Jewish plutocracy and the Roman Egyptian administration. Herod of Chalcis (Herodian). This connects her to the Judean royal house. Polemon II of Pontus/Cilicia (descendant of Mark Antony through Antonia Tryphaena). This connects her to the Bosporan dynasty's own claimed ancestry. Titus Flavius (Flavian dynasty). This connects her to the imperial house that destroyed Jerusalem. She was also married to a man named "Marcus Antonius Polemo II" who was the son of Marcus Antonius Polemon I aka Polemon of Laodicea https://en.wikipedia.org/wiki/Polemon_of_Laodicea. Marcus Antonius Polemo II is the same as Polemon II of Pontus/Cilicia proving the Bosphoran royal house carried the Marcus Antonius title. These people are all the same man adopting localized identities and titles). Berenice's brother, Marcus Julius Agrippa II, governed all foreign Roman territories except Egypt during the Flavian period. Egypt was governed by her brother-in-law Tiberius Julius Alexander. This means the entire Eastern imperial administration was controlled by two men both related to Berenice. Berenice = Greek Pherenike = “Bearer of Victory” (Nike). She is the living Nike, the goddess of victory, the same as the Nike on coins.
 
 Also note how so many obscure ancestry client kings, prefects, and secretaries interlink via the same small pool of Herodian/Ptolemaic women and Tiberius Julius/Marcus Antonius names.
 
@@ -410,7 +410,7 @@ The Asii were the zero-point of history. They are the foundation of human civili
 | **Aesir** | Asii-r = "Asii Lords" | Norse gods = Asii council |
 | **Asura/Ahura** | As-ura = "Noble Being" | Vedic/Zoroastrian divine title |
 | **Osiris** | As-ar = "King of Being" | Egyptian deified Asii ancestor |
-| **Ossetia** | As-set = "Place of the As" | The modern Ossetians are the direct descendants of the Alans and Asii |
+| **Ossetia** | As-set = "Place of the As" | The modern Ossetians preserved the name, language, and cultural identity of the Alans/Asii. |
 | **Isis** | As-et = "Throne of As" | Asii queen-mother office |
 | **Sabazios** | Saba-zios = "Host of As" | Thracian Zeus = Asii war-banner |
 | **Iesous/Iaso** | Ie-sous = "Divine Zeus" | Asii healer-king title |
@@ -1282,7 +1282,7 @@ Fig. 1.62. L. Simon  Bar Kokhba coin. R. Coin of Alexander (grandson of King Her
 
 ![Fig.1.63](/images/BarKokhbaLyre.jpg){:width="400px"}
 
-Fig. 1.63. L. Simon  Bar Kokhba coin showing a kithara (Greek musical instrument). R. Coin of Scilurus, king of Scythia also showing a kithara.
+Fig. 1.63. L. Simon  Bar Kokhba coin showing a kithara (Greek musical instrument). R. Coin of Scilurus, king of Scythia also showing a kithara. The kithara also shows up on Asande's coins (https://leunumismatik.com/en/lot/24/154)
 
 Endnotes (Chapter 5)
 
