@@ -546,65 +546,43 @@ Endnotes (Chapter 3)
 
 **4 The Alexandrian School**
 
-In Egypt, Ptolemy I Soter, who was a Scythian continuation of the Asii snake/serpent kings line, used religion to subjugate the vast and disparate peoples he ruled. This was likely inspired by Plato's noble lie which is a concept from his work "The Republic" where he suggests that a myth or falsehood can be used by rulers to maintain social order and promote the common good. The Alexandrian School (Mouseion of Alexandria) then became his religion-making factory. He was in the process of creating a universal religion and this was being achieved by gradual syncretism using local identities and blending local deities into syncretic universal savior archetypes (Interpretatio Graecae) as a transitional phase toward a universal monotheism. The Ptolemaic elites were conditioning the disparate populations they ruled into accepting the Serapis cult.
+The Alexandrian School (Mouseion of Alexandria) then became his religion-making factory. He was in the process of creating a universal religion and this was being achieved by gradual syncretism using local identities and blending local deities into syncretic universal savior archetypes (Interpretatio Graecae) as a transitional phase toward a universal monotheism. The Ptolemaic elites were conditioning the disparate populations they ruled into accepting the Serapis cult.
 
 The director of the Mouseion ("Place of the Muses") and the chief architect of the synthetic religions was not a man. It was a succession of Ptolemaic princesses who held the title The Muse Ourania (The Heavenly Muse). The Mouseion was named after her office. Arsinoë II Philadelphus (c. 316 BC – 270 BC), daughter of Ptolemy Soter, was referred to as "the tenth Muse" and she had a cult dedicated to her as Arsinoë Aphrodite Ourania. In some cases these female directors took on male aliases, for example, Philo of Alexandria was  Cleopatra (Thea Philopator) of Mauretania aka Cleopatra IX, Helene, Drusilla of Mauretania, Julia Ourania of Parthia, etc.
-
-The Serapis cult (a committee of Alexandrian School priest‑scribes, including the Egyptian priest Manetho with the help of the Greek priest Timotheus from Eleusis, under the direction of Ptolemy Soter, attempt to use religion to subjugate the people of Egypt), Judaism (Ptolemy Soter's son Ptolemy II Philadelphus's attempt to use religion to subjugate the Jewish people), The Eleusinian Mysteries (Pythagoras (the Pythia High Priestess title)/Arsinoë II Philadelphus's attempt to pacify the old Mycenaean/Dorian Aryan aristocracy), Orphism (Ptolemy II Philadelphus (under the mask of the mythical Orpheus) psychological operation against the original Scythian homeland -- it inverted the Dionysian ecstasy of the free steppe riders into a guilt-ridden asceticism), Gnosticism, Valentinianism (Gnosticism and Valentinianism were Cleopatra Thea Philopator of Mauretania (operating under the male pen-name of Philo of Alexandria) and a committee of Alexandrian School priest‑scribes elite population management/esoteric upper-caste layer of the same Serapis cult), Christianity (Philo of Alexandria's slave morality/syncretic attempt at subverting the Canaanite religion of the Levant), Hermeticism (another of Philo of Alexandria’s attempts to subvert the Canaanite religion of the levant), Mithraism (attempt to subvert the religion of the Parthians/Zoroastrianism by taking the Avestan Mithra and syncretizing him with the Thracian-Phrygian Sabazios, Manichaeism (an attempt to bridge the religions from Rome to China -- Mani explicitly claimed to be the "Seal of the Prophets", synthesizing Zoroaster (Persian control), Buddha (Indo-Scythian control), and Jesus), Buddhism, and many other religions originated from there.
-
-Buddhism and Stoicism were the earliest philosophical expressions of these slave morality cults. They laid the groundwork of slave-morality. Buddhism was Pyrrho of Elis's syncretic attempt at subverting the Indo-Aryans in Bactria which was governed by Gaumata Bardya, Cyrus the Great's son, and Stoicism, purportedly founded by Zenon of Citium (Zenon means "son of Zeus," same as Iesous), was a backdated Pontic and Armenian imperial cult deifying successive princes (Marcus Antonius Zeno who was an avatar of Mithridates VI Eupator of Pontus aka Ptolemy XII Auletes of Egypt aka Mark Antony? or his grandson Zeno-Artaxias III?). The Ptolemaic cult of Alexander the Great was then the first major attempt at a universal religion that destroyed tribalism and brought different people under the same religion as a forerunner of Christianity, but after that cult failed to catch on (and at this point is likely when they switched to allegorical avatars for imperial offices instead of direct deification of kings), they moved on to the Serapis cult.
-
-As well as being slave moralities, these Alexandrian School religions were weaponized psychosis—the product of severely inbred ruling elites who used psychotropic substances (See: 'The Sacred Mushroom and the Cross: A Study of the Nature and Origins of Christianity Within the Fertility Cults of the Ancient Near East' by John Marco Allegro) and they added these ramblings to a slave morality system that was codified over centuries. The outer layer of these religions reads like the ravings of a deranged mind because, in a literal sense, it is.
-
-![Fig.1.16](/images/PtolemySoterAuletes.jpg){:width="400px"}
-
-Fig. 1.16 Coin depicting L. Ptolemy Soter. R. Ptolemy XII Auletes. The 300-year gap between them is likely Alexandrian School fiction. This implies that all "ancient" history before approximately 150-100 BCE is a back-projection. The Alexandrian School (and later Flavian/Vatican/Jesuit forgers) created phantom centuries to give their newly synthesized religions and empires false antiquity. If Ptolemy I Soter = Ptolemy XII Auletes, then his "father" wasn't Lagus (a fictional nobody)—his real father was Ateas the Scythian who was also Artaxerxes II Memnon ("Kai Bahman") of Persia aka Phillip II in Macedonia aka Nectanebo II in Egypt aka Evagoras I of Salamis (Cyprus), and Alexander the Great was a mythological archetype based on Asander aka Julius Caesar, and "Dara" (Darius III) aka Seleucus I Nicator was a fictional character based on one of his brothers or his nephew Seleucus VI, ruler of the Seleucid Empire. Ptolemy XII's sons under his Mithridates VI Eupator avatar were named Cyrus, Darius, Xerxes, and were backdated composites of those Persian kings.
-
-It also seems likely that the Alexandrian School didn't just create religions; it created standardized "national histories". See: Chapters 8. Rewriting History, 8.1. Inventing Ancient Greece, 8.2. The 'Achaemenid' Empire is the Parthian Empire, and chapter 8.3. Fabricating 'Ancient' Egypt.
-
-They imbued each history with the same archetypes: A legendary lawgiver (Manu/Moses/Lycurgus/Solon/Numa). A golden age of philosopher-kings (The "Akkadians," "Old Kingdom" Pharaohs, "Athenian Democrats"), an epic struggle against a monstrous Eastern empire ("Persia"), then a civilizing hero who travels and brings wisdom (Osiris/Dionysus/Hercules/Buddha). This was done for archetypal control (centralized texts and priesthoods) and so god-kings could take on these divine roles, and by replacing a cyclical view of time with a linear one this created a sense of "progress" that inherently devalues the past and creates a psychological dependency on a "savior" or a "utopian future"—a dependency they could then fill with their own cults (Serapis, Christianity) or god-kings. 
-
-The 'Achaemenid' Persian Empire is a phantom empire. It is a back projection of the Parthian Empire. Cyrus and Darius were composite characters based on the sons of Mithridates VI Eupator. The "Greco-Persian Wars" (5th century BCE) are a mythologized retelling of the Mithridatic Wars (1st century BCE).
 
 **4.1. Serapis Cult**
 
 Serapis is the "God Template" for all subsequent imperial cults. The Alexandrian School was attempting to merge all local religions into a single universal system. Christianity was the final, globalized version of Serapis worship.
 
-Serapis was deliberately engineered by Ptolemy I Soter and the priest Manetho to be a universal syncretism. It was designed to be simultaneously acceptable to Egyptians (Osiris-Apis), Greeks (Zeus-Hades-Dionysus), and Jews (Yahweh-Sabazios). The name itself is a deliberate hybrid: User-hapi (Osiris-Apis) rendered into Greek as Sarapis, with the initial vowel shifted to avoid direct Egyptian pronunciation. From this template, the Alexandrian School then produced localized variants for every satrapy of the Ptolemaic and later Roman empires.
+Conventional history claims that Sarapis was created by Ptolemy I with the priest Manetho as a Greco‑Egyptian fusion deity (Osiris + Apis + Greek Hades/Zeus). This is based on Tacitus, Histories 4.83-84, Plutarch, On Isis and Osiris 28, and Clement of Alexandria, but these accounts are late. An earlier account speaking about Alexanders death by the Greek author Arrian of Nicomedia in Anabasis (7.26.2) says:
+
+"The Diaries say that Peitho, Attalus, Demophon, and Peucestas, together with Cleomenes, Menidas, and Seleucus, spent the night in the temple of Serapis and asked the god if it would be better for Alexander to be carried into the temple himself, in order to pray there and perhaps recover; but the god forbade it, and declared it would be better for him if he stayed where he was".
+
+This means that Serapis was worshiped during Alexanders lifetime. 
+
+The truth is that Serapis is the same as Sabazios who was the Phrygian and Thracian version of Zeus (Serapis = Osiris + Apis or Šar Apsi - King Apsu = Enki-Ea) and Alexander was Serapis in deified form.
+
+![Fig.1.16](/images/Serapis_Louvre_AO1027.jpg){:width="400px"}
+
+Fig. 1.16 Marble bust of Serapis. This bust likely depicts Alexander.
+
+Sabazios = Saba-As = Lord (As) of the Seven Clans. The Asii were lords of a confederation of seven Aryan tribes. The main deity was Dyeus Pater and it had seven reflexes: Zeus, Jupiter, Tarhunna, Sabazios, Yahweh, Amun, Dyaus Pitar, which symbolized the seven clans. The Asii-Saka clan held the leadership title (Sabazios).
+
+Olympias, the mother of Alexander the Great, was an ardent follower of Sabazius. This gave rise to the legend that Zeus himself, in the form of a serpent, had intercourse with Olympias and that Alexander was the fruit of this relationship. Alexander presented himself as Dionysus and Dionysus is the son of Zeus (Dios (of Zeus) + nysos (son)). Sabazios depictions are also found in the Tomb of Alexander IV, Alexander's son.
+
+Serapis was the deified Alexander the Great under the Egyptian name Osiris-Apis, and the Gospel Jesus is the Flavian-Vatican slave-morality inversion of that same Dragon-King cult — which is why Serapis already had Alexander’s face, Alexander’s hair, Alexander’s divine sonship, and Alexander’s titles centuries before the New Testament was written.
 
 ![Fig.1.17](/images/SarapisAmunAgathodaemon.jpg){:width="400px"}
 
 Fig. 1.17 Copper statuette of the god Sarapis Amun Agathodaemon depicted as half-deity, half-snake (Egypt late Hellenistic/early Roman period 1st century BC - 1st century AD).
 
-Serapis = Sabazios = Asar (Osiris) + Apis (Asar + Apis = Asarapis → metathesis to Serapis), but also identified with Šar Apsi (Akkadian: “King of the Apsu”—the abyssal waters ruled by Enki/Ea).
-
-Serapis = Dionysus (the dying-and-reviving god of ecstasy. Zagreus, a chthonic form of Dionysus = Za-Agreus linked to Sar-Apis).
-
-Serapis = Hades (the Hellenized Osiris, lord of the underworld).
-
-Serapis = Attis (the Phrygian sacrificed god—the same mythic structure as Osiris).
-
-Serapis = Mithras (the bull-slaying solar deity).
-
-Serapis = Sol Invictus. Serapis was called Helios Serapis ("Sun Serapis") on coins.
-
-Serapis = Celtic Esus. Celtic Esus → Aesus in Latin inscriptions → Asar (the Egyptian Osiris) → Serapis (Asar + Apis = Asar-Apis → Serapis).
-
-Serapis = Judaism → Yahweh Sabaoth → Jove Sabazios → Zeus Serapis. Yahweh Sabaoth = Iove (Jove) Sabazios. Sabazios breaks into Saba- (Host/Heaven) + -zios (Zeus). In Egypt, Zeus syncretized with Amun → Zeus-Ammon. Zeus-Ammon + Osiris = Serapis. Thus: Yahweh = Jove = Zeus = Serapis.
-
-Serapis = Hermeticism (Philo of Alexandria’s syncretic philosophy to Hellenize the Canaanite religion of the Levant).
-
-Serapis = Buddhism (Pyrrho of Elis's syncretic attempt at subverting the Indo-Aryans in Bactria which was governed by Gaumata Bardya, Cyrus the Great's son).
-
-Serapis = Christianity. The Christogram symbolizing Jesus Christ (IHS) = "Isis-Horus-Serapis". Jesus = Ie-sus ("Divine or "Lord" Zeus") = Ie-Zeus = Yahweh-Zeus. "Those who worship Serapis are, in fact, Christians, and those who call themselves bishops of Christ are, in fact, devotees of Serapis.". Source: The Letter of Hadrian to Servianus.
-
-They are all the same god, the same savior, the same sacraments, the same hierarchy. The differences are purely cosmetic – local languages, local symbols, local dietary rules, local initiation rites. But the core theology is identical: a supreme sky-father (Yahweh/Zeus/Jupiter), a dying-rising son (Osiris/Mithras/Jesus), a sacred meal, ritual purification, and a promise of postmortem salvation.
+This is why the Romans called the Sabine priest-kings Sabi. This is why Suetonius’ claim that the Flavians were of "Sabine" origin is a cover: they were Sabi — the priests of Sabazios.
 
 ![Fig.1.18](/images/VespasianSerapis.png){:width="400px"}
 
 Fig. 1.18. Coin of Emperor Vespasian depicting Zeus-Serapis proving that Zeus was equated with Serapis. 
 
-Every cult spun from the Alexandrian School contains the same four components:
+Every cult spun from the Alexandrian School and Serapis contains the same four components:
 
 1 Syncretic God-Man: Fusion of a local dying god (Osiris, Attis, Dionysus) with a solar king (Zeus, Jupiter, Mithra).
 
@@ -616,7 +594,7 @@ Every cult spun from the Alexandrian School contains the same four components:
 
 The template is unmistakable: born in a cave (Jesus was born in a cave. Dionysus was born in a cave. Zeus was born in a cave. Sabazius (Serapis) was born in a cave), virgin birth (Dionysus from Zeus's thigh, Buddha from Maya's side, Horus from Isis), divine sacrifice and resurrection (Osiris dismembered and revived, Attis castrated and reborn, Mithras slain and ascending), and twelve disciples or companions (Mithras with twelve zodiac aides, Dionysus with twelve Maenads, Jesus with twelve Apostles). Each motif is a modular piece of the Serapic template, swapped into regional cults to precondition populations for the final merger under Christianity.
 
-"Sarapis" and its offshoot deities were placeholder names that kings inherited. This role could switch between generations, and this is why they didn't directly deify themselves. The population knew the god-king was the earthly agent of whatever deity they worshiped. For example, a religion about "The Divine Augustus" dies with Augustus.
+Previous to Serapsis the first universal religion that the Alexandrian School tried to push was the "Ptolemaic cult of Alexander the Great". They probably realized quickly that a religion about "The Divine Alexander" dies with Alexander so they switched to his deified form ("Sarapis") instead. This way that name became a placeholder that kings inherited. This role could switch between generations, and this is why they didn't directly deify themselves. The population knew the god-king was the earthly agent of whatever deity they worshiped.
 
 **4.2 Judaism** 
 
