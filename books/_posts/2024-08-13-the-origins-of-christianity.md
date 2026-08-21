@@ -564,9 +564,9 @@ This means that Serapis was worshiped during Alexanders lifetime.
 
 The truth is that Serapis is the same as Sabazios who was the Phrygian and Thracian version of Zeus (Serapis = Osiris + Apis or Šar Apsi - King Apsu = Enki-Ea) and Alexander was Serapis in deified form.
 
-![Fig.1.16](/images/Serapis_Louvre_AO1027.jpg){:width="400px"}
+![Fig.1.16](/images/Sabazios_from_the_tomb_of_Alexander_IV_at_Aigai,_311_BCE.jpg){:width="400px"}
 
-Fig. 1.16 Marble bust of Serapis. This bust likely depicts Alexander.
+Fig. 1.16 Miniature of Sabazios from the tomb of Alexander IV, son of  Alexander the Great and Roxana, at Aigai, 311 BCE. Sabazios is a Thracian deity identified with Dionysus.
 
 Sabazios = Saba-As = Lord (As) of the Seven Clans. The Asii were lords of a confederation of seven Aryan tribes. The main deity was Dyeus Pater and it had seven reflexes: Zeus, Jupiter, Tarhunna, Sabazios, Yahweh, Amun, Dyaus Pitar, which symbolized the seven clans. The Asii-Saka clan held the leadership title (Sabazios).
 
@@ -574,9 +574,9 @@ Olympias, the mother of Alexander the Great, was an ardent follower of Sabazius.
 
 Serapis was the deified Alexander the Great under the Egyptian name Osiris-Apis, and the Gospel Jesus is the Flavian-Vatican slave-morality inversion of that same Dragon-King cult — which is why Serapis already had Alexander’s face, Alexander’s hair, Alexander’s divine sonship, and Alexander’s titles centuries before the New Testament was written.
 
-![Fig.1.17](/images/Sabazios_from_the_tomb_of_Alexander_IV_at_Aigai,_311_BCE.jpg){:width="400px"}
+![Fig.1.17](/images/SarapisAmunAgathodaemon.jpg){:width="400px"}
 
-Fig. 1.17 Miniature of Sabazios from the tomb of Alexander IV, son of  Alexander the Great and Roxana, at Aigai, 311 BCE. Sabazios is a Thracian deity identified with Dionysus.
+Fig. 1.17 Copper statuette of the god Sarapis Amun Agathodaemon depicted as half-deity, half-snake (Egypt late Hellenistic/early Roman period 1st century BC - 1st century AD).
 
 This is why the Romans called the Sabine priest-kings Sabi. This is why Suetonius’ claim that the Flavians were of "Sabine" origin is a cover: they were Sabi — the priests of Sabazios.
 
