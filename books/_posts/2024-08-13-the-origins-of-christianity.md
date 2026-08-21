@@ -102,6 +102,8 @@ The historical record as we know it was systematically forged in three major pha
 
 The Medici did not create the foundational lie, but they financed, refined, and physically produced the "ancient" manuscripts that cemented it into Western consciousness (look up the similarities between Plato and Gemistus Pletho whose patron was also Cosimo de Medici). Their forger-in-chief was Poggio Bracciolini. Poggio Bracciolini held the position of Apostolic Secretary to the Pope which gave him access to the Vatican Library and is who is the one credited with "rediscovering" most ancient manuscripts from antiquity, but he was not working alone. He was part of a curia-wide network that included Lorenzo Valla, Niccolò Niccoli, and other humanists.
 
+Poggio Bracciolini is credited with rediscovering all of the Latin texts, and Giovanni Aurispa, who was a tutor of Lorenzo de' Medici, is credited with rediscovering most of the Greek classics including all of Plato.
+
 Three things helped cement the forgery: 1)Cosimo de' Medici financed the Council of Florence (1438-1445) which brought Eastern scholars like Gemistus Pletho and Bessarion (who became a Cardinal and donated his Greek manuscripts to Venice) to Italy, 2) The Council of Florence happened right before the fall of Constantinople (1453) which brought Byzantine manuscripts to Italy – which were then forged into "ancient" Greek and Roman texts, and 3)The Printing Press was invented in the 1440s which allowed these forgeries to be mass-produced and standardized across Europe.
 
 Cosimo de' Medici also founded the Platonic Academy of Florence which was led by Marsilio Ficino where students of Gemistos Pletho taught. People like Leonardo DiVinci, Michelangelo, Botticelli, Ghirlandaio and Perugino all came from this school. Their art was not "inspired" by Neoplatonism in a vacuum; it was a deliberate visual propaganda campaign. Botticelli's Birth of Venus and Primavera are masterpieces of Neoplatonic allegory, designed to propagate the Medici's synthesized, classical-Christian worldview.
@@ -546,7 +548,7 @@ Endnotes (Chapter 3)
 
 **4 The Alexandrian School**
 
-The Alexandrian School (Mouseion of Alexandria) then became his religion-making factory. He was in the process of creating a universal religion and this was being achieved by gradual syncretism using local identities and blending local deities into syncretic universal savior archetypes (Interpretatio Graecae) as a transitional phase toward a universal monotheism. The Ptolemaic elites were conditioning the disparate populations they ruled into accepting the Serapis cult.
+The Alexandrian School (Mouseion of Alexandria) was a religion-making factory. They were attempting to create a universal religion and this was being achieved by gradual syncretism using local identities and blending local deities into syncretic universal savior archetypes (Interpretatio Graecae) as a transitional phase toward a universal monotheism. The Ptolemaic elites were conditioning the disparate populations they ruled into accepting the Serapis cult.
 
 The director of the Mouseion ("Place of the Muses") and the chief architect of the synthetic religions was not a man. It was a succession of Ptolemaic princesses who held the title The Muse Ourania (The Heavenly Muse). The Mouseion was named after her office. Arsinoë II Philadelphus (c. 316 BC – 270 BC), daughter of Ptolemy Soter, was referred to as "the tenth Muse" and she had a cult dedicated to her as Arsinoë Aphrodite Ourania. In some cases these female directors took on male aliases, for example, Philo of Alexandria was  Cleopatra (Thea Philopator) of Mauretania aka Cleopatra IX, Helene, Drusilla of Mauretania, Julia Ourania of Parthia, etc.
 
@@ -572,9 +574,9 @@ Olympias, the mother of Alexander the Great, was an ardent follower of Sabazius.
 
 Serapis was the deified Alexander the Great under the Egyptian name Osiris-Apis, and the Gospel Jesus is the Flavian-Vatican slave-morality inversion of that same Dragon-King cult — which is why Serapis already had Alexander’s face, Alexander’s hair, Alexander’s divine sonship, and Alexander’s titles centuries before the New Testament was written.
 
-![Fig.1.17](/images/SarapisAmunAgathodaemon.jpg){:width="400px"}
+![Fig.1.17](/images/Sabazios_from_the_tomb_of_Alexander_IV_at_Aigai,_311_BCE.jpg){:width="400px"}
 
-Fig. 1.17 Copper statuette of the god Sarapis Amun Agathodaemon depicted as half-deity, half-snake (Egypt late Hellenistic/early Roman period 1st century BC - 1st century AD).
+Fig. 1.17 Miniature of Sabazios from the tomb of Alexander IV, son of  Alexander the Great and Roxana, at Aigai, 311 BCE. Sabazios is a Thracian deity identified with Dionysus.
 
 This is why the Romans called the Sabine priest-kings Sabi. This is why Suetonius’ claim that the Flavians were of "Sabine" origin is a cover: they were Sabi — the priests of Sabazios.
 
