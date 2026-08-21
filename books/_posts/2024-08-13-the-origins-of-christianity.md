@@ -570,9 +570,13 @@ Fig. 1.16 Miniature of Sabazios from the tomb of Alexander IV, son of  Alexander
 
 Sabazios = Saba-As = Lord (As) of the Seven Clans. The Asii were lords of a confederation of seven Aryan tribes. The main deity was Dyeus Pater and it had seven reflexes: Zeus, Jupiter, Tarhunna, Sabazios, Yahweh, Amun, Dyaus Pitar, which symbolized the seven clans. The Asii-Saka clan held the leadership title (Sabazios).
 
-Olympias, the mother of Alexander the Great, was an ardent follower of Sabazius. This gave rise to the legend that Zeus himself, in the form of a serpent, had intercourse with Olympias and that Alexander was the fruit of this relationship. Alexander presented himself as Dionysus and Dionysus is the son of Zeus (Dios (of Zeus) + nysos (son)). Sabazios depictions are also found in the Tomb of Alexander IV, Alexander's son.
+Olympias, the mother of Alexander the Great, was an ardent follower of Sabazius. This gave rise to the legend that Zeus himself, in the form of a serpent, had intercourse with Olympias and that Alexander was the fruit of this relationship. Alexander presented himself as Dionysus and Dionysus is the son of Zeus (Dios (of Zeus) + nysos (son)).
 
 Serapis was the deified Alexander the Great under the Egyptian name Osiris-Apis, and the Gospel Jesus is the Flavian-Vatican slave-morality inversion of that same Dragon-King cult — which is why Serapis already had Alexander’s face, Alexander’s hair, Alexander’s divine sonship, and Alexander’s titles centuries before the New Testament was written.
+
+Also, up until the First Council of Nicaea the title “Christ”, or “Christian”, referred to the Serapis Cult. This is proven by a letter sent by Emperor Hadrian to his brother-in-law Servianus written around 134 CE:
+
+“Those who worship Serapis are, in fact, Christians, and those who call themselves bishops of Christ are, in fact, devotees of Serapis.”. (Historia Augusta, specifically in the Life of Saturninus (8.1–8), reporting a letter of Hadrian to Servianus)
 
 ![Fig.1.17](/images/SarapisAmunAgathodaemon.jpg){:width="400px"}
 
