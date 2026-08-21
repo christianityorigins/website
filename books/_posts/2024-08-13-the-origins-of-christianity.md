@@ -582,7 +582,18 @@ Also, up until the First Council of Nicaea the title “Christ”, or “Christi
 
 Fig. 1.17 Copper statuette of the god Sarapis Amun Agathodaemon depicted as half-deity, half-snake (Egypt late Hellenistic/early Roman period 1st century BC - 1st century AD).
 
+In 84 BC, when Julius Caesar was about sixteen, the consul Lucius Cornelius Cinna nominated him for the office of Flamen Dialis, the high priest of Jupiter Optimus Maximus. Flamen Dialis = Brahmin of Dyaus. The Latin term flamen is linguistically related to Sanskrit brahman. Both derive from the Proto-Indo-European root *bhlagh-men-, meaning “priest, sacrificer, formulator of the sacred word”. The Dialis part is from Dius/Dyaus, the Sky Father. This is not a folk etymology, it is a standard Indo-European correspondence. Jupiter is Dyēus, and Sabazios is Zeus-Sabazios. 
+
+Valerius Maximus records that in 139 BCE, the Jews were expelled from Rome because they had attempted to introduce the cult of Jupiter Sabazius:
+
+"The Jews, who had attempted to infect Roman morals with the cult of Jupiter Sabazius" (Valerius Maximus, Facta et dicta memorabilia 1.3.3)
+
+This is direct evidence that Romans recognized a god called Jupiter Sabazius.
+
 This is why the Romans called the Sabine priest-kings Sabi. This is why Suetonius’ claim that the Flavians were of "Sabine" origin is a cover: they were Sabi — the priests of Sabazios.
+
+Further down the family line, King Izates of Adiabene, who carried the title Monobazus, and who was the main "Jesus" avatar in the gospels, explicitly connects to cult of Sabazios. Manu-Sabazios becomes Monobazus. Monobazus also becomes "Bazus" or "Bar Izates" shortened to "baYZTus" (or bar YZT) through frequent
+    oral repetition which then becomes "bOETHus". Monobazus = Ma'nu-Sabazios = Manu-Zeus = "Zeus-Man" or "The Divine Man". Monobazus, Menneus, and Boethus (Bo + Bazus = "Of Sabazios"). 
 
 ![Fig.1.18](/images/VespasianSerapis.png){:width="400px"}
 
