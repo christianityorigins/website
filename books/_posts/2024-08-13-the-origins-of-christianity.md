@@ -544,7 +544,7 @@ Endnotes (Chapter 3)
 
 (a) The Altai people of Siberia carry Ateas's name. The Altai people are the progenitors of the Native American people as the basal Q haplogroup traces back to them. This is not an anomaly—it is the final piece of evidence that proves the Dragon Kings were a global phenomenon, not a localized European one, and this is where the Native American terms like Aztec and Aztlán derive from. \
 
-(b) Attila the Hun carried Ateas's title. The name Attila is a diminutive of Ata (Scythian “Forefather”), the same root as Ateas and Adam. It means “Little Father” or “Son of the Dragon”. Attila was the title of the last legitimate Bosporan Emperor attempting to reclaim the Western administration from the J2/J1 papal-financier class. Attila was the same person as Priscus Attalus, the Roman usurper.
+(b) Attila the Hun carried Ateas's title. The name Attila is a diminutive of Ata (Scythian “Forefather”), the same root as Ateas and Adam. It means “Little Father” or “Son of the Dragon”. Attila was the title of the last legitimate Bosporan Emperor attempting to reclaim the Western administration from the J2/J1 papal-financier class. Attila was the same person as Priscus Attalus, the Roman usurper described as a Greek from the Roman province of Asia, and the split between “Roman senator” and “Hunnic barbarian” is a later forgery designed to hide that the fall of the western Roman court was a dynastic war among the Asii Dragon Kings. When the Flavian-Vatican court forced the Italian princess Justa Grata Honoria into a ritual marriage with Herculanus, she rejected him and sent her ring to Attila — the steppe Asii king and proposed marriage. Attila then claimed her as his bride and demanded half the Western Empire as dowry. This was the Asii queen selecting the true Dragon King over the Vatican-appointed puppet.
 
 **4 The Alexandrian School**
 
@@ -824,7 +824,7 @@ Fig. 1.27. Coin depicting Obodas II, king of the Nabataeans (modern northern Ara
 
 ![Fig.1.28](/images/ApollodotusII.jpg){:width="400px"}
 
-Fig. 1.28. Coin depicting Apollodotus (Apollodotos) II, king of Bactria (modern-day Afghanistan). He carried the title "Soter" and the Ptolemaic "Philopator". He was a descendant of Menander I, since he used their typical deity Athena Alkidemos on most of his silver. Wikipedia says that he was the son of Amyntas Nikator, but Amyntas Nikator was the son of Ptolemy XII Auletes aka Mark Antony aka Mithridates VI Eupator and his sister-wife Cleopatra V Tryphaena of Egypt, so Apollodotus was his uncle. (see: Chapter 5.3.2. Amyntas Nikator aka Amyntas, King of Galatia).
+Fig. 1.28. Coin depicting Apollodotus (Apollodotos) II, king of Bactria (modern-day Afghanistan). He carried the title "Soter" and the Ptolemaic "Philopator". Apollo is the same as Mithra, both solar deities (Apollodotus = Mithra-dāta = Mithridates?). He was a descendant of Menander I (Manu-andros = Monobazus = Ma’nu-Sabazios?), since he used their typical deity Athena Alkidemos on most of his silver. Wikipedia says that he was the son of Amyntas Nikator, but Amyntas Nikator was the son of Ptolemy XII Auletes aka Mark Antony aka Mithridates VI Eupator and his sister-wife Cleopatra V Tryphaena of Egypt, so Apollodotus was his uncle. (see: Chapter 5.3.2. Amyntas Nikator aka Amyntas, King of Galatia).
 
 ![Fig.1.29](/images/ArtavasdesII.png){:width="400px"}
 
