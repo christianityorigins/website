@@ -496,7 +496,7 @@ Fig. 1.14. Showing three generations. L. Ateas the Scythian (Ata- or Atha-, mean
     of Wilusa, a Hittite king of Wilusa (Troy) (Alaksandu = Alak-San-Du
     (Hurrian: "Ruler-Dragon-Son")), who predates Alexander by 800 years,
     proves that the name Alexander was a Scythian title for kings. In India he took the regional alias of Chandragupta Maurya
-    ("Chandragupta" = "Sander-Gupta" (Scythian "Sander" = Alexander. "Aleks" = Greekization of "Alakh" which means "not seen" or "unseen" and in Sanskrit/Hindi "Gupta" = Hidden)). Greek sources (Megasthenes) refer to Chandragupta Maurya as "Sandrokottos" with the Sandro- deriving from Alexandros. Aži-Sandar also = "Dragon King" in Mittani and Old Persian. Recorded in
+    ("Chandragupta" = "Sander-Gupta" (Scythian "Sander" = Alexander. "Aleks" = Greekization of "Alakh" which means "not seen" or "unseen" and in Sanskrit/Hindi "Gupta" = Hidden. In Egypt, Alexander was the son of Amun, whose name means “the Hidden One”.)). Greek sources (Megasthenes) refer to Chandragupta Maurya as "Sandrokottos" with the Sandro- deriving from Alexandros. Aži-Sandar also = "Dragon King" in Mittani and Old Persian. Recorded in
    the Persian 'Iskandarnameh', or 'Book of Alexander', and 'Shahnameh' and Islamic sources, is that Alexander the Great was a
     Persian prince named Bubares who was the son of Artaxerxes
     II Mnemon (Kai Bahman), half brother of "Dara" (Darius III), and that Macedon
@@ -556,13 +556,13 @@ The director of the Mouseion ("Place of the Muses") and the chief architect of t
 
 Serapis is the "God Template" for all subsequent imperial cults. The Alexandrian School was attempting to merge all local religions into a single universal system. Christianity was the final, globalized version of Serapis worship.
 
-Conventional history claims that Sarapis was created by Ptolemy I with the priest Manetho as a Greco‑Egyptian fusion deity (Osiris + Apis + Greek Hades/Zeus). This is based on Tacitus, Histories 4.83-84, Plutarch, On Isis and Osiris 28, and Clement of Alexandria, but these accounts are late. An earlier account speaking about Alexanders death by the Greek author Arrian of Nicomedia in Anabasis (7.26.2) says:
+Conventional history claims that Sarapis was created by Ptolemy I with the priest Manetho as a Greco‑Egyptian fusion deity (Osiris + Apis + Greek Hades/Zeus). This is based on Tacitus, Histories 4.83-84, Plutarch, On Isis and Osiris 28, and Clement of Alexandria, but these accounts are late, and Tacitus's works are mostly Renaissance forgeries. An earlier account speaking about Alexanders death by the Greek author Arrian of Nicomedia in Anabasis (7.26.2) says:
 
 "The Diaries say that Peitho, Attalus, Demophon, and Peucestas, together with Cleomenes, Menidas, and Seleucus, spent the night in the temple of Serapis and asked the god if it would be better for Alexander to be carried into the temple himself, in order to pray there and perhaps recover; but the god forbade it, and declared it would be better for him if he stayed where he was".
 
 This means that Serapis was worshiped during Alexanders lifetime. 
 
-The truth is that Serapis is the same as Sabazios who was the Phrygian and Thracian version of Zeus (Serapis = Osiris + Apis or Šar Apsi - King Apsu = Enki-Ea) and Alexander was Serapis in deified form.
+The truth is that Serapis is the same as Sabazios who was the Phrygian and Thracian version of Zeus (Serapis = Osiris + Apis or Šar Apsi - King Apsu = Enki-Ea) and Alexander was Serapis in deified form. Sabazios is the living aspect; Serapis is the dead aspect (Ka of Osiris as the Bull, or the resurrected form). "The Ka of Osiris" is the vital double of the dead king. Greek adds the K-prefix convention: Aesar → Kaesar → Caesar. As Flamen Dialis (Brahman of Dyeus), Asander/Julius is the priest of Jupiter, the Roman Sabazios. He became Caesar after death. This is why Caesar = Christ.
 
 ![Fig.1.16](/images/Sabazios_from_the_tomb_of_Alexander_IV_at_Aigai,_311_BCE.jpg){:width="400px"}
 
@@ -1443,7 +1443,7 @@ The "Mauryan" Empire is a Flavian/Vatican fabrication. Chandragupta Maurya is Al
 Alexander was an Aryan dragon-king who was the grandson of Ateas the Scythian aka Artaxerxes
     II Mnemon ("Kai Bahman") and half-brother of Darius III ("Darab").
     In India he took the regional aliases of Chandragupta Maurya
-    ("Chandragupta" = "Sander-Gupta" (Scythian "Sander" = Alexander. "Aleks" = Greekization of "Alakh" which means "not seen" or "unseen" in Sanskrit/Hindi. "Gupta" = Hidden)). Greek sources (Megasthenes) refer to Chandragupta Maurya as "Sandrokottos" with the Sandro- deriving from Alexandros). "Aži-ander": Aži
+    ("Chandragupta" = "Sander-Gupta" (Scythian "Sander" = Alexander. "Aleks" = Greekization of "Alakh" which means "not seen" or "unseen" in Sanskrit/Hindi. "Gupta" = Hidden. In Egypt, Alexander was the son of Amun, whose name means “the Hidden One”.)). Greek sources (Megasthenes) refer to Chandragupta Maurya as "Sandrokottos" with the Sandro- deriving from Alexandros). "Aži-ander": Aži
     (Avestan "dragon") + Andros (Greek "man") = "Dragon-Man". Ptolemy I Soter was his biological son with Barsine (Scythian priestess) and was his dragon-born
 heir, and Caesar was their bloodline successor. The Persian narrative is
 a Flavian forgery to hide their stolen legacy. Alexander conquered
