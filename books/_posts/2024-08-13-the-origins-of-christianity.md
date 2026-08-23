@@ -826,9 +826,15 @@ Fig. 1.27. Coin depicting Obodas II, king of the Nabataeans (modern northern Ara
 
 Fig. 1.28. Coin depicting Apollodotus (Apollodotos) II, king of Bactria (modern-day Afghanistan). He carried the title "Soter" and the Ptolemaic "Philopator". Apollo is the same as Mithra, both solar deities (Apollodotus = Mithra-dāta = Mithridates?). He was a descendant of Menander I (Manu-andros = Monobazus = Ma’nu-Sabazios?), since he used their typical deity Athena Alkidemos on most of his silver. Wikipedia says that he was the son of Amyntas Nikator, but Amyntas Nikator was the son of Ptolemy XII Auletes aka Mark Antony aka Mithridates VI Eupator and his sister-wife Cleopatra V Tryphaena of Egypt, so Apollodotus was his uncle. (see: Chapter 5.3.2. Amyntas Nikator aka Amyntas, King of Galatia).
 
-![Fig.1.29](/images/ArtavasdesII.png){:width="400px"}
+![Fig.1.29](/images/AntiochusICommagene.jpg){:width="400px"}
 
-Fig. 1.29. Coin depicting Gaius Julius Ariobarzanes II, king of Armenia.
+Fig. 1.29. Coin depicting Antiochus I of Commagene Soter (full title: Antiochus I Theos Dikaios Epiphanes Philorhomaios Philhellen). This avatar puts all the pieces together. Antiochus I Theos is enthroned at the the Nemrut Dağı sanctuary as Zeus-Oromasdes, Apollo-Mithras-Helios-Hermes, and Heracles-Artagnes-Ares. A single king deliberately merges Greek and Iranian gods. Antiochus I did not merely worship the gods. He placed himself seated among them. This is the Alexandrian School formula: one royal theology, translated into Greek and Iranian divine names.
+
+Antiochus is a hybrid Greek-Persian name that should be parsed as Anti-Ochus, “Like/After Ochus”, that is, continuing the line of Persian King Ochus (Artaxerxes III). He was of the Armenian Orontid dynasty who claimed lineage from the Achaemenids.
+
+He was the son of Queen Laodice VII Thea Philadelphus (Ptolemaic) who was married to Mithridates I Callinicus (Mithridatic). He also claimed to be a descendant of Alexander.
+
+Antiochus I Theos is the same as Tigranes II, king of Armenia (another Asander/Julius Caesar avatar). Ancient Commagene was a neighboring kingdom to Armenia. Tigranes II married Cleopatra the Elder, daughter of Mithridates VI Eupator. Armenian tradition explicitly associates Tigranes the Great with Azhdahak (Aži Dahāka).
 
 ![Fig.1.30](/images/GaiusAsiniusPollio.jpg){:width="400px"}
 
