@@ -37,7 +37,7 @@ Part 1: Rome Was Located On the Cimmerian Bosphorus (Crimea–Kerch) River in Cr
 2\. Name and Title Meanings\
 2.1\. The Name Jesus Christ\
 Part 2: Foundations of the Dragon Cult\
-3\. The Asii Origin\
+3\. The Asii Foundation (c. 4500 BCE – 2000 BCE)\
 Part 3: The Alexandrian Synthesis\
 4\. The Alexandrian School\
 4.1. Serapis Cult\
@@ -369,17 +369,19 @@ It is likely that all the descendants of Mark Antony aka king Herod took on this
 
 Jesus Christ then became a composite literary character based on the defeated Satrap-King Izates II of Adiabene ("Kingdom of Heaven"), and other Jesus-avatars, after the First Jewish-Roman War (66–73 CE). The Flavian Dynasty weaponized his imperial cult and created a virus within the host: a "religion" that systematically inverted the original cult by transforming the governing elite's title into the name of a sacrificial victim. Tiberius Julius Alexander aka "Josephus", who was the Flavian court historian, was the prefect of Egypt at this time and had control of the Library of Alexandria and the Alexandrian School, and with the help of Alexandrian School scribes, is likely who was responsible for creating history's most devastating psy-op—a forged testament that was later used to shatter the very empire that authored it. He was also likely the one who burned down the Library of Alexandria soon after to cover up the tracks of his conspiracy. (Ironically, Tiberius Julius Alexander aka "Josephus" was the brother of Izates II who was Marcus Julius Alexander).
 
-**3 The Asii Origin**
+**3 The Asii Foundation (c. 4500 BCE – 2000 BCE)**
 
 The Aryans were the broader confederation of Indo-Iranian clans—the horse-riding, chariot-using pastoralists who spread from the Pontic-Caspian Steppe into Europe, Anatolia, and South Asia. They were the ethnic and linguistic foundation of the ancient world. The Asii were the ruling caste. Roman historian Justin in 'Liber Historiarum Philippicarum' makes this explicit: "The Asii were the reges—the kings—of the Tochari. The Tochari and Sakaraucae were Aryan/Iranian peoples. The Asii ruled them".
 
 The Asii established a Satrapy System—a network of regional viceroys, each governing a distinct province under the suzerainty of the Steppe core. Every "ancient" civilization was a satrapy.
 
-The Asii/Asiani/Asioi and the Alani are the same people with regional names. Ptolemy (fl. 127-148 AD) records that one of the Alan tribes in the vicinity of the Don was called the Asaioi—the ancestors of the modern Ossetians (https://jis.ut.ac.ir/article_76722.html). The name Alan is an Iranian dialectal form of the Old Iranian word Aryāna, which means "Aryan". The Alans (the western branch of the Asii) were the same people carrying the same "As" title westward.
-
 The title of the supreme governor was always some variation of As-Sar ("Lord-King"), which became Asar (Egyptian Osiris), Aesar (Etruscan, meaning "God"), Kaesar (Greek rendering, later Latinized to Caesar), Kaiser, Tsar, Shah—all deriving from the same Scythian root.
 
 This was not a series of separate "ancient civilizations." It was a global empire administered through a unified linguistic, genetic, and theological framework. 
+
+The Asii Core (Pontic-Caspian Steppe)
+
+The Asii/Asiani/Asioi and the Alani are the same people with regional names. Ptolemy (fl. 127-148 AD) records that one of the Alan tribes in the vicinity of the Don was called the Asaioi—the ancestors of the modern Ossetians (https://jis.ut.ac.ir/article_76722.html). The name Alan is an Iranian dialectal form of the Old Iranian word Aryāna, which means "Aryan". The Alans (the western branch of the Asii) were the same people carrying the same "As" title westward.
 
 The Yuezhi / Tocharians (Central Asia/China)
 
@@ -387,46 +389,42 @@ Yuezhi = Asii: The Chinese "Yuezhi" is a transcription of the Scythian self-desi
  
 The Asii were also the Tocharians. Tocharian A and Tocharian B are two extinct Indo-European languages found in manuscripts from the Tarim Basin, mostly 5th–8th centuries CE, preserved by desert aridity. They were not called Tocharian by their speakers. Modern scholars named them after the Greek Tokharoi, Sanskrit Tukhāra/Tushāra, Old Persian Tuxāri- — a term that itself goes back to Tarkhu-As, “Ruler-As” (Tarkhu is the storm-god title (Hittite Tarḫunna, Etruscan Tarquin)). The speakers called themselves Ārśi (Tocharian A) which is almost certainly Arsi = Asii, and Kuśi or Kuśiññe (Tocharian B) - possibly the same root as Kushan. This is not a speculative link. It is a self-designation, written in their own language, recovered from sealed desert sites far from any Renaissance or Vatican scriptorium.
 
-Tochari	(Bactria)
+The Hyksos (Egypt)
 
-The Kushan Empire (1st-3rd c. CE) claimed descent from the Yuezhi. Their title for king was Shaonano Shao—"King of Kings"—a direct translation of the Bosporan Basileus Basileon and the Achaemenid Xšāyaθiya Xšāyaθiyānām.
+The name "Hyksos" is not a tribal name. It is a Greek rendering of the Egyptian title hekau khasut—"rulers of foreign (mountainous) lands". The Hyksos were originally called Haq-Shasu—"Princes/Rulers of the Shasu" and Shasu is a linguistic variant of Asu/As—the very root of Asii. They were "Kings of the As". The six Hyksos kings were named Salatis, Beon, Apachnas, Apophis, Jannas, and Asses, with only two not carrying the As title. The Hyksos king Apophis/Apepi (the fourth king in the list) is named after Apophis—the great serpent of chaos in Egyptian mythology.
 
-The Greek Tokharoi, Sanskrit Tukhāra/Tushāra, and Old Persian Tuxāri- all go back to Tarkhu-As, meaning "Ruler-As" (Tarkhu is the storm-god title, as in Hittite Tarḫunna, Etruscan Tarquin).
+They were Asii pharaohs who ruled Egypt during the Second Intermediate Period. They called themselves heqa khasut on their seals and a monumental doorjamb from Avaris. The pyramids were not tombs for Semitic kings; they were solar-resurrection machines—massive kurgans built to ensure the Dragon King's ascent to the heavens.
+
+The Hyksos were expelled from Egypt around 1550 BC, but they did not vanish—they retreated to their steppe heartland, where they eventually became the Mitanni, the Kassites, and later the Scythians.
+
+The Assyrian/Mitanni Kingdom (Syria/Mesopotamia)
+
+Assyria and Mitanni occupied overlapping territory. Assyria came first and then was dominated by the Mitanni. Assyria then regained its independence under the Assyrian king Ashur-uballit I, around 1365–1330 BCE.
+
+Assyrian = "Asii of the West". Assyria was centered on the city of Aššur (Ashur). The national god of Assyria was Ashur (also spelled Aššur). His name is identical to the city of Asshur, the ancient capital. An older form, A-shir, signified "leader".
+
+The Mitanni—Aryan horse lords in Syria—worshipped Vedic gods: Mitra, Varuna, Indra, and Nasatya. A Mitanni-Hittite treaty from around 1400 BC invokes these deities. The empire stretched from the Mediterranean to the Indus. These were Asii administrative arms, enforcing the center's will through a network of chariot-riding warrior elites
+
+The Kassite Dynasty (Babylon)
+
+The Kassite Dynasty (c. 1595–1155 BC) were Aryan rulers of Babylon. The Assyrians were for a period vassals of the Mitanni kings, who had Aryan names and worshipped Vedic deities.
 
 Aššuwa (Anatolia/Western Asia Minor)
 
 The Aššuwa of Hittite records are the exact same political and military entity, only located in Anatolia because the "Hittite" empire was a regional satrapy of the Asii hegemony. The name Aššuwa is simply the Hittite/Anatolian rendering of the Scythian self-designation As. The Hittite suffix -wa or -uwa is a gentilic, meaning "Land of the As" or "People of the As". It is linguistically identical in function to the Iranian suffix -ii (Asii = People of As). Thus, Aššuwa = Asii. They are the exact same ethnonym with different grammatical endings. The capital of Aššuwa was Troy. A Hittite king of Wilusa (Troy) was named Alaksandu of Wilusa and he predated Alexander the Great by 800 years proving Alexander was a title of a Asii king. When the gens Iulia claimed descent from Aeneas of Troy, they were not inventing a myth. They were preserving a dynastic memory: they were the Italian branch of the Aššuwa-Asii imperial caste. The Trojan War was not a Greek conquest. It was a civil war within the Asii confederation—the western (Achaean/Greek) Asii against the Anatolian (Trojan).
 
-The Hyksos (Egypt)
-
-The name "Hyksos" is not a tribal name. It is a Greek rendering of the Egyptian title hekau khasut—"rulers of foreign (mountainous) lands". The Hyksos were originally called Haq-Shasu—"Princes/Rulers of the Shasu" and Shasu is a linguistic variant of Asu/As—the very root of Asii. They were "Kings of the As". The six Hyksos kings were named Salatis, Beon, Apachnas, Apophis, Jannas, and Asses, with only two now carrying the As title. The Hyksos king Apophis/Apepi (the fourth king in the list) is named after Apophis—the great serpent of chaos in Egyptian mythology.
-
-They were Asii pharaohs who ruled Egypt during the Second Intermediate Period. They called themselves heqa khasut on their seals and a monumental doorjamb from Avaris. The pyramids were not tombs for Semitic kings; they were solar-resurrection machines—massive kurgans built to ensure the Dragon King's ascent to the heavens.
-
-The Hyksos were expelled from Egypt around 1550 BC, but they did not vanish—they retreated to their steppe heartland, where they eventually became the Mitanni, the Kassites, and later the Scythians.
+Hittite kings carried names such as Khata-sar, Mul-sar, Kaui-sar, and Khilip-sar. "Sar" signified 'prince'" and is the same root as the Scythian Sar ("king") and the Assyrian Šarru ("king"). The Hittite kings called themselves "Sun-gods" —a title functionally identical to the Egyptian "Son of Ra".
 
 Sargon of Akkad (Mesopotamia)
 
 Sargon of Akkad—a name that decodes to Sar-Gon ("King of the Serpent")—was an Asii viceroy. The Kassite Dynasty (c. 1595–1155 BC) were Aryan rulers of Babylon
 . The Assyrians were for a period vassals of the Mitanni kings, who had Aryan names and worshipped Vedic deities.
 
-The Mitanni Kingdom (Syria/Mesopotamia)
-
-The Mitanni—Aryan horse lords in Syria—worshipped Vedic gods: Mitra, Varuna, Indra, and Nasatya. A Mitanni-Hittite treaty from around 1400 BC invokes these deities. The empire stretched from the Mediterranean to the Indus. These were Asii administrative arms, enforcing the center's will through a network of chariot-riding warrior elites
-
 Vedic India (Indus Valley)
 
 They ruled India as the Aseni, Osii, and Asoi—the Kshatriya (Aśvaka) caste. Sanskrit texts (Pāṇini, Mahabharata, Puranas) confirm the Aśvaka, Aśvayana, and Aśvakāyana as horse-warrior clans.
 
-Ateas the Scythian (Macedon/Thrace)
-
-Ateas (c. 429 BC – 339 BC) was described in Greek and Roman sources as the most powerful king of Scythia. His name decodes as Ata-as—"Father-As" or "Forefather of the Asii"—the same root as Asander, Asinder, and Attila.
-
-Ateas was also Artaxerxes II Mnemon of Persia, Amyntas III of Macedon, Nectanebo II of Egypt, and Evagoras I of Cyprus. His "death" in battle against Philip II of Macedon (339 BC) was a succession ritual—a staged combat to transfer the "Mandate of the Dragon". Philip II was not Ateas's enemy; he was his designated successor and son.
-
-Scandinavia (The Aesir)
- 
-The religious book of Scandinavia, Prose Edda, written by Snorri Sturluson, mentions that the ancient inhabitants of Scandinavia were Asi people who came to that land from Asirgarh in 500 BCE and their leader was Odin (Proto-Germanic Wōðanaz (Wod-As)). The title "Oado" appears on Indo-Scythian coins, particularly Kanishka I. Oado is the Bactrian form of Vāta/Vāyu (both mean wind/fury). Vāta/Vāta‑deva is the Indo‑Iranian wind/fury deity. Wōðanaz (Odin) and Vāta (Oado) are dialectal pronunciations of the same PIE root. The Norse sagas claim Odin "died" and was "resurrected" as different kings. This is not mythology; it is the avatar transfer protocol.
+The Indo-Iranian word for "lord" is Asura (Vedic Sanskrit) and Ahura (Avestan).
 
 The Roxolani / Alans (Eastern Europe)
 
@@ -435,6 +433,26 @@ The Roxolani (-olani = - alani) were also a branch of the same tribe. Historian 
 Alexander's father Philip belonged to the Argead dynasty who were of Dorian Greek ancestry. The name is traditionally derived from Argos, the Peloponnesian city, but this is a Hellenized etymology designed to obscure a deeper truth. The root Arge- is cognate with Sanskrit (rajata) = "silver, shining" and the Scythian Ar-/Al- = "noble, shining" (as in Alans, Roxolani). This is the exact same semantic field as the Roxolani ("Shining Alans") and the Asii ("The Shining Lords").
 
 Alexander (Al-As-andros = the Asii Lord Man) was a member of the Roxolani tribe and when he married Roxana he was marrying a heiress to the Roxolani. Al-As-andros = As-andros = Asander. The exact same title.
+
+Tochari	(Bactria)
+
+The Kushan Empire (1st-3rd c. CE) claimed descent from the Yuezhi. Their title for king was Shaonano Shao—"King of Kings"—a direct translation of the Bosporan Basileus Basileon and the Achaemenid Xšāyaθiya Xšāyaθiyānām.
+
+The Greek Tokharoi, Sanskrit Tukhāra/Tushāra, and Old Persian Tuxāri- all go back to Tarkhu-As, meaning "Ruler-As" (Tarkhu is the storm-god title, as in Hittite Tarḫunna, Etruscan Tarquin).
+
+Strabo records four tribes that conquered Bactria: the Asioi, Pasianoi, Tochario, and Sakarauloi. The Pasianoi (also Gasiani) are the "People of the Pas" —a title that appears in the Flavian name Vespasian (Ves-Pasianus = "Lord of the Pasiani"). Armenian historical tradition later connects the Arsacid dynasty with the Kushans, and the founder of the Parthian Empire, Arsaces I, may have originated from the Gasiani tribe.
+
+Scandinavia (The Aesir)
+ 
+The religious book of Scandinavia, Prose Edda, written by Snorri Sturluson, mentions that the ancient inhabitants of Scandinavia were Asi people who came to that land from Asirgarh in 500 BCE and their leader was Odin (Proto-Germanic Wōðanaz (Wod-As)). The title "Oado" appears on Indo-Scythian coins, particularly Kanishka I. Oado is the Bactrian form of Vāta/Vāyu (both mean wind/fury). Vāta/Vāta‑deva is the Indo‑Iranian wind/fury deity. Wōðanaz (Odin) and Vāta (Oado) are dialectal pronunciations of the same PIE root. The Norse sagas claim Odin "died" and was "resurrected" as different kings. This is not mythology; it is the avatar transfer protocol.
+
+Ateas the Scythian (Macedon/Thrace)
+
+Ateas (c. 429 BC – 339 BC) was described in Greek and Roman sources as the most powerful king of Scythia. His name decodes as Ata-as—"Father-As" or "Forefather of the Asii"—the same root as Asander, Asinder, and Attila.
+
+Ateas was also Artaxerxes II Mnemon of Persia, Amyntas III of Macedon, Nectanebo II of Egypt, and Evagoras I of Cyprus. His "death" in battle against Philip II of Macedon (339 BC) was a succession ritual—a staged combat to transfer the "Mandate of the Dragon". Philip II was not Ateas's enemy; he was his designated successor and son.
+
+When arranged chronologically, the Asii satrapies reveal a continuous, unbroken chain of Dragon King rule spanning from the Bronze Age to the Iron Age, starting from the Hyksos (c. 1650–1550 BCE), the Mitanni (c. 1600–1260 BCE), the Aššuwa (c. 1430 BCE), the Kassites (c. 1595–1155 BCE), and the Tocharians/Yuezhi (c. 2000 BCE).
 
 The Asii were the zero-point of history. They are the foundation of human civilization—the administrative caste that built the pyramids, invented the chariot, named the continents, and ruled the world from the Pontic-Caspian Steppe. Every royal title with As-, every god with As- , every place with As- , every word for being and bone in the Indo-European family, is a fossil of their administration. They were the Egyptian-Persian-Indian-Greek-Roman elite. The Flavian-Vatican-Jesuit forgery was designed to destroy this memory and replace it with a fragmented, inverted history.
 
@@ -657,7 +675,7 @@ Every cult spun from the Alexandrian School and Serapis contains the same four c
 
 The template is unmistakable: born in a cave (Jesus was born in a cave. Dionysus was born in a cave. Zeus was born in a cave. Sabazius (Serapis) was born in a cave), virgin birth (Dionysus from Zeus's thigh, Buddha from Maya's side, Horus from Isis), divine sacrifice and resurrection (Osiris dismembered and revived, Attis castrated and reborn, Mithras slain and ascending), and twelve disciples or companions (Mithras with twelve zodiac aides, Dionysus with twelve Maenads, Jesus with twelve Apostles). Each motif is a modular piece of the Serapic template, swapped into regional cults to precondition populations for the final merger under Christianity.
 
-Previous to Serapsis the first universal religion that the Alexandrian School tried to push was the "Ptolemaic cult of Alexander the Great". They probably realized quickly that a religion about "The Divine Alexander" dies with Alexander so they switched to his deified form ("Sarapis") instead. This way that name became a placeholder that kings inherited. This role could switch between generations, and this is why they didn't directly deify themselves. The population knew the god-king was the earthly agent of whatever deity they worshiped.
+Previous to Serapsis the first universal religion that the Alexandrian School tried to push was the "Ptolemaic Cult of Alexander the Great". They probably realized quickly that a religion about "The Divine Alexander" dies with Alexander so they switched to his deified form ("Sarapis") instead. This way that name became a placeholder that kings inherited. This role could switch between generations, and this is why they didn't directly deify themselves. The population knew the god-king was the earthly agent of whatever deity they worshiped.
 
 **4.2 Judaism** 
 
