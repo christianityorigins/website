@@ -131,7 +131,7 @@ etc., were all at one point under the suzerainty of Aryan Iranian-Scythian elite
 
 -   The As- root in Asii means lord/god/serpent (Asar, Aesar, Asa, Aesir). Iulius is the Latin fossilization of the Iranian/Tocharian tribal name Yuezhi. The Anatolian administrative faction of the Asii were the "Aššuwa" and their capital was Troy. Iulius = "of Ilium" = "of Aššuwa" = "of the Asii". Caesar is a Latin translation of As- (Aesar in Etruscan -> Greek Kaesar -> Latin Caesar). The Asii sky-father deity was Zeus/Jupiter. The gens Iulia was not Trojan. It was the Asii royal caste transplanted to the Mediterranean. Gaius Julius Caesar was a tribal designation. Thus, the original "Jews" (Iudii) were not a Semitic people from Canaan. They were the Scythian royal and priestly caste (Asii), the R1a haplotype Asii "Dragon Kings". They ruled a vast, global empire from the Steppe. Their self-identification was Yuezhi/Asii, then Iudii which is where the title Julii/Julius originates. The Latin pronunciation of Iove is Yoh-Way, i.e., Yahweh/Yhwh. The name "Ashkenaz," a direct Hebrew rendering of the Assyrian word for Scythian, confirms that the earliest Jews were recognized as Scythians. Through the designation Khazar they were explicitly claiming descent from The Dragon Kings and Julius Caesar. Their identity was later stolen by the J1/J2 haplotyped priestly network after the "Jewish-Roman" Wars. Ancient Judaism was the Asii imperial cult.
  
--   The Flavians were the Pālava/Pahlavi clan, a junior branch of the R1a haplotype Aryan elite, and were likely intermarried with the Judeo-Anatolian J2 priesthood by Vespasian's reign. The Julio-Claudians were Asii. The "Jewish-Roman" Wars were a civil war between the Asii and the Pahlava-J1/J2 network. The Flavians were the J1/J2 enforcers. They did not create the usurpation—they were hired guns for a priestly network that had been infiltrating the Dragon King empire for centuries. The Flavians were not putting down a provincial revolt, they were putting down an R1a Scythian counter-revolt against the J1/J2 Flavian collaborators and then launched a blitzkrieg against the core Eastern administration and this destroyed the Scythian steppe hegemony. A recent study published in the Journal of Science (Ancient Rome: A genetic crossroads of Europe and the Mediterranean. https://www.science.org/doi/10.1126/science.aay6826) explicitly notes that during the Imperial period (27 BC – 300 AD), Rome experienced a massive genetic shift from local Italian (Etruscan/Latin/R1a) ancestry toward Eastern Mediterranean and Anatolian ancestry (J1/J2). The study dates this shift to exactly the Flavian period (70–100 AD). The influx of "Eastern" DNA coincides perfectly with Vespasian’s importation of 100,000+ Jews/Adiabeneans into Italy after the Jewish-Roman War. This is why the Flavian dynasty and their court historians (Josephus, Pliny, Tacitus) rewrote history to erase the Scythian origins of ancient civilizations and painted the Scythians (R1a) as monstrous foreigners. They also took their primary political enemy, King Izates II, one of the last emaining Dragon Kings, and rewrote his cult as pacifist allegory to subvert the people of his kingdom using the same Alexandian School formula they used in all their imperial cults. This became Christianity. "Flavius" (Pālava/Pahlavi) eventually became Shabbos. From Constantine to Heraklios, for 500 years nearly every single Emperor bore the Flavius (Shabbos) title. By my count, 37 Roman and Byzantine emperors bore the honorary title "Flavius", and then later, "Phlabios" (https://en.wikipedia.org/wiki/Special:MobileDiff/1062698821)
+-   The Flavians were the Pālava/Pahlavi clan, a junior branch of the R1a haplotype Aryan elite, and were likely intermarried with the Judeo-Anatolian J2 priesthood by Vespasian's reign. The Julio-Claudians were Asii. The "Jewish-Roman" Wars were a civil war between the Asii and the Pahlava-J1/J2 network. The Flavians were the J1/J2 enforcers. They did not create the usurpation—they were hired guns for a priestly network that had been infiltrating the Dragon King empire for centuries. The Flavians were not putting down a provincial revolt, they were putting down an R1a Scythian counter-revolt against the J1/J2 Flavian collaborators and then launched a blitzkrieg against the core Eastern administration and this destroyed the Scythian steppe hegemony. A recent study published in the Journal of Science (Ancient Rome: A genetic crossroads of Europe and the Mediterranean. https://www.science.org/doi/10.1126/science.aay6826) explicitly notes that during the Imperial period (27 BC – 300 AD), Rome experienced a massive genetic shift from local Italian (Etruscan/Latin/R1a) ancestry toward Eastern Mediterranean and Anatolian ancestry (J1/J2). The study dates this shift to exactly the Flavian period (70–100 AD). The influx of "Eastern" DNA coincides perfectly with Vespasian’s importation of 100,000+ Jews/Adiabeneans into Italy after the Jewish-Roman War. This is why the Flavian dynasty and their court historians (Josephus, Pliny, Tacitus) rewrote history to erase the Scythian origins of ancient civilizations and painted the Scythians (R1a) as monstrous foreigners. They also took their primary political enemy, King Izates II, one of the last remaining Dragon Kings, and rewrote his cult as pacifist allegory to subvert the people of his kingdom using the same Alexandian School formula they used in all their imperial cults. This became Christianity. "Flavius" (Pālava/Pahlavi) eventually became Shabbos. From Constantine to Heraklios, for 500 years nearly every single Emperor bore the Flavius (Shabbos) title. By my count, 37 Roman and Byzantine emperors bore the honorary title "Flavius", and then later, "Phlabios" (https://en.wikipedia.org/wiki/Special:MobileDiff/1062698821)
 
 -   The Roman Empire in Italy is largely a phantom empire that did not conquer the kingdoms of the East. Western Rome is a Medici-Vatican fabrication to claim Byzantine history and works as their own after the fall of Constantinople. The Bosphoran royal house originally created Western Rome as a military garrison. The original Rome (in Sarmatian, "Ruma" (Rome) = "Place of the Dragon" (Rhu-Ma, from Aži Dahāka, the Iranian dragon)) was located on the Bosphorus river which approximately corresponds to modern-day Crimea in southern Ukraine. Constantinople (which at the time was called ‘Basileía tôn Rhômaíôn’, or ‘Kingdom of the Romans’) was the seat of the global empire after moving from the Cimmerian Bosphorus (Crimea–Kerch) River in Crimea. The story that Constantine moved the capital of Rome to Constantinople is a total fabrication. The capital was always in the east.
 
@@ -373,17 +373,62 @@ Jesus Christ then became a composite literary character based on the defeated Sa
 
 The Aryans were the broader confederation of Indo-Iranian clans—the horse-riding, chariot-using pastoralists who spread from the Pontic-Caspian Steppe into Europe, Anatolia, and South Asia. They were the ethnic and linguistic foundation of the ancient world. The Asii were the ruling caste. Roman historian Justin in 'Liber Historiarum Philippicarum' makes this explicit: "The Asii were the reges—the kings—of the Tochari. The Tochari and Sakaraucae were Aryan/Iranian peoples. The Asii ruled them".
 
+The Asii established a Satrapy System—a network of regional viceroys, each governing a distinct province under the suzerainty of the Steppe core. Every "ancient" civilization was a satrapy.
+
 The Asii/Asiani/Asioi and the Alani are the same people with regional names. Ptolemy (fl. 127-148 AD) records that one of the Alan tribes in the vicinity of the Don was called the Asaioi—the ancestors of the modern Ossetians (https://jis.ut.ac.ir/article_76722.html). The name Alan is an Iranian dialectal form of the Old Iranian word Aryāna, which means "Aryan". The Alans (the western branch of the Asii) were the same people carrying the same "As" title westward.
 
+The title of the supreme governor was always some variation of As-Sar ("Lord-King"), which became Asar (Egyptian Osiris), Aesar (Etruscan, meaning "God"), Kaesar (Greek rendering, later Latinized to Caesar), Kaiser, Tsar, Shah—all deriving from the same Scythian root.
+
+This was not a series of separate "ancient civilizations." It was a global empire administered through a unified linguistic, genetic, and theological framework. 
+
+The Yuezhi / Tocharians (Central Asia/China)
+
+Yuezhi = Asii: The Chinese "Yuezhi" is a transcription of the Scythian self-designation "Asii" or "Asiani". Asii → Iulii: The "As" root, meaning "lord", is the core. When the Asii migrated westward, the name was rendered in Latin as "Iulii"—the people of the "As" lords. Iulii → Julius: The name "Iulius" is simply the Latin rendering of the same root.
+ 
 The Asii were also the Tocharians. Tocharian A and Tocharian B are two extinct Indo-European languages found in manuscripts from the Tarim Basin, mostly 5th–8th centuries CE, preserved by desert aridity. They were not called Tocharian by their speakers. Modern scholars named them after the Greek Tokharoi, Sanskrit Tukhāra/Tushāra, Old Persian Tuxāri- — a term that itself goes back to Tarkhu-As, “Ruler-As” (Tarkhu is the storm-god title (Hittite Tarḫunna, Etruscan Tarquin)). The speakers called themselves Ārśi (Tocharian A) which is almost certainly Arsi = Asii, and Kuśi or Kuśiññe (Tocharian B) - possibly the same root as Kushan. This is not a speculative link. It is a self-designation, written in their own language, recovered from sealed desert sites far from any Renaissance or Vatican scriptorium.
+
+Tochari	(Bactria)
+
+The Kushan Empire (1st-3rd c. CE) claimed descent from the Yuezhi. Their title for king was Shaonano Shao—"King of Kings"—a direct translation of the Bosporan Basileus Basileon and the Achaemenid Xšāyaθiya Xšāyaθiyānām.
+
+The Greek Tokharoi, Sanskrit Tukhāra/Tushāra, and Old Persian Tuxāri- all go back to Tarkhu-As, meaning "Ruler-As" (Tarkhu is the storm-god title, as in Hittite Tarḫunna, Etruscan Tarquin).
+
+Aššuwa (Anatolia/Western Asia Minor)
 
 The Aššuwa of Hittite records are the exact same political and military entity, only located in Anatolia because the "Hittite" empire was a regional satrapy of the Asii hegemony. The name Aššuwa is simply the Hittite/Anatolian rendering of the Scythian self-designation As. The Hittite suffix -wa or -uwa is a gentilic, meaning "Land of the As" or "People of the As". It is linguistically identical in function to the Iranian suffix -ii (Asii = People of As). Thus, Aššuwa = Asii. They are the exact same ethnonym with different grammatical endings. The capital of Aššuwa was Troy. A Hittite king of Wilusa (Troy) was named Alaksandu of Wilusa and he predated Alexander the Great by 800 years proving Alexander was a title of a Asii king. When the gens Iulia claimed descent from Aeneas of Troy, they were not inventing a myth. They were preserving a dynastic memory: they were the Italian branch of the Aššuwa-Asii imperial caste. The Trojan War was not a Greek conquest. It was a civil war within the Asii confederation—the western (Achaean/Greek) Asii against the Anatolian (Trojan).
 
-Yuezhi = Asii: The Chinese "Yuezhi" is a transcription of the Scythian self-designation "Asii" or "Asiani". Asii → Iulii: The "As" root, meaning "lord", is the core. When the Asii migrated westward, the name was rendered in Latin as "Iulii"—the people of the "As" lords. Iulii → Julius: The name "Iulius" is simply the Latin rendering of the same root.
+The Hyksos (Egypt)
+
+The name "Hyksos" is not a tribal name. It is a Greek rendering of the Egyptian title hekau khasut—"rulers of foreign (mountainous) lands". The Hyksos were originally called Haq-Shasu—"Princes/Rulers of the Shasu" and Shasu is a linguistic variant of Asu/As—the very root of Asii. They were "Kings of the As". The six Hyksos kings were named Salatis, Beon, Apachnas, Apophis, Jannas, and Asses, with only two now carrying the As title. The Hyksos king Apophis/Apepi (the fourth king in the list) is named after Apophis—the great serpent of chaos in Egyptian mythology.
+
+They were Asii pharaohs who ruled Egypt during the Second Intermediate Period. They called themselves heqa khasut on their seals and a monumental doorjamb from Avaris. The pyramids were not tombs for Semitic kings; they were solar-resurrection machines—massive kurgans built to ensure the Dragon King's ascent to the heavens.
+
+The Hyksos were expelled from Egypt around 1550 BC, but they did not vanish—they retreated to their steppe heartland, where they eventually became the Mitanni, the Kassites, and later the Scythians.
+
+Sargon of Akkad (Mesopotamia)
+
+Sargon of Akkad—a name that decodes to Sar-Gon ("King of the Serpent")—was an Asii viceroy. The Kassite Dynasty (c. 1595–1155 BC) were Aryan rulers of Babylon
+. The Assyrians were for a period vassals of the Mitanni kings, who had Aryan names and worshipped Vedic deities.
+
+The Mitanni Kingdom (Syria/Mesopotamia)
+
+The Mitanni—Aryan horse lords in Syria—worshipped Vedic gods: Mitra, Varuna, Indra, and Nasatya. A Mitanni-Hittite treaty from around 1400 BC invokes these deities. The empire stretched from the Mediterranean to the Indus. These were Asii administrative arms, enforcing the center's will through a network of chariot-riding warrior elites
+
+Vedic India (Indus Valley)
 
 They ruled India as the Aseni, Osii, and Asoi—the Kshatriya (Aśvaka) caste. Sanskrit texts (Pāṇini, Mahabharata, Puranas) confirm the Aśvaka, Aśvayana, and Aśvakāyana as horse-warrior clans.
 
+Ateas the Scythian (Macedon/Thrace)
+
+Ateas (c. 429 BC – 339 BC) was described in Greek and Roman sources as the most powerful king of Scythia. His name decodes as Ata-as—"Father-As" or "Forefather of the Asii"—the same root as Asander, Asinder, and Attila.
+
+Ateas was also Artaxerxes II Mnemon of Persia, Amyntas III of Macedon, Nectanebo II of Egypt, and Evagoras I of Cyprus. His "death" in battle against Philip II of Macedon (339 BC) was a succession ritual—a staged combat to transfer the "Mandate of the Dragon". Philip II was not Ateas's enemy; he was his designated successor and son.
+
+Scandinavia (The Aesir)
+ 
 The religious book of Scandinavia, Prose Edda, written by Snorri Sturluson, mentions that the ancient inhabitants of Scandinavia were Asi people who came to that land from Asirgarh in 500 BCE and their leader was Odin (Proto-Germanic Wōðanaz (Wod-As)). The title "Oado" appears on Indo-Scythian coins, particularly Kanishka I. Oado is the Bactrian form of Vāta/Vāyu (both mean wind/fury). Vāta/Vāta‑deva is the Indo‑Iranian wind/fury deity. Wōðanaz (Odin) and Vāta (Oado) are dialectal pronunciations of the same PIE root. The Norse sagas claim Odin "died" and was "resurrected" as different kings. This is not mythology; it is the avatar transfer protocol.
+
+The Roxolani / Alans (Eastern Europe)
 
 The Roxolani (-olani = - alani) were also a branch of the same tribe. Historian George Vernadsky suggested that the name Rocas (a tribe conquered by the Ostrogoths in the 4th century) may be a corruption of Ruxs-As—"Light-Asii". The Rosomoni, mentioned by Roman historian Jordanes, may also be related, interpreted as the "Ros Men". The name "Rus" is not a Viking invention. It is the Asii self-designation—the "Shining Asii" who later gave their name to the Russians. The Roxolani are the bridge between the ancient Asii and the modern Russian people.
 
@@ -438,6 +483,7 @@ Haplogroup R1a-Z93 is the genetic signature of the Asii administrative and pries
   - Scythian remains (Pontic-Caspian Steppe)
   - Indian Kshatriya and Brahmin castes
   - Persian nobility
+  - The Mitanni elite, who ruled a predominantly Hurrian population.
   - Roman patrician families (before Flavian replacement)
   - Herodian and Pharisaic dynasties in Judea
   - Tarim Mummies (China)
