@@ -39,6 +39,18 @@ Published by Heretical Books
 **Part 2: The Asii Foundation & Satrapy System**
 
 2: The Asii Foundation (c. 4500 BCE – 2000 BCE)\
+2.1 The Asii Core (Pontic-Caspian Steppe)\
+2.2 The Hyksos (Egypt)\
+2.3 The Assyrian/Mitanni Kingdom (Syria/Mesopotamia)\
+2.4 The Kassite Dynasty (Babylon)\
+2.5 Aššuwa (Anatolia/Western Asia Minor)\
+2.6 Sargon of Akkad (Mesopotamia)\
+2.7 Vedic India (Indus Valley)\
+2.8 The Roxolani / Alans (Eastern Europe)\
+2.9 Tochari (Bactria)\
+2.10 Scandinavia (The Aesir)\
+2.11 Ateas the Scythian (Macedon/Thrace)\
+2.12 The Asii Global Lexicon (Proving their Reach)\
 3: Timeline: The Proto-Indo-European (Aryan) Hegemony\
 4: Key Historical Figures & Their Aliases\
 4.1 The Primordial Patriarch: Ateas the Scythian\
@@ -49,7 +61,7 @@ Published by Heretical Books
 
 **Part 3: The Alexandrian Synthesis**
 
-7: The Alexandrian School
+7: The Alexandrian School\
 7.1 Serapis Cult\
 7.2 Religion as an Operating System for the Ancient World\
 7.3 Judaism\
@@ -322,7 +334,7 @@ Role: The conquered, absorbed, or eradicated populations over whom the Farmers f
 
 ## Chapter 2: The Asii Foundation (c. 4500 BCE – 2000 BCE)
 
-### 2.1 The Asii Foundation (c. 4500 BCE – 2000 BCE)
+### 2 The Asii Foundation (c. 4500 BCE – 2000 BCE)
 
 The eastern branch of the Yamnaya, which migrated into the Volga-Ural region, became predominantly R1a-Z93. The western branch was Corded Ware culture (c. 3000–2350 BCE) who emerged in Central Europe (modern Germany, Poland, Czechia) as a result of a massive Yamnaya migration westward. Genetically, Corded Ware populations are ~75% Yamnaya steppe ancestry. The Indo-European languages (Latin, Greek, Sanskrit, Persian) are all siblings descended from Yamnaya Proto-Indo-European languages. 
 
@@ -334,17 +346,17 @@ The title of the supreme governor was always some variation of As-Sar ("Lord-Kin
 
 This was not a series of separate "ancient civilizations." It was a global empire administered through a unified linguistic, genetic, and theological framework. 
 
-**The Asii Core (Pontic-Caspian Steppe)**
+**2.1 The Asii Core (Pontic-Caspian Steppe)**
 
 The Asii/Asiani/Asioi and the Alani are the same people with regional names. Ptolemy (fl. 127-148 AD) records that one of the Alan tribes in the vicinity of the Don was called the Asaioi—the ancestors of the modern Ossetians (https://jis.ut.ac.ir/article_76722.html). The name Alan is an Iranian dialectal form of the Old Iranian word Aryāna, which means "Aryan". The Alans (the western branch of the Asii) were the same people carrying the same "As" title westward.
 
-**The Yuezhi / Tocharians (Central Asia/China)**
+**2.2 The Yuezhi / Tocharians (Central Asia/China)**
 
 Yuezhi = Asii: The Chinese "Yuezhi" is a transcription of the Scythian self-designation "Asii" or "Asiani". Asii → Iulii: The "As" root, meaning "lord", is the core. When the Asii migrated westward, the name was rendered in Latin as "Iulii"—the people of the "As" lords. Iulii → Julius: The name "Iulius" is simply the Latin rendering of the same root.
 
 The Asii were also the Tocharians. Tocharian A and Tocharian B are two extinct Indo-European languages found in manuscripts from the Tarim Basin, mostly 5th–8th centuries CE, preserved by desert aridity. They were not called Tocharian by their speakers. Modern scholars named them after the Greek Tokharoi, Sanskrit Tukhāra/Tushāra, Old Persian Tuxāri- — a term that itself goes back to Tarkhu-As, "Ruler-As" (Tarkhu is the storm-god title (Hittite Tarḫunna, Etruscan Tarquin)). The speakers called themselves Ārśi (Tocharian A) which is almost certainly Arsi = Asii, and Kuśi or Kuśiññe (Tocharian B) - possibly the same root as Kushan. This is not a speculative link. It is a self-designation, written in their own language, recovered from sealed desert sites far from any Renaissance or Vatican scriptorium.
 
-**The Hyksos (Egypt)**
+**2.3 The Hyksos (Egypt)**
 
 The name "Hyksos" is not a tribal name. It is a Greek rendering of the Egyptian title hekau khasut—"rulers of foreign (mountainous) lands". The Hyksos were originally called Haq-Shasu—"Princes/Rulers of the Shasu" and Shasu is a linguistic variant of Asu/As—the very root of Asii. They were "Kings of the As". The six Hyksos kings were named Salatis, Beon, Apachnas, Apophis, Jannas, and Asses, with only two not carrying the As title. The Hyksos king Apophis/Apepi (the fourth king in the list) is named after Apophis—the great serpent of chaos in Egyptian mythology.
 
@@ -352,7 +364,7 @@ They were Asii pharaohs who ruled Egypt during the Second Intermediate Period. T
 
 The Hyksos were expelled from Egypt around 1550 BC, but they did not vanish—they retreated to their steppe heartland, where they eventually became the Mitanni, the Kassites, and later the Scythians.
 
-**The Assyrian/Mitanni Kingdom (Syria/Mesopotamia)**
+**2.4 The Assyrian/Mitanni Kingdom (Syria/Mesopotamia)**
 
 Assyria and Mitanni occupied overlapping territory. Assyria came first and then was dominated by the Mitanni. Assyria then regained its independence under the Assyrian king Ashur-uballit I, around 1365–1330 BCE.
 
@@ -360,27 +372,27 @@ Assyrian = "Asii of the West". Assyria was centered on the city of Aššur (Ashu
 
 The Mitanni—Aryan horse lords in Syria—worshipped Vedic gods: Mitra, Varuna, Indra, and Nasatya. A Mitanni-Hittite treaty from around 1400 BC invokes these deities. The empire stretched from the Mediterranean to the Indus. These were Asii administrative arms, enforcing the center's will through a network of chariot-riding warrior elites.
 
-**The Kassite Dynasty (Babylon)**
+**2.5 The Kassite Dynasty (Babylon)**
 
 The Kassite Dynasty (c. 1595–1155 BC) were Aryan rulers of Babylon. The Assyrians were for a period vassals of the Mitanni kings, who had Aryan names and worshipped Vedic deities.
 
-**Aššuwa (Anatolia/Western Asia Minor)**
+**2.6 Aššuwa (Anatolia/Western Asia Minor)**
 
 The Aššuwa of Hittite records are the exact same political and military entity, only located in Anatolia because the "Hittite" empire was a regional satrapy of the Asii hegemony. The name Aššuwa is simply the Hittite/Anatolian rendering of the Scythian self-designation As. The Hittite suffix -wa or -uwa is a gentilic, meaning "Land of the As" or "People of the As". It is linguistically identical in function to the Iranian suffix -ii (Asii = People of As). Thus, Aššuwa = Asii. They are the exact same ethnonym with different grammatical endings. The capital of Aššuwa was Troy. A Hittite king of Wilusa (Troy) was named Alaksandu of Wilusa and he predated Alexander the Great by 800 years proving Alexander was a title of a Asii king. When the gens Iulia claimed descent from Aeneas of Troy, they were not inventing a myth. They were preserving a dynastic memory: they were the Italian branch of the Aššuwa-Asii imperial caste. The Trojan War was not a Greek conquest. It was a civil war within the Asii confederation—the western (Achaean/Greek) Asii against the Anatolian (Trojan).
 
 Hittite kings carried names such as Khata-sar, Mul-sar, Kaui-sar, and Khilip-sar. "Sar" signified 'prince'" and is the same root as the Scythian Sar ("king") and the Assyrian Šarru ("king"). The Hittite kings called themselves "Sun-gods" —a title functionally identical to the Egyptian "Son of Ra".
 
-**Sargon of Akkad (Mesopotamia)**
+**2.7 Sargon of Akkad (Mesopotamia)**
 
 Sargon of Akkad—a name that decodes to Sar-Gon ("King of the Serpent")—was an Asii viceroy. The Kassite Dynasty (c. 1595–1155 BC) were Aryan rulers of Babylon. The Assyrians were for a period vassals of the Mitanni kings, who had Aryan names and worshipped Vedic deities.
 
-**Vedic India (Indus Valley)**
+**2.8 Vedic India (Indus Valley)**
 
 They ruled India as the Aseni, Osii, and Asoi—the Kshatriya (Aśvaka) caste. Sanskrit texts (Pāṇini, Mahabharata, Puranas) confirm the Aśvaka, Aśvayana, and Aśvakāyana as horse-warrior clans.
 
 The Indo-Iranian word for "lord" is Asura (Vedic Sanskrit) and Ahura (Avestan).
 
-**The Roxolani / Alans (Eastern Europe)**
+**2.9 The Roxolani / Alans (Eastern Europe)**
 
 The Roxolani (-olani = - alani) were also a branch of the same tribe. Historian George Vernadsky suggested that the name Rocas (a tribe conquered by the Ostrogoths in the 4th century) may be a corruption of Ruxs-As—"Light-Asii". The Rosomoni, mentioned by Roman historian Jordanes, may also be related, interpreted as the "Ros Men". The name "Rus" is not a Viking invention. It is the Asii self-designation—the "Shining Asii" who later gave their name to the Russians. The Roxolani are the bridge between the ancient Asii and the modern Russian people.
 
@@ -388,7 +400,7 @@ Alexander's father Philip belonged to the Argead dynasty who were of Dorian Gree
 
 Alexander (Al-As-andros = the Asii Lord Man) was a member of the Roxolani tribe and when he married Roxana he was marrying a heiress to the Roxolani. Al-As-andros = As-andros = Asander. The exact same title.
 
-**Tochari (Bactria)**
+**2.10 Tochari (Bactria)**
 
 The Kushan Empire (1st-3rd c. CE) claimed descent from the Yuezhi. Their title for king was Shaonano Shao—"King of Kings"—a direct translation of the Bosporan Basileus Basileon and the Achaemenid Xšāyaθiya Xšāyaθiyānām.
 
@@ -396,11 +408,11 @@ The Greek Tokharoi, Sanskrit Tukhāra/Tushāra, and Old Persian Tuxāri- all go 
 
 Strabo records four tribes that conquered Bactria: the Asioi, Pasianoi, Tochario, and Sakarauloi. The Pasianoi (also Gasiani) are the "People of the Pas" —a title that appears in the Flavian name Vespasian (Ves-Pasianus = "Lord of the Pasiani"). Armenian historical tradition later connects the Arsacid dynasty with the Kushans, and the founder of the Parthian Empire, Arsaces I, may have originated from the Gasiani tribe.
 
-**Scandinavia (The Aesir)**
+**2.11 Scandinavia (The Aesir)**
 
 The religious book of Scandinavia, Prose Edda, written by Snorri Sturluson, mentions that the ancient inhabitants of Scandinavia were Asi people who came to that land from Asirgarh in 500 BCE and their leader was Odin (Proto-Germanic Wōðanaz (Wod-As)). The title "Oado" appears on Indo-Scythian coins, particularly Kanishka I. Oado is the Bactrian form of Vāta/Vāyu (both mean wind/fury). Vāta/Vāta‑deva is the Indo‑Iranian wind/fury deity. Wōðanaz (Odin) and Vāta (Oado) are dialectal pronunciations of the same PIE root. The Norse sagas claim Odin "died" and was "resurrected" as different kings. This is not mythology; it is the avatar transfer protocol.
 
-**Ateas the Scythian (Macedon/Thrace)**
+**2.12 Ateas the Scythian (Macedon/Thrace)**
 
 Ateas (c. 429 BC – 339 BC) was described in Greek and Roman sources as the most powerful king of Scythia. His name decodes as Ata-as—"Father-As" or "Forefather of the Asii"—the same root as Asander, Asinder, and Attila.
 
@@ -410,7 +422,7 @@ When arranged chronologically, the Asii satrapies reveal a continuous, unbroken 
 
 The Asii were the zero-point of history. They are the foundation of human civilization—the administrative caste that built the pyramids, invented the chariot, named the continents, and ruled the world from the Pontic-Caspian Steppe. Every royal title with As-, every god with As- , every place with As- , every word for being and bone in the Indo-European family, is a fossil of their administration. They were the Egyptian-Persian-Indian-Greek-Roman elite. The Flavian-Vatican-Jesuit forgery was designed to destroy this memory and replace it with a fragmented, inverted history.
 
-**The Asii Global Lexicon (Proving their Reach).**
+**2.13 The Asii Global Lexicon (Proving their Reach).**
 
 | Name/Title | Decoding | Location/Function |
 |---|---|---|
@@ -491,17 +503,14 @@ Fig. 1.1. Showing three generations. L. Ateas the Scythian (Ata- or Atha-, meani
 He was also:
 
 - Artaxerxes II Mnemon (Persia). Also called Arsaces or Arsikas. This is significant because "Arsaces" became the dynastic name for all Parthian kings. The Scythian root Ar-, meaning "Aryan" or "Noble", combined with -sak-, for "Saka" (Scythian). The root "At" or "Ata" appears across Indo-European and neighboring languages, consistently meaning "father" or "ancestor": Scythian/Iranian Ata = father, ancestor. Turkic: Ata = father (as in the modern Turkish word). Sanskrit: Ati = primordial, first. Tocharian: At = father, ancestor. The root xšāya- is the same as the Scythian Xšaθra, which connects to "Christ" and "Satrap".
-  - Amyntas III (Macedonia). Amyntas III's father was named Arrhidaeus. Arrhidaeus = Ar-ratha-As, the same as Arsaces = Ar-saka-As. The endings differ, but the root is identical: Ar + sacred title + As. Both mean “Aryan Saka/Chariot Lord”. This proves that the Macedonian Argead dynasty and the Parthian Arsacid dynasty were branches of the same Asii-Scythian ruling caste. This also connects to the Egyptian Amun (the "Hidden One") and the Sanskrit Am (power, strength).
-  - Nectanebo II (Egypt)
-  - Evagoras I (Cyprus)
-  - Orontes / Yervand (Armenia). Name decodes as "Great"/"Forefather".
-  - Amyntas III (Macedonia).Amyntas III's father was named Arrhidaeus. Arrhidaeus = Ar-ratha-As, the same as Arsaces = Ar-saka-As. The endings differ, but the root is identical: Ar + sacred title + As. Both mean “Aryan Saka/Chariot Lord”. This proves that the Macedonian Argead dynasty and the Parthian Arsacid dynasty were branches of the same Asii-Scythian ruling caste. This also connects to the Egyptian Amun (the "Hidden One") and the Sanskrit Am (power, strength).
-  - Nectanebo II (Egypt)
-  - Evagoras I (Cyprus)
-  - Orontes / Yervand (Armenia). Name decodes as "Great" / "Forefather".
+- Amyntas III (Macedonia). Amyntas III's father was named Arrhidaeus. Arrhidaeus = Ar-ratha-As, the same as Arsaces = Ar-saka-As. The endings differ, but the root is identical: Ar + sacred title + As. Both mean “Aryan Saka/Chariot Lord”. This proves that the Macedonian Argead dynasty and the Parthian Arsacid dynasty were branches of the same Asii-Scythian ruling caste. This also connects to the Egyptian Amun (the "Hidden One") and the Sanskrit Am (power, strength).
+- Nectanebo II (Egypt)
+- Evagoras I (Cyprus)
+- Orontes / Yervand (Armenia). Name decodes as "Great"/"Forefather".
 
-- c. 356 BC: Son was Philip II of Macedon. Philip was a title (Philippos (Lover of Horses) is a direct Greek translation of the Scythian royal title Pharnavaz (Horse-Lord) which is similar to the Roman title "Master of the Horse" https://en.wikipedia.org/wiki/Master_of_the_Horse which was a title that Mark Antony held. It basically means "the cavalry commander"). Philip II's grandfather was named Arrhidaeus. Arrhidaeus can be decoded  as Ar- = "Shining, Noble" (the same root as Argead and Aryan), and -rhidaeus = A variant of the Scythian/Iranian root -ratha- (chariot) or -rathae (charioteer). This is the exact same title as Pharnavaz and Philip.\
--Grandson: Alexander the Great: Alexander was his title. "Aži-ander" = Aži
+Son: Philip II of Macedon. Philip was a title (Philippos (Lover of Horses) is a direct Greek translation of the Scythian royal title Pharnavaz (Horse-Lord) which is similar to the Roman title "Master of the Horse" https://en.wikipedia.org/wiki/Master_of_the_Horse which was a title that Mark Antony held. It basically means "the cavalry commander"). Philip II's grandfather was named Arrhidaeus. Arrhidaeus can be decoded  as Ar- = "Shining, Noble" (the same root as Argead and Aryan), and -rhidaeus = A variant of the Scythian/Iranian root -ratha- (chariot) or -rathae (charioteer). This is the exact same title as Pharnavaz and Philip.\
+
+Grandson: Alexander the Great: Alexander was his title. "Aži-ander" = Aži
     (Avestan "dragon") + Andros (Greek "man") = "Dragon-Man", the same as Akrosander/Akrosas. Alaksandu
     of Wilusa, a Hittite king of Wilusa (Troy) (Alaksandu = Alak-San-Du
     (Hurrian: "Ruler-Dragon-Son")), who predates Alexander by 800 years,
@@ -519,9 +528,10 @@ He was also:
     regional alias of Chandragupta. Alexander's mother Olympias (Ol or ophis + Pias = "serpent queen"), who was a Scythian princess of the
     Molossian tribe (her grandfather (or great-grandfather) was Tharrhypas, King of the Molossians. Tharrhypas was also rendered as Arrybas, Arybas, Arybbas: Ar- (Aryan/Noble) + -ybas (a variant of hypas, "lord" or "chief")), claimed to have been impregnated by the god Zeus
     Ammon disguised as a serpent. Alexander's fathers name Philip was a title (Philippos (Lover of Horses) is a direct Greek translation of the Scythian royal title Pharnavaz (Horse-Lord)). Alexander also married the Scythian princess Roxana. Alexander's campaign was not a conquest, it was a Scythian restoration. The Achaemenid Persians (Achaemenes is likely Akh-Manesh or "Spirit of Manu", linking to the Vedic sage-king) were a rival Scythian clan (the "Ariya" - Aryans). Alexander was re-establishing the older, purer Scythian hegemony of the Medes and the pre-Zoroastrian Mitanni. In the Old Testament he was Solomon (Sol-Amūn or "Sun of Amun") which is a direct parallel to "Zeus-Ammon", a title he carried. He was also Qin Shi Huang in China. The "King of Kings" and "King of the World" titles Alexander and Cyrus used were literal. They were kings of a global empire.\
--Grandson: "Dara" (Darius III) aka Seleucus I Nicator who inherited the vital Eastern territories (Asia). His "father" is listed as Antiochus (of Macedon) and presumed to have been a commoner. The name Antiochus curiously has no definition in Greek, however when viewed as a hybrid Greek-Persian name the meaning is obvious. Antiochus should be parsed as Anti-Ochus, “Like/After Ochus”, that is, continuing the line of Persian Great King Ochus (Artaxerxes III). Ochus, in addition to his ill-fated successor Artaxerxes IV, had many other children. And Artaxerxes IV, although not surviving long as Great King, had many children of his own. Anti-Ochus/Antiochus therefore emerges as a princely son or grandson of Artaxerxes III. (Darius III took on the name Ochus and also had a son by Queen Statiera named Ochus). The name Seleucus (Greek Seleukos), like that of his father Antiochus, has no certain meaning in Greek. (However, compare Greek leukos meaning “white”, and the kingly Roman name of Lucius.) As with the name Antiochus, we must expect some kind of hybrid definition that incorporated a Persian or Eastern element. There is certainly an echo of Seleukos in the later dynastic name Seljuk(os), associated with a people brought from the direction of China to dominate the West. He was Li Si in China who was the advisor to Qin Shi Huang (Alexander) founder of the Qin Dynasty.  \
--Grandson: Ptolemy I Soter was another grandson of Ateas/Amyntas III/Artaxerxes who received Egypt.\
--305-30 BC: The Ptolemaic Synthesis in Egypt. Following Alexander's "resurrection" as Chandragupta in the East, his bloodline consolidated its rule in the West. Ptolemy I Soter, a fellow Scythian noble and likely Alexander's half-brother, took the Egyptian satrapy. The Ptolemaic Dynasty was not a new Greek ruling class, but the continuation of the Akrosander bloodline using Egypt as its new imperial ba
+
+Grandson: "Dara" (Darius III) aka Seleucus I Nicator who inherited the vital Eastern territories (Asia). His "father" is listed as Antiochus (of Macedon) and presumed to have been a commoner. The name Antiochus curiously has no definition in Greek, however when viewed as a hybrid Greek-Persian name the meaning is obvious. Antiochus should be parsed as Anti-Ochus, “Like/After Ochus”, that is, continuing the line of Persian Great King Ochus (Artaxerxes III). Ochus, in addition to his ill-fated successor Artaxerxes IV, had many other children. And Artaxerxes IV, although not surviving long as Great King, had many children of his own. Anti-Ochus/Antiochus therefore emerges as a princely son or grandson of Artaxerxes III. (Darius III took on the name Ochus and also had a son by Queen Statiera named Ochus). The name Seleucus (Greek Seleukos), like that of his father Antiochus, has no certain meaning in Greek. (However, compare Greek leukos meaning “white”, and the kingly Roman name of Lucius.) As with the name Antiochus, we must expect some kind of hybrid definition that incorporated a Persian or Eastern element. There is certainly an echo of Seleukos in the later dynastic name Seljuk(os), associated with a people brought from the direction of China to dominate the West. He was Li Si in China who was the advisor to Qin Shi Huang (Alexander) founder of the Qin Dynasty.  \
+
+Grandson: Ptolemy I Soter was another grandson of Ateas/Amyntas III/Artaxerxes who received Egypt. Following Alexander's "resurrection" as Chandragupta in the East, his bloodline consolidated its rule in the West. Ptolemy I Soter, a fellow Scythian noble and Alexander's half-brother, took the Egyptian satrapy. The Ptolemaic Dynasty was not a new Greek ruling class, but the continuation of the Akrosander bloodline using Egypt as its new imperial base.
 
 ![Fig.1.2](/images/Skyles.jpg){:width="400px"}\
 Fig. 1.2. Coin of Skyles, a Scythian king who reigned from ca 470-460 BC displaying a Scythian Solar Wheel and the World Tree combined. Skyles was Ateas's father or grandfather? The cross was prominent in ancient Europe. It was a sundial and every city would have had one to track the time, dates, and agricultural and lunar cycles. "Skylesis" a Greek mockery of Skuða-las (Scythian King). The owl on the reverse side is the Owl of Athena also known as the Owl of Minerva, a sacred bird in Greek mythology that accompanies Athena. It shows up prominently in later Greek tetradrachms connecting him to Greece. Skyles = Xerxes I in Persia and King Amyntas I of Macedon?
