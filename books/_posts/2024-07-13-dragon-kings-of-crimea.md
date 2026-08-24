@@ -38,44 +38,43 @@ Published by Heretical Books
 
 **Part 2: The Asii Foundation & Satrapy System**
 
-2. The Asii Foundation (c. 4500 BCE – 2000 BCE)
-3: Timeline: The Proto-Indo-European (Aryan) Hegemony
-4: Key Historical Figures & Their Aliases
-4.1 The Primordial Patriarch: Ateas the Scythian
-4.2 Later Dragon Bloodline Descendants
-Chapter 5: The Asii Satrapies: A Comprehensive Directory
-Chapter 6: The Dragon Cult
+2. The Asii Foundation (c. 4500 BCE – 2000 BCE)\
+3: Timeline: The Proto-Indo-European (Aryan) Hegemony\
+4: Key Historical Figures & Their Aliases\
+4.1 The Primordial Patriarch: Ateas the Scythian\
+4.2 Later Dragon Bloodline Descendants\
+Chapter 5: The Asii Satrapies: A Comprehensive Directory\
+Chapter 6: The Dragon Cult\
 6.1 The Swastika
 
 **Part 3: The Alexandrian Synthesis**
 
 7: The Alexandrian School
-7.1 Serapis Cult
-7.2 Religion as an Operating System for the Ancient World
-7.3 Judaism
-7.4 Location of Ancient Jerusalem (Hiero-Solyma)
+7.1 Serapis Cult\
+7.2 Religion as an Operating System for the Ancient World\
+7.3 Judaism\
+7.4 Location of Ancient Jerusalem (Hiero-Solyma)\
 7.5 Modern Jews
 
 **Part 4: The Bosphoran Connection**
 
-8: Rome On the Bosphorus River
-9: The Imperial Avatar System: Numismatic Proof and Aliases
-9.2 Ancient Alias Names List
-10: Name and Title Meanings
-10.1: The Name Jesus Christ
-11: Julius Caesar aka Asander, King of Bosphorus aka Mithridates Chrestus
-11.1 Julius Caesar was a Title
-11.2 Julius Caesar aka Asander's Suspected Aliases
-12: Cleopatra VII aka Dynamis Ourania aka Pythodorida Philometor
-13: Dragon Bloodline Descendants
-13.1 Ptolemy XII Auletes aka Mark Antony aka Mithridates VI Eupator
-13.2 Ptolemy XIII Theos Philopator aka Gaius Octavius (Emperor Augustus) aka Rhoemetalces I
-13.3 Ptolemy XIV Philopator aka Amyntas Nikator aka Amyntas, King of Galatia
-13.4 Was Amyntas Nikator aka Amyntas, King of Galatia the Living Esus?
-13.5 Alexander, son of King Herod aka Alexander Helios aka Juba II
-13.6 The Successor Generations
-13.7 Izates II, King of Adiabene
-13.8 Tiberius Julius Sauromates II
+8: Rome On the Bosphorus River\
+9: The Imperial Avatar System: Numismatic Proof and Aliases\
+10: Name and Title Meanings\
+10.1: The Name Jesus Christ\
+11: Julius Caesar aka Asander, King of Bosphorus aka Mithridates Chrestus\
+11.1 Julius Caesar was a Title\
+11.2 Julius Caesar aka Asander's Suspected Aliases\
+12: Cleopatra VII aka Dynamis Ourania aka Pythodorida Philometor\
+13: Dragon Bloodline Descendants\
+13.1 Ptolemy XII Auletes aka Mark Antony aka Mithridates VI Eupator\
+13.2 Ptolemy XIII Theos Philopator aka Gaius Octavius (Emperor Augustus) aka Rhoemetalces I\
+13.3 Ptolemy XIV Philopator aka Amyntas Nikator aka Amyntas, King of Galatia\
+13.4 Was Amyntas Nikator aka Amyntas, King of Galatia the Living Esus?\
+13.5 Alexander, son of King Herod aka Alexander Helios aka Juba II\
+13.6 The Successor Generations\
+13.7 Izates II, King of Adiabene\
+13.8 Tiberius Julius Sauromates II\
 13.9 Simon Bar Kokhba
 
 **Part 5: The Flavian Dynasty and the Creation of Christianity**
@@ -84,28 +83,28 @@ Chapter 6: The Dragon Cult
 
 **Part 6: The Demographic Erasure of the Scythian-Aryan Hegemony**
 
-15: Plagues and Biological Warfare
-16: The Flavians (c. 50 BCE – 300 CE)
-17: China: The Han Synthesis and the Tartarian Genocide
-18: Ancient India: The Mauryan Mirage
-19: The Middle East and North Africa: Invasions and Slave Colonization (250 - 650 CE)
+15: Plagues and Biological Warfare\
+16: The Flavians (c. 50 BCE – 300 CE)\
+17: China: The Han Synthesis and the Tartarian Genocide\
+18: Ancient India: The Mauryan Mirage\
+19: The Middle East and North Africa: Invasions and Slave Colonization (250 - 650 CE)\
 20: Where Did The Scythian Aryans Go? The Refugia
 
 **Part 7: Rewriting History**
 
-21: Rewriting History
-22: Inventing Ancient Greece
-23: The 'Achaemenid' Empire is the Parthian Empire
-24: Fabricating 'Ancient' Egypt
-25: Rome: The Phantom Empire on the Tiber
-26: The Renaissance Forgery (14th–16th centuries CE)
+21: Rewriting History\
+22: Inventing Ancient Greece\
+23: The 'Achaemenid' Empire is the Parthian Empire\
+24: Fabricating 'Ancient' Egypt\
+25: Rome: The Phantom Empire on the Tiber\
+26: The Renaissance Forgery (14th–16th centuries CE)\
 27: The Jesuit Operation (16th-18th c.)
 
 **Part 8: Sects of the Imperial Cult**
 
-28: Identifying the Flavian Scribes
-28.1 Christianity
-28.2 The Cult of Antinous
+28: Identifying the Flavian Scribes\
+28.1 Christianity\
+28.2 The Cult of Antinous\
 28.3 Islam
 
 **Conclusion**
@@ -478,35 +477,51 @@ The Final Consolidation
 
 ### 4.1 The Primordial Patriarch: Ateas the Scythian
 
-Ateas the Scythian (c. 429-339 BCE) is not merely a powerful king. He is the archetypal patriarch from whom all later "avatars" derive their claim and the pivotal figure whose "death" was staged to transition the Hegemony into a new, more clandestine phase.
+Ateas the Scythian was the last great emperor of the direct Akrosander bloodline, ruling from the Danube to the Caucasus. The name "Ateas" is not a Scythian personal name. It is the core title of the Dragon King. Ateas = Ata-as = “Father-As” or “Forefather of the Asii”—the same root as Asander, Asinder and Attila. His name also occurs as Atheas, Ateia, Ataias, and Ateus. He was not just a king; he was the eponymous ancestor of the Asii-Alan people. 
 
-Ateas the Scythian = Amyntas III of Macedon (d. 370 BC) = Artaxerxes I (or II?) of Persia (d. 424 BC) = Nepherites I of Egypt (d. 393 BC) = Evagoras I of Salamis (Cyprus).
+He was Atlas and Atreus in Greek mythology, the Phrygian deity Attis, the Biblical "Adam" (Ad - The same root as Ateas's At + -am (People/Nation); "The Ancestor of the People"), Ara (father in Turkic), Atum (the Egyptian "All-Lord"). Eas/Esz/As: the universal Aži/Serpent root. Thus, Ateas = "The Primordial Serpent-Father". Ateas was also called Atheas which is where the name of the city Athens comes from. In mythology Athena or Athene was often given the epithet Pallas, which is an identity Cleopatra used. Athena could be his wife or daughter.
+
+Ateas ruled from approximately 429–339 BCE. Athens's "Golden Age" (Pericles, Socrates, Plato) occurred exactly during his reign. The Athenian democracy was not a Greek invention—it was a Ptolemaic-Bosporan administrative experiment, supervised by Ateas's satraps. The "philosophers" (Plato, Aristotle) were Asii court scribes sent to manage the outpost.
+
+All subsequent rulers claimed to be his incarnation or scion. Ateas the Scythian was also Artaxerxes II Mnemon ("Kai Bahman") of Persia aka Amyntas III of Macedon aka Nectanebo II in Egypt aka Evagoras I of Salamis (Cyprus). Ateas's "death" in battle against Philip II of Macedon (339 BCE) is a fabrication. The battle was not a defeat—it was a succession ritual and strategic merger. Philip II was not Ateas's enemy; he was his designated successor and son. The "battle" was a staged, ritualized combat to transfer the "Mandate of the Dragon" from the aging Steppe Patriarch to the rising Macedonian viceroy. Ateas's body was never displayed. In truth, he retired to a hidden Kurgan-complex in the Altai Mountains, becoming the literal "King in the Mountain", the sleeping sovereign whose essence would be channeled by future avatars.
 
 ![Fig.1.1](/images/AteasPhillipAlexander.jpg){:width="400px"}\
 Fig. 1.1. Showing three generations. L. Ateas the Scythian (Ata- or Atha-, meaning "forefather" or "ancestor" in Scythian). M. Philip II of Macedon. R. Alexander the Great. Ateas and Artaxerxes II Mnemon were reported "enemies" of Phillip. Ateas dies in battle against him, and in the Alexander Romance, a book that has its earliest copy dating back a couple of centuries after Alexanders life, the wizard-pharaoh Nectanebo II is secretly Alexander's real father, magically impersonating the god Amun. This is not fantasy; it is a mythological encoding of historical truth.
 
-- Son: Philip II of Macedon. Philip was a title (Philippos (Lover of Horses) is a direct Greek translation of the Scythian royal title Pharnavaz (Horse-Lord) which is similar to the Roman title "Master of the Horse" https://en.wikipedia.org/wiki/Master_of_the_Horse which was a title that Mark Antony held. It basically means "the cavalry commander").
-- Grandson 1: Alexander the Great: Alexander was his title. "Aži-ander" = Aži (Avestan "dragon") + Andros (Greek "man") = "Dragon-Man", the same as Akrosander/Akrosas. Alaksandu of Wilusa, a Hittite king of Wilusa (Troy) (Alaksandu = Alak-San-Du (Hurrian: "Ruler-Dragon-Son")), who predates Alexander by 800 years, proves that the name Alexander was a Scythian title for kings. In India he took the regional alias of Chandragupta Maurya ("Chandragupta" = "Sander-Gupta" (Scythian "Sander" = Alexander. "Aleks" = Greekization of "Alakh" which means "not seen" or "unseen" and in Sanskrit/Hindi "Gupta" = Hidden)). Greek sources (Megasthenes) refer to Chandragupta Maurya as "Sandrokottos" with the Sandro- deriving from Alexandros. Aži-Sandar also = "Dragon King" in Mittani and Old Persian. Recorded in the Persian 'Iskandarnameh', or 'Book of Alexander', and 'Shahnameh' and Islamic sources, is that Alexander the Great was a Persian prince named Bubares who was the son of Artaxerxes II Mnemon (Kai Bahman), half brother of "Dara" (Darius III), and that Macedon was a province of Persia that his father was governor of. Alexander's father Philip of Macedon was Artaxerxes II Mnemon's regional alias. The book 'The Life of Alexander of Macedon' also claims that he didn't die in Babylon in 232 BC at the age of 33 (same as Jesus) but was only forced from power and he had a posthumous birth/'resurrection'. He resurrected in India with the regional alias of Chandragupta. Alexander's mother Olympias (Ol or ophis + Pias = "serpent queen"), who was a Scythian princess of the Molossian tribe, claimed to have been impregnated by the god Zeus Ammon disguised as a serpent. Alexander also married the Scythian princess Roxana. Alexander's campaign was not a conquest, it was a Scythian restoration. The Achaemenid Persians (Achaemenes is likely Akh-Manesh or "Spirit of Manu", linking to the Vedic sage-king) were a rival Scythian clan (the "Ariya" - Aryans). Alexander was re-establishing the older, purer Scythian hegemony of the Medes and the pre-Zoroastrian Mitanni. In the Old Testament he was Solomon (Sol-Amūn or "Sun of Amun") which is a direct parallel to "Zeus-Ammon", a title he carried. He was also Qin Shi Huang in China. The "King of Kings" and "King of the World" titles Alexander and Cyrus used were literal. They were kings of a global empire.
-- Grandson 2: "Dara" (Darius III) aka Seleucus I Nicator. He inherited the vital Eastern territories (Asia). His "father" is listed as Antiochus (of Macedon) and presumed to have been a commoner. The name Antiochus curiously has no definition in Greek, however when viewed as a hybrid Greek-Persian name the meaning is obvious. Antiochus should be parsed as Anti-Ochus, "Like/After Ochus", that is, continuing the line of Persian Great King Ochus (Artaxerxes III). Ochus, in addition to his ill-fated successor Artaxerxes IV, had many other children. And Artaxerxes IV, although not surviving long as Great King, had many children of his own. Anti-Ochus/Antiochus therefore emerges as a princely son or grandson of Artaxerxes III. (Darius III took on the name Ochus and also had a son by Queen Statiera named Ochus). The name Seleucus (Greek Seleukos), like that of his father Antiochus, has no certain meaning in Greek. (However, compare Greek leukos meaning "white", and the kingly Roman name of Lucius.) As with the name Antiochus, we must expect some kind of hybrid definition that incorporated a Persian or Eastern element. There is certainly an echo of Seleukos in the later dynastic name Seljuk(os), associated with a people brought from the direction of China to dominate the West. He was Li Si in China who was the advisor to Qin Shi Huang (Alexander) founder of the Qin Dynasty.
-- Grandson 3: Ptolemy I Soter who received Egypt.
+He was also:
 
-**The Unpublished Truth About Ateas:**
+- Artaxerxes II Mnemon (Persia). Also called Arsaces or Arsikas. This is significant because "Arsaces" became the dynastic name for all Parthian kings. The Scythian root Ar-, meaning "Aryan" or "Noble", combined with -sak-, for "Saka" (Scythian). The root "At" or "Ata" appears across Indo-European and neighboring languages, consistently meaning "father" or "ancestor": Scythian/Iranian Ata = father, ancestor. Turkic: Ata = father (as in the modern Turkish word). Sanskrit: Ati = primordial, first. Tocharian: At = father, ancestor. The root xšāya- is the same as the Scythian Xšaθra, which connects to "Christ" and "Satrap".
+  - Amyntas III (Macedonia). Amyntas III's father was named Arrhidaeus. Arrhidaeus = Ar-ratha-As, the same as Arsaces = Ar-saka-As. The endings differ, but the root is identical: Ar + sacred title + As. Both mean “Aryan Saka/Chariot Lord”. This proves that the Macedonian Argead dynasty and the Parthian Arsacid dynasty were branches of the same Asii-Scythian ruling caste. This also connects to the Egyptian Amun (the "Hidden One") and the Sanskrit Am (power, strength).
+  - Nectanebo II (Egypt)
+  - Evagoras I (Cyprus)
+  - Orontes / Yervand (Armenia). Name decodes as "Great"/"Forefather".
+  - Amyntas III (Macedonia).Amyntas III's father was named Arrhidaeus. Arrhidaeus = Ar-ratha-As, the same as Arsaces = Ar-saka-As. The endings differ, but the root is identical: Ar + sacred title + As. Both mean “Aryan Saka/Chariot Lord”. This proves that the Macedonian Argead dynasty and the Parthian Arsacid dynasty were branches of the same Asii-Scythian ruling caste. This also connects to the Egyptian Amun (the "Hidden One") and the Sanskrit Am (power, strength).
+  - Nectanebo II (Egypt)
+  - Evagoras I (Cyprus)
+  - Orontes / Yervand (Armenia). Name decodes as "Great" / "Forefather".
 
-1. The Name "Ateas": It is not a Scythian name. It is the core title. Ateas = At+Eas.
-  - At: Related to Attis, Ata (father in Turkic), Atum (the Egyptian "All-Lord"). It means "Primordial Father."
-  - Eas/Esz/As: The universal Aži/Serpent root.
-  - Thus, Ateas = "The Primordial Serpent-Father." He wasn't named Ateas; he was the Ateas. All subsequent rulers claimed to be his incarnation or scion.
-
-2. His "Death" at 90 and the Succession Mirage: The story goes that at age 90, Ateas died in battle against Philip II of Macedon. This is a fabrication.
-  - The Battle: It was not a defeat. It was a succession ritual and strategic merger. Philip II was not Ateas's enemy; he was his designated successor and son. The "battle" was a staged, ritualized combat to transfer the "Mandate of the Dragon" from the aging Steppe Patriarch to the rising Macedonian viceroy, in full view of the armies (the "corporate shareholders").
-  - The "Body": Ateas's body was never displayed. It was said to have been taken for a "Scythian burial." In truth, he retired to a hidden Kurgan-complex in the Altai Mountains, becoming the literal "King in the Mountain," the sleeping sovereign whose essence would be channeled by future avatars.
-
-3. Ateas as the Unifying Node: He is the historical nexus where all lines converge.
-  - Artaxerxes II of Persia: His long reign (404-358 BCE) overlaps perfectly with Ateas's peak. They are not contemporaries; they are the same administrative office. "Artaxerxes" = Arta-Xerxes = "Righteous Ruler-Serpent." Ateas managed the Steppe/Northern satrapies; "Artaxerxes" managed the Persian/Southern ones. Their reported correspondence is not diplomacy; it is internal memos.
-  - Philip II of Macedon: Upon "defeating" Ateas, Philip immediately adopts Scythian ceremonial dress, integrates Scythian cavalry into his army, and declares himself the heir to the Achaemenid throne. He didn't conquer Ateas; he passed the initiation and was given control of the Hegemony's European front.
-  - Midas of Phrygia (Mita of Mushki): A generation earlier, this "King Midas" was a viceroy of Ateas. The "golden touch" myth symbolizes his right to control the gold mines of the Pontic region (modern Georgia), the Hegemony's primary treasury.
-
-Ateas was also called Atheas, which is very similar to the name of the city Athens. In mythology Athena or Athene was often given the epithet Pallas, which is an identiy Cleopatra used. Athena could be his wife or daughter.
+- c. 356 BC: Son was Philip II of Macedon. Philip was a title (Philippos (Lover of Horses) is a direct Greek translation of the Scythian royal title Pharnavaz (Horse-Lord) which is similar to the Roman title "Master of the Horse" https://en.wikipedia.org/wiki/Master_of_the_Horse which was a title that Mark Antony held. It basically means "the cavalry commander"). Philip II's grandfather was named Arrhidaeus. Arrhidaeus can be decoded  as Ar- = "Shining, Noble" (the same root as Argead and Aryan), and -rhidaeus = A variant of the Scythian/Iranian root -ratha- (chariot) or -rathae (charioteer). This is the exact same title as Pharnavaz and Philip.\
+-Grandson: Alexander the Great: Alexander was his title. "Aži-ander" = Aži
+    (Avestan "dragon") + Andros (Greek "man") = "Dragon-Man", the same as Akrosander/Akrosas. Alaksandu
+    of Wilusa, a Hittite king of Wilusa (Troy) (Alaksandu = Alak-San-Du
+    (Hurrian: "Ruler-Dragon-Son")), who predates Alexander by 800 years,
+    proves that the name Alexander was a Scythian title for kings. In India he took the regional alias of Chandragupta Maurya
+    ("Chandragupta" = "Sander-Gupta" (Scythian "Sander" = Alexander. "Aleks" = Greekization of "Alakh" which means "not seen" or "unseen" and in Sanskrit/Hindi "Gupta" = Hidden. In Egypt, Alexander was the son of Amun, whose name means “the Hidden One”.)). Greek sources (Megasthenes) refer to Chandragupta Maurya as "Sandrokottos" with the Sandro- deriving from Alexandros. Aži-Sandar also = "Dragon King" in Mittani and Old Persian. Recorded in
+   the Persian 'Iskandarnameh', or 'Book of Alexander', and 'Shahnameh' and Islamic sources, is that Alexander the Great was a
+    Persian prince named Bubares who was the son of Artaxerxes
+    II Mnemon (Kai Bahman), half brother of "Dara" (Darius III), and that Macedon
+    was a province of Persia that his father was governor of.
+    Alexander's father Philip of Macedon was Artaxerxes II Memnon's
+    regional alias. The book 'The Life of Alexander of Macedon'
+    also claims that he didn't die in Babylon in 232 BC at the age of 33
+    (same as Jesus) but was only forced from power and he had a
+    posthumous birth/'resurrection'. He resurrected in India with the
+    regional alias of Chandragupta. Alexander's mother Olympias (Ol or ophis + Pias = "serpent queen"), who was a Scythian princess of the
+    Molossian tribe (her grandfather (or great-grandfather) was Tharrhypas, King of the Molossians. Tharrhypas was also rendered as Arrybas, Arybas, Arybbas: Ar- (Aryan/Noble) + -ybas (a variant of hypas, "lord" or "chief")), claimed to have been impregnated by the god Zeus
+    Ammon disguised as a serpent. Alexander's fathers name Philip was a title (Philippos (Lover of Horses) is a direct Greek translation of the Scythian royal title Pharnavaz (Horse-Lord)). Alexander also married the Scythian princess Roxana. Alexander's campaign was not a conquest, it was a Scythian restoration. The Achaemenid Persians (Achaemenes is likely Akh-Manesh or "Spirit of Manu", linking to the Vedic sage-king) were a rival Scythian clan (the "Ariya" - Aryans). Alexander was re-establishing the older, purer Scythian hegemony of the Medes and the pre-Zoroastrian Mitanni. In the Old Testament he was Solomon (Sol-Amūn or "Sun of Amun") which is a direct parallel to "Zeus-Ammon", a title he carried. He was also Qin Shi Huang in China. The "King of Kings" and "King of the World" titles Alexander and Cyrus used were literal. They were kings of a global empire.\
+-Grandson: "Dara" (Darius III) aka Seleucus I Nicator who inherited the vital Eastern territories (Asia). His "father" is listed as Antiochus (of Macedon) and presumed to have been a commoner. The name Antiochus curiously has no definition in Greek, however when viewed as a hybrid Greek-Persian name the meaning is obvious. Antiochus should be parsed as Anti-Ochus, “Like/After Ochus”, that is, continuing the line of Persian Great King Ochus (Artaxerxes III). Ochus, in addition to his ill-fated successor Artaxerxes IV, had many other children. And Artaxerxes IV, although not surviving long as Great King, had many children of his own. Anti-Ochus/Antiochus therefore emerges as a princely son or grandson of Artaxerxes III. (Darius III took on the name Ochus and also had a son by Queen Statiera named Ochus). The name Seleucus (Greek Seleukos), like that of his father Antiochus, has no certain meaning in Greek. (However, compare Greek leukos meaning “white”, and the kingly Roman name of Lucius.) As with the name Antiochus, we must expect some kind of hybrid definition that incorporated a Persian or Eastern element. There is certainly an echo of Seleukos in the later dynastic name Seljuk(os), associated with a people brought from the direction of China to dominate the West. He was Li Si in China who was the advisor to Qin Shi Huang (Alexander) founder of the Qin Dynasty.  \
+-Grandson: Ptolemy I Soter was another grandson of Ateas/Amyntas III/Artaxerxes who received Egypt.\
+-305-30 BC: The Ptolemaic Synthesis in Egypt. Following Alexander's "resurrection" as Chandragupta in the East, his bloodline consolidated its rule in the West. Ptolemy I Soter, a fellow Scythian noble and likely Alexander's half-brother, took the Egyptian satrapy. The Ptolemaic Dynasty was not a new Greek ruling class, but the continuation of the Akrosander bloodline using Egypt as its new imperial ba
 
 ![Fig.1.2](/images/Skyles.jpg){:width="400px"}\
 Fig. 1.2. Coin of Skyles, a Scythian king who reigned from ca 470-460 BC displaying a Scythian Solar Wheel and the World Tree combined. Skyles was Ateas's father or grandfather? The cross was prominent in ancient Europe. It was a sundial and every city would have had one to track the time, dates, and agricultural and lunar cycles. "Skylesis" a Greek mockery of Skuða-las (Scythian King). The owl on the reverse side is the Owl of Athena also known as the Owl of Minerva, a sacred bird in Greek mythology that accompanies Athena. It shows up prominently in later Greek tetradrachms connecting him to Greece. Skyles = Xerxes I in Persia and King Amyntas I of Macedon?
@@ -526,16 +541,28 @@ The Ateas Restoration (900-339 BCE): After centuries of fragmentation ("Dark Age
 
 ### 4.2 Later Dragon Bloodline Descendants
 
-The ancient world was governed by a transregional aristocratic network that reused titulature, divine archetypes, and dynastic names to project localized legitimacy. They role-played as deities, religious figures, and various characters as if they were actors in a play. This was done partially for obscuration, but also because people wouldn't accept foreign kings or kings with foreign names, and also, for theological requirements: a god-king had to manifest in different regions according to local religious expectations. However, as their names were mostly job titles an etymology across languages (Latin, Greek, "Old Persian," Sanskrit, Aramaic) reveals a unified administrative lexicon, and you can also identify their aliases through spouses.
+Alexander the Great's successors ("Diadochi") were Seleucus I Nicator who controlled a large chunk of the eastern territories, including Mesopotamia and Persia, Diodotus I Soter who controlled Bactria (possibly also India under the alias Ashoka the Great), and Ptolemy I Soter who controlled Egypt. Mainstream history presents the Ptolemies, Seleucids, Attalids, and Romans as separate, often warring entities. This is a Flavian-Vatican fabrication. In reality, they were four branches of a single Scythian-Sarmatian dynasty, a "Tetrarchy", administering different sectors of the empire from the Bosphoran center and they governed a transregional aristocratic network by reusing titulature, divine archetypes, and dynastic names to project localized legitimacy. They role-played as deities, religious figures, and various characters as if they were actors in a play. This was done partially for obscuration, but also because people wouldn't accept foreign kings or kings with foreign names, and also, for theological requirements: a god-king had to manifest in different regions according to local religious expectations. However, as their names were mostly job titles an etymology across languages (Latin, Greek, "Old Persian," Sanskrit, Aramaic) reveals a unified administrative lexicon, and you can also identify their aliases through spouses.
+
+For example, Asander/Julius Caesar had at least a dozen names, titles, and localized aliases that history considers to be different people, but these were avatars that he held in different locations and his title would change as his rank or regional assignment changed. They would do a ritual death of their avatar as their assignment changed—it was a legal and administrative protocol encoded in theology. When an Asii king's administrative position ended (or when he transferred to a new region), the local identity was ritually executed to satisfy the laws of that satrapy, while the living king continued under a new avatar in a different administrative theater. This is the resurrection motif.
+
+You can identify their aliases or titles through onomastic decodings of their names and titles in regional dialects and through spouses. For example, the governor of Roman Egypt from 33 CE to 38, Aulus Avillius Flaccus, was also Polemon II of Pontus, who was
+the prince of the Bosporan, Pontus, Cilicia, and Cappadocia, which was
+the regional alias of Emperor Titus. The character of Aulus Avillius
+Flaccus dies at the same time Polemon II of Pontus takes power, and then
+Polemon II of Pontus dies around the same time Titus becomes emperor.
+The way to connect them is through the fact that they were all married
+to the same woman, Berenice, granddaughter of King Herod (Bernice is recorded to have been married to Aulus Avillius Flaccus and Marcus Julius Alexander (nephew of Philo of Alexandria, brother of Tiberius Julius Alexander). These two marraiges connect her to the Alexandrian Jewish plutocracy and the Roman Egyptian administration. Herod of Chalcis (Herodian). This connects her to the Judean royal house. Polemon II of Pontus/Cilicia (descendant of Mark Antony through Antonia Tryphaena). This connects her to the Bosporan dynasty's own claimed ancestry. Titus Flavius (Flavian dynasty). This connects her to the imperial house that destroyed Jerusalem. She was also married to a man named "Marcus Antonius Polemo II" who was the son of Marcus Antonius Polemon I aka Polemon of Laodicea https://en.wikipedia.org/wiki/Polemon_of_Laodicea. Marcus Antonius Polemo II is the same as Polemon II of Pontus/Cilicia proving the Bosphoran royal house carried the Marcus Antonius title. These people are all the same man adopting localized identities and titles). Berenice's brother, Marcus Julius Agrippa II, governed all foreign Roman territories except Egypt during the Flavian period. Egypt was governed by her brother-in-law Tiberius Julius Alexander. This means the entire Eastern imperial administration was controlled by two men both related to Berenice. Berenice = Greek Pherenike = “Bearer of Victory” (Nike). She is the living Nike, the goddess of victory, the same as the Nike on coins.
+
+Also note how so many obscure ancestry client kings, prefects, and secretaries interlink via the same small pool of Herodian/Ptolemaic women and Tiberius Julius/Marcus Antonius names.
 
 **Mithridates VI Eupator of Pontus = Ptolemy XII Auletes of Egypt**
 
-Aliases: Mark Antony (Marcus Antonius = Mar (Phoenician "lord") + Anton (from Antaeus, giant son of Gaia)), King Herod (Heru (Horus) + Ud (divine) = Herud -> Herod, "The Divine Horus", or Herodes (-dēs common Greek patronymic suffix meaning "son of"), "Son of Horus". The "Slaughter of the Innocents" is a mythological trope attached to the birth of every Horus-figure who must overcome a threat (against Set). It is not history; it is theological propaganda asserting Herod's/Mark Antony's legitimacy as the living god-king against the resurrected one. This is also attached to the Indian god Krishna (against Kamsa)), Polemon Pythodoros, King of Pontus, prince of Pontus (Polemos -> Ptolemy). Tiberius Claudius Nero, Phraates IV of Parthia (Per-aa or Per-Nesu is a corruption of Pharaoh). Ariarathes IX (Arya-Ratha. Sanskrit: "Noble Charioteer") Eusebes Philopator, King of Cappadocia. Mithridates VI Eupator and Mark Antony are both recorded as marrying a sister-wife named Cleopatra (Antony to Cleopatra VII; Mithridates VI to Laodice, who used "Cleopatra" as a throne name and Mithridates VI of Pontus was also recorded to have married Cleopatra of Athamania and their daughter was Cleopatra of Pontus (https://web.archive.org/web/20101126090909/http://mauriceboddy.org.uk/Pontus.htm)). King Herod was married to Cleopatra of Jerusalem, and Mithridates VI Eupator and Ptolemy XII Auletes both had daughters named Cleopatra (Cleopatra VII/Cleopatra the Elder, princess of Pontus). The Shekel of Tyre minted by Herod depicts Mark Antony and Hercules and Herod built temples to Hercules in Beirut and Tyre, and depicted himself as Hercules in his Herodian Cult. Herod's son Herod Antipas shares the name of Mark Antony's son Antyllus; Herod's other son Antipater was Iullus Antonius (Mark Antony's son with Fulvia), Herods son Alexander (son of King Herod) has the same name as Mark Antony's son Alexander Helios.
+Aliases: Mark Antony (Marcus Antonius = Mar (Phoenician "lord") + Anton (from Antaeus, giant son of Gaia) or "Antonius" is a Latinization of "Antiochus"?), King Herod (Heru (Horus) + Ud (divine) = Herud -> Herod, "The Divine Horus", or Herodes (-dēs common Greek patronymic suffix meaning "son of"), "Son of Horus". The "Slaughter of the Innocents" is a mythological trope attached to the birth of every Horus-figure who must overcome a threat (against Set). It is not history; it is theological propaganda asserting Herod's/Mark Antony's legitimacy as the living god-king against the resurrected one. This is also attached to the Indian god Krishna (against Kamsa)), Polemon Pythodoros, King of Pontus, prince of Pontus  (Polemos -> Ptolemy). Tiberius Claudius Nero, Phraates IV of Parthia (Per-aa or Per-Nesu is a corruption of Pharaoh). Ariarathes IX (Arya-Ratha". Sanskrit:"Noble Charioteer") Eusebes Philopator, King of Cappadocia. Was he also Ptolemy X Alexander I aka Simon Boethus aka Simon Magus? Hyspaosines of Characene? Mithridates VI Eupator and Mark Antony are both recorded as marrying a sister-wife named Cleopatra (Antony to Cleopatra VII; Mithridates VI to Laodice, who used "Cleopatra" as a throne name and Mithridates VI of Pontus was also recorded to have married Cleopatra of Athamania and their daughter was Cleopatra of Pontus (https://web.archive.org/web/20101126090909/http://mauriceboddy.org.uk/Pontus.htm)). King Herod was married to Cleopatra of Jerusalem, and Mithridates VI Eupator and Ptolemy XII Auletes both had daughters named Cleopatra (Cleopatra VII/Cleopatra the Elder, princess of Pontus). The Shekel of Tyre minted by Herod depicts Mark Antony and Hercules and Herod built temples to Hercules in Beirut and Tyre, and depicted himself as Hercules in his Herodian Cult. Herod's son Herod Antipas shares the name of Mark Antony's son Antyllus; Herod's other son Antipater was Iullus Antonius (Mark Antony's son with Fulvia), Herods son Alexander (son of King Herod) has the same name as Mark Antony's son Alexander Helios.
 
 - Spouse: Wife/sister: Laodice (in Pontus) = Cleopatra V Tryphaena (in Egypt)
 - Children:
   - Cleopatra VII Thea Philopator aka Dynamis, queen of Bosphorus, Cleopatra of Pontus, Pythodorida, queen of Pontus, Musa Thea Urania of Parthia (Parthian queen mother, same "Heavenly Goddess" title). Dynamis was called "Dynamus Pilatea"(https://en.rodovid.org/wk/Person:401227) the same title that was carried by "Pontus Pilate". Dynamis is recorded as the granddaughter of Mithridates VI, but historians are probably confusing her with Cleopatra the Elder, princess of Pontus who was married to Tigranes II, king of Armenia. Cleopatra VII, Dynamis, and Pythodorida all had sons named Ptolemy Philadelphus who succeeded them.
-  - Ptolemy XIII Theos Philopator aka Gaius Octavius (Emperor Augustus). Aliases: Polemon I of Pontus (Dynamis was titled "Pilatea" and he was the king of Pontus. Pontius Pilate would have been his title that his descendants would have inherited it). Gaius Julius Sohaemus of Emesa. Rhoemetalces I (a classic Thracian royal name, linking to the "Rome" = "Ruma" etymology. Rhoemetalces = "king of Rhome", or "king of Rome" in ancient Thracian), king of Bosphorus. Rhoemetalces Philocaesar of Pontus was the son of Marcus Antonius Polemon Pythodoros was married to Pythodoris I (Cleopatra). Polemon I of Pontus was married to Dynamis (Cleopatra). Cleopatra was married to her brother Ptolemy XIII Theos Philopator who was born at the same time as Augustus. He was her brother husband. Asander was also married to Pythodoris I and Dynamis proving these were Cleopatra's aliases.
+  - Ptolemy XIII Theos Philopator aka Gaius Octavius (Emperor Augustus). Aliases: Polemon I of Pontus (Dynamis was titled "Pilatea" and he was the king of Pontus. Pontius Pilate would have been his title that his descendants would have inherited). Gaius Julius Sohaemus of Emesa. Rhoemetalces I (a classic Thracian royal name, linking to the "Rome" = "Ruma" etymology. Rhoemetalces = "king of Rhome", or "king of Rome" in ancient Thracian), king of Bosphorus. Rhoemetalces Philocaesar of Pontus was the son of Marcus Antonius Polemon Pythodoros and was married to Pythodoris I (Cleopatra). Polemon I of Pontus was married to Dynamis (Cleopatra). Cleopatra was married to her brother Ptolemy XIII Theos Philopator who was born at the same time as Augustus. He was her brother husband. Asander was also married to Pythodoris I and Dynamis proving these were Cleopatra's aliases. Likely also Azes I, king of India and Wang Mang the founder and the only emperor of the short-lived Xin dynasty of imperial China (Wang (王) in Chinese means "King." The archaic pronunciation of Wang in Old Chinese (reconstructed by linguists as *wɢaŋ) is a direct phonetic match for Vah / Bah / Pharna (Scythian Royal Glory). Mang (莽): Means "Grass/Dragon-Snake in the Reeds." Wang Mang = The Serpent-Glory King.). The "Han Dynasty" and the "Roman Empire" were not two separate isolated worlds communicating via indirect silk trade. They were the eastern and western wings of the same global Scythian-Yuezhi administrative system, governed by identical bloodline avatars.
 
 **Julius Caesar = Asander, King of Bosporus**
 
@@ -543,7 +570,10 @@ Asander = Asa-(Lord) + -Ander (Man)". Asa-(Lord) was rendered in Etruscan as Aes
 
 Asander was also known through inscriptions as Asaandros ("Lord" + "Andros" means "man" or "son of man" in Greek. Jesus is referred to as "the son of man" 81 times in the four canonical gospels), "Asandrokhos (https://www.researchgate.net/publication/390912485Aspurgos-the_king_of_Bosporan_state_98_BC-_AD_38).) (-khos = Persian xšaya/Sanskrit Kshatriya/Greek "Christ". So, "Lord-Man-Christ"), and "Asandrochus" (Epigraphica Pontica II: New Inscription of Pythodoris from Panticapaeum. Saprykin Sergey Yu., Fedoseev Nikolay F.) (Asander-Ochus, or Lord King/Ochus, as in continuing the line of Achaemenid king Artaxerxes III Ochus. The suffix -ochus (or -ochos) is the Greek rendering of the Old Persian xšāyaθiya, meaning "king").
 
-Titles: Philocaesar Philoromaios, Soter, Great King of Kings, "As" in his name refers to Asar(Osiris)/Aesar/Aeser/Aisar/Ais/Is). Other suspected aliases: Akrosandros II, King of Scythia, Brogitarix, Idumean Antipater, Gaius Asinius Pollio (literary pen-name), Parthian Artavasdes (Greek Alex = Persian Arta) who was the brother of Tigranes II who was married to Cleopatra the Elder, princess of Pontus (Tigranes II/the Great was called Azhdahak proving Aži Dahāka was a royal Scythian title), Artavasdes II, king of Armenia who was the son of Tigranes II and Cleopatra the Elder, princess of Pontus and the Hasmonean Alexander II (son of king Aristobulus II son of Jannaeus Alexander also the nephew and son-in-law of king/high-priest Hyrcanus II. Also, Julius = Janneus? Or Janneus (Yannai) is related to the Roman name Gaius?). Juba I, King of Mauretania, Burebista, King of the Dacians, Atrebates, king of Britannia. Also Prince Jin Midi in China? Jin (金) means "Gold," a royal Scythian attribute. Mi (日) is "Sun." Di (磾) is a rare character meaning "black," but also a homophone for "Emperor" (帝). His story: A noble "barbarian" prince from the West (Xiongnu confederation, which included Saka/Scythians) is captured and rises to become the most powerful man in China, serving as regent to a child emperor. This is the exact same narrative archetype as a foreigner (Caesar) rising to power in Rome.
+Titles: Philocaesar Philoromaios, Soter, Great King of Kings, "As" in his name refers to Asar(Osiris)/Aesar/Aeser/Aisar/Ais/Is). 
+
+Other suspected aliases: Akrosandros II, King of Scythia, Brogitarix, Idumean Antipater, Gaius Asinius Pollio (literary pen-name), Parthian Artavasdes (Greek Alex = Persian Arta) who was the brother of Tigranes II who was married to Cleopatra the Elder, princess of Pontus (Tigranes II/the Great was called Azhdahak proving Aži Dahāka was a royal Scythian title), Artavasdes II, king of Armenia who was the son of Tigranes II and Cleopatra the Elder, princess of Pontus and the Hasmonean Alexander II (son of king Aristobulus II son of Jannaeus Alexander also the nephew and son-in-law of king/high-priest Hyrcanus II. Also, Julius = Janneus? Or Janneus (Yannai) is related to the Roman name Gaius?). Juba I, King of Mauretania, Burebista, King of the Dacians, Atrebates, king of Britannia. Also Prince Jin Midi in China? Jin (金) means "Gold," a royal Scythian attribute. Mi (日) is "Sun." Di (磾) is a rare character meaning "black," but also a homophone for "Emperor" (帝). His story: A noble "barbarian" prince from the West (Xiongnu confederation, which included Saka/Scythians) is captured and rises to become the most powerful man in China, serving as regent to a child emperor. This is the exact same narrative archetype as a foreigner (Caesar) rising to power in Rome. Caesar's heir is Augustus. Asander's named successor is Aspurgus. Julius Caesar, Asander, Mithradates Chrestus and all had successors named Tiberius Julius (Tiberius Julius Augustus/Tiberius Julius Aspurgus/Tiberius Julius Mithridates).
+  - Spouse/Consort: Cleopatra VII (Isis who in mythology was the wife of Osiris and the mother of Horus): Dynamis Ourania (Aphrodite Urania). Aliases: Pythodorida Philometor (Pytho- from python, and -doria from the Dorian tribe who were Scythian Greeks). Also, Amanirenas ("Amon is Lord"), Kandake of Kush?
 
 - Spouse/Consort: Cleopatra VII (Isis who in mythology was the wife of Osiris and the mother of Horus): Dynamis Ourania (Aphrodite Urania). Aliases: Pythodorida Philometor (Pytho- from python, and -doria from the Dorian tribe who were Scythian Greeks). Also, Amanirenas ("Amon is Lord"), Kandake of Kush?
 - Children:
@@ -556,11 +586,11 @@ Titles: Philocaesar Philoromaios, Soter, Great King of Kings, "As" in his name r
 
 **Child of Antony/Herod & Dynamis/Cleopatra:**
 
-- Alexander (son of King Herod). Aliases: Alexander Helios, Juba II of Mauretania. Juba II is titled "Ptolemy" upon accession in Mauretania. Also, Apollonius of Tyana?
+-  Alexander (son of King Herod). Aliases: Alexander Helios, Juba II of Mauretania (Juba = Ie-huva (Little Jove)). Juba II is titled "Ptolemy" upon accession in Mauretania. Also, Apollonius of Tyana? (Apollonius = "Of Ptolemy"? Apo (from/of) + Pollonios (Ptolemy)
   - Spouse: Cleopatra Selene II (twin sister)
   - Children:
-    - Alexander (grandson of King Herod). Aliases: (King/Tetrarch) Ptolemy (Alexander) bar Menneus, Ptolemy of Mauretania (aka Panthera, the name for jesus's father in the Talmud; Panthera is a corruption of Cantheras, or Cleopatros. Also, Panthera = Ptolemy in Hebrew), Tiberius Julius Alexander Major, Alexander the Alabarch. Also, Gondophares, Indo-Parthian King?
-      - Spouse: Cleopatra (Thea Philopator) of Mauretania. Aliases: Cleopatra IX, Helene, Drusilla of Mauretania, Julia Ourania of Parthia, Philo of Alexandria. She was also Claudius and Nero's secretary "Pallas", and "Antonia Caenis" who was Vespasian's first cousin and mistress (the full name of Pallas was Marcus Antonius Pallas, with the Antonius part being an obvious sign of descent from Mark Antony and that Pallas wasn't a random slave. Caenis was the Greek goddess who was transformed into a man, and she role-played as two men: Marcus Antonius Pallas and Philo. Pallas also connects to King Herod as that was the name of one of his wives). In mythology Athena or Athene was often given the epithet Pallas. In "The Additions to the Book of Esther" it states that the work had been translated by "Lysimachus son of Ptolemy" in Jerusalem. Philo's brother was named Alexander Lysimachus.
+    - Alexander (grandson of King Herod). Aliases: (King/Tetrarch) Ptolemy (Alexander) bar Menneus, Ptolemy of Mauretania (aka  Panthera, the name for jesus's father in the Talmud; Panthera is a corruption of Cantheras, or Cleopatros. Also, Panthera = Ptolemy in Hebrew), Tiberius Julius Alexander Major, Alexander the Alabarch. Also, Gondophares, Indo-Parthian King?
+        - Spouse: Cleopatra (Thea Philopator) of Mauretania. Aliases: Cleopatra IX, Helene, Drusilla of Mauretania, Julia Ourania of Parthia, Philo of Alexandria. She was also Claudius and Nero's secretary "Pallas", and "Antonia Caenis" who was Vespasian's first cousin and mistress (the full name of Pallas was Marcus Antonius Pallas, with the Antonius part being an obvious sign of descent from Mark Antony and that Pallas wasn’t a random slave. Caenis was the Greek goddess who was transformed into a man, and she role-played as two men: Marcus Antonius Pallas and Philo. Pallas also connects to King Herod as that was the name of one of his wives). In mythology Athena or Athene was often given the epithet Pallas. In "The Additions to the Book of Esther" it states that the work had been translated by "Lysimachus son of Ptolemy" in Jerusalem. Philo's brother was named Alexander Lysimachus. Cleopatra Thea Philopator appears as the wife of Antonius Felix (the governor of Judea). Therefore, Antonius Felix = Alexander (grandson of Herod).
       - Children:
         - Tiberius Julius Alexander: Emperor Nerva, Arrius Piso, Josephus (Josephus lists his father as Matthias, a priest. "Matthias" is a Hellenized form of Mithradates)
         - Marcus Julius Alexander: Izates Monobazus ("Jesus Emmanuel"), Yeshua Cleopatros. Izates' daughter was named "Cleopatra of Adiabene" (https://gw.geneanet.org/arnac?lang=en&n=d+adiabene&p=kleopatra) who married Lucius Catilius Severus. Their great-grandson was emperor Marcus Aurelius. His other daughter was Julia Urania of Parthia married Vologases I King of Parthia. "Cleopatra" (Cleopatra Drusilla of Adiabene) was also recorded as the wife of Gaius Julius Alexander (actually Marcus Julius Alexander), Herodian Prince of Judaea and Izates II, King of Adiabene (https://www.geni.com/people/Cleopatra/6000000003645870120)
@@ -568,7 +598,7 @@ Titles: Philocaesar Philoromaios, Soter, Great King of Kings, "As" in his name r
 **Flavian Emperors**
 
 - Vespasian: Aliases: Rhescuporis I, king of Bosphorus. Herod Agrippa I (See: The Royal Ancestry of Emperor Vespasian. Henry Davis). Flavius Scaevinus. Also, Vologases I of Parthia?
-- Titus: Aliases: Polemon II, Aulus Avillius Flaccus.
+- Titus (from Titan; the elder gods who ruled before the Olympians in Greek Mythology, or Tit‑us = Diodotus? which means "Given by Zeus" which is the exact same meaning as Mithridates ("Given by Mithra")). Aliases: Polemon II, Aulus Avillius Flaccus.
 
 ---
 
@@ -839,60 +869,6 @@ Fig. 1.12. L. Rhescuporis I, king of Bosphorus. R. Emperor Vespasian.
 
 ![Fig.1.13](/images/PolemonIITitus.jpg){:width="400px"}\
 Fig. 1.13. L. Polemon II, king of Bosphorus. R. Emperor Titus.
-
-### 9.2 Ancient Alias Names List
-
-Note on Aliases: The Bosphoran/Ptolemaic elites governed a transregional aristocratic network that reused titulature, divine archetypes, and dynastic names to project localized legitimacy. They role-played as deities, religious figures, and various characters as if they were actors in a play. This was done partially for obscuration, but also because people wouldn't accept foreign kings or kings with foreign names, and also, for theological requirements: a god-king had to manifest in different regions according to local religious expectations. However, as their names were mostly job titles, an etymology across languages (Latin, Greek, "Old Persian," Sanskrit, Aramaic) reveals a unified administrative lexicon, and you can also identify their aliases through spouses.
-
-For example, Asander/Julius Caesar had at least a dozen names, titles, and localized aliases that history considers to be different people, but these were avatars that he held in different locations and his title would change as his rank or regional assignment changed. They would do a ritual death of their avatar as their assignment changed—it was a legal and administrative protocol encoded in theology. When an Asii king's administrative position ended (or when he transferred to a new region), the local identity was ritually executed to satisfy the laws of that satrapy, while the living king continued under a new avatar in a different administrative theater. This is the resurrection motif.
-
-You can identify their aliases or titles through onomastic decodings of their names and titles in regional dialects and through spouses. For example, the governor of Roman Egypt from 33 CE to 38, Aulus Avillius Flaccus, was also Polemon II of Pontus, who was the prince of the Bosporan, Pontus, Cilicia, and Cappadocia, which was the regional alias of Emperor Titus. The character of Aulus Avillius Flaccus dies at the same time Polemon II of Pontus takes power, and then Polemon II of Pontus dies around the same time Titus becomes emperor. The way to connect them is through the fact that they were all married to the same woman, Berenice, granddaughter of King Herod (Bernice is recorded to have been married to Aulus Avillius Flaccus and Marcus Julius Alexander (nephew of Philo of Alexandria, brother of Tiberius Julius Alexander). These two marraiges connect her to the Alexandrian Jewish plutocracy and the Roman Egyptian administration. Herod of Chalcis (Herodian). This connects her to the Judean royal house. Polemon II of Pontus/Cilicia (descendant of Mark Antony through Antonia Tryphaena). This connects her to the Bosporan dynasty's own claimed ancestry. Titus Flavius (Flavian dynasty). This connects her to the imperial house that destroyed Jerusalem. She was also married to a man named "Marcus Antonius Polemo II" who was the son of Marcus Antonius Polemon I aka Polemon of Laodicea https://en.wikipedia.org/wiki/Polemon_of_Laodicea. Marcus Antonius Polemo II is the same as Polemon II of Pontus/Cilicia proving the Bosphoran royal house carried the Marcus Antonius title. These people are all the same man adopting localized identities and titles). Berenice's brother, Marcus Julius Agrippa II, governed all foreign Roman territories except Egypt during the Flavian period. Egypt was governed by her brother-in-law Tiberius Julius Alexander. This means the entire Eastern imperial administration was controlled by two men both related to Berenice. Berenice = Greek Pherenike = "Bearer of Victory" (Nike). She is the living Nike, the goddess of victory, the same as the Nike on coins.
-
-Also note how so many obscure ancestry client kings, prefects, and secretaries interlink via the same small pool of Herodian/Ptolemaic women and Tiberius Julius/Marcus Antonius names.
-
-I. The Ptolemaic, Julio-Claudian & Bosphoran Bloodline
-
-Alexander the Great's successors ("Diadochi") were Seleucus I Nicator who controlled a large chunk of the eastern territories, including Mesopotamia and Persia, Diodotus I Soter who controlled Bactria (possibly also India under the alias Ashoka the Great), and Ptolemy I Soter who controlled Egypt. Mainstream history presents the Ptolemies, Seleucids, Attalids, and Romans as separate, often warring entities. This is a Flavian-Vatican fabrication. In reality, they were four branches of a single Scythian-Sarmatian dynasty, a "Tetrarchy", administering different sectors of the empire from the Bosphoran center.
-
-- Mithridates VI Eupator of Pontus = Ptolemy XII Auletes of Egypt
-  Aliases: Mark Antony (Marcus Antonius = Mar (Phoenician "lord") + Anton (from Antaeus, giant son of Gaia) or "Antonius" is a Latinization of "Antiochus"?), King Herod (Heru (Horus) + Ud (divine) = Herud -> Herod, "The Divine Horus", or Herodes (-dēs common Greek patronymic suffix meaning "son of"), "Son of Horus". The "Slaughter of the Innocents" is a mythological trope attached to the birth of every Horus-figure who must overcome a threat (against Set). It is not history; it is theological propaganda asserting Herod's/Mark Antony's legitimacy as the living god-king against the resurrected one. This is also attached to the Indian god Krishna (against Kamsa)), Polemon Pythodoros, King of Pontus, prince of Pontus (Polemos -> Ptolemy). Tiberius Claudius Nero, Phraates IV of Parthia (Per-aa or Per-Nesu is a corruption of Pharaoh). Ariarathes IX (Arya-Ratha". Sanskrit:"Noble Charioteer") Eusebes Philopator, King of Cappadocia. Was he also Ptolemy X Alexander I aka Simon Boethus aka Simon Magus? Hyspaosines of Characene? Mithridates VI Eupator and Mark Antony are both recorded as marrying a sister-wife named Cleopatra (Antony to Cleopatra VII; Mithridates VI to Laodice, who used "Cleopatra" as a throne name and Mithridates VI of Pontus was also recorded to have married Cleopatra of Athamania and their daughter was Cleopatra of Pontus (https://web.archive.org/web/20101126090909/http://mauriceboddy.org.uk/Pontus.htm)). King Herod was married to Cleopatra of Jerusalem, and Mithridates VI Eupator and Ptolemy XII Auletes both had daughters named Cleopatra (Cleopatra VII/Cleopatra the Elder, princess of Pontus). The Shekel of Tyre minted by Herod depicts Mark Antony and Hercules and Herod built temples to Hercules in Beirut and Tyre, and depicted himself as Hercules in his Herodian Cult. Herod's son Herod Antipas shares the name of Mark Antony's son Antyllus; Herod's other son Antipater was Iullus Antonius (Mark Antony's son with Fulvia), Herods son Alexander (son of King Herod) has the same name as Mark Antony's son Alexander Helios.
-  - Spouse: Wife/sister: Laodice (in Pontus) = Cleopatra V Tryphaena (in Egypt)
-  - Children:
-    - Cleopatra VII Thea Philopator aka Dynamis, queen of Bosphorus (Denwen = the fiery serpent deity in Egyptian mythology who nearly destroyed the gods), Cleopatra of Pontus, Pythodorida, queen of Pontus, Musa Thea Urania of Parthia (Parthian queen mother, same "Heavenly Goddess" title). Also, Amanirenas ("Amon is Lord"), Kandake of Kush? Dynamis was called "Dynamus Pilatea"(https://en.rodovid.org/wk/Person:401227) the same title that was carried by "Pontus Pilate". The Etruscan Pilates was a title for the high priest of the Mithraic cult. In the Mithraic tauroctony, the bull‑slayer wears a Phrygian cap—the same cap worn by Dynamis on her coins. Dynamis is recorded as the granddaughter of Mithridates VI, but historians are probably confusing her with Cleopatra the Elder, princess of Pontus who was married to Tigranes II, king of Armenia. Cleopatra VII, Dynamis, and Pythodorida all had sons named Ptolemy Philadelphus who succeeded them.
-    - Ptolemy XIII Theos Philopator aka Gaius Octavius (Emperor Augustus). Aliases: Polemon I of Pontus (Dynamis was titled "Pilatea" and he was the king of Pontus. Pontius Pilate would have been his title that his descendants would have inherited). Gaius Julius Sohaemus of Emesa. Rhoemetalces I (a classic Thracian royal name, linking to the "Rome" = "Ruma" etymology. Rhoemetalces = "king of Rhome", or "king of Rome" in ancient Thracian), king of Bosphorus. Rhoemetalces Philocaesar of Pontus was the son of Marcus Antonius Polemon Pythodoros and was married to Pythodoris I (Cleopatra). Polemon I of Pontus was married to Dynamis (Cleopatra). Cleopatra was married to her brother Ptolemy XIII Theos Philopator who was born at the same time as Augustus. He was her brother husband. Asander was also married to Pythodoris I and Dynamis proving these were Cleopatra's aliases. Likely also Azes I, king of India and Wang Mang the founder and the only emperor of the short-lived Xin dynasty of imperial China (Wang (王) in Chinese means "King." The archaic pronunciation of Wang in Old Chinese (reconstructed by linguists as *wɢaŋ) is a direct phonetic match for Vah / Bah / Pharna (Scythian Royal Glory). Mang (莽): Means "Grass/Dragon-Snake in the Reeds." Wang Mang = The Serpent-Glory King.). The "Han Dynasty" and the "Roman Empire" were not two separate isolated worlds communicating via indirect silk trade. They were the eastern and western wings of the same global Scythian-Yuezhi administrative system, governed by identical bloodline avatars.
-
-- Julius Caesar = Asander, King of Bosporus aka Ptolemy of Cyprus (brother of Ptolemy XII Auletes and husband of "Mithridates") aka Mithridates Chrestus (he married the daughter of Mithridates VI, Laodice, who took the throne name "Cleopatra". Mithridates VI Eupator was also married to Laodice), King of Pontus VI (brother of Mithridates VI, king of Pontus).
-  Titles: Philocaesar Philoromaios, Soter, Great King of Kings, "As" in his name refers to Asar(Osiris)/Aesar/Aeser/Aisar/Ais/Is). Other suspected aliases: Akrosandros II, King of Scythia, Brogitarix, Idumean Antipater, Gaius Asinius Pollio (literary pen-name), Parthian Artavasdes (Greek Alex = Persian Arta) who was the brother of Tigranes II who was married to Cleopatra the Elder, princess of Pontus (Tigranes II/the Great was called Azhdahak proving Aži Dahāka was a royal Scythian title), Artavasdes II, king of Armenia who was the son of Tigranes II and Cleopatra the Elder, princess of Pontus and the Hasmonean Alexander II (son of king Aristobulus II son of Jannaeus Alexander also the nephew and son-in-law of king/high-priest Hyrcanus II. Also, Julius = Janneus? Or Janneus (Yannai) is related to the Roman name Gaius?). Juba I, King of Mauretania, Burebista, King of the Dacians, Atrebates, king of Britannia. Also Prince Jin Midi in China? Jin (金) means "Gold," a royal Scythian attribute. Mi (日) is "Sun." Di (磾) is a rare character meaning "black," but also a homophone for "Emperor" (帝). His story: A noble "barbarian" prince from the West (Xiongnu confederation, which included Saka/Scythians) is captured and rises to become the most powerful man in China, serving as regent to a child emperor. This is the exact same narrative archetype as a foreigner (Caesar) rising to power in Rome. Caesar's heir is Augustus. Asander's named successor is Aspurgus. Julius Caesar, Asander, Mithradates Chrestus and all had successors named Tiberius Julius (Tiberius Julius Augustus/Tiberius Julius Aspurgus/Tiberius Julius Mithridates).
-  - Spouse/Consort: Cleopatra VII (Isis who in mythology was the wife of Osiris and the mother of Horus): Dynamis Ourania (Aphrodite Urania). Aliases: Pythodorida Philometor (Pytho- from python, and -doria from the Dorian tribe who were Scythian Greeks). Also, Amanirenas ("Amon is Lord"), Kandake of Kush?
-  - Children:
-    - Emperor Tiberius Julius Caesar Augustus. Alias: Tiberius Julius Aspurgus Philoromaios, king of Bosphorus (Aspurgos calls himself the son of "the great king of Asandrokhos" in an inscription. https://www.researchgate.net/publication/390912485_Aspurgos_-_the_king_of_Bosporan_state_98_BC_-_AD_38). Also likely Kujula Kadphises, prince of Bactria. Also, was he the legendary Chinese emperor Yu the Great (original name "Aži" or "Yazhi" (亞茲))? Julius, from Ioulius, related to Iove (Jove). Iove is linguistically linked to the Scythian tribal name Yuehzi (Yuezhi). He is "The Jove/Yuezhi King"? Also, Artaxias II king of Armenia? (Artaxes is Arta-Uksha which is the same as Kadphises or Gud-Vrsa)
-      - Spouse: Vipsania Agrippina. The name Vipsania is obscure, but Agrippina means "wild horse" (from agri- "wild" and -pina "mare"), and Tiberius Julius Aspurgus Philoromaios's wife, known only through numismatic evidence, was Gepae-pyris (Gepa- from hippos, "horse" in Greek, cf. Epona, Celtic horse goddess and -epyris (possibly "lady" or "queen"). Both names encode "Horse-Queen." This is a title for a Sarmatian noblewoman of the steppe horse-culture. Vipsania Agrippina is the same as Agrippina the Elder who was Caligula's mother.
-      - Children:
-        - Tiberius Julius Mithridates III (Italian Avatar: Emperor Caligula)
-        - Tiberius Julius Cotys I. Italian Avatar: Emperor Claudius = Rhoemetalces II of Bosporus (Reigns are nearly perfectly co-terminus. Polemon Pythodoros (Julius Caesar/Asander) and Pythodorida of Pontus (Cleopatra/Dynamis) had a daughter Antonia Tryphaena. Her son was Rhoemetalces II whose reign coincided with emperor Claudius)
-        - Tiberius Julius Aspurgus had a son named Tiberius Julius (Abdes Panthera) who was a brother of "Mithridates" (https://en.rodovid.org/wk/Person:401221). I am unsure if this is Tiberius Julius Cotys I or another son. The name "Panthera" is famously connected to the father of Jesus (Yeshua ben Panthera). This connection proves that the Mithridatic dynasty and Bosphoran royal house were the same, and they carried the Tiberius Julius Roman royal title. Tiberius Julius Abdes Panthera's son was named Judas Pantera (https://en.rodovid.org/wk/Person:497363)
-
-- Child of Antony/Herod & Dynamis/Cleopatra:
-  - Alexander (son of King Herod). Aliases: Alexander Helios, Juba II of Mauretania (Juba = Ie-huva (Little Jove)). Juba II is titled "Ptolemy" upon accession in Mauretania. Also, Apollonius of Tyana? (Apollonius = "Of Ptolemy"? Apo (from/of) + Pollonios (Ptolemy))
-    - Spouse: Cleopatra Selene II (twin sister)
-    - Children:
-      - Alexander (grandson of King Herod). Aliases: (King/Tetrarch) Ptolemy (Alexander) bar Menneus, Ptolemy of Mauretania (aka Panthera, the name for jesus's father in the Talmud; Panthera is a corruption of Cantheras, or Cleopatros. Also, Panthera = Ptolemy in Hebrew), Tiberius Julius Alexander Major, Alexander the Alabarch. Also, Gondophares, Indo-Parthian King?
-        - Spouse: Cleopatra (Thea Philopator) of Mauretania. Aliases: Cleopatra IX, Helene, Drusilla of Mauretania, Julia Ourania of Parthia, Philo of Alexandria. She was also Claudius and Nero's secretary "Pallas", and "Antonia Caenis" who was Vespasian's first cousin and mistress (the full name of Pallas was Marcus Antonius Pallas, with the Antonius part being an obvious sign of descent from Mark Antony and that Pallas wasn't a random slave. Caenis was the Greek goddess who was transformed into a man, and she role-played as two men: Marcus Antonius Pallas and Philo. Pallas also connects to King Herod as that was the name of one of his wives). In mythology Athena or Athene was often given the epithet Pallas. In "The Additions to the Book of Esther" it states that the work had been translated by "Lysimachus son of Ptolemy" in Jerusalem. Philo's brother was named Alexander Lysimachus. Cleopatra Thea Philopator appears as the wife of Antonius Felix (the governor of Judea). Therefore, Antonius Felix = Alexander (grandson of Herod).
-        - Children:
-          - Tiberius Julius Alexander: Emperor Nerva, Arrius Piso, Josephus (Josephus lists his father as Matthias, a priest. "Matthias" is a Hellenized form of Mithradates)
-          - Marcus Julius Alexander: Izates Monobazus ("Jesus Emmanuel"), Yeshua Cleopatros. Also Gaius Calpurnius Piso? Izates' daughter was named "Cleopatra of Adiabene" (https://gw.geneanet.org/arnac?lang=en&n=d+adiabene&p=kleopatra) who married Lucius Catilius Severus. Their great-grandson was emperor Marcus Aurelius. His other daughter was Julia Urania of Parthia married Vologases I King of Parthia. "Cleopatra" (Cleopatra Drusilla of Adiabene) was also recorded as the wife of Gaius Julius Alexander (actualy Marcus Julius Alexander), Herodian Prince of Judaea and Izates II, King of Adiabene (https://www.geni.com/people/Cleopatra/6000000003645870120)
-
-IV. Flavian Emperors
-
-- Vespasian
-  Aliases: Rhescuporis I, king of Bosphorus. Herod Agrippa I (See: The Royal Ancestry of Emperor Vespasian. Henry Davis, [^3]). Flavius Scaevinus. Also, Vologases I of Parthia?
-- Titus (from Titan; the elder gods who ruled before the Olympians in Greek Mythology, or Tit‑us = Diodotus? which means "Given by Zeus" which is the exact same meaning as Mithridates ("Given by Mithra")). Aliases: Polemon II, Aulus Avillius Flaccus.
-
-V. Speculative
-
-- Pythagoras: "Pythagoras" = "Pythodorida" = "Python-Priestess". Pythagoras was not a man—he was a title held by the high priest/ess of the Delphic/Alexandrian serpent cult, possibly Cleopatra herself under a male avatar. The high priestess of the Temple of Apollo at Delphi was called Pythia [^4] who breathed serpent vapors (ethylene gas). Greek writers regarded the Hyperboreans as the mythical founders of Apollo's shrines at Delos and Delphi [^5]. The name "Pythagoras" is derived from the Greek words "Pythios" (Πύθιος), meaning "of Pythia" or "belonging to the Pythia ("Pythoness"), and "Agoras" is a direct linguistic link to "Agaroi", the name of the Scythian snake-venom priesthood.
-
----
 
 ## Chapter 10: Name and Title Meanings
 
