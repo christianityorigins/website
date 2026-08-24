@@ -31,14 +31,14 @@ Published by Heretical Books
 
 **Part 1: The Genetic Blueprint**
 
-1. The Three Castes of Ancient Eurasia\
+1: The Three Castes of Ancient Eurasia\
 1.1 The Neolithic Farmers (The Worker Caste)\
 1.2 The Indo-European Aryans (The Ruling Caste: Yamnaya, Corded Ware)\
 1.3 The Indigenous Hunter-Gatherers (The Substrate)
 
 **Part 2: The Asii Foundation & Satrapy System**
 
-2. The Asii Foundation (c. 4500 BCE – 2000 BCE)\
+2: The Asii Foundation (c. 4500 BCE – 2000 BCE)\
 3: Timeline: The Proto-Indo-European (Aryan) Hegemony\
 4: Key Historical Figures & Their Aliases\
 4.1 The Primordial Patriarch: Ateas the Scythian\
@@ -288,8 +288,6 @@ Role: The conquered, absorbed, or eradicated populations over whom the Farmers f
   - Horse remains appear in settlements.
   - Battle-axe culture spreads.
 
-**The Key Insight for the Asii:** The Yamnaya expansions from the western steppe into Europe and Asia during the Early Bronze Age (~3000 BCE) are believed to have brought with them Indo-European languages and possibly horse husbandry. But critically, the Scythians cannot be modeled as LBK + Yamnaya; rather, they are best described as **"Yamnaya" + East Asian**.
-
 **This means R1a-Z93 was already present further southeast**—it moved out into Asia before the ancestors of Andronovo, Potapovka, Sintashta and Srubnaya acquired EEF. In other words, the Asii Dragon Kings emerged from the **eastern steppes**, not the western ones—a fact confirmed by the 2024 discovery at Tunnug 1 (see Chapter 4.2).
 
 **Method:** Elite dominance, not population replacement. R1a/R1b males take elite positions. The Asii did not destroy the Farmer societies—they co-opted their infrastructure. They killed or subjugated the G2a/J2 ruling class and inserted themselves at the top of existing hierarchies.
@@ -325,6 +323,8 @@ Role: The conquered, absorbed, or eradicated populations over whom the Farmers f
 ## Chapter 2: The Asii Foundation (c. 4500 BCE – 2000 BCE)
 
 ### 2.1 The Asii Foundation (c. 4500 BCE – 2000 BCE)
+
+The eastern branch of the Yamnaya, which migrated into the Volga-Ural region, became predominantly R1a-Z93. The western branch was Corded Ware culture (c. 3000–2350 BCE) who emerged in Central Europe (modern Germany, Poland, Czechia) as a result of a massive Yamnaya migration westward. Genetically, Corded Ware populations are ~75% Yamnaya steppe ancestry. The Indo-European languages (Latin, Greek, Sanskrit, Persian) are all siblings descended from Yamnaya Proto-Indo-European languages. 
 
 The Aryans were the broader confederation of Indo-Iranian clans—the horse-riding, chariot-using pastoralists who spread from the Pontic-Caspian Steppe into Europe, Anatolia, and South Asia. They were the ethnic and linguistic foundation of the ancient world. The Asii were the ruling caste. Roman historian Justin in 'Liber Historiarum Philippicarum' makes this explicit: "The Asii were the reges—the kings—of the Tochari. The Tochari and Sakaraucae were Aryan/Iranian peoples. The Asii ruled them".
 
