@@ -32,9 +32,9 @@ Published by Heretical Books
 **Part 1: The Genetic Blueprint**
 
 1. The Three Castes of Ancient Eurasia\
-   1.1 The Neolithic Farmers (The Worker Caste)\
-   1.2 The Indo-European Aryans (The Ruling Caste: Yamnaya, Corded Ware)\
-   1.3 The Indigenous Hunter-Gatherers (The Substrate)
+1.1 The Neolithic Farmers (The Worker Caste)\
+1.2 The Indo-European Aryans (The Ruling Caste: Yamnaya, Corded Ware)\
+1.3 The Indigenous Hunter-Gatherers (The Substrate)
 
 **Part 2: The Asii Foundation & Satrapy System**
 
@@ -43,8 +43,8 @@ Published by Heretical Books
 4: Key Historical Figures & Their Aliases\
 4.1 The Primordial Patriarch: Ateas the Scythian\
 4.2 Later Dragon Bloodline Descendants\
-Chapter 5: The Asii Satrapies: A Comprehensive Directory\
-Chapter 6: The Dragon Cult\
+5: The Asii Satrapies: A Comprehensive Directory\
+6: The Dragon Cult\
 6.1 The Swastika
 
 **Part 3: The Alexandrian Synthesis**
@@ -332,7 +332,7 @@ The Asii established a Satrapy System—a network of regional viceroys, each gov
 
 The title of the supreme governor was always some variation of As-Sar ("Lord-King"), which became Asar (Egyptian Osiris), Aesar (Etruscan, meaning "God"), Kaesar (Greek rendering, later Latinized to Caesar), Kaiser, Tsar, Shah—all deriving from the same Scythian root.
 
-This was not a series of separate "ancient civilizations." It was a global empire administered through a unified linguistic, genetic, and theological framework.
+This was not a series of separate "ancient civilizations." It was a global empire administered through a unified linguistic, genetic, and theological framework. 
 
 **The Asii Core (Pontic-Caspian Steppe)**
 
