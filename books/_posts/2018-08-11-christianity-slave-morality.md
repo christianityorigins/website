@@ -13,9 +13,9 @@ By Ralph Perrier
 
 A Book in Two Volumes
 
-"Do not suppose that I have come to bring peace to the earth. I did not come to bring peace, but a sword. For I have come to turn a man against his father, a daughter against her mother..." -- Matthew 10:34-36
+"Do not suppose that I have come to bring peace to the earth. I did not come to bring peace, but a sword. For I have come to turn a man against his father, a daughter against her mother, a daughter-in-law against her mother-in-law—a man’s enemies will be the members of his own household." -- Matthew 10:34-36
 
-"Do you think I came to bring peace on earth? No, I tell you, but division..." -- Luke 12:51
+"Do you think I came to bring peace on earth? No, I tell you, but division. From now on there will be five in one family divided against each other, three against two and two against three. They will be divided, father against son and son against father, mother against daughter and daughter against mother, mother-in-law against daughter-in-law and daughter-in-law against mother-in-law" -- Luke 12:51
 
 "Fascism, I think, was the most radical revolutionary movement that Europe has seen since the age of Constantine. Because unlike the French Revolution, unlike the Russian Revolution, it doesn’t even target institutional Christianity: it targets the moral/ethical fundamentals of Christianity. The French Revolution, the Russian Revolution are still preaching the idea that the victim should be raised up from the dust and that the oppressor should be humbled into the dust; it’s still preaching the idea that the first should be last and the last should be first just as Christ has done. The Nazis do not buy into that. The Nazis buy into the Nietzschean idea that the weak are weak and should be treated as weak, as contemptible, as something to be crushed…. Atheists of today [like Richard Dawkins et al]… they are basically Christians. Nietzsche saw humanists, communists, liberals—people who may define themselves against Christianity—as being absolutely in the fundamentals Christian, and I think he is right about that because I think that in a sense atheism doesn’t repudiate the kind of ethics and the morals and the values of Christianity." - Tom Holland
 
