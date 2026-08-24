@@ -39,85 +39,88 @@ Published by Heretical Books
 **Part 2: The Asii Foundation & Satrapy System**
 
 2: The Asii Foundation (c. 4500 BCE – 2000 BCE)\
-2.1 The Asii Core (Pontic-Caspian Steppe)\
-2.2 The Hyksos (Egypt)\
-2.3 The Assyrian/Mitanni Kingdom (Syria/Mesopotamia)\
-2.4 The Kassite Dynasty (Babylon)\
-2.5 Aššuwa (Anatolia/Western Asia Minor)\
-2.6 Sargon of Akkad (Mesopotamia)\
-2.7 Vedic India (Indus Valley)\
-2.8 The Roxolani / Alans (Eastern Europe)\
-2.9 Tochari (Bactria)\
-2.10 Scandinavia (The Aesir)\
-2.11 Ateas the Scythian (Macedon/Thrace)\
-2.12 The Asii Global Lexicon (Proving their Reach)\
+2.1 The Asii Global Lexicon (Proving their Reach)\
+2.2 The Branches of the Dragon Empire\
+2.3 The Asii Core (Pontic-Caspian Steppe)\
+2.4 The Yuezhi / Tocharians (Central Asia/China)\
+2.5 The Hyksos (Egypt)\
+2.6 The Assyrian/Mitanni Kingdom (Syria/Mesopotamia)\
+2.7 The Kassite Dynasty (Babylon)\
+2.8 Aššuwa (Anatolia/Western Asia Minor)\
+2.9 Akkadian Empire (Mesopotamia)\
+2.10 Vedic India (Indus Valley)\
+2.11 The Roxolani / Alans (Eastern Europe)\
+2.12 Lazyges (Central Europe)\
+2.13 Gaul (Central Europe)\
+2.14 Tochari (Bactria)\
+2.15 The Aesir (Scandinavia)\
+2.16 Ateas/Argeads (Macedon/Thrace)\
 3: Timeline: The Proto-Indo-European (Aryan) Hegemony\
 4: Key Historical Figures & Their Aliases\
 4.1 The Primordial Patriarch: Ateas the Scythian (c. 429 BC – 339 BC)\
 4.2 Later Dragon Bloodline Descendants\
-5: The Asii Satrapies: A Comprehensive Directory\
-6: The Dragon Cult\
-6.1 The Swastika
+5: The Dragon Cult\
+5.1 The Swastika
 
 **Part 3: The Alexandrian Synthesis**
 
-7: The Alexandrian School\
-7.1 Serapis Cult\
-7.2 Religion as an Operating System for the Ancient World\
-7.3 Judaism\
-7.4 Location of Ancient Jerusalem (Hiero-Solyma)\
-7.5 Modern Jews
+6: The Alexandrian School\
+6.1 Serapis Cult\
+6.2 Religion as an Operating System for the Ancient World\
+6.3 Judaism\
+6.4 Location of Ancient Jerusalem (Hiero-Solyma)\
+6.5 Modern Jews
 
 **Part 4: The Bosphoran Connection**
 
-8: Rome On the Bosphorus River\
-9: The Imperial Avatar System: Numismatic Proof and Aliases\
-10: Name and Title Meanings\
-10.1: The Name Jesus Christ\
-11: Julius Caesar aka Asander, King of Bosphorus aka Mithridates Chrestus\
-11.1 Julius Caesar was a Title\
-11.2 Julius Caesar aka Asander's Suspected Aliases\
-12: Cleopatra VII aka Dynamis Ourania aka Pythodorida Philometor\
-13: Dragon Bloodline Descendants\
-13.1 Ptolemy XII Auletes aka Mark Antony aka Mithridates VI Eupator\
-13.2 Ptolemy XIII Theos Philopator aka Gaius Octavius (Emperor Augustus) aka Rhoemetalces I\
-13.3 Ptolemy XIV Philopator aka Amyntas Nikator aka Amyntas, King of Galatia\
-13.4 Was Amyntas Nikator aka Amyntas, King of Galatia the Living Esus?\
-13.5 Alexander, son of King Herod aka Alexander Helios aka Juba II\
-13.6 The Successor Generations\
-13.7 Izates II, King of Adiabene\
-13.8 Tiberius Julius Sauromates II\
-13.9 Simon Bar Kokhba
+7: Rome On the Bosphorus River\
+8: The Imperial Avatar System: Numismatic Proof and Aliases\
+9: Roman Name and Title Decodings\
+9.1: The Name Jesus Christ\
+10: Julius Caesar aka Asander, King of Bosphorus aka Mithridates Chrestus\
+10.1 Julius Caesar was a Title\
+10.2 Julius Caesar aka Asander's Suspected Aliases\
+11: Cleopatra VII aka Dynamis Ourania aka Pythodorida Philometor\
+12: Dragon Bloodline Descendants\
+12.1 Ptolemy XII Auletes aka Mark Antony aka Mithridates VI Eupator\
+12.2 Ptolemy XIII Theos Philopator aka Gaius Octavius (Emperor Augustus) aka Rhoemetalces I\
+12.3 Ptolemy XIV Philopator aka Amyntas Nikator aka Amyntas, King of Galatia\
+12.4 Was Amyntas Nikator aka Amyntas, King of Galatia the Living Esus?\
+12.5 Alexander, son of King Herod aka Alexander Helios aka Juba II\
+12.6 The Successor Generations\
+12.7 Izates II, King of Adiabene\
+12.8 Tiberius Julius Sauromates II\
+12.9 Simon Bar Kokhba
 
 **Part 5: The Flavian Dynasty and the Creation of Christianity**
 
-14: The Flavian Dynasty
+13: The Flavian Dynasty
 
 **Part 6: The Demographic Erasure of the Scythian-Aryan Hegemony**
 
-15: Plagues and Biological Warfare\
-16: The Flavians (c. 50 BCE – 300 CE)\
-17: China: The Han Synthesis and the Tartarian Genocide\
-18: Ancient India: The Mauryan Mirage\
-19: The Middle East and North Africa: Invasions and Slave Colonization (250 - 650 CE)\
-20: Where Did The Scythian Aryans Go? The Refugia
+14: Plagues and Biological Warfare\
+15: The Flavians (c. 50 BCE – 300 CE)\
+16: China: The Han Synthesis and the Tartarian Genocide\
+17: Ancient India: The Mauryan Mirage\
+18: The Middle East and North Africa: Invasions and Slave Colonization (250 - 650 CE)\
+19: Where Did The Scythian Aryans Go? The Refugia
 
 **Part 7: Rewriting History**
 
-21: Rewriting History\
-22: Inventing Ancient Greece\
-23: The 'Achaemenid' Empire is the Parthian Empire\
-24: Fabricating 'Ancient' Egypt\
-25: Rome: The Phantom Empire on the Tiber\
-26: The Renaissance Forgery (14th–16th centuries CE)\
-27: The Jesuit Operation (16th-18th c.)
+20: Rewriting History\
+21: Inventing Ancient Greece\
+22: The 'Achaemenid' Empire is the Parthian Empire\
+23: Fabricating 'Ancient' Egypt\
+24: Rome: The Phantom Empire on the Tiber\
+25: The Renaissance Forgery (14th–16th centuries CE)\
+26: The Jesuit Operation (16th-18th c.)
 
 **Part 8: Sects of the Imperial Cult**
 
-28: Identifying the Flavian Scribes\
-28.1 Christianity\
-28.2 The Cult of Antinous\
-28.3 Islam
+27: Identifying the Flavian Scribes\
+27.1 Christianity\
+27.2 The Cult of Antinous\
+27.3 Islam
 
 **Conclusion**
 
@@ -168,7 +171,7 @@ What the reader needs to know before entering this book:
 
 - In central Asia there was a tribe called the Yuezhi who were also called the Asii (or Asioi). Asii = As + ii = The People of As. This is attested in Strabo (Geography, 11.8.2). The Asii were the ruling nucleus of the a Scythian-Iranian confederation. The Asii are the unnamed architects of every "ancient" empire. The "Aryan" invasion was not an invasion. It was the Asii/Yuezhi imperial administration deploying its garrison caste (the R1a-Z93 carriers) into every fertile basin from the Nile to the Ganges. They did not "conquer" and leave. They stayed, built kurgans and pyramids (both solar-resurrection machines), issued coinage with the As mark, and ruled through an avatar system.
 
-- The As- root in Asii means lord/god/serpent (Asar, Aesar, Asa, Aesir). Iulius is the Latin fossilization of the Iranian/Tocharian tribal name Yuezhi. The Anatolian administrative faction of the Asii were the "Aššuwa" and their capital was Troy. Iulius = "of Ilium" = "of Aššuwa" = "of the Asii". Caesar is a Latin translation of As- (Aesar in Etruscan -> Greek Kaesar -> Latin Caesar). The Asii sky-father deity was Zeus/Jupiter. The gens Iulia was not Trojan. It was the Asii royal caste transplanted to the Mediterranean. Gaius Julius Caesar was a tribal designation. Thus, the original "Jews" (Iudii) were not a Semitic people from Canaan. They were the Scythian royal and priestly caste (Asii), the R1a haplotype Asii "Dragon Kings". They ruled a vast, global empire from the Steppe. Their self-identification was Yuezhi/Asii, then Iudii which is where the title Julii/Julius originates. The Latin pronunciation of Iove is Yoh-Way, i.e., Yahweh/Yhwh. The name "Ashkenaz," a direct Hebrew rendering of the Assyrian word for Scythian, confirms that the earliest Jews were recognized as Scythians. Through the designation Khazar they were explicitly claiming descent from The Dragon Kings and Julius Caesar. Their identity was later stolen by the J1/J2 haplotyped priestly network after the "Jewish-Roman" Wars. Ancient Judaism was the Asii imperial cult.
+- The As- root in Asii means lord/god/serpent (Asar, Aesar, Asa, Aesir). Iulius is the Latin fossilization of the Iranian/Tocharian tribal name Yuezhi. The Anatolian administrative faction of the Asii were the "Aššuwa" and their capital was Troy. Iulius = "of Ilium" = "of Aššuwa" = "of the Asii". Caesar is a Latin translation of As- (Aesar in Etruscan -> Greek Kaesar -> Latin Caesar). The Asii sky-father deity was Zeus/Jupiter. The gens Iulia was not Trojan. It was the Asii royal caste transplanted to the Mediterranean. Gaius Julius Caesar was a tribal designation. Yuezhi = Iulius = Iudaios (Jew). The Tribe of Judah and the Gens Julia were the exact same bloodline. the original "Jews" (Iudaios/Iudii) were not a Semitic people from Canaan. They were the Scythian royal and priestly caste (Asii), the R1a haplotype Asii "Dragon Kings". They ruled a vast, global empire from the Steppe. Their self-identification was Yuezhi/Asii, then Iudii which is where the title Julii/Julius originates. The Latin pronunciation of Iove (Jove) is Yoh-Way, i.e., Yahweh/Yhwh. The name "Ashkenaz," a direct Hebrew rendering of the Assyrian word for Scythian, confirms that the earliest Jews were recognized as Scythians. Through the designation Khazar they were explicitly claiming descent from The Dragon Kings and Julius Caesar. Their identity was later stolen by the J1/J2 haplotyped priestly network after the "Jewish-Roman" Wars. Ancient Judaism was the Asii imperial cult.
 
 - The Flavians were the Pālava/Pahlavi clan, a junior branch of the R1a haplotype Aryan elite, and were likely intermarried with the Judeo-Anatolian J2 priesthood by Vespasian's reign. The Julio-Claudians were Asii. The "Jewish-Roman" Wars were a civil war between the Asii and the Pahlava-J1/J2 network. The Flavians were the J1/J2 enforcers. They did not create the usurpation—they were hired guns for a priestly network that had been infiltrating the Dragon King empire for centuries. The Flavians were not putting down a provincial revolt, they were putting down an R1a Scythian counter-revolt against the J1/J2 Flavian collaborators and then launched a blitzkrieg against the core Eastern administration and this destroyed the Scythian steppe hegemony. A recent study published in the Journal of Science (Ancient Rome: A genetic crossroads of Europe and the Mediterranean. https://www.science.org/doi/10.1126/science.aay6826) explicitly notes that during the Imperial period (27 BC – 300 AD), Rome experienced a massive genetic shift from local Italian (Etruscan/Latin/R1a) ancestry toward Eastern Mediterranean and Anatolian ancestry (J1/J2). The study dates this shift to exactly the Flavian period (70–100 AD). The influx of "Eastern" DNA coincides perfectly with Vespasian's importation of 100,000+ Jews/Adiabeneans into Italy after the Jewish-Roman War. This is why the Flavian dynasty and their court historians (Josephus, Pliny, Tacitus) rewrote history to erase the Scythian origins of ancient civilizations and painted the Scythians (R1a) as monstrous foreigners. They also took their primary political enemy, King Izates II, one of the last remaining Dragon Kings, and rewrote his cult as pacifist allegory to subvert the people of his kingdom using the same Alexandian School formula they used in all their imperial cults. This became Christianity. "Flavius" (Pālava/Pahlavi) eventually became Shabbos. From Constantine to Heraklios, for 500 years nearly every single Emperor bore the Flavius (Shabbos) title. By my count, 37 Roman and Byzantine emperors bore the honorary title "Flavius", and then later, "Phlabios" (https://en.wikipedia.org/wiki/Special:MobileDiff/1062698821)
 
@@ -340,27 +343,49 @@ The eastern branch of the Yamnaya, which migrated into the Volga-Ural region, be
 
 The Aryans were the broader confederation of Indo-Iranian clans—the horse-riding, chariot-using pastoralists who spread from the Pontic-Caspian Steppe into Europe, Anatolia, and South Asia. They were the ethnic and linguistic foundation of the ancient world. The Asii were the ruling caste. Roman historian Justin in 'Liber Historiarum Philippicarum' makes this explicit: "The Asii were the reges—the kings—of the Tochari. The Tochari and Sakaraucae were Aryan/Iranian peoples. The Asii ruled them".
 
+Yuezhi is the same as Asii. The Chinese "Yuezhi" is a exonym—a transcription of the Scythian self-designation "Asii" or "Asiani". Iranologist W.B. Henning proposed that the ancient pronunciation of the Chinese name yue-zhi = Yuezhi (= Kuchan) can be reconstructed as Gu(t)-t'i . Thus, Guti (Gutians), a nomadic people who overran southern Mesopotamia when the Akkadian Empire collapsed around 2154 BCE), and Yüe-chih, are equivalent.
+
+Iulii is the same as Yuezhi via Hittite Aššuwa. The "As" root, meaning "lord" is the core. When the Asii migrated westward, the name was rendered in Hiitie as Aššuwa then became Latin "Iulii"—the people of the "As" lords. Iulii → Julius. The name "Iulius" is simply the Latin rendering of the same root.
+
 The Asii established a Satrapy System—a network of regional viceroys, each governing a distinct province under the suzerainty of the Steppe core. Every "ancient" civilization was a satrapy.
 
-The title of the supreme governor was always some variation of As-Sar ("Lord-King"), which became Asar (Egyptian Osiris), Aesar (Etruscan, meaning "God"), Kaesar (Greek rendering, later Latinized to Caesar), Kaiser, Tsar, Shah—all deriving from the same Scythian root.
+This was not a series of separate "ancient civilizations". It was a global empire administered through a unified linguistic, genetic, and theological framework. 
 
-This was not a series of separate "ancient civilizations." It was a global empire administered through a unified linguistic, genetic, and theological framework. 
+The Asii were the zero-point of history. They are the foundation of human civilization—the administrative caste that built the pyramids, invented the chariot, named the continents, and ruled the world from the Pontic-Caspian Steppe. Every royal title with As-, every god with As- , every place with As- , every word for being and bone in the Indo-European family, is a fossil of their administration. They were the Egyptian-Persian-Indian-Greek-Roman elite. The Flavian-Vatican-Jesuit forgery was designed to destroy this memory and replace it with a fragmented, inverted history.
 
-**2.1 The Asii Core (Pontic-Caspian Steppe)**
+**2.1 The Asii Global Lexicon (Proving their Reach)**
+
+The three core roots that form the linguistic foundation of the Dragon King hegemony that appear in every civilization, every royal title, and every religious figure across Eurasia are:
+
+AS (AS/AŽI/AZ): Lord/God. Asii, Aššuwa, Assyria, Aesir, Asura, Ahura, Asar, Aesar, Esus, Iesous, Izates, Isa.
+
+SAR (XSA): King/Head. Šarru, Sar, Caesar, Kaiser, Tsar, Shah, Sargon, Serapis, Khazar, Sarlagab.
+
+GUT/YUEZHI: The People. Guti, Yuezhi, Goths, Jats, Jutes, Iazyges, Getae, Catuvellauni, Garamantes.
+
+Regions:  Asii-a = "Land of the Asii, also, Azhi = Asia (Azhi-A) = "land of the mighty dragon" (Aži is cognate with the Chinese Zhī (dragon)), a very similar name to Rome (Rhu-Ma) = "Place of the Dragon", Romania (Rhu-Ma + Na) = "dragon land", and Sarmatia (serpent) + ma (mother, land), Assyria/Mesopotamia (As-Syria = "Asii of the West"), Aššuwa/Anatolia	(Aššuwa = "Land of the As". The Hittite name for the confederacy that included Troy), Asirgarh/India	(Asii-garh = "Asii Fort." A fortress in the Narmada valley), Assam/India	(As-sham = "Place of As". The eastern Asii colony), Asikni/India	(Asii-kani = "Asii Canal". The Vedic name for the Chenab River), Ossetia/Caucasus (As-set = "Place of the As". The modern Ossetians preserve the name), Isauria/Anatolia	(Isa-Ura = "City of God/Isa". The biblical "Israel" was located here), Isin/Mesopotamia (Isin = "City of Isis/As". A Sumerian city-state), Issus/Anatolia (Issus = "Place of Isis/As". Alexander's battle site), Ashdod/Levant (Ash-dod = "City of As." A Philistine city), Askelon/Levant (Ash-ke-lon = "Place of the As". Another Philistine city), Aššur/Mesopotamia	(As-ur = "Asii Light/Fire". The Assyrian capital and national god), Asgard/Scandinavia	(Asii-gard = "Enclosure of the Asii". The Norse home of the gods), Asir/Arabia	(Asir = "Land of As". A region in Saudi Arabia), Asyut/Egypt (As-yut = "City of As". An ancient Egyptian city), Aswan/Egypt	(As-wan = "Place of As". The southernmost city of Egypt), Axum/Ethiopia	(Axum = "Land of the As", Azov/Russia	(Azov = "Place of As". The Sea of Azov was the Dragon King sea), Azarbaijan/Iran/Caucasus (Azar-baijan = "Land of the Fire-As", Esztergom/Hungary (Esz-ter-gom = "City of the As." The ancient Hungarian capital), Isfahan/Persia	(Isfa-han = "City of Isis/As". The Persian imperial capital), Iasi/Romania	(Iasi = "Place of As". A Romanian city, formerly the capital of Moldavia, Ilium/Anatolia (Ilium = "Of the As." The Latin name for Troy), Saragurs (Scythian tribe in China), Saracen (Roman designation for Middle Eastern peoples), Sarmatian (Scythian-Iranian tribe).
+
+King names and titles: Aži-Sar / Asander / Alexander / Caesar / Kaiser / Czar / Shah / Osiris / Izates / Jesus are linguistic variations of the same supreme office across different linguistic zones of the empire. Sarlagab (the second Gutian ruler of the Gutian Dynasty of Sumer), Šarru/Sargon of Akkad's title (Akkadia: Akkadian Sarrum becomes Persian Xšaya-/Xšayathiya), Sar (Scythian), Šarri (Hurrian), -sar (Hittite), Caesar (Rome), Kaiser (Germany), Tsar (Russia), Shah/Xšaya (Persia), Asander (King of Bosporus): Asan-der = As (Lord/Serpent) + Andros (Man) = "Serpent-Lord-Man" or "Dragon-Man". Alexander: Aži-ander or Alak-san-der (Hurrian/Hittite) = Same formula: "Dragon-Man". Caesar: Aesar -> Kaesar -> Caesar or Kai-Sar. Kai (Greek: "and" but also a prefix of greatness) + Sar (King). Kaisar = "The Great King". The C is a Hellenized graft. Šarru/Sargon of Akkad's title (Akkadia: Akkadian Sarrum becomes Persian Xšaya-/Xšayathiya), Sar (Scythian), Šarri (Hurrian), -sar (Hittite).
+
+Deities: Osiris/Asar (Egyptian) is a direct link to As (Lord). Osiris is the deified form of the Dragon King archetype. Jesus: Ie-Zeus (Divine Zeus). But Zeus=Dyēus (Sky Father). The Scythian form? Izas (as in Izates). Izates = Ie (divine) + Zates (cognate of Zeus). Ie-sus (Esus). The title connects to the Celtic Esus (Lord), another avatar of the same archetype, Zarathustra (Sar + Ustra = "serpent-lord"), Saraswati (Hindi goddess of knowledge), Šaruma (Mitanni deity), feminine Sarai (or "Sarah" meaning "princess" (Genesis 17:15)).
+  
+The Flavian-Vatican 'damnatio memoriae' operation attempted to erase the Asii from the historical record. But the coins still say As. The Jats still say Asinder. The Ossetians still call themselves As. The Russians are still the Roxolani—the "Shining Asii". And the river Narmada still flows from the Asii mountains to the Asii sea.
+
+**2.2 The Branches of the Dragon Empire**
+
+**2.3 The Asii Core (Pontic-Caspian Steppe)**
 
 The Asii/Asiani/Asioi and the Alani are the same people with regional names. Ptolemy (fl. 127-148 AD) records that one of the Alan tribes in the vicinity of the Don was called the Asaioi—the ancestors of the modern Ossetians (https://jis.ut.ac.ir/article_76722.html). The name Alan is an Iranian dialectal form of the Old Iranian word Aryāna, which means "Aryan". The Alans (the western branch of the Asii) were the same people carrying the same "As" title westward.
 
-**2.2 The Yuezhi / Tocharians (Central Asia/China)**
-
-Yuezhi = Asii: The Chinese "Yuezhi" is a transcription of the Scythian self-designation "Asii" or "Asiani". Asii → Iulii: The "As" root, meaning "lord", is the core. When the Asii migrated westward, the name was rendered in Latin as "Iulii"—the people of the "As" lords. Iulii → Julius: The name "Iulius" is simply the Latin rendering of the same root.
+**2.4 The Yuezhi / Tocharians (Central Asia/China)**
 
 The Asii were also the Tocharians. Tocharian A and Tocharian B are two extinct Indo-European languages found in manuscripts from the Tarim Basin, mostly 5th–8th centuries CE, preserved by desert aridity. They were not called Tocharian by their speakers. Modern scholars named them after the Greek Tokharoi, Sanskrit Tukhāra/Tushāra, Old Persian Tuxāri- — a term that itself goes back to Tarkhu-As, "Ruler-As" (Tarkhu is the storm-god title (Hittite Tarḫunna, Etruscan Tarquin)). The speakers called themselves Ārśi (Tocharian A) which is almost certainly Arsi = Asii, and Kuśi or Kuśiññe (Tocharian B) - possibly the same root as Kushan. This is not a speculative link. It is a self-designation, written in their own language, recovered from sealed desert sites far from any Renaissance or Vatican scriptorium.
 
-**2.3 The Hyksos (Egypt)**
+**2.5 The Hyksos (Egypt)**
 
 The name "Hyksos" is not a tribal name. It is a Greek rendering of the Egyptian title hekau khasut—"rulers of foreign (mountainous) lands". The Hyksos were originally called Haq-Shasu—"Princes/Rulers of the Shasu" and Shasu is a linguistic variant of Asu/As—the very root of Asii. They were "Kings of the As". Manetho's etymology that Hyksos means "Shepherd Kings" (from Hyk = king, Sos = shepherd)—is a mistranslation. The true meaning is "Kings/Rulers of the As".
 
-Hyksos kings were named Salatis, Apachnas (Apak = "serpent" + Nas = "lord." The serpent-lord), Apophis (Apepi—the great serpent of chaos in Egyptian mythology), Jannas/Yanassi (Iannas/Jannas which connects to Janus, the Roman deity), and Assis/Archles (As-As = "Lord of Lords." The supreme Dragon King title). One Hyksos king was named Yaqub-Har (also spelled Yakubher, Yak-Baal, or variant references matching Yacobaam/Jacob). This is the Yuezhi - Iulii - Juli tribe designation. The biblical patriarch Jacob was a Hyksos pharaoh. The biblical narrative is not the story of a wandering shepherd is the inverted memory of an Asii Dragon King who ruled Egypt.
+Hyksos kings were named Salatis, Apachnas (Apak = "serpent" + Nas = "lord." The serpent-lord), Apophis (Apepi—the great serpent of chaos in Egyptian mythology), Jannas/Yanassi (Iannas/Jannas which connects to Janus, the Roman deity), and Assis/Archles (As-As = "Lord of Lords." The supreme Dragon King title). One Hyksos king was named Yaqub-Har (also spelled Yakubher, Yak-Baal, or variant references matching Yacobaam/Jacob). This is the Yuezhi - Iulii - Juli tribe designation. The biblical patriarch Jacob was a Hyksos pharaoh. The biblical narrative is not the story of a wandering shepherd it is the inverted memory of an Asii Dragon King who ruled Egypt.
 
 Every single Hyksos king carries the Asii linguistic signature. The names are not Semitic—they are Asii royal titles adapted to Egyptian phonetics.
 
@@ -368,7 +393,7 @@ They were Asii pharaohs who ruled Egypt during the Second Intermediate Period. T
 
 The Hyksos were expelled from Egypt around 1550 BC, but they did not vanish—they retreated to their steppe heartland, where they eventually became the Mitanni, the Kassites, and later the Scythians.
 
-**2.4 The Assyrian/Mitanni Kingdom (Syria/Mesopotamia)**
+**2.6 The Assyrian/Mitanni Kingdom (Syria/Mesopotamia)**
 
 Assyria and Mitanni occupied overlapping territory. Assyria came first and then was dominated by the Mitanni. Assyria then regained its independence under the Assyrian king Ashur-uballit I, around 1365–1330 BCE.
 
@@ -376,27 +401,41 @@ Assyrian = "Asii of the West". Assyria was centered on the city of Aššur (Ashu
 
 The Mitanni—Aryan horse lords in Syria—worshipped Vedic gods: Mitra, Varuna, Indra, and Nasatya. A Mitanni-Hittite treaty from around 1400 BC invokes these deities. The empire stretched from the Mediterranean to the Indus. These were Asii administrative arms, enforcing the center's will through a network of chariot-riding warrior elites.
 
-**2.5 The Kassite Dynasty (Babylon)**
+**2.7 The Kassite Dynasty (Babylon)**
 
 The Kassite Dynasty (c. 1595–1155 BC) were Aryan rulers of Babylon. The Assyrians were for a period vassals of the Mitanni kings, who had Aryan names and worshipped Vedic deities.
 
-**2.6 Aššuwa (Anatolia/Western Asia Minor)**
+**2.8 Aššuwa (Anatolia/Western Asia Minor)**
 
-The Aššuwa of Hittite records are the exact same political and military entity, only located in Anatolia because the "Hittite" empire was a regional satrapy of the Asii hegemony. The name Aššuwa is simply the Hittite/Anatolian rendering of the Scythian self-designation As. The Hittite suffix -wa or -uwa is a gentilic, meaning "Land of the As" or "People of the As". It is linguistically identical in function to the Iranian suffix -ii (Asii = People of As). Thus, Aššuwa = Asii. They are the exact same ethnonym with different grammatical endings. The capital of Aššuwa was Troy. A Hittite king of Wilusa (Troy) was named Alaksandu of Wilusa and he predated Alexander the Great by 800 years proving Alexander was a title of a Asii king. When the gens Iulia claimed descent from Aeneas of Troy, they were not inventing a myth. They were preserving a dynastic memory: they were the Italian branch of the Aššuwa-Asii imperial caste. The Trojan War was not a Greek conquest. It was a civil war within the Asii confederation—the western (Achaean/Greek) Asii against the Anatolian (Trojan).
+The Aššuwa of Hittite records are the exact same political and military entity, only located in Anatolia because the "Hittite" empire was a regional satrapy of the Asii hegemony. The name Aššuwa is simply the Hittite/Anatolian rendering of the Scythian self-designation As. The Hittite suffix -wa or -uwa is a gentilic, meaning "Land of the As" or "People of the As". It is linguistically identical in function to the Iranian suffix -ii (Asii = People of As). Thus, Aššuwa = Asii. They are the exact same ethnonym with different grammatical endings. 
+
+Wilusa is rendered in Greek as Ίλιον (Ilion) or Ἴλιος (Ilios)—the Greek name for Troy. The capital of Aššuwa was Troy. The mythical founder of the Julian line was Iulus (or Ascanius), the son of Aeneas, who fled from Ilium. When the gens Iulia claimed descent from Aeneas of Troy, they were not inventing a myth. They were preserving a dynastic memory: they were the Italian branch of the Aššuwa-Asii imperial caste. The Trojan War was not a Greek conquest. It was a civil war within the Asii confederation—the western (Achaean/Greek) Asii against the Anatolian (Trojan).
+
+A Hittite king of Wilusa (Troy) was named Alaksandu of Wilusa and he predated Alexander the Great by 800 years proving Alexander was a title of a Asii king. 
 
 Hittite kings carried names such as Khata-sar, Mul-sar, Kaui-sar, and Khilip-sar. "Sar" signified 'prince'" and is the same root as the Scythian Sar ("king") and the Assyrian Šarru ("king"). The Hittite kings called themselves "Sun-gods" —a title functionally identical to the Egyptian "Son of Ra".
 
-**2.7 Sargon of Akkad (Mesopotamia)**
+**2.9 Akkadian Empire (Mesopotamia)**
 
 Sargon of Akkad—a name that decodes to Sar-Gon ("King of the Serpent")—was an Asii viceroy. The Kassite Dynasty (c. 1595–1155 BC) were Aryan rulers of Babylon. The Assyrians were for a period vassals of the Mitanni kings, who had Aryan names and worshipped Vedic deities.
 
-**2.8 Vedic India (Indus Valley)**
+The Guti (Gutians), a nomadic people who overran southern Mesopotamia when the Akkadian Empire collapsed around 2154 BCE and ruled for over a century, have a name that traces back to Yuetzhi. W.B. Henning reconstructed the ancient pronunciation of "Yuezhi" as Gu(t)-t'i.
+
+The Guti did not vanish after their dynasty fell. They re-emerged as the Kassites, who ruled Babylon for over four centuries (c. 1595–1155 BCE). The connection is explicit in the historical record.
+
+**2.10 Vedic India (Indus Valley)**
 
 They ruled India as the Aseni, Osii, and Asoi—the Kshatriya (Aśvaka) caste. Sanskrit texts (Pāṇini, Mahabharata, Puranas) confirm the Aśvaka, Aśvayana, and Aśvakāyana as horse-warrior clans.
 
 The Indo-Iranian word for "lord" is Asura (Vedic Sanskrit) and Ahura (Avestan).
 
-**2.9 The Roxolani / Alans (Eastern Europe)**
+Jats (pronounced Jutt) Jat is a direct phonetic descendant of Gut (Guti/Yuezhi). The Jats carry high frequencies of R1a-Z93—the Dragon King genetic signature.
+
+Jat (Hindi) = Jut (Punjabi) = Gut (Akkadian) = Yuezhi (Chinese).
+
+Iazyges (Latin) = Jats (India) = Yuezhi (China) = Aššuwa (Anatolia). The entire chain is: Yuezhi (China) → Guti (Mesopotamia) → Jat (India) → Iazyges (Danube) → Aššuwa (Anatolia) → Ilium (Troy) → Iulius (Rome).
+
+**2.11 The Roxolani / Alans (Eastern Europe)**
 
 The Roxolani (-olani = - alani) were also a branch of the same tribe. Historian George Vernadsky suggested that the name Rocas (a tribe conquered by the Ostrogoths in the 4th century) may be a corruption of Ruxs-As—"Light-Asii". The Rosomoni, mentioned by Roman historian Jordanes, may also be related, interpreted as the "Ros Men". The name "Rus" is not a Viking invention. It is the Asii self-designation—the "Shining Asii" who later gave their name to the Russians. The Roxolani are the bridge between the ancient Asii and the modern Russian people.
 
@@ -404,7 +443,23 @@ Alexander's father Philip belonged to the Argead dynasty who were of Dorian Gree
 
 Alexander (Al-As-andros = the Asii Lord Man) was a member of the Roxolani tribe and when he married Roxana he was marrying a heiress to the Roxolani. Al-As-andros = As-andros = Asander. The exact same title.
 
-**2.10 Tochari (Bactria)**
+**2.12 Lazyges (Central Europe)** 
+
+The Iazyges (or Jazyges) were a Sarmatian tribe who lived along the Danube. The name is rendered in Greek as Ἰάζυγες (Iázyges).
+
+The root Iaz- is a dialectal pronunciation of As- (initial A shifts to I in certain Iranian dialects).
+
+The suffix -yges is the same as -yuezhi or -guti.
+
+Iazyges = Iaz + yges = As + guti = Asii Guti = the Dragon King people.
+
+Tacitus mentions the Iazyges as a Sarmatian tribe (Germania 43). They were the western European branch of the same people.
+
+**2.13 Gaul (Central Europe)**
+
+This region was ruled by the Aedui tribe. Yuezhi _> Iudii -> Iulii (Julians) -> Aedui (Celts)). The Aedui claimed descent from Troy, used the Gaius Julius name, and worshiped the Deified Caesar (https://en.wikipedia.org/wiki/Gaius_Julius_Vercondaridubnus)
+
+**2.14 Tochari (Bactria)**
 
 The Kushan Empire (1st-3rd c. CE) claimed descent from the Yuezhi. Their title for king was Shaonano Shao—"King of Kings"—a direct translation of the Bosporan Basileus Basileon and the Achaemenid Xšāyaθiya Xšāyaθiyānām.
 
@@ -412,46 +467,35 @@ The Greek Tokharoi, Sanskrit Tukhāra/Tushāra, and Old Persian Tuxāri- all go 
 
 Strabo records four tribes that conquered Bactria: the Asioi, Pasianoi, Tochario, and Sakarauloi. The Pasianoi (also Gasiani) are the "People of the Pas" —a title that appears in the Flavian name Vespasian (Ves-Pasianus = "Lord of the Pasiani"). Armenian historical tradition later connects the Arsacid dynasty with the Kushans, and the founder of the Parthian Empire, Arsaces I, may have originated from the Gasiani tribe.
 
-**2.11 Scandinavia (The Aesir)**
+**2.15 The Aesir (Scandinavia)**
 
 The religious book of Scandinavia, Prose Edda, written by Snorri Sturluson, mentions that the ancient inhabitants of Scandinavia were Asi people who came to that land from Asirgarh in 500 BCE and their leader was Odin (Proto-Germanic Wōðanaz (Wod-As)). The title "Oado" appears on Indo-Scythian coins, particularly Kanishka I. Oado is the Bactrian form of Vāta/Vāyu (both mean wind/fury). Vāta/Vāta‑deva is the Indo‑Iranian wind/fury deity. Wōðanaz (Odin) and Vāta (Oado) are dialectal pronunciations of the same PIE root. The Norse sagas claim Odin "died" and was "resurrected" as different kings. This is not mythology; it is the avatar transfer protocol.
 
-**2.12 Ateas the Scythian (Macedon/Thrace)**
+**2.16 Ateas/Argeads (Macedon/Thrace)**
 
 Ateas (c. 429 BC – 339 BC) was described in Greek and Roman sources as the most powerful king of Scythia. His name decodes as Ata-as—"Father-As" or "Forefather of the Asii"—the same root as Asander, Asinder, and Attila.
 
 Ateas was also Artaxerxes II Mnemon of Persia, Amyntas III of Macedon, Nectanebo II of Egypt, and Evagoras I of Cyprus. His "death" in battle against Philip II of Macedon (339 BC) was a succession ritual—a staged combat to transfer the "Mandate of the Dragon". Philip II was not Ateas's enemy; he was his designated successor and son.
 
-When arranged chronologically, the Asii satrapies reveal a continuous, unbroken chain of Dragon King rule spanning from the Bronze Age to the Iron Age, starting from the Hyksos (c. 1650–1550 BCE), the Mitanni (c. 1600–1260 BCE), the Aššuwa (c. 1430 BCE), the Kassites (c. 1595–1155 BCE), and the Tocharians/Yuezhi (c. 2000 BCE).
+**2.17 The The Asii Satrapies: A Comprehensive Directory.**
 
-The Asii were the zero-point of history. They are the foundation of human civilization—the administrative caste that built the pyramids, invented the chariot, named the continents, and ruled the world from the Pontic-Caspian Steppe. Every royal title with As-, every god with As- , every place with As- , every word for being and bone in the Indo-European family, is a fossil of their administration. They were the Egyptian-Persian-Indian-Greek-Roman elite. The Flavian-Vatican-Jesuit forgery was designed to destroy this memory and replace it with a fragmented, inverted history.
+The Asii established a Satrapy System—a network of regional viceroys, each governing a distinct province under the suzerainty of the Steppe core. Every "ancient" civilization was a satrapy
 
-**2.13 The Asii Global Lexicon (Proving their Reach).**
+### The Branches of the Dragon Empire
 
-| Name/Title | Decoding | Location/Function |
-|---|---|---|
-| **Asii** | "The Is" / "The Beings" | The ruling caste |
-| **Asia** | Asii-a = "Land of the Asii" | Anatolian/Bosporan heartland |
-| **Assyria** | As-Syria = "Asii of the West" | Levantine military corridor |
-| **Asgard** | Asii-gard = "Enclosure of the Asii" | Northern winter capital (Volga/Don) |
-| **Ashur** | As-ur = "Asii Light/Fire" | Assyrian god & capital |
-| **Asirgarh** | Asii-garh = "Asii Fort" | Narmada gap fortress (India) |
-| **Assam** | As-sham = "Place of As" | Eastern Asii colony |
-| **Asikni** | Asii-kani = "Asii Canal" | Vedic name for Chenab River |
-| **Asander** | As-andros = "Asii Man" | Bosporan king = Julius Caesar |
-| **Asinder** | As-Indra = "Asii Lord" | King of Punasa, India |
-| **Alexander** | Al-As-andros = "God-Asii-Man" | Macedonian/Bactrian/Indian avatar |
-| **Caesar** | Kai-Sar = "Great Lord" | Roman imperial title |
-| **Aesir** | Asii-r = "Asii Lords" | Norse gods = Asii council |
-| **Asura/Ahura** | As-ura = "Noble Being" | Vedic/Zoroastrian divine title |
-| **Osiris** | As-ar = "King of Being" | Egyptian deified Asii ancestor |
-| **Ossetia** | As-set = "Place of the As" | The modern Ossetians preserved the name, language, and cultural identity of the Alans/Asii. |
-| **Isis** | As-et = "Throne of As" | Asii queen-mother office |
-| **Sabazios** | Saba-zios = "Host of As" | Thracian Zeus = Asii war-banner |
-| **Iesous/Iaso** | Ie-sous = "Divine Zeus" | Asii healer-king title |
-| **Issedones** | Isse (the Greek rendering of Asii) and dones (a suffix possibly meaning "people" or "place") | The name given by the Greeks to the tribal confederation led by the Asii |
-
-The Flavian-Vatican 'damnatio memoriae' operation attempted to erase the Asii from the historical record. But the coins still say As. The Jats still say Asinder. The Ossetians still call themselves As. The Russians are still the Roxolani—the "Shining Asii". And the river Narmada still flows from the Asii mountains to the Asii sea.
+| **Branch** | **Kingdom/People** | **Region** | **Asii Connection** | **Dates** |
+|---|---|---|---|---|
+| **Asii of the Core** | Asii/Asiani/Asioi/Alani | Pontic-Caspian Steppe | The ruling caste; self-designation "As" | c. 4500 BCE – present |
+| **Asii of the East** | Yuezhi/Tocharians | Tarim Basin, Central Asia | Self-designation Ārśi = Arsi = Asii | c. 2000 BCE – present |
+| **Asii of the South** | Vedic India (Aseni, Osii, Asoi) | Indus Valley | Kshatriya (Aśvaka) caste; Asura = Lord | c. 1500 BCE – present |
+| **Asii of the West** | Assyria | Mesopotamia/Levant | As-Syria = "Asii of the West"; god Ashur | c. 2500–612 BCE |
+| **Asii of the Nile** | Hyksos | Egypt | Haq-Shasu = "Rulers of the As"; King Asseth | c. 1650–1550 BCE |
+| **Asii of Anatolia** | Aššuwa/Hittites | Anatolia/Western Asia Minor | Aššuwa = "Land of the As"; capital Troy | c. 1430–1180 BCE |
+| **Asii of Mesopotamia** | Mitanni/Kassites | Syria/Mesopotamia | Indo-Aryan elite; Vedic gods | c. 1600–1155 BCE |
+| **Asii of the North** | Aesir | Scandinavia | Aesir = Asii-r = "Asii Lords" | c. 500 BCE migration |
+| **Asii of Europe** | Roxolani/Alans | Eastern Europe | Ruxs-As = "Light-Asii"; ancestors of Russians | c. 1st c. BCE – present |
+| **Asii of Bactria** | Kushans/Tochari | Bactria/Afghanistan | Tarkhu-As = "Ruler-As"; Shaonano Shao | c. 1st–3rd c. CE |
+| **Asii of Macedon** | Ateas/Argeads | Macedon/Thrace | Ata-as = "Father-As"; Alexander = Asander | c. 429–339 BCE |
 
 ---
 
@@ -616,35 +660,7 @@ Other suspected aliases: Akrosandros II, King of Scythia, Brogitarix, Idumean An
 
 ---
 
-# Part 2: The Asii Satrapy System
-
-## Chapter 5: The Asii Satrapies: A Comprehensive Directory
-
-The Asii established a Satrapy System—a network of regional viceroys, each governing a distinct province under the suzerainty of the Steppe core. Every "ancient" civilization was a satrapy. The title of the supreme governor was always some variation of As-Sar ("Lord-King"), which became Asar (Egyptian Osiris), Aesar (Etruscan, meaning "God"), Kaesar (Greek rendering, later Latinized to Caesar), Kaiser, Tsar, Shah—all deriving from the same Scythian root.
-
-This was not a series of separate "ancient civilizations." It was a global empire administered through a unified linguistic, genetic, and theological framework.
-
-Below is a comprehensive list of the known Asii satrapies, organized by region and chronological appearance, with their Asii connections clearly identified.
-
-### The Branches of the Dragon Empire
-
-| **Branch** | **Kingdom/People** | **Region** | **Asii Connection** | **Dates** |
-|---|---|---|---|---|
-| **Asii of the Core** | Asii/Asiani/Asioi/Alani | Pontic-Caspian Steppe | The ruling caste; self-designation "As" | c. 4500 BCE – present |
-| **Asii of the East** | Yuezhi/Tocharians | Tarim Basin, Central Asia | Self-designation Ārśi = Arsi = Asii | c. 2000 BCE – present |
-| **Asii of the South** | Vedic India (Aseni, Osii, Asoi) | Indus Valley | Kshatriya (Aśvaka) caste; Asura = Lord | c. 1500 BCE – present |
-| **Asii of the West** | Assyria | Mesopotamia/Levant | As-Syria = "Asii of the West"; god Ashur | c. 2500–612 BCE |
-| **Asii of the Nile** | Hyksos | Egypt | Haq-Shasu = "Rulers of the As"; King Asseth | c. 1650–1550 BCE |
-| **Asii of Anatolia** | Aššuwa/Hittites | Anatolia/Western Asia Minor | Aššuwa = "Land of the As"; capital Troy | c. 1430–1180 BCE |
-| **Asii of Mesopotamia** | Mitanni/Kassites | Syria/Mesopotamia | Indo-Aryan elite; Vedic gods | c. 1600–1155 BCE |
-| **Asii of the North** | Aesir | Scandinavia | Aesir = Asii-r = "Asii Lords" | c. 500 BCE migration |
-| **Asii of Europe** | Roxolani/Alans | Eastern Europe | Ruxs-As = "Light-Asii"; ancestors of Russians | c. 1st c. BCE – present |
-| **Asii of Bactria** | Kushans/Tochari | Bactria/Afghanistan | Tarkhu-As = "Ruler-As"; Shaonano Shao | c. 1st–3rd c. CE |
-| **Asii of Macedon** | Ateas/Argeads | Macedon/Thrace | Ata-as = "Father-As"; Alexander = Asander | c. 429–339 BCE |
-
----
-
-## Chapter 6: The Dragon Cult
+## Chapter 5: The Dragon Cult
 
 The serpent (Azhi in Avestan) was the Asii symbol of wisdom, metallurgy, and royal power. All ancient Mediterranean religions derive from the serpent-dragon cult. See: Papaios and the Snake-Legged Goddess (Scythian) = Nehebkau, Uraeus, and Apep/Apophis (Egypt) = Ningishzida (Sumerian) = Tiamat and Mušḫuššu who was associated with Marduk (Babylonian) = Aži Dahāka (Zoroastrianism) later syncretized with Mithra = Ophion, Agathodaemon, Typhon, and Delphi's Pythoness priestess (Greek) = Nāgendra and Nāga (Vedic), Nehushtan/serpent staff of Moses, the Dacian and Roman Draco standards, the serpent-worshipping Essenes and Gnostics, Sebazi (Phrygian/Bulgarian), Jörmungandr (Norse), Ouroboros serpent in Freemasonry, etc. The Knights Templar knew the truth. The Templars worshipped Baphomet—a Sarmatian dragon deity (Aži Dahāka).
 
@@ -652,7 +668,7 @@ The name "Scythian" itself decodes as "Scyth" = "Sak" = "Saka" which is related 
 
 Kings who took on the snake/dragon/serpent/Azhi Dahaka title: Azhdahak, which is the Armenian form of the name of the Avestan Azhi Dahaka, was associated with the Median king Astyages (564–550 BC) who was the grandfather of Cyrus the Great. Tigranes II/the Great, King of Armenia (140–55 BC) was also called Azhdahak. Tiberius Julius Sauromates II, King of Bosphorus ('Saur' means 'snake' or 'dragon', and 'mates' means 'man' or 'warrior'). The roots of the snake titles were: Aži-, Azhd-, -zates, Sauro-, Draco-.
 
-### 6.1 The Swastika
+### 5.1 The Swastika
 
 The Swastika (Gammadion, Tetraskelion, Fylfot, et.al) appears on ancient artifacts and petroglyphs throughout Europe, in every group ranging from the Vinça culture in the Balkans to the Celts, Germanics, Slavs, Baltics, Greco-Romans, Illyrians, as well as, the coins of the Paratarajas, the Parthians, the Kushans, and the Indo-Scythians and this is not a coincidence. It is the unified graphic signature of the same trans-continental, pre-Flavian ruling class.
 
@@ -666,13 +682,13 @@ The swastika was not merely a symbol of good luck or a solar emblem. It was the 
 
 # Part 3: The Alexandrian Synthesis
 
-## Chapter 9: The Alexandrian School
+## Chapter 6: The Alexandrian School
 
 The Alexandrian School (Mouseion of Alexandria) was a religion-making factory. They were attempting to create a universal religion and this was being achieved by gradual syncretism using local identities and blending local deities into syncretic universal savior archetypes (Interpretatio Graecae) as a transitional phase toward a universal monotheism. The Ptolemaic elites were conditioning the disparate populations they ruled into accepting the Serapis cult.
 
 The director of the Mouseion ("Place of the Muses") and the chief architect of the synthetic religions was not a man. It was a succession of Ptolemaic princesses who held the title The Muse Ourania (The Heavenly Muse). The Mouseion was named after her office. Arsinoë II Philadelphus (c. 316 BC – 270 BC), daughter of Ptolemy Soter, was referred to as "the tenth Muse" and she had a cult dedicated to her as Arsinoë Aphrodite Ourania. In some cases these female directors took on male aliases, for example, Philo of Alexandria was Cleopatra (Thea Philopator) of Mauretania aka Cleopatra IX, Helene, Drusilla of Mauretania, Julia Ourania of Parthia, etc.
 
-### 7.1 Serapis Cult
+### 6.1 Serapis Cult
 
 Serapis is the "God Template" for all subsequent imperial cults. The Alexandrian School was attempting to merge all local religions into a single universal system. Christianity was the final, globalized version of Serapis worship.
 
@@ -732,13 +748,13 @@ The template is unmistakable: born in a cave (Jesus was born in a cave. Dionysus
 
 Previous to Serapis the first universal religion that the Alexandrian School tried to push was the "Ptolemaic Cult of Alexander the Great". They probably realized quickly that a religion about "The Divine Alexander" dies with Alexander so they switched to his deified form ("Sarapis") instead. This way that name became a placeholder that kings inherited. This role could switch between generations, and this is why they didn't directly deify themselves. The population knew the god-king was the earthly agent of whatever deity they worshiped.
 
-### 7.2 Religion as an Operating System for the Ancient World
+### 6.2 Religion as an Operating System for the Ancient World
 
 Religion was the technology that the Ptolemaic dynasty used to control the vast and disparate populations they ruled and they created religions in every single conquered land. They would take local customs and create a syncretic man-god representing the Ptolemaic pharaoh (the principle of 'Interpretatio Graeca'). This system had one primary function: to psychologically pacify conquered populations and prevent unified rebellion. They would package these religions as sects of local religions because getting people to abandon their religions for a new one is an impossible task. However, there are thousands of sects of major religions today, many with different prophets (e.g., Christianity as Judaism's "fulfillment").
 
 Beyond the surface-level imperial fiction, all these Alexandrian School religions contained the same psychological weapon at their core: centralized texts and priesthoods which makes a population easier to control through proxy (up until the Protestant Reformation most of the European population was illiterate. Then the church kept scripture in Latin, which only clergy could read. Reproducing or translating the Bible was punishable by death. This is because the Bible was written for a tiny, literate priestly elite who would then control the population on behalf of kings), moral codes like submission ("turn the other cheek", "the meek shall inherit the earth", "he who raises the sword will die by the sword", etc.), self-sacrifice, obedience, loyalty, divine judgment, the concept of hell, suffering in this life is good (it purifies the soul) and the promise of inner peace through acceptance of one's station, and monotheism which divides the population through binary thinking, ie., the opposition between good and evil, us vs them, left vs right, etc., which destroys tribalism/collectivism by splitting the population into two opposing groups. These religions were also likely designed to segment the populations by class, culture, and region to prevent unified resistance. For example, Mithraism was for military elites (requiring blood oaths, with a Mithraic initiate caste system and hierarchical structure). Serapism was for civilians (promising afterlife salvation). Christianity was for slaves ("turn the other cheek").
 
-### 7.3 Judaism
+### 6.3 Judaism
 
 Iudaios (Jew) = Iulius (Julius). The Tribe of Judah and the Gens Julia were the exact same bloodline. This is also where the title "Yuezhi", the Central Asian Scythian tribe (Yuezhi (Chinese) → Iuzi (some intermediary) → Iulius (Latin)), comes from. The name Jupiter comes from Dyēus Pter ("Sky Father") which is the original name of the chief god for the Proto-Indo-Europeans on the Pontic-Caspian Steppe. His name means "Shining Sky Father". The name Zeus comes from the pronunciation of "Dyeus", and I(J)upiter (there was no "J" in ancient Latin) comes from the pronunciation of "Dyeus Pter" (Diespiter -> Iupiter). I(J)upiter was also called Jove or Iove to the Romans. The Latin pronunciation of Iove would have been Yoh-Way, i.e., Yahweh/Yhwh. Dyēus -> Zeus -> Iove (Jove) -> Iud- (as in Iud-ii). The -ii suffix denotes "people of" or "tribe of". Iudii = "The People of Jove". The Scythian elite, as part of their imperial cult, syncretized their primary deity with local deities. In Anatolia and Thrace this same god was worshipped as Sabazios, so Yahweh Sabaoth, the god of the Hebrew Bible, is I(J)ove (Roman Zeus) Sabazios (Thracian Zeus).
 
@@ -760,7 +776,7 @@ The Star of David is the Remphan which is a term used in the Bible, specifically
 
 The Pentateuch is a Hebraized translation of Plato's Laws and Republic, overlaid on a Scythian tribal genealogy (the 12 clans of the Sarmatian federation), and codified at the Alexandrian School in Egypt. The myth of the jewish people and the Laws of Moses were based on Plato's hypothetical colony of Magnesia from his thesis called "The Laws" (347 BC) in which the proposed charter for the Cretan colony of Magnesia was modeled in large part on Athenian legal and constitutional traditions. Ancestors received law from a deity, hereditary priesthood rather than king, as well as the division into 12 tribes were all part of the formula. Plato's Timaeus (360 BC) is where the story of Abraham comes from. Plato's Timaeus is also the source for Genesis 1-11. Homer's Odyssey was the source of Genesis 24, 42-46. The biblical concept of hell was stolen from Plato's Republic ('Myth of Er'), and the spiritual plane of Heaven is ripped off from Plato's 'World of Forms'. Exodus is just a semitized retcon of Jason and the Argonauts, and the Oracles Against the Nations plagiarize the Sibylline Oracles.
 
-### 7.4 Location of Ancient Jerusalem (Hiero-Solyma)
+### 6.4 Location of Ancient Jerusalem (Hiero-Solyma)
 
 Ancient Jerusalem was located in Anatolia, along the Bosphorus river near Yoros castle. The name "Yoros" (also spelled Ioros) is a direct phonetic match for the first half of "Ierosolyma" (Jerusalem). The Turkish name Yoros is also a contraction of the Greek Hieron ("Sacred Place") – which is the same root as Hierosolyma, the Greek name for Jerusalem.
 
@@ -780,7 +796,7 @@ This region was populated by the Celts (Galatians) who came to ancient Anatolia 
 
 For example, the Celtic languages are surprisingly Semitic with a verb-subject-object word order and a shocking amount of vocabulary overlap, and the name of Irish deities, Balor and his holiday Beltaine are cognate to Bal and Elatha the Irish Uranus is cognate to Hebrew El. King David (DWD) = King Druid. 1 Samuel 16:12 claims that King David had red hair. The ancient Celtic prefixes 'Rab' or 'Rhab' mean 'wise one' or 'seer', and a Druid equates to a Rabbi. There was even a Celtic tribe called the "Iudii" -> Ioudaioi -> Jew.
 
-### 7.5 Modern Jews
+### 6.5 Modern Jews
 
 The original Jews were not a Semitic tribe from Canaan. They were the Gens Julii – the Dragon Kings' priestly caste who spread from Central Asia to Europe.
 
@@ -804,7 +820,7 @@ The Levites who survived the purges by the Flavians and Emperor Hadrian were the
 
 # Part 4: The Bosphoran Connection
 
-## Chapter 8: Rome On the Bosphorus River
+## Chapter 7: Rome On the Bosphorus River
 
 Much of the history of the Western Roman Empire was conjured up by the Flavians, Church Fathers, Jesuits, Poggio Bracciolini, and medieval forgers, either to retrofit history to align with the Bible, due to conflicts between the Vatican and the Eastern Byzantine Church, or for profit.
 
@@ -820,11 +836,11 @@ Also, Carthage was not a Semitic power. The name "Carthage" comes from "Kar-Thag
 
 ---
 
-## Chapter 9: The Imperial Avatar System: Numismatic Proof and Aliases
+## Chapter 8: The Imperial Avatar System: Numismatic Proof and Aliases
 
 The foundation of this book rests on a single, verifiable fact: the ruling elite of the ancient world operated a system of regional aliases, or avatars, to govern their global empire. The evidence for this is not hidden in obscure texts, but is stamped on the coins they issued—the primary-source bulletins of their reign. This chapter presents the visual and administrative proof of this system.
 
-### 9.1 The Numismatic Key: Coins of a Global Empire
+### 8.1 The Numismatic Key: Coins of a Global Empire
 
 The city referred to in history books as ancient Byzantium in modern-day Turkey was actually called 'Basileía tôn Rhômaíôn' ('Kingdom of the Romans') and the people of that region called themselves Rhōmaîoi (Romans). Basileía tôn Rhômaíôn was surrounded by the kingdoms of Thrace, Pontus, Bithynia, Paphlagonia, Galatia and the Bosporan Kingdom. Coins prove that all these regions were ruled by a single family, who match up with the Roman emperor list up to Domitian, and they were Scythian-Thracians.
 
@@ -884,13 +900,10 @@ Fig. 1.12. L. Rhescuporis I, king of Bosphorus. R. Emperor Vespasian.
 ![Fig.1.13](/images/PolemonIITitus.jpg){:width="400px"}\
 Fig. 1.13. L. Polemon II, king of Bosphorus. R. Emperor Titus.
 
-## Chapter 10: Name and Title Meanings
+## Chapter 9: Roman Name and Title Decodings\
 
 The Flavians didn't just remake their main enemy's cult; they rewrote history, including executing a systemic replacement of the titulary lexicon. For example, "Caesar" originally meant "Osiris-King" (Ka-Asar). The Flavians changed the etymology to caesaries ("hair"), claiming Julius Caesar was born via caesarean section or had lush hair. This severed the title from its Egyptian/Osirian roots and made it Roman.
 
-- AS/AŽI/AZ/SAR/XSA: Serpent-Dragon-King. The As/Az root appears across Scythian, Iranian, Etruscan, Egyptian, and Greek contexts. The meaning is consistently "lord", "god", or "serpent" (often conflated). It traces back to the Asii/Asiani/Asioi Yuezhi tribe from Central Asia.
-  - Azhi = Až ("serpent") + Hi ("power, divine") in Avestan, meaning "mighty dragon". It extends Aži to signify divine authority across Indo-Iranian and Scythian cultures. Azhi = Asia (Azhi-A) = "land of the mighty dragon" (Aži is cognate with the Chinese Zhī (dragon)), a very similar name to Rome (Rhu-Ma) = "Place of the Dragon", Romania (Rhu-Ma + Na) = "dragon land", and Sarmatia (serpent) + ma (mother, land). Aži (Avestan) links to As (Scythian/Thracian) = Lord, God. (Asa in Norse (Aesir), Asar in Egyptian (Osiris)). Sar (Scythian/Sanskrit) = King, Head. (Sarpa (Skt.) = serpent; Sarrum (Akk.) = king). In Iranian it becomes Ahura (as in Ahura Mazda - "Wise Lord"). The core imperial title was Aži-Sar or As-Sar — "Dragon-King". Asander (King of Bosporus): Asan-der = As (Lord/Serpent) + Andros (Man) = "Serpent-Lord-Man" or "Dragon-Man". Alexander: Aži-ander or Alak-san-der (Hurrian/Hittite) = Same formula: "Dragon-Man". Caesar: Aesar -> Kaesar -> Caesar or Kai-Sar. Kai (Greek: "and" but also a prefix of greatness) + Sar (King). Kaisar = "The Great King". The C is a Hellenized graft. The root is Sar. Kaiser, Czar, Shah: All derive from Sar. Osiris: Asar (Egyptian). Direct link to As (Lord). Osiris is the deified form of the Dragon King archetype. Jesus: Ie-Zeus (Divine Zeus). But Zeus=Dyēus (Sky Father). The Scythian form? Izas (as in Izates). Izates = Ie (divine) + Zates (cognate of Zeus). Ie-sus (Esus). The title connects to the Celtic Esus (Lord), another avatar of the same archetype. This creates a unified titulary field: Aži-Sar / Asander / Alexander / Caesar / Kaiser / Czar / Shah / Osiris / Izates / Jesus are linguistic variations of the same supreme office across different linguistic zones of the empire. All these were job titles, not personal names.
-  - Sar = The Sar root for "king" is widespread in Iranian (Shah, Xšaya), Akkadian (Šarru), and Greek/Latin via Etruscan. Sar is the Scythian word for "king". Sarpa in Sanskrit means "serpent". Sarmatian (Scythian-Iranian tribe), Akkadian Sarrum (which becomes Persian Xšaya-/Xšayathiya), Hurrian Šarri, Sargon, Sarlagab, Serapis (Serapis = Sabazios (Osiris + Apis or Šar Apsi - King Apsu = Enki-Ea) with "Serpent" at its root), Zarathustra (Sar + Ustra = "serpent-lord"), Saraswati (Hindi goddess of knowledge), Saracen (Roman designation for Middle Eastern peoples), Šaruma (Mitanni deity), Saragurs (Scythian tribe in China), Caesar, Asar (Osiris), Tsar (Slavic monarch), Sargon of Akkad, feminine Sarai (or "Sarah" meaning "princess" (Genesis 17:15)), etc. Sar means king, or serpent king, across the empires that the Scythians used to rule over.
 - Augustus: Not "venerable". It comes from Sauromatian Aspurgos ("Horse-King") → Aspur-g → Augur-stus → Augustus. Aspurgos derives from the Iranian aspa (horse) and is the same title as Philip (Philippos (Lover of Horses is a direct Greek translation of the Scythian royal title Pharnavaz - Horse-Lord), which is similar to Agrippa (Agri = Scythian Agra = "horse" (cognate with aspa). ppa = Scythian pa = "father/lord". Agrippa = "The Horse-Lord") and the Roman title "Master of the Horse" https://en.wikipedia.org/wiki/Master_of_the_Horse which was a title that Mark Antony held. It basically means "the cavalry commander". Augustus translates to Sebastos in Greek. Augustus was also referred to as Sebastos in several inscriptions. This directly connects to Sabazios the Thracian/Phrygian deity and Monobazus which was a title that was held by several Adiabene kings.
 - Caesar: Core root is AS/AZ/AŠ. Its primary zoomorphic association is with the Serpent/Dragon (Aži, Azhi, Aži Dahāka). Azi-Sar - Dragon King. The Egyptian expression was Asar (Wsir/Osiris). "Asar" was another name for Osiris. "Ra" was the Egyptian deity of the Sun (Asar-Ra). Sar means king in Scythian. This title connects to "Asar-Hapi" (Osiris-Apis), another name for the Graeco-Egyptian god Serapis (Serapis = Sabazios (Osiris + Apis or Šar Apsi - King Apsu = Enki-Ea)). The Etruscan-Mediterranean expression was "Aesar" (also spelled "Aeser" or "Aisar"). The Greek language adds a "K" to foreign words, so Aesar -> Greek Kaesar. Connected to the Scytho-Hurrian expression Kur-Sar (Sun King), Phoenician "Kosar" (sun god), Assyrian "Aššur" (god), Germanic Æsir (the Norse gods, like Odin), Sanskrit Kesari (lion), Persian Kesar (king), Scythian "As" (lord) and Scythian Sar (king), Kšar (from the Old Persian Xšaya = king), and also Cyrus the Great's title (Kuruš (Cyrus) = Khur (Sun) + -uš (lord)). "Caesar" = "Asander" = "Kesari" = "Xerxes" -> Xšathra-sar -> Khassar -> Khazar. Also, Caesar is at the root of the title "Khan" (Aesar -> Aesar -> A'sar -> Ha'sar -> Kha'sar -> Khan). "Genghis" is "Janus". This proves that Genghis Khan was not a Mongol upstart. He was a later avatar of the Dragon King title, consciously restoring the global hegemony from its Central Asian core. The Mongol court called itself the "Great Yuan" (Great Ion/Janus)
 - Christ: Scythian Xšaθra (power, dominion) -> Kšatrapati" (Satrap, Governor) in Persian -> Hyksos "Khasut" in Egypt -> Kshatriya (Warrior-King) in Sanskrit (which also = Vedic "Krishna" (the dark god of Hinduism. Krishna is an avatar of Vishnu, and his name means "dark" or "black")) -> Christos. The title "Christ" did not mean a meek "anointed one" in the original context. It meant "the Satrap"—the imperial governor of the Dragon Kingdom. Jesus Christ was, in the original Bosporan cult, the title for the ruling Satrap of Judea, who was a member of the Bosporan royal house. The Flavian revision turned this title of worldly power into one of spiritual suffering. This title links India, Egypt, and Judea to a Scythian elite. Christ is identical to the title Soter. Several historical figures were Christs/Soters. In Isaiah 45:1 the jews called Cyrus the Great "The Anointed One". Alexander the Great was also a Chréstos/Soter (Josephus. Antiquities, XI. 8. Talmud, Yoma 67b). Up until the First Council of Nicaea the title "Christ", or "Christian", referred to the Serapis Cult ("those who worship Serapis are, in fact, Christians, and those who call themselves bishops of Christ are, in fact, devotees of Serapis.". Source: The Letter of Hadrian to Servianus).
@@ -914,7 +927,7 @@ The Flavians didn't just remake their main enemy's cult; they rewrote history, i
 
 ---
 
-## Chapter 10.1: The Name Jesus Christ
+## Chapter 9.1: The Name Jesus Christ
 
 In the original Egyptian–Bosporan imperial cult, the living Dragon King bore the title Ie-Asar – "Lord Osiris". Osiris (Asar) was the primordial dying-and-resurrecting god-king, the model for every later avatar. The prefix Ie- (or Ia- ) meant "divine" or "lord" in Egyptian (as in I-em-hotep), and it is cognate with the Proto-Indo-European Ie- (divine, lord), which gave rise to Luwian Iya- (lord), Greek Ie- (divine), Latin Iov- (Jove), and Sanskrit Isha (lord).
 
@@ -963,7 +976,7 @@ Jesus Christ then became a composite literary character based on the defeated Sa
 
 ---
 
-## Chapter 11: Julius Caesar aka Asander, King of Bosphorus aka Mithridates Chrestus
+## Chapter 10: Julius Caesar aka Asander, King of Bosphorus aka Mithridates Chrestus
 
 There was a Bosphoran [^13] imperial cult where Julius Caesar [^14] took on the role of Asander (also Asandros), King of Bosphorus [^15]. Asander = Aesar‑ander (divine man) or Asa‑ander (lord‑man). "Asa" = Asar (Egyptian Osiris), Aesir (Norse gods), Asa (Thracian lord), Asura (Sanskrit "lord", later demonized by Brahmin rivals). Caesar = Aesar with Greek k‑ prefix (k‑aisar). Asa also means "lord" in Scythian/Thracian and serpent in Scythian (Scythian Assaioi: As-saioi = As is Scythian for "Serpent Lord", and Sai refers to clan/tribe. Sar means king in Scythian, and "andros" means "man" or "son of man" in Greek. Jesus is referred to as "the son of man" 81 times in the four canonical gospels). Asandros can also be interpreted as either "Dragon Man" (the same as Aži-ander, or Alexander), or "son of the lord", or "son of Asa, the lord", or "Lord King". The Thracian version of Zeus was Asa. Asandros can also possibly translate to either "son of god", or "son of Lord Aesar/Asar (Osiris)".
 
@@ -983,7 +996,7 @@ Endnotes (Chapter 13)
 
 (a) The Tibetan epic hero Gesar of gLing is explicitly called "Dru gu Gesar" —"Turk Caesar". This is not a coincidence. The Tibetan tradition, far from the reach of Roman propaganda, preserved the understanding that the title "Gesar/Kesar" was the royal title of the Turks—the very people who were the Scythian Dragon Kings.
 
-### 11.1 Julius Caesar was a Title
+### 10.1 Julius Caesar was a Title
 
 Identifying Julius Caesar as Asander of Bosphorus necessitates a re-examination of his name.
 
@@ -997,7 +1010,7 @@ The Egyptian name "Asar" was another name for Osiris. "Ra" was the Egyptian deit
 
 Russian historian and mathematician Anatoly Fomenko wrote several books where he claimed that the city of Yoros = Jerusalem = Troy and it was situated on the eastern, Asiatic shore of Bosphorus, closer to the Black Sea, very near to the Beykoz mountain (Golgotha).
 
-### 11.2 Julius Caesar aka Asander's Suspected Aliases
+### 10.2 Julius Caesar aka Asander's Suspected Aliases
 
 Asander beat Mithridates Chrestus in battle to become King of Bosphorus. After Mithridates Chrestus's loss to Asander he was imprisoned and executed by his elder brother, Mithridates VI Eupator, who had previously beat him in war.
 
@@ -1057,7 +1070,7 @@ Fig. 1.30. Coin depicting Gaius Asinius Pollio who was Asander aka Juius Caesar'
 
 ---
 
-## Chapter 12: Cleopatra VII aka Dynamis Ourania aka Pythodorida Philometor
+## Chapter 11: Cleopatra VII aka Dynamis Ourania aka Pythodorida Philometor
 
 Cleopatra VII was the archetype, not the avatar, for the "Jesus" figure. She was the living Soteira (feminine Soter), Thea (Goddess), and "Queen of Kings". She was the descendant of the Scythian Dracaena, or the snake-legged goddess who was the mother of the Scythians in mythology.
 
@@ -1077,9 +1090,9 @@ Mithridates VI, king of Pontus, was the father of both Pharnaces II and Dynamis 
 
 ---
 
-## Chapter 13: Dragon Bloodline Descendants
+## Chapter 12: Dragon Bloodline Descendants
 
-### 13.1 Ptolemy XII Auletes aka Mark Antony aka Mithridates VI Eupator
+### 12.1 Ptolemy XII Auletes aka Mark Antony aka Mithridates VI Eupator
 
 The throne name of Ptolemy Philometer was Ir-maat-en-amun-re. This would strengthen the word play between the names Philo-meter, Mithra-dates, and Matthath-ius. (The Egyptian Maat-en transliterates to the Hebrew Mattan/Mattath and the name "metor" transliterates into Parthian Mithra). Philometer then corresponds to Mithradates of Parthia and Mattathius the Hasmonean. (Mattath is the Hebrew feminine form of Mattan).
 
@@ -1125,7 +1138,7 @@ Fig. 1.39. Coin depicting Pharnaces II ("Pharao-Nikes", or "Victorious Pharaoh")
 
 Fig. 1.40. Coin depicting Ptolemy Apion, king of Kyrene, Kyrenaica, North Africa.
 
-### 13.2 Ptolemy XIII Theos Philopator aka Gaius Octavius (Emperor Augustus) aka Rhoemetalces I
+### 12.2 Ptolemy XIII Theos Philopator aka Gaius Octavius (Emperor Augustus) aka Rhoemetalces I
 
 ![Fig.1.41](/images/RhoemetalcesAugustusPolemon.jpg){:width="400px"}
 
@@ -1155,7 +1168,7 @@ Alexander the Great was either the son of Ammon Zeus or Sabazios. However, there
 
 Sabazios was Serapis (Serapis = Sabazios (Osiris + Apis or Šar Apsi - King Apsu = Enki-Ea)). The Sabazios cult was the Serapis cult targeted at the Thracians.
 
-### 13.3 Ptolemy XIV Philopator aka Amyntas Nikator aka Amyntas, King of Galatia
+### 12.3 Ptolemy XIV Philopator aka Amyntas Nikator aka Amyntas, King of Galatia
 
 Amyntas Nikator (Latin Invictus which links him to Sol Invictus) aka Amyntas of Galatia [^21] aka Jesus ben Fabus aka Isa Amen (Jesus was named "Amen" in Rev. iii. 14 and Amen links to Egypt through the name of the pharaoh Amenhotep). Amyntas's father was not Bogitarus. That is a later, localized alias. His true father was Mithridates VI Eupator of Pontus (aka Ptolemy XII Auletes/Mark Antony/Herod). Mithridates VI Eupator's father was Mithridates V Euergetes. Mithridates V Euergetes's father was Pharnaces I of Pontus. Pharnaces I's brother was none other than... Amyntas of Pontus. The name "Amyntas" is a family heirloom, used for a brother of the king. For "Mithridates VI" to have a son named "Amyntas" is perfectly consistent with dynastic naming patterns. He was not the son of a minor chieftain; he was a scion of the primary Dragon Bloodline. His brother and heir to the dragon throne was Ptolemy XIII Theos Philopator aka Gaius Octavius (Emperor Augustus) aka Rhoemetalces I.
 
@@ -1179,7 +1192,7 @@ Galatia = Galilee: The names are linguistically identical. "Galatia" is the Gree
 
 This would mean that Mithridates VI Eupator of Pontus (aka Ptolemy XII Auletes/Mark Antony/Herod) was also Brogitarix, king of Galatia (Full name: Brogitaris (Brigatos) van (de) Celtes Trocmii:"Bogo-" is related to the Proto-Celtic word "bog-", which means "god" or "divine". "-diatarus" could be connected to the Latin word "diatus", meaning "divine" or "godlike", the Old Irish word -tairx means " lord"."Van" or "de" is a preposition indicating "of" or "from", which suggests that Brogitaris/Brigatos is the divine leader or a member of the Celtes Trocmii which refers to the Trocmi, a Celtic tribe that lived in ancient Galatia).
 
-### 13.4 Was Amyntas Nikator aka Amyntas, King of Galatia the Living Esus?
+### 12.4 Was Amyntas Nikator aka Amyntas, King of Galatia the Living Esus?
 
 The Celts in classical Galatia worshiped a deity called Aesus/Esus/Iesus. Amyntas, as the god king of Galatia would have been the personification of Esus. "Esus" from "Aisus (Thracian Jove-variant). Esus is the Celtic pronunciation of Aisus. The Scythian root is Aes-, the same as the Aesir and Aesar. "Iesus" is the Latin rendering of "Esus." There was no "J" sound. He was always called Ie-Sus (Yay-soos), "The Esus."
 
@@ -1193,7 +1206,7 @@ Like Serapis, Esus represents a deliberate syncretism—in this case, merging th
 
 The "Esumopas Cnusticus" inscription proves this was a state-sponsored imperial cult, not organic Celtic religion. The original Esus was a warrior. The new, syncretic "Esus Christos" was a god who was crucified on a T-shaped tree (a clear parallel to the Tau cross). The message to the fierce Galatian Celts was: "Your god is not a warrior, but a sacrificial victim. True strength is in submission, sacrifice, obedience, and turning the other cheek".
 
-### 13.5 Alexander, son of King Herod aka Alexander Helios aka Juba II
+### 12.5 Alexander, son of King Herod aka Alexander Helios aka Juba II
 
 Cleopatra aka Dynamis's son with her father Mark Antony [^22] (aka Ptolemy XII Auletes aka Polemon Pythodoros, King of Pontus, prince of Pontus aka King Herod aka Tiberius Claudius Nero aka Phraates IV of Parthia) was Alexander Helios aka Alexander (son of King Herod) aka Juba II who was married to his twin sister Cleopatra Selene II aka Queen Thea Muse Ourania. Juba II of Mauritania's full name was Gaius Iulius Iuba, prenomen and nomen after his adopted father Gaius Iulius Caesar, and 'Iuba' is likely a diminutive of 'Iehuva' which traces to Jove/Jupiter. He was the claimed royal heir of the Massylii tribe, which is the 'Messiah' lineage from David's firstborn son with Saul's daughter Michal (one way to prove that Mark Antony was also King Herod is through the equivalence of Alexander Helios aka Alexander (son of King Herod) aka Juba II).
 
@@ -1221,7 +1234,7 @@ I identify Cleopatra's brother-husband Ptolemy XIII Theos Philopator as Gaius Oc
 
 Was he also Jesus ben Panthera? "Panthera" is a Hellenized corruption of "Ptolemaios" (Ptolem -> Ptol -> Panther). "Jesus, son of Ptolemy". The Talmud (Bereshit Rabbah 46:10) calls Izates and Monobazus the "Sons of Ptolemy".
 
-### 13.6 The Successor Generations
+### 12.6 The Successor Generations
 
 Cleopatra aka Dynamis's son with Mark Antony = Ptolemy Philadelphus who was Sampsiceramus I?
 
@@ -1233,7 +1246,7 @@ Cleopatra aka Dynamis's grandson with Mark Antony = Alexander (grandson of King 
 
 Fig. 1.48. (L) Alexander (grandson of King Herod) aka Gaius Julius Alexander, Herodian Prince of Judaea aka Alexander the Alabarch aka (King/Tetrarch) Ptolemy (Alexander) bar Menneus aka Ptolemy of Mauretania aka "Jesus" in the Bible. (R) Cleopatra (Thea Philopator) of Mauretania aka Cleopatra IX aka Pythodorida Philometor aka Helene aka Drusilla of Mauretania aka Julia Ourania of Parthia aka Alexandra bat Mattathias (Matityahu is the Hebrew form of Mattathias, which itself is a variant of Mithridates ("Given by Mithra")) aka "Philo of Alexandria".
 
-### 13.7 Izates II, King of Adiabene
+### 12.7 Izates II, King of Adiabene
 
 Alexander (grandson of King Herod) and his sister-wife Cleopatra (Thea Philopator) of Mauretania had two sons: Tiberius Julius Alexander aka Arrius Calpurnius Piso aka Arrius Varus aka Tiberius Julius Cotys (In Thracian, 'Cotys' is related to the word 'kotys' which is a title that means 'lord') aka Emperor Nerva, and Marcus Julius Alexander aka Yeshua Cleopatros (Cantheras/Panthera) ben Josephus bar Menneus aka Ma'nu of Adiabene/Edessa aka Ptolemy aka Yakov Zu Tolomoy aka Izates aka Jesus Emmanuel aka Monobazus of Adiabene [^23]
 
@@ -1245,7 +1258,7 @@ Fig. 1.49. 'Josephus' bust which I identify as Tiberius Julius Alexander. Compar
 
 Fig. 1.50. (L) and (R) show King Izates Monobazus of Edessa (known in Greek as the "Kingdom of Ourania" or in English as the "Kingdom of Heaven") wearing a crown of thorns. Izates or Izas is his title which is an ancient Greek translation of the Avestan word Yazatas (Persian: izad), meaning 'lord'. He is one of the Jesus avatars, Isa in the Quran, and Sultan Ezid in the Yazadi ('Iza'di) religion. He was the uncle of Tiberius Julius Sauromates II, King of Bosphorus. The middle image source: The Alexander Mosaic, Huqoq, Israel.
 
-### 13.8 Tiberius Julius Sauromates II
+### 12.8 Tiberius Julius Sauromates II
 
 ![Fig.1.51](/images/SauromatesII.jpg){:width="400px"}
 
@@ -1279,7 +1292,7 @@ Fig. 1.57. Was the father of Tiberius Julius Sauromates II named Tiberius Julius
 
 Fig. 1.58. Coin depicting Tiberius Julius Cotys II who was the grandfather of Tiberius Julius Sauromates II. Tiberius Julius Cotys II was the son of Tiberius Julius Sauromates I.
 
-### 13.9 Simon Bar Kokhba
+### 12.9 Simon Bar Kokhba
 
 Tiberius Julius Cotys II was the grandfather of Tiberius Julius Sauromates II. Was he also Simon bar Kokhba? Bar Kokhba means "Son of the Star". The star is the morning star (Venus), which is the symbol of the Julian house. That is the title of a Julian prince. The Star of Caesar (also Sidus Iulium, or "Julian Star") iconography is prominent in coins of Tiberius Julius Sauromates II and his son Rheskuporis V and directly links to the "Star and Crescent" symbolism on the coins of Asander/Julius Caesar and Dynamis/Cleopatra. He led the Bar Kokhba revolt (132-136 AD) against Rome. As heir to the dragon crown he would have had a claim to the emperor position.
 
@@ -1307,7 +1320,7 @@ Fig. 1.62. L. Simon Bar Kokhba coin. R. Coin of Alexander (grandson of King Hero
 
 Fig. 1.63. L. Simon Bar Kokhba coin showing a kithara (Greek musical instrument). R. Coin of Scilurus, king of Scythia also showing a kithara. The kithara also shows up on Asande's coins (https://leunumismatik.com/en/lot/24/154)
 
-Endnotes (Chapter 13.9)
+Endnotes (Chapter 12.9)
 
 (a) The morning star was Lucifer, or "lucem ferre", which means "light-bearer" or "morning star". Lucifer became a demon after Flavian and J1/J2 rabbinic revision.
 (b) Apollonius of Tyre was married to the daughter of a king of Libya ("Historia Apollonii Regis Tyri" or "The Story of Apollonius, King of Tyre"), who was Cleopatra Selene aka Drusilla (aka Cleopatra (Thea Philopator) of Mauretania aka Cleopatra IX aka Helene aka Julia Ourania of Parthia aka Philo of Alexandria. Drusilla was the wife of Azizus who was her brother Juba II (Alexander Helios aka Alexander (son of King Herod)) aka Gaius Julius Alexander, Herodian Prince of Judaea aka Alexander Lysimachus aka Alexander the Alabarch aka Tiberius Julius Alexander Major aka (King/Tetrarch) Ptolemy (Alexander) bar Menneus aka Ptolemy of Mauretania aka Phraates V (the "King of Kings") aka Monobazus I King of Adiabene). [^24] [^25] So, Alexander aka Juba II was also Apollonius of Tyre. Juba II carried the title "Rex Literatissimus" which can be translated as "Most Learned King" or "The Most Scholarly King". He was known as a philosopher. These members of this royal family liked to role-play as philosopher kings. Is Apollonius of Tyre the same person as Apollonius of Tyana? This would make Apollonius of Tyana the brother-husband of Philo of Alexandria and the father of Josephus. These three created the core of Christianity.
@@ -1315,7 +1328,7 @@ Endnotes (Chapter 13.9)
 
 ---
 
-## Chapter 14: The Flavian Dynasty
+## Chapter 13: The Flavian Dynasty
 
 Vespasian was also a great-grandson of Cleopatra and Mark Antony (King Herod). He was Herod Pollio aka Herod Agrippa I, grandson of King Herod's son Aristobulus IV. Vespasian was his title, not his name Vas/Bas was the royal abbreviation for the Greek word Basilius which = King. Ves‑ is also a contraction of Vah‑ / Bah‑, an honorific prefix (cf. Bahram, Vahram). Pas‑ is exactly the Paisa/Pahlav root, plus the adjectival suffix ‑ianus ("belonging to"). Thus Vespasianus = Ves‑pasianus = "Lord of the Pasa (Parthians)" or "King belonging to the Pahlav clan" (another option: Vas/Bas was the royal abbreviation for the Greek word Basilius which = King, and Pas means "all" as in Pan. "Vespasian" = "King of All", or "King of Everything" which is a claim to the title "King of Kings") [^26]).
 
@@ -1337,7 +1350,7 @@ Berenice's brother Marcus Julius Agrippa II, whom she was in an incestuous relat
 
 Emperor Vitellius was probably an alias for Vespasian's older brother Titus Flavius Sabinus who was married to Mariamne III aka "Arria the Elder" ("Arria" from her father's name judean king Aristobulus IV who was the son of King Herod and he was also Julius Caesar's adopted son. Aristobulus IV was likely Vespasian and Vitellius's father, so like his cousin Alexander (grandson of King Herod), he was also married to his sister).
 
-Endnotes (Chapter 14)
+Endnotes (Chapter 13)
 
 (a) Theory: Alexander (grandson of King Herod) aka Gaius Julius Alexander, Herodian Prince of Judaea aka Alexander Lysimachus aka Alexander the Alabarch aka Tiberius Julius Alexander Major aka (King/Tetrarch) Ptolemy (Alexander) bar Menneus aka Ptolemy of Mauretania was also the Roman general 'Gnaeus Domitius Corbulo'. Gnaeus Domitius Corbulo conquered Armenia alongside Tiberius Julius Alexander (his son Tiberius Julius Alexander aka Arrius Calpurnius Piso aka Arrius Varus aka Tiberius Julius Cotys aka Emperor Nerva), after which, Tigranes VI (Tiberius Julius Alexander) was installed as king. Compare his bust [link] to the famous 'Josephus' (Tiberius Julius Alexander) bust [link]. Notice a resemblance? If this is correct, then he (Alexander) would have been the brother-in-law to Caligula and father-in-law to Domitian. Tiridates of Armenia (who would have been Mithridates Chrestus' great-great-grandson) was the one who spread the religion Mithraism which was a syncretic slave-morality religion to subjugate the Parthians. Mithras is inspired by Zoroastrianism, the religion of the Persians/Parthians, but Mithras is the same as Sabazios. It's a solar son deity, a Jupiter.
 (b) Coin of Vespasian depicitng "Zeus-Sarapis": [^27]
@@ -1346,7 +1359,7 @@ Endnotes (Chapter 14)
 
 # Part 6: The Demographic Erasure of the Scythian-Aryan Hegemony
 
-## Chapter 15: Plagues and Biological Warfare
+## Chapter 14: Plagues and Biological Warfare
 
 All three major plague pandemics (Justinianic, Black Death, Third Pandemic) were deliberate deployments of Yersinia pestis by the J2/J1 priestly-financier class (the heirs of the Flavians) to cull the R1a refugia populations in Europe and Central Asia.
 The Epidemiological Anomalies:
@@ -1363,7 +1376,7 @@ The plagues were not natural. They were the final solution of the Flavian-Vatica
 
 ---
 
-## Chapter 16: The Flavians (c. 50 BCE – 300 CE)
+## Chapter 15: The Flavians (c. 50 BCE – 300 CE)
 
 The Flavians (the Pālava/Pahlavi clan, a junior branch of the R1 Sarmatian elite) were heavily intermarried with the Judeo-Anatolian J2 priesthood by Vespasian's reign. The haplotype R1a (the famed "Arya" gene) was the dominant haplogroup of the Roman elite before the Flavian empire. After the Flavian reign the haplotype J2/J1 became the dominant haplogroup among the Roman elite [^37](https://inf.news/en/science/bee8bab603736d7530f42b64ea756397.html). The Flavians then created a new ruling ethnicity in Rome—the Neo-Flavians—who were biologically the hybrid Pālava-J2 administrative class. The subsequent Catholic Church was the institutional memory of this coup, a permanent bureaucracy staffed by this new genetic elite, tasked with completing the erasure of their Dragon King predecessors. This is why they erased the Scythian origins of ancient civilizations and painted the Scythians (R1a) as monstrous foreigners. "Flavius" (Pālava/Pahlavi) eventually became Shabbos. From Constantine to Heraklios, for 500 years nearly every single Emperor bore the Flavius (Shabbos) title. By my count, 37 Roman and Byzantine emperors in all bore the honorary title "Flavius", and then later, "Phlabios" (https://en.wikipedia.org/wiki/Special:MobileDiff/1062698821)
 
@@ -1379,7 +1392,7 @@ This is why they erased the Scythian origins of ancient civilizations and painte
 
 ---
 
-## Chapter 17: China: The Han Synthesis and the Tartarian Genocide
+## Chapter 16: China: The Han Synthesis and the Tartarian Genocide
 
 The Scythians ruled a Eurasian empire that stretched into China.
 
@@ -1409,7 +1422,7 @@ Then Mao-tse Dong used artificial weaponized famines and outright direct purges 
 
 ---
 
-## Chapter 18: Ancient India: The Mauryan Mirage
+## Chapter 17: Ancient India: The Mauryan Mirage
 
 The "Mauryan" Empire is a Flavian/Vatican fabrication. Chandragupta Maurya is Alexander the Great.
 
@@ -1455,7 +1468,7 @@ Why? The J2/J1 priestly network, having overthrown the Bosphoran Dragon Kings, f
 
 ---
 
-## Chapter 19: The Middle East and North Africa: Invasions and Slave Colonization (250 - 650 CE)
+## Chapter 18: The Middle East and North Africa: Invasions and Slave Colonization (250 - 650 CE)
 
 The destruction of the Aryans in the Middle East and North Africa was done in three phases:
 
@@ -1482,7 +1495,7 @@ Genetic Table (with specific subclades):
 
 ---
 
-## Chapter 20: Where Did The Scythian Aryans Go? The Refugia
+## Chapter 19: Where Did The Scythian Aryans Go? The Refugia
 
 The Scythians did not completely vanish. Some were pushed to the geographic and social margins:
 
@@ -1502,7 +1515,7 @@ The victors then wrote the history, claiming the cultural achievements of the de
 
 # Part 7: Rewriting History
 
-## Chapter 21: Rewriting History
+## Chapter 20: Rewriting History
 
 The main culprits for forging history were the Flavians so that they could legitimize their new dynasty and obscure their Bosphoran/Herodian origins. It would have taken a global conspiracy to forge entire material cultures. It would have required destroying texts and artifacts in a number of different countries and then paying an army of scribes and artisans to create a new history. Not even the Vatican would have had this power. For the church to do this they would have had to destroy texts and artifacts in Muslim, Hindu, and Buddhist countries that were out of their reach, and even in places as far as Russia and China. Only the Flavians had this power. They controlled the Alexandrian School (via Tiberius Julius Alexander/Josephus who was likely the one who burned it down) which was the world's only major repository of texts and the only "publishing house". This gave them control over the primary intellectual and scribal output of the ancient world. It was the ancient equivalent of taking over Google, Wikipedia, and every major university press.
 
@@ -1522,7 +1535,7 @@ This is why they erased the Scythian origins of ancient civilizations and painte
 
 ---
 
-## Chapter 22: Inventing Ancient Greece
+## Chapter 21: Inventing Ancient Greece
 
 Not only is Western Rome a phantom empire, so was the "Classical Greece" of Pericles, Plato, and Aristotle. It is a literary and philosophical back-projection, created by the Flavians and later Renaissance humanists. Its purpose was to provide a "noble pedigree" for the Western Roman Empire, separating it from its "barbaric" Scythian roots. The works of Plato and Aristotle are not the products of a 5th-4th century BC Athenian democracy. They are the synthesized theological and political philosophy of the Alexandrian/Bosphoran intellectual elite, likely compiled between the 1st century BC and 2nd century AD at the Alexandrian School in Egypt, and then retroactively attributed to fictional "Greek" sages.
 
@@ -1532,7 +1545,7 @@ Plato's "Academy" was the Alexandrian School. "Plato" is not a man. The name is 
 
 ---
 
-## Chapter 23: The 'Achaemenid' Empire is the Parthian Empire
+## Chapter 22: The 'Achaemenid' Empire is the Parthian Empire
 
 The Alexandrian School moved history back 300-500 years. They invented the 'Achaemenid' Empire as a mirror of the Parthian Empire which itself is a mirror of the Mithridatic-Bosporan dynasty.
 
@@ -1572,7 +1585,7 @@ The entire Parthian king list is a phantom mirror of the Pontic-Bosporan Dynasty
 
 ---
 
-## Chapter 24: Fabricating 'Ancient' Egypt
+## Chapter 23: Fabricating 'Ancient' Egypt
 
 In Egypt the "5000-year" history of Egypt is a Flavian-era fabrication to provide a deep, mystical past for the Serapis cult.
 
@@ -1582,7 +1595,7 @@ The "Old Kingdom" is a fictional pre-history for the Serapis Cult. The Pyramids 
 
 ---
 
-## Chapter 25: Rome: The Phantom Empire on the Tiber
+## Chapter 24: Rome: The Phantom Empire on the Tiber
 
 The "Roman Republic" and the bulk of the "Roman Empire" prior to Vespasian are literary phantoms. The events, consuls, and wars of the 1st centuries BCE and CE are not history but theological and political allegory back-projected onto the Italian peninsula.
 
@@ -1611,7 +1624,7 @@ Rome became a ghost town inhabited by a fraction of its former population. Its g
 
 ---
 
-## Chapter 26: The Renaissance Forgery (14th–16th centuries CE)
+## Chapter 25: The Renaissance Forgery (14th–16th centuries CE)
 
 A clandestine cartel of Venetian and Genoese merchant-banking families, in collaboration with certain Vatican factions, orchestrated the bulk of the "rediscovery" of antiquity in the 15th-16th centuries. From roughly 600–1200 CE, almost all ancient texts survive only via monasteries.
 
@@ -1641,7 +1654,7 @@ He had access to the Byzantine manuscripts brought to Italy after the fall of Co
 
 ---
 
-## Chapter 27: The Jesuit Operation (16th-18th c.)
+## Chapter 26: The Jesuit Operation (16th-18th c.)
 
 Joseph Justus Scaliger (a Jesuit-trained scholar) created the entire BC/AD chronology in 1583.
 
@@ -1657,11 +1670,11 @@ There was a Jesuit named Jean Hardouin who said that a 14th Century Jesuit consp
 
 # Part 8: Sects of the Imperial Cult
 
-## Chapter 28: Identifying the Flavian Scribes
+## Chapter 27: Identifying the Flavian Scribes
 
 It is possible to identify who wrote the Bible by looking at sects of the Imperial cult.
 
-### 28.1 Christianity
+### 27.1 Christianity
 
 Sometime after the Roman-Jewish wars the Flavians tried to subvert the eastern imperial religion and they created Christianity. It seems likely that the Bosphoran imperial religion before Christianity was essentially Judaism (see: Chapter 8. Who Forged History?). Jewish rabbis within the Flavian administration who worked as scribes took this religion and they infused a slave morality into it.
 
@@ -1693,7 +1706,7 @@ The Flavian scribes systematically inverted the female deities of the Dragon Kin
 
 Through demonizing women they centralized authority in male priests. The Church Father became the new "fathers" of the Christian community, replacing the Dragon King's matrilineal priests. In Pagan European cultures women were the teachers of the youth. Why did they do this? Author Ammon Hillman in his book 'Original Sin: Sex, Drugs, and the Church' (2012), who speaks Koine Greek, claims that the authors of the Bible demonized women because women in Pagan cultures were the teachers and the early priests were pedophiles who wanted access to children. The systematic abuse of children by Catholic priests over the past century (https://en.wikipedia.org/wiki/Catholic_Church_sexual_abuse_cases) wasn't a bug, it was a feature.
 
-### 28.2 The Cult of Antinous
+### 27.2 The Cult of Antinous
 
 Two years before the Bar Kokhba Revolt (132--136 CE) emperor Hadrian created a religion to deify his underage gay lover as the son of god (Osiris-Antinous) called 'The Cult of Antinous'. The name "Antinous" is an obvious indication of descent from the Antonii line and that he was a descendant of Mark Antony himself, not a random adoption by Hadrian. The use of "-ninus" is really the Greek "nini", which is "baby" or infant (i.e., "baby Jesus"). Historian Cassius Dio claims that Antinous was offered as a human sacrifice to Hadrian (Cassius Dio Cocceianus, Historiae Romanae, book 69, chapter 11) but in the Dragon King tradition they did not practice human sacrifice – they practiced ritual death and resurrection via poison (Mithridatium). Antinous's "drowning" in the Nile is the same allegory as Osiris's drowning. He was not killed; he was re‑baptised into a new avatar. He emerges as Antoninus Pius – the successor emperor. Antoninus Pius's full name is Titus Aelius Hadrianus Antoninus Pius and he was adopted by Hadrian and was his successor, and the cult of Antinous was his imperial cult. One of the scribes for The Cult of Antinous was Aquila of Sinope aka Onkelos who was a kinsman of the Roman emperor Hadrian. Emperor Hadrian also employed Aquila of Sinope to rebuild Jerusalem as Aelia Capitolina after the Bar Kokhba revolt (the city was named after Hadrian's family name (Aelia) and the Roman god Jupiter (Capitolina)). In Acts 18:2-3 and Romans 16:3 NASB, it is claimed that Aquila of Sinope and his wife Prisca or Priscilla lived with Paul the Apostle and Paul called them "my fellow workers in Christ Jesus"
 
@@ -1703,7 +1716,7 @@ Fig. 1.66. Steel relief that shows Antinous holding the grapes of Dionysus in on
 
 The Cult of Antinous failed (overt homoeroticism, too tied to a single emperor) but it did serve as a trial run for later cults (Christianity/Islam).
 
-### 28.3 Islam
+### 27.3 Islam
 
 Islam is a surviving (albeit subverted) sect of an Alexandrian School Imperial Cult that had its roots in the Serapis, Flamen Dialis, and the Antinous cults.
 
@@ -1729,7 +1742,7 @@ The concept of Jihad (struggle) is the exact inverse of Christianity's "turn the
 
 The Arab conquests were not a spontaneous eruption from the desert. They were a meticulously planned J2 coup d'état against both the Byzantine and Sassanid empires from within, using a new religion as the unifying ideology for the multi-ethnic slave-soldier armies. The ultimate goal was the complete erasure of the Dragon King bloodline and its replacement with a manageable, slave-soldier population. The Arab conquests swept across the Middle East and North Africa, carrying out the systematic genocide and replacement of the remaining R1a-V88 Berber and R1a-Z93 Parthian/Sassanid elites. The religion of Islam provided the perfect ideological justification: submission to a single, abstract God whose earthly stewards were the ulama (the J2 priestly class). The Caliphate was the new Flavian dynasty, ruling a restored universal empire from Baghdad, with Islam as its Christianity and the Arabs as its Germanic legions.
 
-Endnotes (Chapter 28.2)
+Endnotes (Chapter 27.2)
 
 (a) Marcion of Sinope aka Markianos of Alexandria grew up in the Attis-Sabazios cult on Anatolia before traveling to Judea to study under rabbi Akiva and finally to Alexandria at the Alexandrian School.
 (b) There was a Marcus who founded the Marcosian Gnostic sect. He was a teacher of Bishop Irenaeus and a friend of Clement of Alexandria. Was he also Marcion of Sinope aka Markianos of Alexandria? [^40]. St. Jerome in "Against Jovinian" describes Mark as a disciple of the Gnostic teacher Basilides. Here is a list of "Marks" who were active around the same time: Mark, the Evangelist, John Mark, Mark of Apollonias, Markianos of Alexandria, Mahalia, Marcus of Jerusalem, Marcus Pompeius, Marcus Annaeus Lucanus, Marcus the Magician, Marcion of Sinope, Marcus the Marcosian. Mark of Apollonias, John Mark, Mark the cousin of Barnabas, and Mark the Apostle are considered to be the same person by historians, so it is conceivable that all these "Marks" were the same person.
