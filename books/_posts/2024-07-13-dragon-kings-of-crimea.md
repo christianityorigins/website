@@ -1,13 +1,13 @@
 ---
 layout: default
 open_links_in_new_tab: true
-title: "The Dragon Kings of Crimea: A Complete History"
+title: "The Dragon Kings of Crimea: A Complete History — A Genetic, Numismatic, and Onomastic Reconstruction of the Eurasian Asii Hegemony and Its Flavian Subversion"
 date: 2024-07-13
 category: books
 ---
 
 
-# The Dragon Kings of Crimea: A Complete History
+# The Dragon Kings of Crimea: A Complete History — A Genetic, Numismatic, and Onomastic Reconstruction of the Eurasian Asii Hegemony and Its Flavian Subversion
 
 **By Ralph Perrier**
 
