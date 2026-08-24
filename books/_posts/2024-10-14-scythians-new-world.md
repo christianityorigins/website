@@ -178,7 +178,7 @@ Clovis / Solutreans is a cover name for Cro-Magnon invaders from Atland. There i
     *   Controlled Brittany, built massive oak ships for Atlantic travel.
     *   Allied with/controlled by Rome post-conquest.
 *   **Navigational Capacity:**
-    *   **Antikythera Mechanism (c. 100 BCE):** Analog computer for astronomy.
+    *   **Antikythera Mechanism (c. 100 BCE):** Analog computer for astronomy. The ship that carried the Antikythera Mechanism was carrying loot from a specific conflict—the Mithridatic Wars. The cargo, described as "spoils of war". The prime candidate for this loot is the Kingdom of Pontus. One source states that "Pontus was sacked and numerous statues and other spoils were shipped to Italy after the conquest by Licinius Lucullus". The king of Pontus during this period was Mithridates VI Eupator (r. 120–63 BCE). Historian Attilio Mastrocinque identifies the Antikythera mechanism as the sphaera of Billaros from Sinope looted by Lucullus and lost at sea (Strabo 12.3.11). 
     *   **Star Pathing:** Canary Islands (28°N) to Cuba (28°N) – sail due west by North Star.
     *   **Currents:** Canary Current to Caribbean (30-40 days). Gulf Stream return to Europe (40-50 days). This creates a round-trip Atlantic circuit.
 *   **The Arctic "Hyperborean" Shortcut**
