@@ -1335,18 +1335,17 @@ Endnotes (Chapter 14)
 ## Chapter 15: Plagues and Biological Warfare
 
 All three major plague pandemics (Justinianic, Black Death, Third Pandemic) were deliberate deployments of Yersinia pestis by the J2/J1 priestly-financier class (the heirs of the Flavians) to cull the R1a refugia populations in Europe and Central Asia.
-
 The Epidemiological Anomalies:
 
-- The Plague of Justinian (541-549 CE): Targeted the Eastern Roman (Byzantine) Empire, the successor state to the Bosporan Hegemony. It decimated the urban and military populations—the core R1a and R1b remnants. The Vatican in Rome was relatively spared.
+The Plague of Justinian (541-549 CE): Targeted the Eastern Roman (Byzantine) Empire, the successor state to the Bosporan Hegemony. It decimated the urban and military populations—the core R1a and R1b remnants. The Vatican in Rome was relatively spared.
 
-- The Black Death (1346-1353 CE): Spread along trade routes controlled by Venetian and Genoese bankers (the Medici precursors). It disproportionately killed the rural peasantry of Europe, who had higher R1a/R1b ancestry. The Jewish (J2/J1) communities had significantly lower mortality rates, not due to hygiene, but due to genetic immunity and prior inoculation.
+The Black Death (1346-1353 CE): Spread along trade routes controlled by Venetian and Genoese bankers (the Medici precursors). It disproportionately killed the rural peasantry of Europe, who had higher R1a/R1b ancestry. The Jewish (J2/J1) communities had significantly lower mortality rates, not due to hygiene, but due to genetic immunity and prior inoculation.
 
-- The Mechanism: The plague was not spread by rats. It was spread by human fleas and contaminated grain shipments. The grain trade was controlled by the same financier cartels that had controlled the Alexandrian grain dole. Releasing plague-infested grain into the European countryside was a targeted demographic weapon.
+The Mechanism: The plague was not spread by rats. It was spread by human fleas and contaminated grain shipments. The grain trade was controlled by the same financier cartels that had controlled the Alexandrian grain dole. Releasing plague-infested grain into the European countryside was a targeted demographic weapon.
 
-- The Genetic Evidence: Modern Europeans have a higher frequency of CCR5-delta32 (a gene that confers immunity to plague and HIV) than other populations. This gene is not found in the Neolithic farmer (G2a) or Hunter-Gatherer (I) populations; it is specific to the Steppe-derived (R1a/R1b) populations. It arose precisely during the Bronze Age and was selected for by repeated plague exposures. The Dragon Caste had been bioweaponed for millennia.
+The Genetic Evidence: Modern Europeans have a higher frequency of CCR5-delta32 (a gene that confers immunity to plague and HIV) than other populations. This gene is not found in the Neolithic farmer (G2a) or Hunter-Gatherer (I) populations; it is specific to the Steppe-derived (R1a/R1b) populations. It arose precisely during the Bronze Age and was selected for by repeated plague exposures. The Dragon Caste had been bioweaponed for millennia.
 
-The plagues were not natural. They were the final solution of the Flavian-Vatican cartel to the "R1a problem"—the persistent genetic memory of the Dragon Kings.
+The plagues were not natural. They were the final solution of the Flavian-Vatican cartel to the "R1a problem"—the persistent genetic memory of the Dragon Kings.it is specific to the Steppe-derived (R1a/R1b) populations. It arose precisely during the Bronze Age and was selected for by repeated plague exposures. The Dragon Caste had been bioweaponed for millennia.
 
 ---
 
@@ -1354,15 +1353,15 @@ The plagues were not natural. They were the final solution of the Flavian-Vatica
 
 The Flavians (the Pālava/Pahlavi clan, a junior branch of the R1 Sarmatian elite) were heavily intermarried with the Judeo-Anatolian J2 priesthood by Vespasian's reign. The haplotype R1a (the famed "Arya" gene) was the dominant haplogroup of the Roman elite before the Flavian empire. After the Flavian reign the haplotype J2/J1 became the dominant haplogroup among the Roman elite [^37](https://inf.news/en/science/bee8bab603736d7530f42b64ea756397.html). The Flavians then created a new ruling ethnicity in Rome—the Neo-Flavians—who were biologically the hybrid Pālava-J2 administrative class. The subsequent Catholic Church was the institutional memory of this coup, a permanent bureaucracy staffed by this new genetic elite, tasked with completing the erasure of their Dragon King predecessors. This is why they erased the Scythian origins of ancient civilizations and painted the Scythians (R1a) as monstrous foreigners. "Flavius" (Pālava/Pahlavi) eventually became Shabbos. From Constantine to Heraklios, for 500 years nearly every single Emperor bore the Flavius (Shabbos) title. By my count, 37 Roman and Byzantine emperors in all bore the honorary title "Flavius", and then later, "Phlabios" (https://en.wikipedia.org/wiki/Special:MobileDiff/1062698821)
 
-Vespasian then imported 100,000+ Jews into Italy (Josephus, Jewish War vi), gave them citizenship and institutional positions, and this began Rome's descent into a multi-racialism/multi-culturalism.
-
-Roman emperor faces no longer appear on Bosphoran coins after emperor Titus. Roman emperors also stopped looking "Aryan"/Nordic after the Flavian empire.
-
-This is why they erased the Scythian origins of ancient civilizations and painted the Scythians (R1a) as monstrous foreigners.
-
 ![Fig.1.65](/images/VespasianBust.jpg){:width="400px"}
 
 Fig. 1.65. Not only were their names and titles localized to different populations, but so were their depictions. L. The earliest bust of Vespasian and likely the most true to life. R. The Julio-Claudian inspired depiction that is most commonly associated with him.
+
+Vespasian then imported 100,000+ Jews into Italy (Josephus, Jewish War vi), gave them citizenship and institutional positions, and this began Rome's descent into a multi-racialism/multi-culturalism.
+ 
+Roman emperor faces no longer appear on Bosphoran coins after emperor Titus. Roman emperors also stopped looking "Aryan"/Nordic after the Flavian empire.
+
+This is why they erased the Scythian origins of ancient civilizations and painted the Scythians (R1a) as monstrous foreigners. 
 
 ---
 
