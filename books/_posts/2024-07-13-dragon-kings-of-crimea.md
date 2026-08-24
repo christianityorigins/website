@@ -42,21 +42,22 @@ Published by Heretical Books
 5. Timeline: The Proto-Indo-European (Aryan) Hegemony
 6. Key Historical Figures & Their Aliases\
    6.1 The Primordial Patriarch: Ateas the Scythian\
-   6.2 Later Dragon Bloodline Descendants
+   6.2 Later Dragon Bloodline Descendants\
 
 **Part 2: The Asii Satrapy System**
 
 7. The Asii Satrapies: A Comprehensive Directory
 8. The Dragon Cult\
-   8.1 The Swastika
+   8.1 The Swastika\
 
 **Part 3: The Alexandrian Synthesis**
 
 9. The Alexandrian School\
    9.1 Serapis Cult\
-   9.2 Judaism\
-   9.3 Location of Ancient Jerusalem (Hiero-Solyma)\
-   9.4 Modern Jews
+   9.2 Religion as an Operating System for the Ancient World
+   9.3 Judaism\
+   9.4 Location of Ancient Jerusalem (Hiero-Solyma)\
+   9.5 Modern Jews\
 
 **Part 4: The Bosphoran Connection**
 
@@ -79,11 +80,11 @@ Published by Heretical Books
     15.6 The Successor Generations\
     15.7 Izates II, King of Adiabene\
     15.8 Tiberius Julius Sauromates II
-    15.9 Simon Bar Kokhba
+    15.9 Simon Bar Kokhba\
 
 **Part 5: The Flavian Dynasty and the Creation of Christianity**
 
-16. The Flavian Dynasty
+16. The Flavian Dynasty\
 
 **Part 6: The Demographic Erasure of the Scythian-Aryan Hegemony**
 
@@ -92,7 +93,7 @@ Published by Heretical Books
 19. China: The Han Synthesis and the Tartarian Genocide
 20. Ancient India: The Mauryan Mirage
 21. The Middle East and North Africa: Invasions and Slave Colonization (250 - 650 CE)
-22. Where Did The Scythian Aryans Go? The Refugia
+22. Where Did The Scythian Aryans Go? The Refugia\
 
 **Part 7: Rewriting History**
 
@@ -102,7 +103,7 @@ Published by Heretical Books
 26. Fabricating 'Ancient' Egypt
 27. Rome: The Phantom Empire on the Tiber
 28. The Renaissance Forgery (14th–16th centuries CE)
-29. The Jesuit Operation (16th-18th c.)
+29. The Jesuit Operation (16th-18th c.)\
 
 **Part 8: Sects of the Imperial Cult**
 
@@ -124,8 +125,6 @@ Published by Heretical Books
 # Prolegomenon: Methodology and Historiographical Approach
 
 This book traces Christianity back to its foundations — from the mythemes of Scythian snake-worshiping cults, to the Alexandrian School in Egypt and the Sarapis cult, to the Roman (Bosphoran) imperial cult — and then finishes with the subversion of the Bosphoran cult by the Flavian Dynasty (Vespasian, Titus).
-
-Because the historical record has been forged in three phases, this book relies solely on evidence that couldn't be forged. My methodologies are: numismatic and onomastic evidence, historical correlation and timeline analysis, and genetic evidence.
 
 All chronology is false: The Julian/Gregorian calendar, dynastic lists, and "ancient" texts are post-15th century constructs designed to create a linear, biblical, and Europe-centric past. The "Phantom Time" hypothesis (Fomenko et al.) is a conservative estimate; the forgery is more total.
 
@@ -151,17 +150,12 @@ Cosimo de' Medici's grandson was Lorenzo de' Medici ("Lorenzo the Magnificent").
 
 3) The Jesuit Operation (16th-18th centuries): The Jesuits, founded in 1540 by Ignatius of Loyola, were the scientific arm of the Vatican. They took over the forgery project and globalized it. Jesuit scholars fabricated chronologies for China, India, and the Middle East, backdating history by centuries to fit Biblical timelines. The key figures include Joseph Justus Scaliger (a Jesuit-trained scholar who invented the BC/AD chronology in 1583), Athanasius Kircher (who "reconstructed" Egyptian history from fragments), and Martino Martini (who wrote the foundational chronology of China in 1658). They were assisted by a global network of missionaries who acted as intelligence agents, collecting local records and then "interpreting" them to fit the Vatican's narrative.
 
+Because the historical record has been forged in three phases, this book relies solely on evidence that couldn't be forged. My methodologies are: numismatic and onomastic evidence, historical correlation and timeline analysis, and genetic evidence.
+
 ---
+**Introduction: A New Model for Ancient Civilizations**
 
-# Introduction: Religion as an Operating System for the Ancient World
-
-Christianity is a Flavian dynasty derivative of one of the slave morality religions that were invented at the Alexandrian School in Egypt. The Alexandrian School was a religion-making factory that was set up by Ptolemy Soter.
-
-Religion was the technology that the Ptolemaic dynasty used to control the vast and disparate populations they ruled and they created religions in every single conquered land. They would take local customs and create a syncretic man-god representing the Ptolemaic pharaoh (the principle of 'Interpretatio Graeca'). This system had one primary function: to psychologically pacify conquered populations and prevent unified rebellion. They would package these religions as sects of local religions because getting people to abandon their religions for a new one is an impossible task. However, there are thousands of sects of major religions today, many with different prophets (e.g., Christianity as Judaism's "fulfillment").
-
-Beyond the surface-level imperial fiction, all these Alexandrian School religions contained the same psychological weapon at their core: centralized texts and priesthoods which makes a population easier to control through proxy (up until the Protestant Reformation most of the European population was illiterate. Then the church kept scripture in Latin, which only clergy could read. Reproducing or translating the Bible was punishable by death. This is because the Bible was written for a tiny, literate priestly elite who would then control the population on behalf of kings), moral codes like submission ("turn the other cheek", "the meek shall inherit the earth", "he who raises the sword will die by the sword", etc.), self-sacrifice, obedience, loyalty, divine judgment, the concept of hell, suffering in this life is good (it purifies the soul) and the promise of inner peace through acceptance of one's station, and monotheism which divides the population through binary thinking, ie., the opposition between good and evil, us vs them, left vs right, etc., which destroys tribalism/collectivism by splitting the population into two opposing groups. These religions were also likely designed to segment the populations by class, culture, and region to prevent unified resistance. For example, Mithraism was for military elites (requiring blood oaths, with a Mithraic initiate caste system and hierarchical structure). Serapism was for civilians (promising afterlife salvation). Christianity was for slaves ("turn the other cheek").
-
-**What the reader needs to know before entering this book:**
+What the reader needs to know before entering this book:
 
 - Conventional history is a synthetic construct, a palimpsest overwritten multiple times by victors. The primary forgers were the Flavian emperors, the Vatican, and the Jesuits. What they overwrote is that the Egyptian-Persian-Indian-Greek-Roman elite were a Proto-Indo-European (PIE) Elite (Kurgan Culture) who were the horse-riding, chariot-inventing pastoralists from the Pontic-Caspian Steppe who, beginning around 4500 BC, began a systematic conquest of Europe, Anatolia, and the Indus Valley, and who ruled through proxy dynasties. The domestication of the horse, invention of the chariot, and advanced ship building technology allowed them to travel vast distances. Egypt, Persia, India, Greece, Rome, etc., were all at one point under the suzerainty of Aryan Iranian-Scythian elites and their base of operation was on the Cimmerian Bosphorus (Crimea–Kerch) river. The main clan in the confederation was called the Asii (The religious book of Scandinavia, the Edda, says that the ancient inhabitants of Scandinavia, the Aryans, were known as Asii people. Asii is cognate with Aryan). Mainstream history presents a linear progression: Egypt -> Greece -> Persia -> Rome. This is a complete fabrication. The "ancient" civilizations of Egypt, Greece, Persia, and Rome were largely concurrent satrapies of the Scythian core. The Persian system of Satraps (Old Persian xšaçapāvan, "protector of the dominion") is the administrative blueprint of this hegemony. The title derives from Xšaya (to rule), which links to Roman Caesar and Sanskrit Kshatriya. Every Satrap was a regional "dragon-king" enforcing the center's will.
 
@@ -645,22 +639,6 @@ The name "Scythian" itself decodes as "Scyth" = "Sak" = "Saka" which is related 
 
 Kings who took on the snake/dragon/serpent/Azhi Dahaka title: Azhdahak, which is the Armenian form of the name of the Avestan Azhi Dahaka, was associated with the Median king Astyages (564–550 BC) who was the grandfather of Cyrus the Great. Tigranes II/the Great, King of Armenia (140–55 BC) was also called Azhdahak. Tiberius Julius Sauromates II, King of Bosphorus ('Saur' means 'snake' or 'dragon', and 'mates' means 'man' or 'warrior'). The roots of the snake titles were: Aži-, Azhd-, -zates, Sauro-, Draco-.
 
-**Genetics.**
-
-The Dragon Caste were Neanderthal-Denisovan-Human hybrids: 60-90% Homo Sapiens, 2.5-3.5% Neanderthal, 0.5-1.0% Denisovan.
-
-Haplogroup R1a-Z93 is the genetic signature of the Asii administrative and priestly class, found in:
-- Scythian remains (Pontic-Caspian Steppe)
-- Indian Kshatriya and Brahmin castes
-- Persian nobility
-- The Mitanni elite, who ruled a predominantly Hurrian population.
-- Roman patrician families (before Flavian replacement)
-- Herodian and Pharisaic dynasties in Judea
-- Tarim Mummies (China)
-- European nobility (Habsburgs, Alans)
-- Modern Jats, Ossetians, Ashkenazi Levites
-
-
 ### 8.1 The Swastika
 
 The Swastika (Gammadion, Tetraskelion, Fylfot, et.al) appears on ancient artifacts and petroglyphs throughout Europe, in every group ranging from the Vinça culture in the Balkans to the Celts, Germanics, Slavs, Baltics, Greco-Romans, Illyrians, as well as, the coins of the Paratarajas, the Parthians, the Kushans, and the Indo-Scythians and this is not a coincidence. It is the unified graphic signature of the same trans-continental, pre-Flavian ruling class.
@@ -741,7 +719,13 @@ The template is unmistakable: born in a cave (Jesus was born in a cave. Dionysus
 
 Previous to Serapis the first universal religion that the Alexandrian School tried to push was the "Ptolemaic Cult of Alexander the Great". They probably realized quickly that a religion about "The Divine Alexander" dies with Alexander so they switched to his deified form ("Sarapis") instead. This way that name became a placeholder that kings inherited. This role could switch between generations, and this is why they didn't directly deify themselves. The population knew the god-king was the earthly agent of whatever deity they worshiped.
 
-### 9.2 Judaism
+### 9.2 Religion as an Operating System for the Ancient World
+
+Religion was the technology that the Ptolemaic dynasty used to control the vast and disparate populations they ruled and they created religions in every single conquered land. They would take local customs and create a syncretic man-god representing the Ptolemaic pharaoh (the principle of 'Interpretatio Graeca'). This system had one primary function: to psychologically pacify conquered populations and prevent unified rebellion. They would package these religions as sects of local religions because getting people to abandon their religions for a new one is an impossible task. However, there are thousands of sects of major religions today, many with different prophets (e.g., Christianity as Judaism's "fulfillment").
+
+Beyond the surface-level imperial fiction, all these Alexandrian School religions contained the same psychological weapon at their core: centralized texts and priesthoods which makes a population easier to control through proxy (up until the Protestant Reformation most of the European population was illiterate. Then the church kept scripture in Latin, which only clergy could read. Reproducing or translating the Bible was punishable by death. This is because the Bible was written for a tiny, literate priestly elite who would then control the population on behalf of kings), moral codes like submission ("turn the other cheek", "the meek shall inherit the earth", "he who raises the sword will die by the sword", etc.), self-sacrifice, obedience, loyalty, divine judgment, the concept of hell, suffering in this life is good (it purifies the soul) and the promise of inner peace through acceptance of one's station, and monotheism which divides the population through binary thinking, ie., the opposition between good and evil, us vs them, left vs right, etc., which destroys tribalism/collectivism by splitting the population into two opposing groups. These religions were also likely designed to segment the populations by class, culture, and region to prevent unified resistance. For example, Mithraism was for military elites (requiring blood oaths, with a Mithraic initiate caste system and hierarchical structure). Serapism was for civilians (promising afterlife salvation). Christianity was for slaves ("turn the other cheek").
+
+### 9.3 Judaism
 
 Iudaios (Jew) = Iulius (Julius). The Tribe of Judah and the Gens Julia were the exact same bloodline. This is also where the title "Yuezhi", the Central Asian Scythian tribe (Yuezhi (Chinese) → Iuzi (some intermediary) → Iulius (Latin)), comes from. The name Jupiter comes from Dyēus Pter ("Sky Father") which is the original name of the chief god for the Proto-Indo-Europeans on the Pontic-Caspian Steppe. His name means "Shining Sky Father". The name Zeus comes from the pronunciation of "Dyeus", and I(J)upiter (there was no "J" in ancient Latin) comes from the pronunciation of "Dyeus Pter" (Diespiter -> Iupiter). I(J)upiter was also called Jove or Iove to the Romans. The Latin pronunciation of Iove would have been Yoh-Way, i.e., Yahweh/Yhwh. Dyēus -> Zeus -> Iove (Jove) -> Iud- (as in Iud-ii). The -ii suffix denotes "people of" or "tribe of". Iudii = "The People of Jove". The Scythian elite, as part of their imperial cult, syncretized their primary deity with local deities. In Anatolia and Thrace this same god was worshipped as Sabazios, so Yahweh Sabaoth, the god of the Hebrew Bible, is I(J)ove (Roman Zeus) Sabazios (Thracian Zeus).
 
@@ -763,7 +747,7 @@ The Star of David is the Remphan which is a term used in the Bible, specifically
 
 The Pentateuch is a Hebraized translation of Plato's Laws and Republic, overlaid on a Scythian tribal genealogy (the 12 clans of the Sarmatian federation), and codified at the Alexandrian School in Egypt. The myth of the jewish people and the Laws of Moses were based on Plato's hypothetical colony of Magnesia from his thesis called "The Laws" (347 BC) in which the proposed charter for the Cretan colony of Magnesia was modeled in large part on Athenian legal and constitutional traditions. Ancestors received law from a deity, hereditary priesthood rather than king, as well as the division into 12 tribes were all part of the formula. Plato's Timaeus (360 BC) is where the story of Abraham comes from. Plato's Timaeus is also the source for Genesis 1-11. Homer's Odyssey was the source of Genesis 24, 42-46. The biblical concept of hell was stolen from Plato's Republic ('Myth of Er'), and the spiritual plane of Heaven is ripped off from Plato's 'World of Forms'. Exodus is just a semitized retcon of Jason and the Argonauts, and the Oracles Against the Nations plagiarize the Sibylline Oracles.
 
-### 9.3 Location of Ancient Jerusalem (Hiero-Solyma)
+### 9.4 Location of Ancient Jerusalem (Hiero-Solyma)
 
 Ancient Jerusalem was located in Anatolia, along the Bosphorus river near Yoros castle. The name "Yoros" (also spelled Ioros) is a direct phonetic match for the first half of "Ierosolyma" (Jerusalem). The Turkish name Yoros is also a contraction of the Greek Hieron ("Sacred Place") – which is the same root as Hierosolyma, the Greek name for Jerusalem.
 
@@ -783,7 +767,7 @@ This region was populated by the Celts (Galatians) who came to ancient Anatolia 
 
 For example, the Celtic languages are surprisingly Semitic with a verb-subject-object word order and a shocking amount of vocabulary overlap, and the name of Irish deities, Balor and his holiday Beltaine are cognate to Bal and Elatha the Irish Uranus is cognate to Hebrew El. King David (DWD) = King Druid. 1 Samuel 16:12 claims that King David had red hair. The ancient Celtic prefixes 'Rab' or 'Rhab' mean 'wise one' or 'seer', and a Druid equates to a Rabbi. There was even a Celtic tribe called the "Iudii" -> Ioudaioi -> Jew.
 
-### 9.4 Modern Jews
+### 9.5 Modern Jews
 
 The original Jews were not a Semitic tribe from Canaan. They were the Gens Julii – the Dragon Kings' priestly caste who spread from Central Asia to Europe.
 
@@ -1036,7 +1020,7 @@ He was also Mithridates Chrestus who was the brother of Mithridates VI Eupator. 
 
 One of the main conspirators in the assassination of Julius Caesar was named Gaius Trebonius. In the Bosporus, the historical record states that around 17 BCE, a usurper named Scribonius appeared, claiming to be a relative of Asander's wife, Dynamis. He seizes power and Asander, in despair, commits suicide. "Trebonius" and "Scribonius" are linguistically congruent. This is obviously a literary trope, or imperial fiction.
 
-Endnotes (Chapter 5.1)
+Endnotes (Chapter 13)
 
 (a) The Tibetan epic hero Gesar of gLing is explicitly called "Dru gu Gesar" —"Turk Caesar". This is not a coincidence. The Tibetan tradition, far from the reach of Roman propaganda, preserved the understanding that the title "Gesar/Kesar" was the royal title of the Turks—the very people who were the Scythian Dragon Kings.
 
@@ -1364,7 +1348,7 @@ Fig. 1.62. L. Simon Bar Kokhba coin. R. Coin of Alexander (grandson of King Hero
 
 Fig. 1.63. L. Simon Bar Kokhba coin showing a kithara (Greek musical instrument). R. Coin of Scilurus, king of Scythia also showing a kithara. The kithara also shows up on Asande's coins (https://leunumismatik.com/en/lot/24/154)
 
-Endnotes (Chapter 5)
+Endnotes (Chapter 15.9)
 
 (a) The morning star was Lucifer, or "lucem ferre", which means "light-bearer" or "morning star". Lucifer became a demon after Flavian and J1/J2 rabbinic revision.
 (b) Apollonius of Tyre was married to the daughter of a king of Libya ("Historia Apollonii Regis Tyri" or "The Story of Apollonius, King of Tyre"), who was Cleopatra Selene aka Drusilla (aka Cleopatra (Thea Philopator) of Mauretania aka Cleopatra IX aka Helene aka Julia Ourania of Parthia aka Philo of Alexandria. Drusilla was the wife of Azizus who was her brother Juba II (Alexander Helios aka Alexander (son of King Herod)) aka Gaius Julius Alexander, Herodian Prince of Judaea aka Alexander Lysimachus aka Alexander the Alabarch aka Tiberius Julius Alexander Major aka (King/Tetrarch) Ptolemy (Alexander) bar Menneus aka Ptolemy of Mauretania aka Phraates V (the "King of Kings") aka Monobazus I King of Adiabene). [^24] [^25] So, Alexander aka Juba II was also Apollonius of Tyre. Juba II carried the title "Rex Literatissimus" which can be translated as "Most Learned King" or "The Most Scholarly King". He was known as a philosopher. These members of this royal family liked to role-play as philosopher kings. Is Apollonius of Tyre the same person as Apollonius of Tyana? This would make Apollonius of Tyana the brother-husband of Philo of Alexandria and the father of Josephus. These three created the core of Christianity.
@@ -1394,7 +1378,7 @@ Berenice's brother Marcus Julius Agrippa II, whom she was in an incestuous relat
 
 Emperor Vitellius was probably an alias for Vespasian's older brother Titus Flavius Sabinus who was married to Mariamne III aka "Arria the Elder" ("Arria" from her father's name judean king Aristobulus IV who was the son of King Herod and he was also Julius Caesar's adopted son. Aristobulus IV was likely Vespasian and Vitellius's father, so like his cousin Alexander (grandson of King Herod), he was also married to his sister).
 
-Endnotes (Chapter 6)
+Endnotes (Chapter 16)
 
 (a) Theory: Alexander (grandson of King Herod) aka Gaius Julius Alexander, Herodian Prince of Judaea aka Alexander Lysimachus aka Alexander the Alabarch aka Tiberius Julius Alexander Major aka (King/Tetrarch) Ptolemy (Alexander) bar Menneus aka Ptolemy of Mauretania was also the Roman general 'Gnaeus Domitius Corbulo'. Gnaeus Domitius Corbulo conquered Armenia alongside Tiberius Julius Alexander (his son Tiberius Julius Alexander aka Arrius Calpurnius Piso aka Arrius Varus aka Tiberius Julius Cotys aka Emperor Nerva), after which, Tigranes VI (Tiberius Julius Alexander) was installed as king. Compare his bust [link] to the famous 'Josephus' (Tiberius Julius Alexander) bust [link]. Notice a resemblance? If this is correct, then he (Alexander) would have been the brother-in-law to Caligula and father-in-law to Domitian. Tiridates of Armenia (who would have been Mithridates Chrestus' great-great-grandson) was the one who spread the religion Mithraism which was a syncretic slave-morality religion to subjugate the Parthians. Mithras is inspired by Zoroastrianism, the religion of the Persians/Parthians, but Mithras is the same as Sabazios. It's a solar son deity, a Jupiter.
 (b) Coin of Vespasian depicitng "Zeus-Sarapis": [^27]
@@ -1787,7 +1771,7 @@ The concept of Jihad (struggle) is the exact inverse of Christianity's "turn the
 
 The Arab conquests were not a spontaneous eruption from the desert. They were a meticulously planned J2 coup d'état against both the Byzantine and Sassanid empires from within, using a new religion as the unifying ideology for the multi-ethnic slave-soldier armies. The ultimate goal was the complete erasure of the Dragon King bloodline and its replacement with a manageable, slave-soldier population. The Arab conquests swept across the Middle East and North Africa, carrying out the systematic genocide and replacement of the remaining R1a-V88 Berber and R1a-Z93 Parthian/Sassanid elites. The religion of Islam provided the perfect ideological justification: submission to a single, abstract God whose earthly stewards were the ulama (the J2 priestly class). The Caliphate was the new Flavian dynasty, ruling a restored universal empire from Baghdad, with Islam as its Christianity and the Arabs as its Germanic legions.
 
-Endnotes (Chapter 9)
+Endnotes (Chapter 30.2)
 
 (a) Marcion of Sinope aka Markianos of Alexandria grew up in the Attis-Sabazios cult on Anatolia before traveling to Judea to study under rabbi Akiva and finally to Alexandria at the Alexandrian School.
 (b) There was a Marcus who founded the Marcosian Gnostic sect. He was a teacher of Bishop Irenaeus and a friend of Clement of Alexandria. Was he also Marcion of Sinope aka Markianos of Alexandria? [^40]. St. Jerome in "Against Jovinian" describes Mark as a disciple of the Gnostic teacher Basilides. Here is a list of "Marks" who were active around the same time: Mark, the Evangelist, John Mark, Mark of Apollonias, Markianos of Alexandria, Mahalia, Marcus of Jerusalem, Marcus Pompeius, Marcus Annaeus Lucanus, Marcus the Magician, Marcion of Sinope, Marcus the Marcosian. Mark of Apollonias, John Mark, Mark the cousin of Barnabas, and Mark the Apostle are considered to be the same person by historians, so it is conceivable that all these "Marks" were the same person.
