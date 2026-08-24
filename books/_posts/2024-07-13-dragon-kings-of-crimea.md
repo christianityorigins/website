@@ -358,7 +358,11 @@ The Asii were also the Tocharians. Tocharian A and Tocharian B are two extinct I
 
 **2.3 The Hyksos (Egypt)**
 
-The name "Hyksos" is not a tribal name. It is a Greek rendering of the Egyptian title hekau khasut—"rulers of foreign (mountainous) lands". The Hyksos were originally called Haq-Shasu—"Princes/Rulers of the Shasu" and Shasu is a linguistic variant of Asu/As—the very root of Asii. They were "Kings of the As". The six Hyksos kings were named Salatis, Beon, Apachnas, Apophis, Jannas, and Asses, with only two not carrying the As title. The Hyksos king Apophis/Apepi (the fourth king in the list) is named after Apophis—the great serpent of chaos in Egyptian mythology.
+The name "Hyksos" is not a tribal name. It is a Greek rendering of the Egyptian title hekau khasut—"rulers of foreign (mountainous) lands". The Hyksos were originally called Haq-Shasu—"Princes/Rulers of the Shasu" and Shasu is a linguistic variant of Asu/As—the very root of Asii. They were "Kings of the As". Manetho's etymology that Hyksos means "Shepherd Kings" (from Hyk = king, Sos = shepherd)—is a mistranslation. The true meaning is "Kings/Rulers of the As".
+
+Hyksos kings were named Salatis, Apachnas (Apak = "serpent" + Nas = "lord." The serpent-lord), Apophis (Apepi—the great serpent of chaos in Egyptian mythology), Jannas/Yanassi (Iannas/Jannas which connects to Janus, the Roman deity), and Assis/Archles (As-As = "Lord of Lords." The supreme Dragon King title). One Hyksos king was named Yaqub-Har (also spelled Yakubher, Yak-Baal, or variant references matching Yacobaam/Jacob). This is the Yuezhi - Iulii - Juli tribe designation. The biblical patriarch Jacob was a Hyksos pharaoh. The biblical narrative is not the story of a wandering shepherd is the inverted memory of an Asii Dragon King who ruled Egypt.
+
+Every single Hyksos king carries the Asii linguistic signature. The names are not Semitic—they are Asii royal titles adapted to Egyptian phonetics.
 
 They were Asii pharaohs who ruled Egypt during the Second Intermediate Period. They called themselves heqa khasut on their seals and a monumental doorjamb from Avaris. The pyramids were not tombs for Semitic kings; they were solar-resurrection machines—massive kurgans built to ensure the Dragon King's ascent to the heavens.
 
