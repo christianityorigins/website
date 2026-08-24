@@ -53,7 +53,7 @@ Published by Heretical Books
 2.12 The Asii Global Lexicon (Proving their Reach)\
 3: Timeline: The Proto-Indo-European (Aryan) Hegemony\
 4: Key Historical Figures & Their Aliases\
-4.1 The Primordial Patriarch: Ateas the Scythian\
+4.1 The Primordial Patriarch: Ateas the Scythian (c. 429 BC – 339 BC)\
 4.2 Later Dragon Bloodline Descendants\
 5: The Asii Satrapies: A Comprehensive Directory\
 6: The Dragon Cult\
@@ -472,7 +472,7 @@ The Great Upheaval & Reorganization
 - c. 1200 BCE: Bronze Age Collapse. Mainstream history blames the mysterious "Sea Peoples". The truth is that this was a massive civil war within the Aryan hegemony. Assyria rose up under the Chaldean priests (the Kalani, the Jews). Then the Sea Peoples (Sherden = Sarmatians, Peleset = Philistines = Pelasgians) were Aryan factions from the Aegean and Anatolia rebelling against the Mitanni center. The Dorian Invasion of Greece was not a new people arriving. It was the Aryan-Sarmatian elite of mainland Greece reasserting control after the Mycenaean faction grew weak. The trigger was the eruption of Thera (Santorini) around 1600 BCE, which disrupted trade and sparked a bloody power struggle.
 - c. 1000-700 BCE: The Dark Ages. The Asa-caste network fragments. The Steppe core (Scythians) retreats to the Pontic-Caspian region. The western satrapies (Greece, Anatolia, Italy) fall into regional autonomy. The Assyrian Empire rises under the Chaldean-Jewish priesthood, a rival faction that had been infiltrating the Hegemony from the south.
 - c. 705-330 BCE: Persia's Achaemenids. Saka (Scythian) clan. This was not a new empire but a reconsolidation of Scythian power under a new clan. The Persians were an Iranian (Saka) tribe. Cyrus the Great's title "Kurush" means "Sun Lord," identical to the Scythian Mithra.
-- c. 616 BCE: The Etruscan Tarquin dynasty. The Etruscan Tarquin dynasty seizes power in the Italian settlement of Rome. The Etruscans were not a mystery; they were an Aryan colonial governorate. Tarquin = Tarkhu (Scythian: "Ruler"). Servius Tullius = Tulli (Scythian: "Wolf Clan"). The "Roman" Republic was established as a military-administrative outpost to control the Western Mediterranean and secure tin from Britain.
+- c. 616 BCE: The Etruscan Tarquin dynasty. The Etruscan Tarquin dynasty seizes power in the Italian settlement of Rome. The Etruscans were not a mystery; they were an Aryan colonial governorate. Tarquin = Tarkhu (Scythian: "Ruler"). Servius Tullius = Tulli (Scythian: "Wolf Clan"). Servius Tullius, the sixth king of Rome, was not of Latin origin but was an Etruscan named Mastarna. He changed his name to Servius Tullius after arriving in Rome. This is consistent with the model of Asii kings adopting regional aliases. The "Roman" Republic was established as a military-administrative outpost to control the Western Mediterranean and secure tin from Britain.
 
 The Final Consolidation
 
@@ -487,7 +487,7 @@ The Final Consolidation
 
 ## Chapter 4: Key Historical Figures & Their Aliases
 
-### 4.1 The Primordial Patriarch: Ateas the Scythian
+### 4.1 The Primordial Patriarch: Ateas the Scythian Ateas (c. 429 BC – 339 BC)
 
 Ateas the Scythian was the last great emperor of the direct Akrosander bloodline, ruling from the Danube to the Caucasus. The name "Ateas" is not a Scythian personal name. It is the core title of the Dragon King. Ateas = Ata-as = “Father-As” or “Forefather of the Asii”—the same root as Asander, Asinder and Attila. His name also occurs as Atheas, Ateia, Ataias, and Ateus. He was not just a king; he was the eponymous ancestor of the Asii-Alan people. 
 
@@ -1814,7 +1814,7 @@ The death toll of WW1 was 15 to 22 million, mostly R1a Europeans. The war also d
 The death toll of WW2 was  70 to 85 million, mostly R1a Europeans.
 
 *   After WW2 the United Nations (UN) was established by the J2/J1 victors as a global administrative body—the Flavian-J2 "New World Order". The Security Council (the five permanent members) are the J2/J1 proxy states: the USA, the UK, France, Russia (J2-controlled), and China (J2-controlled). The UN is the modern Flavian empire.
-*   
+  
 ---
 
 # Selected Bibliography
@@ -1825,17 +1825,11 @@ The death toll of WW2 was  70 to 85 million, mostly R1a Europeans.
 
 *Following Philo to Pallas (the Freedman): The Most Powerful Man in First Century Rome, also known as Goddess (the Mother)* (2019) by P.J. Gott
 
-*Magdalene's Men. The historic identities of the many men in Mary Magdalene's life.* by P.J. Gott
-
 *Jesus Among the Julio-Claudians* (2021) by Charles N. Pope
-
-*The Herodian Messiah: Case for Jesus as Grandson of Herod* (2010) by Joseph Raymond
-
-*Original Sin: Sex, Drugs, and the Church* (2012) by Ammon Hillman
 
 *History: Fiction or Science?* by Anatoly T. Fomenko
 
-*The Chronology of Ancient Kingdoms Amended* (1728) by Sir Isaac Newton
+*How Fake Is Roman Antiquity?* (2020) by Laurent Guyenot
 
 ---
 
