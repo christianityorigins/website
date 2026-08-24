@@ -1,12 +1,12 @@
 ---
 layout: default
 open_links_in_new_tab: true
-title: "The Dragon Kings of Crimea, Volume Three: Scythian/Aryan Influence in Pre-Columbian Americas"
+title: "The Dragon Kings of Crimea: A Companion Volume (Scythian/Aryan Influence in Pre-Columbian Americas)"
 date: 2024-10-14
 category: books
 ---
 
-# The Dragon Kings of Crimea, Volume Three: Scythian/Aryan influence in pre-Columbian Americas. Did the Dragon Kings Reach the Americas Before Columbus? DNA, Artifacts, and the Evidence for a Pre-Columbian Scythian Colony
+# The Dragon Kings of Crimea: A Companion Volume (Scythian/Aryan Influence in Pre-Columbian Americas). DNA, Artifacts, and the Evidence for a Pre-Columbian Scythian Colony
 
 **Table of Contents**
 
