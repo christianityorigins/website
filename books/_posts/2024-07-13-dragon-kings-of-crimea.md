@@ -368,8 +368,6 @@ Regions:  Asii-a = "Land of the Asii, also, Azhi = Asia (Azhi-A) = "land of the 
 King names and titles: Aži-Sar / Asander / Alexander / Caesar / Kaiser / Czar / Shah / Osiris / Izates / Jesus are linguistic variations of the same supreme office across different linguistic zones of the empire. Sarlagab (the second Gutian ruler of the Gutian Dynasty of Sumer), Šarru/Sargon of Akkad's title (Akkadia: Akkadian Sarrum becomes Persian Xšaya-/Xšayathiya), Sar (Scythian), Šarri (Hurrian), -sar (Hittite), Caesar (Rome), Kaiser (Germany), Tsar (Russia), Shah/Xšaya (Persia), Asander (King of Bosporus): Asan-der = As (Lord/Serpent) + Andros (Man) = "Serpent-Lord-Man" or "Dragon-Man". Alexander: Aži-ander or Alak-san-der (Hurrian/Hittite) = Same formula: "Dragon-Man". Caesar: Aesar -> Kaesar -> Caesar or Kai-Sar. Kai (Greek: "and" but also a prefix of greatness) + Sar (King). Kaisar = "The Great King". The C is a Hellenized graft. Šarru/Sargon of Akkad's title (Akkadia: Akkadian Sarrum becomes Persian Xšaya-/Xšayathiya), Sar (Scythian), Šarri (Hurrian), -sar (Hittite).
 
 Deities: Osiris/Asar (Egyptian) is a direct link to As (Lord). Osiris is the deified form of the Dragon King archetype. Jesus: Ie-Zeus (Divine Zeus). But Zeus=Dyēus (Sky Father). The Scythian form? Izas (as in Izates). Izates = Ie (divine) + Zates (cognate of Zeus). Ie-sus (Esus). The title connects to the Celtic Esus (Lord), another avatar of the same archetype, Zarathustra (Sar + Ustra = "serpent-lord"), Saraswati (Hindi goddess of knowledge), Šaruma (Mitanni deity), feminine Sarai (or "Sarah" meaning "princess" (Genesis 17:15)).
-  
-The Flavian-Vatican 'damnatio memoriae' operation attempted to erase the Asii from the historical record. But the coins still say As. The Jats still say Asinder. The Ossetians still call themselves As. The Russians are still the Roxolani—the "Shining Asii". And the river Narmada still flows from the Asii mountains to the Asii sea.
 
 **2.2 The Branches of the Dragon Empire**
 
@@ -497,6 +495,8 @@ The Asii established a Satrapy System—a network of regional viceroys, each gov
 | **Asii of Bactria** | Kushans/Tochari | Bactria/Afghanistan | Tarkhu-As = "Ruler-As"; Shaonano Shao | c. 1st–3rd c. CE |
 | **Asii of Macedon** | Ateas/Argeads | Macedon/Thrace | Ata-as = "Father-As"; Alexander = Asander | c. 429–339 BCE |
 
+The Flavian-Vatican 'damnatio memoriae' operation attempted to erase the Asii from the historical record. But the coins still say As. The Jats still say Asinder. The Ossetians still call themselves As. The Russians are still the Roxolani—the "Shining Asii". And the river Narmada still flows from the Asii mountains to the Asii sea.
+
 ---
 
 ## Chapter 3: Timeline: The Proto-Indo-European (Aryan) Hegemony
@@ -596,6 +596,12 @@ To trace back further, we must address the Thera Eruption (c. 1600 BCE). This wa
   - The war destroyed both sides, creating the true Bronze Age Collapse and a power vacuum.
 
 The Ateas Restoration (900-339 BCE): After centuries of fragmentation ("Dark Ages"), the Hegemony re-coalesced not from the Mediterranean, but from its core genetic reservoir: the Pontic Steppe. The Scythians, preserving the purest R1a-Z93 lineage and equestrian technology, launched a restoration. Ateas was the culmination of this 500-year project to rebuild the network.
+
+Endnotes (Chapter 4.1) 
+
+(a) The Altai people of Siberia carry Ateas's name. The Altai people are the progenitors of the Native American people as the basal Q haplogroup traces back to them. This is not an anomaly—it is the final piece of evidence that proves the Dragon Kings were a global phenomenon, not a localized European one, and this is where the Native American terms like Aztec and Aztlán derive from. \
+
+(b) Attila the Hun carried Ateas's title. The name Attila is a diminutive of Ata (Scythian “Forefather”), the same root as Ateas and Adam. It means “Little Father” or “Son of the Dragon”. Attila was the title of the last legitimate Bosporan Emperor attempting to reclaim the Western administration from the J2/J1 papal-financier class. Attila was the same person as Priscus Attalus, the Roman usurper described as a Greek from the Roman province of Asia, and the split between “Roman senator” and “Hunnic barbarian” is a later forgery designed to hide that the fall of the western Roman court was a dynastic war among the Asii Dragon Kings. When the Flavian-Vatican court forced the Italian princess Justa Grata Honoria into a ritual marriage with Herculanus, she rejected him and sent her ring to Attila — the steppe Asii king and proposed marriage. Attila then claimed her as his bride and demanded half the Western Empire as dowry. This was the Asii queen selecting the true Dragon King over the Vatican-appointed puppet.
 
 ### 4.2 Later Dragon Bloodline Descendants
 
@@ -1791,11 +1797,11 @@ The Etruscans (Rasna) were not a mystery. They were the Italian satrapy administ
 *   The *Aesar*: The Etruscan word for "god," *Aesar*, is Aži-Sar. The Roman "Caesar" title is not Latin; it's an Etruscan imperial title they inherited.
 *   The Tarquin Kings: The last kings of Rome were not tyrants. They were the legitimate Etruscan (Aryan) governors. Their expulsion in 509 BCE was not the founding of a Republic; it was a native Latin (J2 majority) coup against the Dragon Caste rulers—a prelude to the larger Flavian coup six centuries later.
 
-**3. Attilla the Hun**
+**3. Attila the Hun**
 
 Attila the Hun = Priscus Attalus (Roman usurper). The name Attila is a diminutive of Ata (Scythian "Forefather"), the same root as Ateas and Adam. It means "Little Father" or "Son of the Dragon." His brother's name, Bleda, is a corruption of Bleda/Belisarius, linking to the Bel/Baal priestly title. Attila was the title of the last legitimate Bosporan Emperor attempting to reclaim the Western administration from the J2/J1 papal-financier class. The legend that Attila received the "Sword of Mars" (the Sword of the War God) is a corrupted memory of the Scythian Akinakes, the sacred iron sword that the Scythians worshipped as the embodiment of Ares/Targitaos. Attila was not a barbarian; he was performing the ancient steppe ritual of the Xšaθra investiture, the same ritual that consecrated Asander and Alexander. Attila did not seek to destroy Rome. He sought to reintegrate the Western garrison into the Eastern (Constantinopolitan/Bosporan) fold and to purge the J2/J1 Levantine financial administration that had usurped control of the Gallic and Italian mints. His demand for Honoria's hand in marriage was not a lust for a princess; it was a dynastic claim—Honoria (Honorius) carried the R1b-V88/R1a-Z93 genetic memory of the old Western Sarmatian nobility. The Church invented Pope Leo I "miraculously" turning him back. In reality, a treaty was signed recognizing Attila's suzerainty, followed by a biological weapon attack—the same Yersinia pestis vector used later by Justinian—released in his camp, causing his "nosebleed death" (hemorrhagic plague). This allowed the J2/J1 faction in Constantinople (the Papal States' silent partners) to claim a divine victory.
 
-Attila the Hun and Genghis Khan were likely the same person. The Vatican created phantom centuries to retrofit history to the bible and then created a composite character. Genghis Khan was a dragon king title, like Atilla. “Khan” (Aesar -> Aesar -> A’sar -> Ha’sar -> Kha’sar -> Khan). "Genghis" is “Janus”. This proves that Genghis Khan was not a Mongol upstart. He was an avatar of the Dragon King title, consciously restoring the global hegemony from its Central Asian core, exactly like Atilla (Priscus Attalus). The Mongol court called itself the “Great Yuan” (Great Ion/Janus).
+Attila the Hun and Genghis Khan were likely the same person. The Vatican created phantom centuries to retrofit history to the bible and then created a composite character. Genghis Khan was a dragon king title, like . “Khan” (Aesar -> Aesar -> A’sar -> Ha’sar -> Kha’sar -> Khan). "Genghis" is “Janus”. This proves that Genghis Khan was not a Mongol upstart. He was an avatar of the Dragon King title, consciously restoring the global hegemony from its Central Asian core, exactly like Atilla (Priscus Attalus). The Mongol court called itself the “Great Yuan” (Great Ion/Janus).
 
 **4. The True Purpose of the "Viking" Age**
 
