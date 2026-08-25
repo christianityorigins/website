@@ -194,18 +194,6 @@ What the reader needs to know before entering this book:
 
 The original ruling lineage of humanity emerged not from the tropics, but from the Hyperborean North—the circumpolar region that included Siberia, Scandinavia, and the northern reaches of Eurasia. These were the Cro-Magnon peoples: tall, robust, light-haired, light-eyed, and genetically adapted to cold climates. They carried the Haplogroup R lineage—the ancestor of R1a and R1b.
 
-What the Evidence Proves:
-
-Mal'ta Boy:	R* (ancestral to R1a/R1b).	Siberia (Lake Baikal) 24,000 BCE. The oldest known R-lineage carrier
-
-Cro-Magnon:	R* (ancestral).	Europe, Siberia	50,000–10,000 BCE.	The original Hyperboreans
-
-Ancient North Eurasians (ANE)	R1a/R1b (proto).	Siberia, Eastern Europe	24,000–15,000 BCE.	The ancestors of both Europeans and Native Americans.
-
-Yamnaya	R1b / R1a.	Pontic-Caspian Steppe	3300 BCE. The Steppe aristocracy
-
-Corded Ware	R1a-M417.	Central Europe 3000 BCE.	The crucible of the Asii
-
 The Cro-Magnon people were not "primitive" hunter-gatherers. They were the original Hyperboreans—tall, robust, light-skinned, and technologically advanced. They created the first art (cave paintings, Venus figurines), the first tools, and the first language.
 
 They were the Dragon Kings—the original ruling lineage of humanity. Their descendants would go on to rule every major civilization from the Atlantic to the Pacific.
@@ -310,60 +298,6 @@ Genetic Studies Prove:
 Reality: Conquered/absorbed by both farmer and steppe expansions.
 Role: The conquered, absorbed, or eradicated populations over whom the Farmers first expanded, and over whom the Aryans then established dominion.
 
-**How R1a-Z93 Became the Genetic Signature of the Dragon Kings**
-
-**Phase 1: Farmer Expansion (9500-6500 BCE)**
-
-- Genetic Evidence: G2a moves from 0% to >80% in Central Europe during LBK.
-- Archaeological Evidence:
-  - Çatalhöyük: 18 successive settlement layers, no fortifications.
-  - Göbekli Tepe: Megalithic pillars with animal carvings, no domestic structures.
-  - Cardial Ware: Spread along Mediterranean coast 6000-5500 BCE.
-- Method: Not peaceful diffusion. Demographic replacement. G2a males replace I2 males across Europe.
-  - Sardinia example: G2a almost completely replaced by I2 by Chalcolithic.
-  - Violence evidence: Mass graves at Talheim (5000 BCE) - LBK farmers killing each other.
-
-**Phase 2: The Asii Steppe Takeover (4500-2500 BCE)**
-
-- Genetic Evidence:
-  - Central Europe: G2a drops from >80% to <20%. R1b rises to >40%.
-  - Britain: Neolithic farmer ancestry drops from 100% to <30% after 2500 BCE.
-  - Steppe ancestry appears suddenly: 30-50% in Central Europe by Corded Ware.
-- Archaeological Evidence:
-  - Yamnaya kurgans replace flat graves.
-  - Horse remains appear in settlements.
-  - Battle-axe culture spreads.
-
-**This means R1a-Z93 was already present further southeast**—it moved out into Asia before the ancestors of Andronovo, Potapovka, Sintashta and Srubnaya acquired EEF. In other words, the Asii Dragon Kings emerged from the **eastern steppes**, not the western ones—a fact confirmed by the 2024 discovery at Tunnug 1 (see Chapter 4.2).
-
-**Method:** Elite dominance, not population replacement. R1a/R1b males take elite positions. The Asii did not destroy the Farmer societies—they co-opted their infrastructure. They killed or subjugated the G2a/J2 ruling class and inserted themselves at the top of existing hierarchies.
-
-| **Population** | **Location** | **R1a-Z93 Evidence** | **Asii Connection** |
-|---|---|---|---|
-| **Scythians/Saka** | Pontic-Caspian Steppe to Siberia | Only R1a detected among Scythian Y-DNAs | The Asii were a Scythian tribe |
-| **Sintashta** | Southern Urals (c. 2100 BCE) | R1a-Z93 lineages | Proto-Indo-Iranian ancestors of the Asii |
-| **Saka (Golden Man)** | Kazakhstan (c. 400-300 BCE) | R1a-Z93 (southern Saka subset) | The Asii were part of the Saka confederation |
-| **Khazar Khaganate** | Lower Don region | R1a-Z93 | Descendants of the Asii-Alan branch |
-| **Tarim Mummies** | Xinjiang, China | R1a1a (debated subclade) | Potential Tocharian/Asii connection |
-| **Modern Ossetians** | Caucasus | R1a-Z93-related | Direct descendants of the Asii-Alans |
-
-**Critical Methodological Points:**
-
-- **Y-DNA Changes Rapidly Under Elite Bias:**
-  - One elite male can have 10-100x more offspring than average male.
-  - Example: Genghis Khan (haplogroup C2) has 16 million living male descendants.
-  - During famines/wars, elite offspring survive at higher rates.
-- **Modern Distributions ≠ Ancient Distributions:**
-  - Modern Caucasus: High G2a (up to 70% in some groups).
-  - Ancient Caucasus: Mixed, but elite burials show R1a.
-  - Conclusion: G2a survived as population but lost elite status.
-- **Sampling Bias in Ancient DNA:**
-  - Most samples: Commoner graves.
-  - Elite burials: Often looted or inaccessible.
-  - Royal tombs: Rarely sampled due to politics/restrictions.
-- **Mitochondrial DNA vs. Y-DNA:**
-  - mtDNA (maternal) shows population continuity.
-  - Y-DNA (paternal) shows elite replacement.
 ---
 
 ## Chapter 2: The Asii Foundation (c. 4500 BCE – 2000 BCE)
