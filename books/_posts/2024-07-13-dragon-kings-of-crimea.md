@@ -34,11 +34,13 @@ Published by Heretical Books
 1: The Three Castes of Ancient Eurasia\
 1.1 The Neolithic Farmers (The Worker Caste)\
 1.2 The Indo-European Aryans (The Ruling Caste: Yamnaya, Corded Ware)\
+1.2 1 The Yamnaya Foundation (3300–2600 BCE)\
+1.2.2 The Corded Ware Incubation (3000–2350 BCE)\
 1.3 The Indigenous Hunter-Gatherers (The Substrate)
 
-**Part 2: The Asii Foundation & Satrapy System**
+**Part 2: The Asii Foundation & Satrapy System** (c. 4500 BCE – 2000 BCE)
 
-2: The Asii Foundation (c. 4500 BCE – 2000 BCE)\
+2: The Four Tribes of the Saka Confederation\
 2.1 The Asii Global Lexicon (Proving their Reach)\
 2.2 The Branches of the Dragon Empire\
 2.3 The Asii Core (Pontic-Caspian Steppe)\
@@ -209,7 +211,7 @@ G2a/G1a shows up in Gobekli Tepe and all Tas Tepeler cities that later became th
 
 In Europe, the original farmer lineage of G2a was almost completely wiped out by hunter-gatherer I2 by the late Neolithic / early Chalcolithic. This is why Sardinia is mostly I2 rather than G2a. G2a were the remnants who were allowed to live after R1b Yamnaya came through. G2a were largely replaced or assimilated by incoming steppe groups (R1a/R1b) in many areas.
 
-In many cases, the Indo-European (steppe) migrations did not happen into empty lands. They moved into regions already inhabited by Neolithic G2a-derived farming societies. But here's the skeptical twist: "civilization" is usually defined by cities, writing, and state structures. Most of these appeared after significant population shifts — often associated with R1a/R1b expansions. So, G2a may have built pre-civilization ceremonial complexes, but the state-level civilizations (Sumer, Egypt, Indus, etc.) emerged in periods of genetic mixing and possibly elite takeover.
+In many cases, the Indo-European (steppe) migrations did not happen into empty lands. They moved into regions already inhabited by Neolithic G2a-derived farming societies. But here's the skeptical twist: "civilization" is usually defined by cities, writing, and state structures. Most of these appeared after significant population shifts — often associated with R1a/R1b expansions. So, G2a may have built pre-civilization ceremonial complexes, but the state-level civilizations (Sumer, Egypt, Indus, etc.) emerged in periods of genetic mixing and possibly elite takeover.The Farmer civilizations were not 'ancient civilizations' in the modern sense. They were economic zones—agricultural production centers that fed the global empire. Their rulers were not native kings; they were installed administrators from the Steppe, carrying the R1a genetic signature that would become the Asi
 
 Reality: They built infrastructure under command. Never ruled civilizations they built. DNA of ancient remains have to be controlled for time and sample population. For example, Y-DNA can change rapidly due to elite bias; dominant male lineages would have more children (more wives/concubines), during famines and other hard times their children were more likely to survive than non-elite lineages, mass migrations, and war. Elite burial grounds in these locations have never been sequenced.
 
@@ -222,30 +224,28 @@ Reality: They built infrastructure under command. Never ruled civilizations they
 
 In the most direct and reductionist terms the Nordic subtype reduce to: Nordic (R1a/R1b) = Purified, adapted Cro-Magnon. They are the streamlined, hyper-specialized version of the original Cro-Magnon type — tall, long-headed, robust but orthognathic (flat-faced), selected for endurance, mobility, and conquest on the open steppe. They carry Neanderthal DNA, but it was severely filtered by brutal natural selection for modern human traits optimized for a cold, nomadic, high-mobility lifestyle. They are the special forces branch of ancient humanity.
 
-Genetic Studies Prove:
-
-- Yamnaya culture: >90% R1b.
-- Corded Ware culture: >75% R1a.
-- Scythian/Sarmatian kurgans: 80-90% R1a/R1b in elite burials.
-- Sintashta culture (2100-1800 BCE): R1a-Z93 with earliest chariots.
-
 Reality: The priest-warrior administrators. The "Dragon Kings" who imposed order on the Neolithic masses through genetic, linguistic, and technological dominance.
 
-**R1a-Z93: The Asii Genetic Signature**
+**1.2.1 The Yamnaya Foundation (3300–2600 BCE)**
 
-R1a-Z93 constitutes the principal Asian branch of R1a-M420, diverging from its European counterpart R1a-Z282 around 5,800 years before present through the defining Z93 mutation. Its expansion correlates with Bronze Age steppe migrations, as evidenced by ancient DNA from Sintashta culture remains dated circa 2100 BCE, which include R1a-Z93 lineages linked to eastward dispersals from the Pontic-Caspian region.
+The Yamnaya culture of the Pontic-Caspian Steppe was the genetic and cultural reservoir of the Dragon Kings. Yamnaya males were overwhelmingly R1b-Z2103, but their descendants would carry the R1a lineage.
 
-The core diversity of R1a-Z93 resides in its immediate descendant Z94, which encapsulates the bulk of Central and South Asian R1a variation and further ramifies into regionally specific subclades:
+The Yamnaya were not just pastoralists—they were the first true military aristocracy. Their kurgan burials, their horse-based warfare, and their patriarchal social structure were the template for every subsequent Dragon King dynasty. The pyramids of Egypt, the ziggurats of Mesopotamia, and the tholos tombs of Mycenae are all Yamnaya architectural signatures adapted to local materials."*
 
-| **Subclade** | **Primary Distribution** | **Significance for Asii Thesis** |
-|---|---|---|
-| **L657** | Northern India, Indo-European populations | Post-Bronze Age expansion into South Asia |
-| **Z2124** | Iranian and Afghan Pashtun groups | Ancient attestations in Iron Age contexts |
-| **Z2125** | Central Asian Turkic and Iranian groups | Tied to Scythian-Saka horizon movements (900–200 BCE) |
+**1.2.2 The Corded Ware Incubation (3000–2350 BCE)**
 
-Z93's Phylogenetic Structure reveals a star-like expansion pattern post-2500 BCE, with minimal basal Z93* survival outside Siberian isolates, indicating rapid diversification during Andronovo-related spreads across the Eurasian interior.
+From the Yamnaya came the Corded Ware culture in Central Europe. Corded Ware populations were ~75% Yamnaya steppe ancestry, and their paternal lineages shifted dramatically toward R1a-M417.
 
-**R1a-Z93 is detected among Scythian Y-DNAs**—in fact, only R1a is detected among Scythian Y-DNAs. The common ancestors of populations carrying R1a-Z93 may have lived in the Scythian period or even a little earlier.
+**The Genetic Chain:**
+
+| **Culture** | **Dates** | **Dominant Y-DNA** | **Significance** |
+|---|---|---|---|
+| **Yamnaya** | 3300–2600 BCE | R1b-Z2103 | The original Steppe aristocracy |
+| **Corded Ware** | 3000–2350 BCE | R1a-M417 | The incubation chamber of the Asii |
+| **Fatyanovo-Abashevo** | 2800–2000 BCE | R1a-Z93 | The eastern Corded Ware branch |
+| **Sintashta** | 2100–1800 BCE | R1a-Z93 | The chariot inventors |
+| **Andronovo** | 2000–900 BCE | R1a-Z93 | The Indo-Iranian expansion |
+| **Scythian/Saka** | 900–200 BCE | R1a-Z93 | The historical Asii |
 
 **The Substrate Populations (The Ruled):**
 
@@ -337,11 +337,23 @@ Role: The conquered, absorbed, or eradicated populations over whom the Farmers f
 
 ## Chapter 2: The Asii Foundation (c. 4500 BCE – 2000 BCE)
 
-### 2 The Asii Foundation (c. 4500 BCE – 2000 BCE)
+### 2 The Four Tribes of the Saka Confederation
 
 The eastern branch of the Yamnaya, which migrated into the Volga-Ural region, became predominantly R1a-Z93. The western branch was Corded Ware culture (c. 3000–2350 BCE) who emerged in Central Europe (modern Germany, Poland, Czechia) as a result of a massive Yamnaya migration westward. Genetically, Corded Ware populations are ~75% Yamnaya steppe ancestry. The Indo-European languages (Latin, Greek, Sanskrit, Persian) are all siblings descended from Yamnaya Proto-Indo-European languages. 
 
 The Aryans were the broader confederation of Indo-Iranian clans—the horse-riding, chariot-using pastoralists who spread from the Pontic-Caspian Steppe into Europe, Anatolia, and South Asia. They were the ethnic and linguistic foundation of the ancient world. The Asii were the ruling caste. Roman historian Justin in 'Liber Historiarum Philippicarum' makes this explicit: "The Asii were the reges—the kings—of the Tochari. The Tochari and Sakaraucae were Aryan/Iranian peoples. The Asii ruled them".
+
+According to Strabo (c. 64 BC – c. AD 24), writing in his Geography (11.8.2), the four tribes that "took away Bactriana from the Greeks" were: 
+
+-Asii (Asioi, Asiani, Osii, Asoi).
+
+-Pasiani (or Gasiani), possibly Pasii or Parsii. They were the tribe that produced the Parthian Arsacid dynasty (Pahlava is the Indian name for the Parthians), Indian Pallava dynasty, and Flavian dynasty (the Latin language shifts initial P to F in certain contexts, e.g., pater → father. So Pahlava → Falava → Flavius). The Gasiani are also identified with the Guti who overthrew the Akkadian Empire. Some scholars have suggested that Gasiani is the same as Kushan (Guishuang). If this is correct, then the Pasiani/Gasiani are the ancestors of the Kushan Empire.
+
+-Tochari (Tokharoi, Tukhāra)
+
+-The Sacarauli (Sacaraucae, Sakaraulo), or the "Royal Saka".
+
+All four tribes were R1a-Z93 except the The Pasiani/Gasiani who later picked up J2/J1 lineages through intermarriage with the Anatolian and Zagros populations.
 
 Yuezhi is the same as Asii. The Chinese "Yuezhi" is a exonym—a transcription of the Scythian self-designation "Asii" or "Asiani". Iranologist W.B. Henning proposed that the ancient pronunciation of the Chinese name yue-zhi = Yuezhi (= Kuchan) can be reconstructed as Gu(t)-t'i . Thus, Guti (Gutians), a nomadic people who overran southern Mesopotamia when the Akkadian Empire collapsed around 2154 BCE), and Yüe-chih, are equivalent.
 
@@ -959,11 +971,13 @@ To Indians: "Isha" (lord), as in Kanishka ("Khan-Isha" = Lord Jesus).
 
 Therefore, Ie-sous / Iēsous phonetically and structurally translates across the satrapies to "The Living Manifestation of Osiris-Zeus-Jupiter." It was an imperial office, not a personal name. The Flavian inversion turned this title of cosmic kingship into the name of a sacrificed criminal, completing the subversion of the Dragon King cult.
 
-Christos/Kristos in Greek means anointed. Egyptian pharaohs were anointed with oil as part of their coronation (the seshet ceremony), and Persian kings were installed with a ritual that included taking the khvarenah (divine glory, luminous). The Hebrew kings, by contrast, were anointed with oil (meshiach). The Greeks translated meshiach as christos. Christios/Kristos is equivalent to Scythian Xšaθra, Persian "Kšatrapati", Hyksos "Khasut" in Egypt, Kshatriya in Sanskrit which also = Vedic "Krishna", Hebrew meshiach, etc.
+In Egyptian mythology, Horus is the living king. When he does he becomes Osiris (Asar). The new king then becomes Horus. The Greek "Christos" is a loanword from the Egyptian krst — the anointing ritual that mummified the king and made him Osiris. Krst = The anointed/resurrected one. 
 
 Caesar = "Asar‑Ra" (Osiris‑Ra, or Osiris King - Egyptian Asar was another name for Osiris), the sun god as the resurrected king. This contracts to Asera → Caesar. In the Bosporan Dragon King cult, the same prince would first be inaugurated as a "Christ" (satrap) – anointed with oil or poison (the Mithridatium). After his ritual death and resurrection (the kurgan ascension), he would be hailed as "Asar" – the divine king. Asar = the living king who will become Osiris (emphasizing his future divinity). Christ = the anointed one who is already the son of God (Horus) and will resurrect as Caesar (Osiris).
 
-Julius Caesar was elected Flamen Dialis (high priest of Jupiter) in his youth. He was anointed with oil (the unctio) which is functionally identical to the Hebrew meshiach (anointed) and the Greek christos. His adopted son (later in this book revealed to be his nephew) Octavian immediately styled himself Divi Filius (Son of the Divine One, or Son of God). Before this Augustus carried the title Divus Soter (Divine Soter), which is the same as Ie-Sous.
+Christios/Kristos is equivalent to Scythian Xšaθra, Persian "Kšatrapati", Hyksos "Khasut" in Egypt, Kshatriya in Sanskrit which also = Vedic "Krishna", Hebrew meshiach, etc.
+
+Julius Caesar was elected Flamen Dialis (high priest of Jupiter) in his youth. He was anointed with oil (the unctio) which is functionally identical to the Hebrew meshiach (anointed) and the Greek christos. After his death he became Divus Soter ("Divine Savior").
 
 The people who assumed this Jesus role were the brother and descendants of Ptolemy XII Auletes of Egypt aka Mark Antony aka King Herod aka Mithridates VI Eupator of Pontus.
 
