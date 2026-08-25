@@ -57,6 +57,7 @@ Published by Heretical Books
 2.14 Tochari (Bactria)\
 2.15 The Aesir (Scandinavia)\
 2.16 Ateas/Argeads (Macedon/Thrace)\
+2.17 Qin Dynasty (China)\
 3: Timeline: The Proto-Indo-European (Aryan) Hegemony\
 4: Key Historical Figures & Their Aliases\
 4.1 The Primordial Patriarch: Ateas the Scythian (c. 429 BC – 339 BC)\
@@ -486,6 +487,14 @@ The religious book of Scandinavia, Prose Edda, written by Snorri Sturluson, ment
 Ateas (c. 429 BC – 339 BC) was described in Greek and Roman sources as the most powerful king of Scythia. His name decodes as Ata-as—"Father-As" or "Forefather of the Asii"—the same root as Asander, Asinder, and Attila.
 
 Ateas was also Artaxerxes II Mnemon of Persia, Amyntas III of Macedon, Nectanebo II of Egypt, and Evagoras I of Cyprus. His "death" in battle against Philip II of Macedon (339 BC) was a succession ritual—a staged combat to transfer the "Mandate of the Dragon". Philip II was not Ateas's enemy; he was his designated successor and son.
+
+**2.17 Qin Dynasty (China)**
+
+Yuezhi - Yazhi - Shi Huang. The "Golden Age" of classical Chinese culture happened under Qin Shi Huang who is later in this book revealed to be an avatar of Alexander.
+
+His mother is recorded to have comes from Zhao (which included the Ordos loop, home of ancient Aryans/the Yuezhi).
+
+The Terracotta Army is a collection of life-sized terracotta sculptures depicting the armies of Qin Shi Huang and are identical to Khalchaya, an archaeological site in southern Uzbekistan associated with the Yuezhi/Kushan peoples, and Ai Khanoum — the Greek city in Afghanistan. (“Did Greeks help sculpt China’s terracotta warriors?” Smithsonian Magazine (2016). Available at: https://www.smithsonianmag.com/smart-news/did-greeks-help-sculpt-chinas-terracotta-warriors-180960771)
 
 **2.17 The The Asii Satrapies: A Comprehensive Directory.**
 
