@@ -176,7 +176,7 @@ What the reader needs to know before entering this book:
 
 - The As- root in Asii means lord/god/serpent (Asar, Aesar, Asa, Aesir). Iulius is the Latin fossilization of the Iranian/Tocharian tribal name Yuezhi. The Anatolian administrative faction of the Asii were the "Aššuwa" and their capital was Troy. Iulius = "of Ilium" = "of Aššuwa" = "of the Asii". Caesar is a Latin translation of As- (Aesar in Etruscan -> Greek Kaesar -> Latin Caesar). The Asii sky-father deity was Zeus/Jupiter. The gens Iulia was not Trojan. It was the Asii royal caste transplanted to the Mediterranean. Gaius Julius Caesar was a tribal designation. Yuezhi = Iulius = Iudaios (Jew). The Tribe of Judah and the Gens Julia were the exact same bloodline. the original "Jews" (Iudaios/Iudii) were not a Semitic people from Canaan. They were the Scythian royal and priestly caste (Asii), the R1a haplotype Asii "Dragon Kings". They ruled a vast, global empire from the Steppe. Their self-identification was Yuezhi/Asii, then Iudii which is where the title Julii/Julius originates. The Latin pronunciation of Iove (Jove) is Yoh-Way, i.e., Yahweh/Yhwh. The name "Ashkenaz," a direct Hebrew rendering of the Assyrian word for Scythian, confirms that the earliest Jews were recognized as Scythians. Through the designation Khazar they were explicitly claiming descent from The Dragon Kings and Julius Caesar. As the Steppe-derived R1a Aryans passed through the Levant and Mesopotamia they mixed with J1 populations creating a hybrid race (even today the Cohanim are J1 and the Levites are paternal R1a). Ancient Judaism was the Asii imperial cult. Modern Judaism came about after the Jewish-Roman Wars by the J1 haplotyped priestly network.
 
-- The Flavians were the Pasiani clan that produced the Parthian Arsacid dynasty (Pahlava is the Indian name for the Parthians), Indian Pallava dynasty, and Flavian dynasty. They were a junior branch of the R1a haplotype Aryan elite, and they had taken on significant J1 blood by Vespasian's reign. The Julio-Claudians were Asii. The "Jewish-Roman" Wars were a civil war between the Asii and the Pahlava backed J1/J2 network. The Flavians were the J1/J2 enforcers. They did not create the usurpation—they were hired guns for a priestly network that had been infiltrating the Dragon King empire for centuries. The Flavians were not putting down a provincial revolt, they were putting down an R1a Scythian counter-revolt against the J1/J2 Flavian collaborators and then launched a blitzkrieg against the core Eastern administration and this destroyed the Scythian steppe hegemony. A recent study published in the Journal of Science (Ancient Rome: A genetic crossroads of Europe and the Mediterranean. https://www.science.org/doi/10.1126/science.aay6826) explicitly notes that during the Imperial period (27 BC – 300 AD), Rome experienced a massive genetic shift from local Italian (Etruscan/Latin/R1a) ancestry toward Eastern Mediterranean and Anatolian ancestry (J1/J2). The study dates this shift to exactly the Flavian period (70–100 AD). The influx of "Eastern" DNA coincides perfectly with Vespasian's importation of 100,000+ Jews/Adiabeneans into Italy after the Jewish-Roman War. This is why the Flavian dynasty and their court historians (Josephus, Pliny, Tacitus) rewrote history to erase the Scythian origins of ancient civilizations and painted the Scythians (R1a) as monstrous foreigners. They also took their primary political enemy, King Izates II, one of the last remaining Dragon Kings, and rewrote his cult as pacifist allegory to subvert the people of his kingdom. This became Christianity. "Flavius" (Pālava/Pahlavi) eventually became Shabbos. From Constantine to Heraklios, for 500 years nearly every single Emperor bore the Flavius (Shabbos) title. By my count, 37 Roman and Byzantine emperors bore the honorary title "Flavius", and then later, "Phlabios" (https://en.wikipedia.org/wiki/Special:MobileDiff/1062698821)
+- The Flavians (Ves-Pasianus —"Lord of the Pasiani/Parthians) were a part of the same Pasiani clan that produced the Parthian Arsacid dynasty (Pahlava is the Indian name for the Parthians), Indian Pallava dynasty, and Flavian dynasty. They were a junior branch of the R1a haplotype Aryan elite, and they had taken on significant J1 blood by Vespasian's reign. The Julio-Claudians were Asii. The "Jewish-Roman" Wars were a civil war between the Asii and the Pahlava backed J1/J2 network. The Flavians were the J1/J2 enforcers. They did not create the usurpation—they were hired guns for a priestly network that had been infiltrating the Dragon King empire for centuries. The Flavians were not putting down a provincial revolt, they were putting down an R1a Scythian counter-revolt against the J1/J2 Flavian collaborators and then launched a blitzkrieg against the core Eastern administration and this destroyed the Scythian steppe hegemony. A recent study published in the Journal of Science (Ancient Rome: A genetic crossroads of Europe and the Mediterranean. https://www.science.org/doi/10.1126/science.aay6826) explicitly notes that during the Imperial period (27 BC – 300 AD), Rome experienced a massive genetic shift from local Italian (Etruscan/Latin/R1a) ancestry toward Eastern Mediterranean and Anatolian ancestry (J1/J2). The study dates this shift to exactly the Flavian period (70–100 AD). The influx of "Eastern" DNA coincides perfectly with Vespasian's importation of 100,000+ Jews/Adiabeneans into Italy after the Jewish-Roman War. This is why the Flavian dynasty and their court historians (Josephus, Pliny, Tacitus) rewrote history to erase the Scythian origins of ancient civilizations and painted the Scythians (R1a) as monstrous foreigners. They also took their primary political enemy, King Izates II, one of the last remaining Dragon Kings, and rewrote his cult as pacifist allegory to subvert the people of his kingdom. This became Christianity. "Flavius" (Pālava/Pahlavi) eventually became Shabbos. From Constantine to Heraklios, for 500 years nearly every single Emperor bore the Flavius (Shabbos) title. By my count, 37 Roman and Byzantine emperors bore the honorary title "Flavius", and then later, "Phlabios" (https://en.wikipedia.org/wiki/Special:MobileDiff/1062698821)
 
 - The Roman Empire in Italy is largely a phantom empire that did not conquer the kingdoms of the East. Western Rome is a Medici-Vatican fabrication to claim Byzantine history and works as their own after the fall of Constantinople. The Bosphoran royal house originally created Western Rome as a military garrison. The original Rome (in Sarmatian, "Ruma" (Rome) = "Place of the Dragon" (Rhu-Ma, from Aži Dahāka, the Iranian dragon)) was located on the Bosphorus river which approximately corresponds to modern-day Crimea in southern Ukraine. Constantinople (which at the time was called 'Basileía tôn Rhômaíôn', or 'Kingdom of the Romans') was the seat of the global empire after moving from the Cimmerian Bosphorus (Crimea–Kerch) River in Crimea. The story that Constantine moved the capital of Rome to Constantinople is a total fabrication. The capital was always in the east.
 
@@ -190,7 +190,37 @@ What the reader needs to know before entering this book:
 
 ## Chapter 1: The Three Castes of Ancient Eurasia
 
-The genetic landscape of ancient Eurasia reveals not a continuum, but a layered structure of conquest and domination. Three distinct biological groups, each with a predetermined role, formed the strata of every major civilization. This tripartite structure—Neolithic Farmers, Indo-European Aryans, and Indigenous Hunter-Gatherers—provides the biological foundation upon which the Asii Dragon Kings built their global empire.
+**The Hyperborean Homeland (c. 50,000–10,000 BCE)**
+
+The original ruling lineage of humanity emerged not from the tropics, but from the Hyperborean North—the circumpolar region that included Siberia, Scandinavia, and the northern reaches of Eurasia. These were the Cro-Magnon peoples: tall, robust, light-haired, light-eyed, and genetically adapted to cold climates. They carried the Haplogroup R lineage—the ancestor of R1a and R1b.
+
+What the Evidence Proves:
+
+Mal'ta Boy:	R* (ancestral to R1a/R1b).	Siberia (Lake Baikal) 24,000 BCE. The oldest known R-lineage carrier
+
+Cro-Magnon:	R* (ancestral).	Europe, Siberia	50,000–10,000 BCE.	The original Hyperboreans
+
+Ancient North Eurasians (ANE)	R1a/R1b (proto).	Siberia, Eastern Europe	24,000–15,000 BCE.	The ancestors of both Europeans and Native Americans.
+
+Yamnaya	R1b / R1a.	Pontic-Caspian Steppe	3300 BCE. The Steppe aristocracy
+
+Corded Ware	R1a-M417.	Central Europe 3000 BCE.	The crucible of the Asii
+
+The Cro-Magnon people were not "primitive" hunter-gatherers. They were the original Hyperboreans—tall, robust, light-skinned, and technologically advanced. They created the first art (cave paintings, Venus figurines), the first tools, and the first language.
+
+They were the Dragon Kings—the original ruling lineage of humanity. Their descendants would go on to rule every major civilization from the Atlantic to the Pacific.
+
+The myth of Atlantis is not a fantasy. It is the racial memory of the Hyperborean homeland. The Younger Dryas (c. 10,000 BCE) caused catastrophic flooding of the North Atlantic shelf and raised global sea levels by over 400 feet. The Younger Dryas was triggered by a comet impact that melted the North American ice sheet. The flood destroyed the Hyperborean homeland (Doggerland, the North Atlantic shelf).
+
+The Hyperborean homeland gave rise to the Ruling Caste—the Cro-Magnon R-lineage carriers. But they did not rule alone. They encountered two other populations:
+
+The Neolithic Farmers (G2a, J2) – The Worker Caste. They built the cities, but never ruled them.
+
+The Indigenous Hunter-Gatherers (I, Q, C) – The Substrate. They were conquered and absorbed.
+
+The Hyperboreans were the Ruling Caste. The Farmers were the Worker Caste. The Hunter-Gatherers were the Substrate.
+
+This tripartite structure—Ruling Caste, Worker Caste, Substrate—is the genetic blueprint of every civilization on Earth.
 
 ### 1.1 The Neolithic Farmers (The Worker Caste)
 
@@ -354,7 +384,7 @@ According to Strabo (c. 64 BC – c. AD 24), writing in his Geography (11.8.2), 
 
 -The Sacarauli (Sacaraucae, Sakaraulo), or the "Royal Saka".
 
-All four tribes were R1a-Z93 except the The Pasiani/Gasiani who later picked up J2/J1 lineages through intermarriage with the Anatolian and Zagros populations.
+All four tribes were R1a-Z93 and were an extended family except the Pasiani/Gasiani who later picked up J2/J1 lineages through intermarriage with the Anatolian and Zagros populations.
 
 Yuezhi is the same as Asii. The Chinese "Yuezhi" is a exonym—a transcription of the Scythian self-designation "Asii" or "Asiani". Iranologist W.B. Henning proposed that the ancient pronunciation of the Chinese name yue-zhi = Yuezhi (= Kuchan) can be reconstructed as Gu(t)-t'i . Thus, Guti (Gutians), a nomadic people who overran southern Mesopotamia when the Akkadian Empire collapsed around 2154 BCE), and Yüe-chih, are equivalent.
 
