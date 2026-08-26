@@ -987,11 +987,11 @@ A statue from the Bosporan Kingdom, dated to Asander's reign (ca. 47--17 BCE), r
 
 Asander was also called Asandrokhos (https://www.researchgate.net/publication/390912485Aspurgos-the_king_of_Bosporan_state_98_BC-_AD_38). The -Khos in Scythian is xsha/khsha which means "power, dominion, rule". It is the direct root of Xšayathiya (Persian "King"), Kshatriya (Sanskrit "Warrior-King"), and Caesar (via Kaisar). The suffix -khos is a Hellenized form of this root. The Kushan Empire (1st-3rd c. CE) claimed descent from the Yuezhi (Jove/Jupiter). Tiberius Julius Aspurgus, king of Bosphorus aka Emperor Tiberius calls himself the son of "the great king of Asandrokhos" in an inscription. He was Kujula Kadphises, prince of the Kushans in Bactria.
 
-He was also Mithridates Chrestus who was the brother of Mithridates VI Eupator. Mithridates Chrestus was recorded to have been killed by his brother Mithridates VI Eupator and then succeeded by Asander, but this was an avatar switch or Flavian fiction.
+He was also Mithridates Chrestus who was the brother of Mithridates VI Eupator. Mithridates Chrestus was recorded to have been killed by his brother Mithridates VI Eupator and then succeeded by Asander, but this was an avatar switch or Flavian fiction. This is the exact same story that happened in Bithynia. Socrates Chrestus, the second son of Nicomedes III of Bithynia, usurped the Bithynian throne by deposing his elder brother Nicomedes IV of Bithynia, He was then instilled as king by Mithridates VI. This is the Roman myth of Romulus being usurped by his brother Remus, and the biblical story of Cain and Abel.
 
 One of the main conspirators in the assassination of Julius Caesar was named Gaius Trebonius. In the Bosporus, the historical record states that around 17 BCE, a usurper named Scribonius appeared, claiming to be a relative of Asander's wife, Dynamis. He seizes power and Asander, in despair, commits suicide. "Trebonius" and "Scribonius" are linguistically congruent. This is obviously a literary trope, or imperial fiction.
 
-Endnotes (Chapter 13)
+Endnotes (Chapter 10)
 
 (a) The Tibetan epic hero Gesar of gLing is explicitly called "Dru gu Gesar" —"Turk Caesar". This is not a coincidence. The Tibetan tradition, far from the reach of Roman propaganda, preserved the understanding that the title "Gesar/Kesar" was the royal title of the Turks—the very people who were the Scythian Dragon Kings.
 
@@ -1744,7 +1744,7 @@ The concept of Jihad (struggle) is the exact inverse of Christianity's "turn the
 
 The Arab conquests were not a spontaneous eruption from the desert. They were a meticulously planned J2 coup d'état against both the Byzantine and Sassanid empires from within, using a new religion as the unifying ideology for the multi-ethnic slave-soldier armies. The ultimate goal was the complete erasure of the Dragon King bloodline and its replacement with a manageable, slave-soldier population. The Arab conquests swept across the Middle East and North Africa, carrying out the systematic genocide and replacement of the remaining R1a-V88 Berber and R1a-Z93 Parthian/Sassanid elites. The religion of Islam provided the perfect ideological justification: submission to a single, abstract God whose earthly stewards were the ulama (the J2 priestly class). The Caliphate was the new Flavian dynasty, ruling a restored universal empire from Baghdad, with Islam as its Christianity and the Arabs as its Germanic legions.
 
-Endnotes (Chapter 27.2)
+Endnotes (Chapter 27.3)
 
 (a) Marcion of Sinope aka Markianos of Alexandria grew up in the Attis-Sabazios cult on Anatolia before traveling to Judea to study under rabbi Akiva and finally to Alexandria at the Alexandrian School.
 (b) There was a Marcus who founded the Marcosian Gnostic sect. He was a teacher of Bishop Irenaeus and a friend of Clement of Alexandria. Was he also Marcion of Sinope aka Markianos of Alexandria? [^40]. St. Jerome in "Against Jovinian" describes Mark as a disciple of the Gnostic teacher Basilides. Here is a list of "Marks" who were active around the same time: Mark, the Evangelist, John Mark, Mark of Apollonias, Markianos of Alexandria, Mahalia, Marcus of Jerusalem, Marcus Pompeius, Marcus Annaeus Lucanus, Marcus the Magician, Marcion of Sinope, Marcus the Marcosian. Mark of Apollonias, John Mark, Mark the cousin of Barnabas, and Mark the Apostle are considered to be the same person by historians, so it is conceivable that all these "Marks" were the same person.
