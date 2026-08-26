@@ -88,12 +88,12 @@ Published by Heretical Books
 12.1 Ptolemy XII Auletes aka Mark Antony aka Mithridates VI Eupator\
 12.2 Ptolemy XIII Theos Philopator aka Gaius Octavius (Emperor Augustus) aka Rhoemetalces I\
 12.3 Ptolemy XIV Philopator aka Amyntas Nikator aka Amyntas, King of Galatia\
-12.4 Was Amyntas Nikator aka Amyntas, King of Galatia the Living Esus?\
-12.5 Alexander, son of King Herod aka Alexander Helios aka Juba II\
-12.6 The Successor Generations\
-12.7 Izates II, King of Adiabene\
-12.8 Tiberius Julius Sauromates II\
-12.9 Simon Bar Kokhba
+12.3.1 Was Amyntas Nikator aka Amyntas, King of Galatia the Living Esus?\
+12.4 Alexander, son of King Herod aka Alexander Helios aka Juba II\
+12.5 The Successor Generations\
+12.6 Izates II, King of Adiabene\
+12.7 Tiberius Julius Sauromates II\
+12.8 Simon Bar Kokhba
 
 **Part 5: The Flavian Dynasty and the Creation of Christianity**
 
@@ -230,7 +230,7 @@ G2a/G1a shows up in Gobekli Tepe and all Tas Tepeler cities that later became th
 
 In Europe, the original farmer lineage of G2a was almost completely wiped out by hunter-gatherer I2 by the late Neolithic / early Chalcolithic. This is why Sardinia is mostly I2 rather than G2a. G2a were the remnants who were allowed to live after R1b Yamnaya came through. G2a were largely replaced or assimilated by incoming steppe groups (R1a/R1b) in many areas.
 
-In many cases, the Indo-European (steppe) migrations did not happen into empty lands. They moved into regions already inhabited by Neolithic G2a-derived farming societies. But here's the skeptical twist: "civilization" is usually defined by cities, writing, and state structures. Most of these appeared after significant population shifts — often associated with R1a/R1b expansions. So, G2a may have built pre-civilization ceremonial complexes, but the state-level civilizations (Sumer, Egypt, Indus, etc.) emerged in periods of genetic mixing and possibly elite takeover.The Farmer civilizations were not 'ancient civilizations' in the modern sense. They were economic zones—agricultural production centers that fed the global empire. Their rulers were not native kings; they were installed administrators from the Steppe, carrying the R1a genetic signature that would become the Asi
+In many cases, the Indo-European (steppe) migrations did not happen into empty lands. They moved into regions already inhabited by Neolithic G2a-derived farming societies. But here's the skeptical twist: "civilization" is usually defined by cities, writing, and state structures. Most of these appeared after significant population shifts — often associated with R1a/R1b expansions. So, G2a may have built pre-civilization ceremonial complexes, but the state-level civilizations (Sumer, Egypt, Indus, etc.) emerged in periods of genetic mixing and possibly elite takeover.The Farmer civilizations were not 'ancient civilizations' in the modern sense. They were economic zones—agricultural production centers that fed the global empire. Their rulers were not native kings; they were installed administrators from the Steppe, carrying the R1a genetic signature that would become the Asi.
 
 Reality: They built infrastructure under command. Never ruled civilizations they built. DNA of ancient remains have to be controlled for time and sample population. For example, Y-DNA can change rapidly due to elite bias; dominant male lineages would have more children (more wives/concubines), during famines and other hard times their children were more likely to survive than non-elite lineages, mass migrations, and war. Elite burial grounds in these locations have never been sequenced.
 
@@ -249,7 +249,7 @@ Reality: The priest-warrior administrators. The "Dragon Kings" who imposed order
 
 The Yamnaya culture of the Pontic-Caspian Steppe was the genetic and cultural reservoir of the Dragon Kings. Yamnaya males were overwhelmingly R1b-Z2103, but their descendants would carry the R1a lineage.
 
-The Yamnaya were not just pastoralists—they were the first true military aristocracy. Their kurgan burials, their horse-based warfare, and their patriarchal social structure were the template for every subsequent Dragon King dynasty. The pyramids of Egypt, the ziggurats of Mesopotamia, and the tholos tombs of Mycenae are all Yamnaya architectural signatures adapted to local materials."*
+The Yamnaya were not just pastoralists—they were the first true military aristocracy. Their kurgan burials, their horse-based warfare, and their patriarchal social structure were the template for every subsequent Dragon King dynasty. The pyramids of Egypt, the ziggurats of Mesopotamia, and the tholos tombs of Mycenae are all Yamnaya architectural signatures adapted to local materials".
 
 **1.2.2 The Corded Ware Incubation (3000–2350 BCE)**
 
@@ -322,7 +322,7 @@ All four tribes were R1a-Z93 and were an extended family except the Pasiani/Gasi
 
 Yuezhi is the same as Asii. The Chinese "Yuezhi" is a exonym—a transcription of the Scythian self-designation "Asii" or "Asiani". Iranologist W.B. Henning proposed that the ancient pronunciation of the Chinese name yue-zhi = Yuezhi (= Kuchan) can be reconstructed as Gu(t)-t'i . Thus, Guti (Gutians), a nomadic people who overran southern Mesopotamia when the Akkadian Empire collapsed around 2154 BCE), and Yüe-chih, are equivalent.
 
-Iulii is the same as Yuezhi via Hittite Aššuwa. The "As" root, meaning "lord" is the core. When the Asii migrated westward, the name was rendered in Hiitie as Aššuwa then became Latin "Iulii"—the people of the "As" lords. Iulii → Julius. The name "Iulius" is simply the Latin rendering of the same root.
+Yuezhi (Chinese) = Asii (Greek) = Iudii (Hebrew) = Iulii (Latin). Iulii is the same as Yuezhi via Hittite Aššuwa. The "As" root, meaning "lord" is the core. When the Asii migrated westward, the name was rendered in Hiitie as Aššuwa then became Latin "Iulii"—the people of the "As" lords. Iulii → Julius. The name "Iulius" is simply the Latin rendering of the same root.
 
 The Asii established a Satrapy System—a network of regional viceroys, each governing a distinct province under the suzerainty of the Steppe core. Every "ancient" civilization was a satrapy.
 
@@ -338,9 +338,9 @@ AS (AS/AŽI/AZ): Lord/God/Serpent (often conflated). Asii, Aššuwa, Assyria, Ae
 
 SAR (XSA): King/Head. Šarru, Sar, Caesar, Kaiser, Tsar, Shah, Sargon, Serapis, Khazar, Sarlagab.
 
-GUT/YUEZHI: The People. Guti, Yuezhi, Goths, Jats, Jutes, Iazyges, Getae, Catuvellauni, Garamantes.
+GUT/YUEZHI: The People. Guti, Yuezhi, Goths, Jats, Jutes, Iazyges, Getae, Catuvellauni, Garamantes. Guti:	Akkadian (Gu-ti/"The People"). Gutium:	Akkadian	(Gu-ti-um/"Land of the Guti"). Kuči: Tocharian (Ku-či/"The City of Kucha"). Yuezhi: Chinese	(Gu(t)-t'i/The Chinese transcription of Guti). Goths:	Germanic	(Gut-/The Germanic branch). Jats: Sanskrit/Hindi (Jat	The Indian branch). The Chain: Guti (Mesopotamia, c. 2150 BCE). Yuezhi (China, c. 2nd c. BCE). Goths (Europe, c. 1st c. CE). Jats (India, modern). Jutes (Britain, c. 5th c. CE). Iazyges (Pannonia, c. 1st c. CE). All are the same people—the Dragon Kings—operating under regional names.
 
-Regions:  Asii-a = "Land of the Asii, also, Azhi = Asia (Azhi-A) = "land of the mighty dragon" (Aži is cognate with the Chinese Zhī (dragon)), a very similar name to Rome (Rhu-Ma) = "Place of the Dragon", Romania (Rhu-Ma + Na) = "dragon land", and Sarmatia (serpent) + ma (mother, land), Assyria/Mesopotamia (As-Syria = "Asii of the West"), Aššuwa/Anatolia	(Aššuwa = "Land of the As". The Hittite name for the confederacy that included Troy), Asirgarh/India	(Asii-garh = "Asii Fort." A fortress in the Narmada valley), Assam/India	(As-sham = "Place of As". The eastern Asii colony), Asikni/India	(Asii-kani = "Asii Canal". The Vedic name for the Chenab River), Ossetia/Caucasus (As-set = "Place of the As". The modern Ossetians preserve the name), Isauria/Anatolia	(Isa-Ura = "City of God/Isa". The biblical "Israel" was located here), Isin/Mesopotamia (Isin = "City of Isis/As". A Sumerian city-state), Issus/Anatolia (Issus = "Place of Isis/As". Alexander's battle site), Ashdod/Levant (Ash-dod = "City of As." A Philistine city), Askelon/Levant (Ash-ke-lon = "Place of the As". Another Philistine city), Aššur/Mesopotamia	(As-ur = "Asii Light/Fire". The Assyrian capital and national god), Asgard/Scandinavia	(Asii-gard = "Enclosure of the Asii". The Norse home of the gods), Asir/Arabia	(Asir = "Land of As". A region in Saudi Arabia), Asyut/Egypt (As-yut = "City of As". An ancient Egyptian city), Aswan/Egypt	(As-wan = "Place of As". The southernmost city of Egypt), Axum/Ethiopia	(Axum = "Land of the As", Azov/Russia	(Azov = "Place of As". The Sea of Azov was the Dragon King sea), Azarbaijan/Iran/Caucasus (Azar-baijan = "Land of the Fire-As", Esztergom/Hungary (Esz-ter-gom = "City of the As." The ancient Hungarian capital), Isfahan/Persia	(Isfa-han = "City of Isis/As". The Persian imperial capital), Iasi/Romania	(Iasi = "Place of As". A Romanian city, formerly the capital of Moldavia, Ilium/Anatolia (Ilium = "Of the As." The Latin name for Troy), Saragurs (Scythian tribe in China), Saracen (Roman designation for Middle Eastern peoples), Sarmatian (Scythian-Iranian tribe).
+Regions:  Asii-a = "Land of the Asii, also, Azhi = Asia (Azhi-A) = "land of the mighty dragon" (Aži is cognate with the Chinese Zhī (dragon)), a very similar name to Rome (Rhu-Ma) = "Place of the Dragon", Romania (Rhu-Ma + Na) = "dragon land", and Sarmatia (serpent) + ma (mother, land), Assyria/Mesopotamia (As-Syria = "Asii of the West"), Aššuwa/Anatolia	(Aššuwa = "Land of the As". The Hittite name for the confederacy that included Troy), Asirgarh/India	(Asii-garh = "Asii Fort." A fortress in the Narmada valley), Assam/India	(As-sham = "Place of As". The eastern Asii colony), Asikni/India	(Asii-kani = "Asii Canal". The Vedic name for the Chenab River), Ossetia/Caucasus (As-set = "Place of the As". The modern Ossetians preserve the name), Isauria/Anatolia	(Isa-Ura = "City of God/Isa". The biblical "Israel" was located here), Isin/Mesopotamia (Isin = "City of Isis/As". A Sumerian city-state), Issus/Anatolia (Issus = "Place of Isis/As". Alexander's battle site), Ashdod/Levant (Ash-dod = "City of As." A Philistine city), Askelon/Levant (Ash-ke-lon = "Place of the As". Another Philistine city), Aššur/Mesopotamia	(As-ur = "Asii Light/Fire". The Assyrian capital and national god), Asgard/Scandinavia	(Asii-gard = "Enclosure of the Asii". The Norse home of the gods), Asir/Arabia	(Asir = "Land of As". A region in Saudi Arabia), Asyut/Egypt (As-yut = "City of As". An ancient Egyptian city), Aswan/Egypt	(As-wan = "Place of As". The southernmost city of Egypt), Axum/Ethiopia	(Axum = "Land of the As", Azov/Russia	(Azov = "Place of As". The Sea of Azov was the Dragon King sea), Azarbaijan/Iran/Caucasus (Azar-baijan = "Land of the Fire-As"), Esztergom/Hungary (Esz-ter-gom = "City of the As." The ancient Hungarian capital), Isfahan/Persia	(Isfa-han = "City of Isis/As". The Persian imperial capital), Iasi/Romania	(Iasi = "Place of As". A Romanian city, formerly the capital of Moldavia), Ilium/Anatolia (Ilium = "Of the As." The Latin name for Troy), Saragurs (Scythian tribe in China), Saracen (Roman designation for Middle Eastern peoples), Sarmatian (Scythian-Iranian tribe).
 
 King names and titles: Aži-Sar / Asander / Alexander / Caesar / Kaiser / Czar / Shah / Osiris / Izates / Jesus are linguistic variations of the same supreme office across different linguistic zones of the empire. Sarlagab (the second Gutian ruler of the Gutian Dynasty of Sumer), Šarru/Sargon of Akkad's title (Akkadia. Akkadian Sarrum becomes Persian Xšaya-/Xšayathiya), Sar (Scythian), Šarri (Hurrian), -sar (Hittite), Caesar (Rome), Kaiser (Germany), Tsar (Russia), Shah/Xšaya (Persia), Asander (King of Bosporus): Asan-der = As (Lord/Serpent) + Andros (Man) = "Serpent-Lord-Man" or "Dragon-Man". Alexander: Aži-ander or Alak-san-der (Hurrian/Hittite) = Same formula: "Dragon-Man". Caesar: Aesar -> Kaesar -> Caesar or Kai-Sar. Kai (Greek: "and" but also a prefix of greatness) + Sar (King). Kaisar = "The Great King". The C is a Hellenized graft. Šarru/Sargon of Akkad's title (Akkadia: Akkadian Sarrum becomes Persian Xšaya-/Xšayathiya), Sar (Scythian), Šarri (Hurrian), -sar (Hittite).
 
@@ -374,7 +374,7 @@ The Hyksos were expelled from Egypt around 1550 BC, but they did not vanish—th
 
 **2.6 The Assyrian/Mitanni Kingdom (Syria/Mesopotamia)**
 
-Assyria and Mitanni occupied overlapping territory. Assyria came first and then was dominated by the Mitanni. Assyria then regained its independence under the Assyrian king Ashur-uballit I, around 1365–1330 BCE.
+Assyria and Mitanni occupied overlapping territory. Assyria came first and then was dominated by the Mitanni. The Assyrians were for a period vassals of the Mitanni kings, who had Aryan names and worshipped Vedic deities. Assyria then regained its independence under the Assyrian king Ashur-uballit I, around 1365–1330 BCE.
 
 Assyrian = "Asii of the West". Assyria was centered on the city of Aššur (Ashur). The national god of Assyria was Ashur (also spelled Aššur). His name is identical to the city of Asshur, the ancient capital. An older form, A-shir, signified "leader".
 
@@ -382,7 +382,7 @@ The Mitanni—Aryan horse lords in Syria—worshipped Vedic gods: Mitra, Varuna,
 
 **2.7 The Kassite Dynasty (Babylon)**
 
-The Kassite Dynasty (c. 1595–1155 BC) were Aryan rulers of Babylon. The Assyrians were for a period vassals of the Mitanni kings, who had Aryan names and worshipped Vedic deities.
+The Kassite Dynasty (c. 1595–1155 BC) were Aryan rulers of Babylon.
 
 **2.8 Aššuwa (Anatolia/Western Asia Minor)**
 
@@ -588,7 +588,7 @@ The Ateas Restoration (900-339 BCE): After centuries of fragmentation ("Dark Age
 
 Endnotes (Chapter 4.1) 
 
-(a) The Altai people of Siberia carry Ateas's name. The Altai people are the progenitors of the Native American people as the basal Q haplogroup traces back to them. This is not an anomaly—it is the final piece of evidence that proves the Dragon Kings were a global phenomenon, not a localized European one, and this is where the Native American terms like Aztec and Aztlán derive from. \
+(a) The Altai people of Siberia carry Ateas's name. The Altai people are the progenitors of the Native American people as the basal Q haplogroup traces back to them. This is not an anomaly—it is the final piece of evidence that proves the Dragon Kings were a global phenomenon, not a localized European one. The Q1a haplogroup (Native Americans) is a basal offshoot of the P/Q steppe lineage, which is a sibling to R1a. The Native Americans are the eastern refugium of the Dragon Kings, and this is where the Native American terms like Aztec and Aztlán derive from. \
 
 (b) Attila the Hun carried Ateas's title. The name Attila is a diminutive of Ata (Scythian “Forefather”), the same root as Ateas and Adam. It means “Little Father” or “Son of the Dragon”. Attila was the title of the last legitimate Bosporan Emperor attempting to reclaim the Western administration from the J2/J1 papal-financier class. Attila was the same person as Priscus Attalus, the Roman usurper described as a Greek from the Roman province of Asia, and the split between “Roman senator” and “Hunnic barbarian” is a later forgery designed to hide that the fall of the western Roman court was a dynastic war among the Asii Dragon Kings. When the Flavian-Vatican court forced the Italian princess Justa Grata Honoria into a ritual marriage with Herculanus, she rejected him and sent her ring to Attila — the steppe Asii king and proposed marriage. Attila then claimed her as his bride and demanded half the Western Empire as dowry. This was the Asii queen selecting the true Dragon King over the Vatican-appointed puppet.
 
@@ -956,6 +956,8 @@ Christios/Kristos is equivalent to Scythian Xšaθra, Persian "Kšatrapati", Hyk
 
 Julius Caesar was elected Flamen Dialis (high priest of Jupiter) in his youth. He was anointed with oil (the unctio) which is functionally identical to the Hebrew meshiach (anointed) and the Greek christos. After his death he became Divus Soter ("Divine Savior").
 
+Mithridates means the same thing. The Sanskrit Mitra means ""Lord"—the same as Asura and Ahura. The Mitanni—the Indo-Aryan horse lords of Syria—used the same title in its earliest form: Mitra = Mitanni = Mi-it-ra = "Lord". The Mitanni worshipped the same Vedic gods as the Vedic—Mitra, Varuna, Indra, Nasatya. The title Mithras is the AS root plus "Lord". The title "Given by Mithra" means "Appointed by the Lord." The king is the chosen one—the anointed one. This is functionally identical to Christ (the Anointed One) and Caesar (the Divine Lord). Mithridates = Christ = Messiah = Caesar = Osiris = Asander. All are the same Dragon King title.
+
 The people who assumed this Jesus role were the brother and descendants of Ptolemy XII Auletes of Egypt aka Mark Antony aka King Herod aka Mithridates VI Eupator of Pontus.
 
 - Ptolemy of Cyprus (brother of Ptolemy XII Auletes) aka Julius Caesar aka Asander, King of Bosphorus aka Mithridates Chrestus.
@@ -1189,7 +1191,7 @@ Galatia = Galilee: The names are linguistically identical. "Galatia" is the Gree
 
 This would mean that Mithridates VI Eupator of Pontus (aka Ptolemy XII Auletes/Mark Antony/Herod) was also Brogitarix, king of Galatia (Full name: Brogitaris (Brigatos) van (de) Celtes Trocmii:"Bogo-" is related to the Proto-Celtic word "bog-", which means "god" or "divine". "-diatarus" could be connected to the Latin word "diatus", meaning "divine" or "godlike", the Old Irish word -tairx means " lord"."Van" or "de" is a preposition indicating "of" or "from", which suggests that Brogitaris/Brigatos is the divine leader or a member of the Celtes Trocmii which refers to the Trocmi, a Celtic tribe that lived in ancient Galatia).
 
-### 12.4 Was Amyntas Nikator aka Amyntas, King of Galatia the Living Esus?
+### 12.3.1 Was Amyntas Nikator aka Amyntas, King of Galatia the Living Esus?
 
 The Celts in classical Galatia worshiped a deity called Aesus/Esus/Iesus. Amyntas, as the god king of Galatia would have been the personification of Esus. "Esus" from "Aisus (Thracian Jove-variant). Esus is the Celtic pronunciation of Aisus. The Scythian root is Aes-, the same as the Aesir and Aesar. "Iesus" is the Latin rendering of "Esus." There was no "J" sound. He was always called Ie-Sus (Yay-soos), "The Esus."
 
@@ -1203,7 +1205,7 @@ Like Serapis, Esus represents a deliberate syncretism—in this case, merging th
 
 The "Esumopas Cnusticus" inscription proves this was a state-sponsored imperial cult, not organic Celtic religion. The original Esus was a warrior. The new, syncretic "Esus Christos" was a god who was crucified on a T-shaped tree (a clear parallel to the Tau cross). The message to the fierce Galatian Celts was: "Your god is not a warrior, but a sacrificial victim. True strength is in submission, sacrifice, obedience, and turning the other cheek".
 
-### 12.5 Alexander, son of King Herod aka Alexander Helios aka Juba II
+### 12.4 Alexander, son of King Herod aka Alexander Helios aka Juba II
 
 Cleopatra aka Dynamis's son with her father Mark Antony [^22] (aka Ptolemy XII Auletes aka Polemon Pythodoros, King of Pontus, prince of Pontus aka King Herod aka Tiberius Claudius Nero aka Phraates IV of Parthia) was Alexander Helios aka Alexander (son of King Herod) aka Juba II who was married to his twin sister Cleopatra Selene II aka Queen Thea Muse Ourania. Juba II of Mauritania's full name was Gaius Iulius Iuba, prenomen and nomen after his adopted father Gaius Iulius Caesar, and 'Iuba' is likely a diminutive of 'Iehuva' which traces to Jove/Jupiter. He was the claimed royal heir of the Massylii tribe, which is the 'Messiah' lineage from David's firstborn son with Saul's daughter Michal (one way to prove that Mark Antony was also King Herod is through the equivalence of Alexander Helios aka Alexander (son of King Herod) aka Juba II).
 
@@ -1231,7 +1233,7 @@ I identify Cleopatra's brother-husband Ptolemy XIII Theos Philopator as Gaius Oc
 
 Was he also Jesus ben Panthera? "Panthera" is a Hellenized corruption of "Ptolemaios" (Ptolem -> Ptol -> Panther). "Jesus, son of Ptolemy". The Talmud (Bereshit Rabbah 46:10) calls Izates and Monobazus the "Sons of Ptolemy".
 
-### 12.6 The Successor Generations
+### 12.5 The Successor Generations
 
 Cleopatra aka Dynamis's son with Mark Antony = Ptolemy Philadelphus who was Sampsiceramus I?
 
@@ -1243,7 +1245,7 @@ Cleopatra aka Dynamis's grandson with Mark Antony = Alexander (grandson of King 
 
 Fig. 1.48. (L) Alexander (grandson of King Herod) aka Gaius Julius Alexander, Herodian Prince of Judaea aka Alexander the Alabarch aka (King/Tetrarch) Ptolemy (Alexander) bar Menneus aka Ptolemy of Mauretania aka "Jesus" in the Bible. (R) Cleopatra (Thea Philopator) of Mauretania aka Cleopatra IX aka Pythodorida Philometor aka Helene aka Drusilla of Mauretania aka Julia Ourania of Parthia aka Alexandra bat Mattathias (Matityahu is the Hebrew form of Mattathias, which itself is a variant of Mithridates ("Given by Mithra")) aka "Philo of Alexandria".
 
-### 12.7 Izates II, King of Adiabene
+### 12.6 Izates II, King of Adiabene
 
 Alexander (grandson of King Herod) and his sister-wife Cleopatra (Thea Philopator) of Mauretania had two sons: Tiberius Julius Alexander aka Arrius Calpurnius Piso aka Arrius Varus aka Tiberius Julius Cotys (In Thracian, 'Cotys' is related to the word 'kotys' which is a title that means 'lord') aka Emperor Nerva, and Marcus Julius Alexander aka Yeshua Cleopatros (Cantheras/Panthera) ben Josephus bar Menneus aka Ma'nu of Adiabene/Edessa aka Ptolemy aka Yakov Zu Tolomoy aka Izates aka Jesus Emmanuel aka Monobazus of Adiabene [^23]
 
@@ -1255,7 +1257,7 @@ Fig. 1.49. 'Josephus' bust which I identify as Tiberius Julius Alexander. Compar
 
 Fig. 1.50. (L) and (R) show King Izates Monobazus of Edessa (known in Greek as the "Kingdom of Ourania" or in English as the "Kingdom of Heaven") wearing a crown of thorns. Izates or Izas is his title which is an ancient Greek translation of the Avestan word Yazatas (Persian: izad), meaning 'lord'. He is one of the Jesus avatars, Isa in the Quran, and Sultan Ezid in the Yazadi ('Iza'di) religion. He was the uncle of Tiberius Julius Sauromates II, King of Bosphorus. The middle image source: The Alexander Mosaic, Huqoq, Israel.
 
-### 12.8 Tiberius Julius Sauromates II
+### 12.7 Tiberius Julius Sauromates II
 
 ![Fig.1.51](/images/SauromatesII.jpg){:width="400px"}
 
@@ -1289,7 +1291,7 @@ Fig. 1.57. Was the father of Tiberius Julius Sauromates II named Tiberius Julius
 
 Fig. 1.58. Coin depicting Tiberius Julius Cotys II who was the grandfather of Tiberius Julius Sauromates II. Tiberius Julius Cotys II was the son of Tiberius Julius Sauromates I.
 
-### 12.9 Simon Bar Kokhba
+### 12.8 Simon Bar Kokhba
 
 Tiberius Julius Cotys II was the grandfather of Tiberius Julius Sauromates II. Was he also Simon bar Kokhba? Bar Kokhba means "Son of the Star". The star is the morning star (Venus), which is the symbol of the Julian house. That is the title of a Julian prince. The Star of Caesar (also Sidus Iulium, or "Julian Star") iconography is prominent in coins of Tiberius Julius Sauromates II and his son Rheskuporis V and directly links to the "Star and Crescent" symbolism on the coins of Asander/Julius Caesar and Dynamis/Cleopatra. He led the Bar Kokhba revolt (132-136 AD) against Rome. As heir to the dragon crown he would have had a claim to the emperor position.
 
@@ -1317,7 +1319,7 @@ Fig. 1.62. L. Simon Bar Kokhba coin. R. Coin of Alexander (grandson of King Hero
 
 Fig. 1.63. L. Simon Bar Kokhba coin showing a kithara (Greek musical instrument). R. Coin of Scilurus, king of Scythia also showing a kithara. The kithara also shows up on Asande's coins (https://leunumismatik.com/en/lot/24/154)
 
-Endnotes (Chapter 12.9)
+Endnotes (Chapter 12.8)
 
 (a) The morning star was Lucifer, or "lucem ferre", which means "light-bearer" or "morning star". Lucifer became a demon after Flavian and J1/J2 rabbinic revision.
 (b) Apollonius of Tyre was married to the daughter of a king of Libya ("Historia Apollonii Regis Tyri" or "The Story of Apollonius, King of Tyre"), who was Cleopatra Selene aka Drusilla (aka Cleopatra (Thea Philopator) of Mauretania aka Cleopatra IX aka Helene aka Julia Ourania of Parthia aka Philo of Alexandria. Drusilla was the wife of Azizus who was her brother Juba II (Alexander Helios aka Alexander (son of King Herod)) aka Gaius Julius Alexander, Herodian Prince of Judaea aka Alexander Lysimachus aka Alexander the Alabarch aka Tiberius Julius Alexander Major aka (King/Tetrarch) Ptolemy (Alexander) bar Menneus aka Ptolemy of Mauretania aka Phraates V (the "King of Kings") aka Monobazus I King of Adiabene). [^24] [^25] So, Alexander aka Juba II was also Apollonius of Tyre. Juba II carried the title "Rex Literatissimus" which can be translated as "Most Learned King" or "The Most Scholarly King". He was known as a philosopher. These members of this royal family liked to role-play as philosopher kings. Is Apollonius of Tyre the same person as Apollonius of Tyana? This would make Apollonius of Tyana the brother-husband of Philo of Alexandria and the father of Josephus. These three created the core of Christianity.
