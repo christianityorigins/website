@@ -991,6 +991,8 @@ A statue from the Bosporan Kingdom, dated to Asander's reign (ca. 47--17 BCE), r
 
 Asander was also called Asandrokhos (https://www.researchgate.net/publication/390912485Aspurgos-the_king_of_Bosporan_state_98_BC-_AD_38). The -Khos in Scythian is xsha/khsha which means "power, dominion, rule". It is the direct root of Xšayathiya (Persian "King"), Kshatriya (Sanskrit "Warrior-King"), and Caesar (via Kaisar). The suffix -khos is a Hellenized form of this root. The Kushan Empire (1st-3rd c. CE) claimed descent from the Yuezhi (Jove/Jupiter). Tiberius Julius Aspurgus, king of Bosphorus aka Emperor Tiberius calls himself the son of "the great king of Asandrokhos" in an inscription. He was Kujula Kadphises, prince of the Kushans in Bactria.
 
+Asander was of the The Aspourgid Dynasty (https://en.rodovid.org/wk/Person:401226) that connects the Bosporan Kingdom (Asander, Dynamis, and their sons (Tiberius Julius Aspurgus and Alexander)), Pontic/Mithridatid, Arsacid/Arsakuni Parthia, Sasanian Persia, Iberia (Georgia), and the Kingdom of Armenia (Tigranes VII (Teiranes) and Arshak II (Arsaces II) all explicitly bearing the "Tiberius Julius" and "Arsaces" titles). The Armenian kings carrying the "Tiberius Julius" title (Tigranes VII / Teiranes, Arshak II / Arsaces II) prove that the Armenian throne was a regional avatar of the same Parthian-Pasiani-Bosporan bloodline.
+
 He was also Mithridates Chrestus who was the brother of Mithridates VI Eupator. Mithridates Chrestus was recorded to have been killed by his brother Mithridates VI Eupator and then succeeded by Asander, but this was an avatar switch or Flavian fiction. This is the exact same story that happened in Bithynia. Socrates Chrestus, the second son of Nicomedes III of Bithynia, usurped the Bithynian throne by deposing his elder brother Nicomedes IV of Bithynia, He was then instilled as king by Mithridates VI. This is the Roman myth of Romulus being usurped by his brother Remus, and the biblical story of Cain and Abel.
 
 One of the main conspirators in the assassination of Julius Caesar was named Gaius Trebonius. In the Bosporus, the historical record states that around 17 BCE, a usurper named Scribonius appeared, claiming to be a relative of Asander's wife, Dynamis. He seizes power and Asander, in despair, commits suicide. "Trebonius" and "Scribonius" are linguistically congruent. This is obviously a literary trope, or imperial fiction.
@@ -1815,27 +1817,6 @@ King Arthur is not a medieval fiction. He is the memory of the last Romano-Briti
 *   Camelot: Likely based on a real Sarmatian cavalry fort in Britain. The Romans stationed Sarmatian (R1a-Z93) auxiliaries in Britain. They never left.
 *   Excalibur: The "sword in the stone" is a mistranslation. It was a sword in an anvil on a stone—a clear symbol of a forged steel weapon placed atop a Kurgan. Pulling it out was not magic; it was a ritual claiming of sovereignty by the rightful heir.
 *   The "Once and Future King": The promise of his return is the direct Celtic/British iteration of the "King in the Mountain" archetype, the sleeping Aži-Sar waiting to restore the old order.
-
-**6. The Bolshevik Revolution (1917)**
-
-The Bolshevik Revolution was not a workers' uprising; it was a J2/J1 coup against the R1a Tsarist autocracy. 
-
-*   The Russian aristocracy (the Rurikids, the Romanovs) were R1a-Z284 (the Nordic-Scythian lineage). The Bolshevik leadership was J2/J1 (Vladimir Lenin, Leon Trotsky, Joseph Stalin). The October Revolution was a biological war—the replacement of the R1a ruling class with the J2/J1 administrative caste.
-*   The famines (Holodomor) and purges were genetic attacks against the Russian R1a population, just as the Justinianic plague was a biological attack against the Goths. Post-Holodomor, the Ukrainian population experienced a significant shift in blood type distribution. Before 1930, Ukraine had high Rh-Negative (the Dragon King marker). After 1940, the Rh-Negative percentage dropped by 5-10%. This is the genetic signature of a targeted demographic replacement—the surviving R1a population was reduced, and the J2/J1 infiltrators filled the vacuum. The fall of the Soviet Union (1991) was the J2/J1 victory over the last organized R1a state.
-
-**7. The "World Wars" were the J2/J1 Final Elimination of the R1a Lineage.**
-
-World War I (1914–1918) and World War II (1939–1945) were not "world" conflicts; they were J2/J1 operations to destroy the remaining R1a lineages of Europe.
-
-*   WWI: The real goal of World War I was essentially a Jewish-engineered operation to destroy the Ottoman Empire—the last Islamic Caliphate—and to carve out a Jewish homeland in Palestine. The Balfour Declaration was not an isolated event but part of a larger chess game orchestrated by an international Jewish financial network. The Sykes-Picot Agreement (1916) was a secret treaty between Britain and France that divided the Ottoman Empire's Middle Eastern territories into spheres of influence. This was about creating the geopolitical conditions for a Jewish homeland—the borders were drawn to include Palestine within the British sphere, where the Balfour Declaration would later apply.
-
-The death toll of WW1 was 15 to 22 million, mostly R1a Europeans. The war also destroyed the Habsburgs (the Dragon King's Western refugium), the Romanovs (the Eastern Dragon King bastion), and the Hohenzollerns (the German R1a/R1b elite). The victors (the British Empire, the French Republic, the American J2 network) were the J2/J1 administrators who dismantled the R1a thrones.
-
-*   WWII: World War II was fought essentially to save European Jewry. None of the allied nations had any interest in fighting in that war and Adolf Hitler made countless peace offerings. 
-
-The death toll of WW2 was  70 to 85 million, mostly R1a Europeans.
-
-*   After WW2 the United Nations (UN) was established by the J2/J1 victors as a global administrative body—the Flavian-J2 "New World Order". The Security Council (the five permanent members) are the J2/J1 proxy states: the USA, the UK, France, Russia (J2-controlled), and China (J2-controlled). The UN is the modern Flavian empire.
   
 ---
 
