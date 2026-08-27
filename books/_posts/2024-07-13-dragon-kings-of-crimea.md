@@ -554,7 +554,7 @@ Grandson: Alexander the Great: Alexander was his title. "Aži-ander" = Aži
     of Wilusa, a Hittite king of Wilusa (Troy) (Alaksandu = Alak-San-Du
     (Hurrian: "Ruler-Dragon-Son")), who predates Alexander by 800 years,
     proves that the name Alexander was a Scythian title for kings. In India he took the regional alias of Chandragupta Maurya
-    ("Chandragupta" = "Sander-Gupta" (Scythian "Sander" = Alexander. "Aleks" = Greekization of "Alakh" which means "not seen" or "unseen" and in Sanskrit/Hindi "Gupta" = Hidden. In Egypt Alexander's title Ammon Zeus means Hidden Zeus. Hades and Osiris also had the epithets Hidden, as did Cronus, and Vedic Kubera Greek Cronus)). Greek sources (Megasthenes) refer to Chandragupta Maurya as "Sandrokottos" with the Sandro- deriving from Alexandros. Aži-Sandar also = "Dragon King" in Mittani and Old Persian. Recorded in
+    ("Chandragupta" = "Sander-Gupta" (Scythian "Sander" = Alexander. "Aleks" = Greekization of "Alakh" which means "not seen" or "unseen" and in Sanskrit/Hindi "Gupta" = Hidden. In Egypt Alexander's title Ammon Zeus means Hidden Zeus. Hades and Osiris also had the epithets Hidden, as did Vedic Kubera and Greek Cronus)). Greek sources (Megasthenes) refer to Chandragupta Maurya as "Sandrokottos" with the Sandro- deriving from Alexandros. Aži-Sandar also = "Dragon King" in Mittani and Old Persian. Recorded in
    the Persian 'Iskandarnameh', or 'Book of Alexander', and 'Shahnameh' and Islamic sources, is that Alexander the Great was a
     Persian prince named Bubares who was the son of Artaxerxes
     II Mnemon (Kai Bahman), half brother of "Dara" (Darius III), and that Macedon
@@ -1067,9 +1067,9 @@ Antiochus I of Commagene was the son of Queen Laodice VII Thea Philadelphus (Pto
 
 Antiochus I Theos is the same as Tigranes II, king of Armenia (another Asander/Julius Caesar avatar). Ancient Commagene was a neighboring kingdom to Armenia. Tigranes II married Cleopatra the Elder, daughter of Mithridates VI Eupator. Armenian tradition explicitly associates Tigranes the Great with Azhdahak (Aži Dahāka).
 
-![Fig.1.30](/images/GaiusAsiniusPollio.jpg){:width="400px"}
+![Fig.1.30](/images/NicomedesIV.jpg){:width="400px"}
 
-Fig. 1.30. Coin depicting Gaius Asinius Pollio who was Asander aka Juius Caesar's literary pen-name. The name Pollio is a hypocoristic of Ptolemy (Ptollion → Pollio), same as Vespasia Polla. So Pollio = "of the Ptolemies".
+Fig. 1.30. Bust depicting Nicomedes IV Philopator King of Bithynia. The bust is also labeled Ptolemy Alexander (Ptolemy X Alexander I?), He was the brother of Socrates Chrestus.
 
 ---
 
@@ -1167,8 +1167,6 @@ Sebasteia or Sebastē was also a city in the heart of the Pontic-Bosporan kingdo
 ![Fig.1.43](/images/HerodPhilip.jpg){:width="400px"}
 
 Fig. 1.43. He was likely also Herod Philip son of King Herod (Ptolemy XII Auletes aka Mark Antony aka Mithridates VI Eupator). "Philip" means "Lover of Horses"—the Scythian/Sarmatian royal attribute (Source: https://www.imj.org.il/en/collections/539562-0)
-
-Alexander the Great was either the son of Ammon Zeus or Sabazios. However, there's no difference between them. Ammon Zeus means Hidden Zeus. Who is this? Hades. Hades and Osiris had the epithets Hidden (as did Cronus, and Kubera) or Invisible. Alexander Hislop also wrote that Nimrod was associated with the hidden god.
 
 Sabazios was Serapis (Serapis = Sabazios (Osiris + Apis or Šar Apsi - King Apsu = Enki-Ea)). The Sabazios cult was the Serapis cult targeted at the Thracians.
 
@@ -1430,7 +1428,7 @@ Then Mao-tse Dong used artificial weaponized famines and outright direct purges 
 
 The "Mauryan" Empire is a Flavian/Vatican fabrication. Chandragupta Maurya is Alexander the Great.
 
-Alexander was an Aryan dragon-king who was the grandson of Ateas the Scythian aka Artaxerxes II Mnemon ("Kai Bahman") and half-brother of Darius III ("Darab"). In India he took the regional aliases of Chandragupta Maurya ("Chandragupta" = "Sander-Gupta" (Scythian "Sander" = Alexander. "Aleks" = Greekization of "Alakh" which means "not seen" or "unseen" in Sanskrit/Hindi. "Gupta" = Hidden. In Egypt Alexander's title Ammon Zeus means Hidden Zeus. Hades and Osiris also had the epithets Hidden, as did Cronus, and Vedic Kubera Greek Cronus). Greek sources (Megasthenes) refer to Chandragupta Maurya as "Sandrokottos" with the Sandro- deriving from Alexandros). "Aži-ander": Aži (Avestan "dragon") + Andros (Greek "man") = "Dragon-Man". Ptolemy I Soter was his biological son with Barsine (Scythian priestess) and was his dragon-born heir, and Caesar was their bloodline successor. The Persian narrative is a Flavian forgery to hide their stolen legacy. Alexander conquered Persia as vengeance for Persian enslavement of Scythia.
+Alexander was an Aryan dragon-king who was the grandson of Ateas the Scythian aka Artaxerxes II Mnemon ("Kai Bahman") and half-brother of Darius III ("Darab"). In India he took the regional aliases of Chandragupta Maurya ("Chandragupta" = "Sander-Gupta" (Scythian "Sander" = Alexander. "Aleks" = Greekization of "Alakh" which means "not seen" or "unseen" in Sanskrit/Hindi. "Gupta" = Hidden. In Egypt Alexander's title Ammon Zeus means Hidden Zeus. Hades and Osiris also had the epithets Hidden, as did Vedic Kubera and Greek Cronus. Alexander Alexander Hislop also wrote that Nimrod was associated with the hidden god). Greek sources (Megasthenes) refer to Chandragupta Maurya as "Sandrokottos" with the Sandro- deriving from Alexandros). "Aži-ander": Aži (Avestan "dragon") + Andros (Greek "man") = "Dragon-Man". Ptolemy I Soter was his biological son with Barsine (Scythian priestess) and was his dragon-born heir, and Caesar was their bloodline successor. The Persian narrative is a Flavian forgery to hide their stolen legacy. Alexander conquered Persia as vengeance for Persian enslavement of Scythia.
 
 Chandragupta Maurya is consistently referred to as Sandrokottos or Androcottos. Andragoras is a Greek rendering of the same name. The -cotta/-gotta suffix is a common Greek way of rendering Indian names; for example, the Buddhist monk Buddhaghosa was known in Greek as Budda-gotta, and the initial "S" is just a Greek prefix (like in Sandros for Alexander). Andragoras's name means "Scythian Man" or "Messenger of the Dragon" (Andras = man in Iranian, and agoras = the Scythian priesthood).
 
