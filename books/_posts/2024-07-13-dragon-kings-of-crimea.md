@@ -51,13 +51,15 @@ Published by Heretical Books
 2.8 Aššuwa (Anatolia/Western Asia Minor)\
 2.9 Akkadian Empire (Mesopotamia)\
 2.10 Vedic India (Indus Valley)\
-2.11 The Roxolani / Alans (Eastern Europe)\
-2.12 Lazyges (Central Europe)\
-2.13 Gaul (Central Europe)\
-2.14 Tochari (Bactria)\
-2.15 The Aesir (Scandinavia)\
-2.16 Ateas/Argeads (Macedon/Thrace)\
-2.17 Qin Dynasty (China)\
+2.11 Achaemenid (Persia)\
+2.12 Arsaces (Parthian)\
+2.13 The Roxolani / Alans (Eastern Europe)\
+2.14 Lazyges (Central Europe)\
+2.15 Gaul (Central Europe)\
+2.16 Tochari (Bactria)\
+2.17 The Aesir (Scandinavia)\
+2.18 Ateas/Argeads (Macedon/Thrace)\
+2.19 Qin Dynasty (China)\
 3: Timeline: The Proto-Indo-European (Aryan) Hegemony\
 4: Key Historical Figures & Their Aliases\
 4.1 The Primordial Patriarch: Ateas the Scythian (c. 429 BC – 339 BC)\
@@ -348,6 +350,8 @@ King names and titles: Aži-Sar / Asander / Alexander / Caesar / Kaiser / Czar /
 
 Deities: Osiris/Asar (Egyptian) is a direct link to As (Lord). Osiris is the deified form of the Dragon King archetype. Jesus: Ie-Zeus (Divine Zeus). But Zeus=Dyēus (Sky Father). The Scythian form? Izas (as in Izates). Izates = Ie (divine) + Zates (cognate of Zeus). Ie-sus (Esus). The title connects to the Celtic Esus (Lord), another avatar of the same archetype, Zarathustra (Sar + Ustra = "serpent-lord"), Saraswati (Hindi goddess of knowledge), Šaruma (Mitanni deity), feminine Sarai (or "Sarah" meaning "princess" (Genesis 17:15)).
 
+The oldest attestations of the title "As" can be traced back to the Sumerian civilization of ancient Mesopotamia (c. 2500–2000 BCE). The Sumerian word for "lord" or "ruler" was "As". This is the foundation. Then "Asar" (Osiris) (c. 2500 BCE) in Egypt.
+
 **2.2 The Satrapy Network — The Dragon Empire's Branches**
 
 The preceding chapter established the four tribes of the Saka Confederation—the Asii, Pasiani/Gasiani, Tochari, and Sacarauli—as the genetic and administrative core of the Dragon Kingdom. These four tribes did not remain confined to the Steppe. Over millennia, they expanded outward, establishing satrapies—regional administrative provinces—across every continent from the Atlantic to the Pacific.
@@ -358,11 +362,11 @@ Each satrapy operated under a local name, adapted to the language and customs of
 
 The Asii/Asiani/Asioi and the Alani are the same people with regional names. Ptolemy (fl. 127-148 AD) records that one of the Alan tribes in the vicinity of the Don was called the Asaioi—the ancestors of the modern Ossetians (https://jis.ut.ac.ir/article_76722.html). The name Alan is an Iranian dialectal form of the Old Iranian word Aryāna, which means "Aryan". The Alans (the western branch of the Asii) were the same people carrying the same "As" title westward.
 
-**2.4 The Yuezhi / Tocharians (Central Asia/China)**
+**2.4 The Yuezhi / Tocharians (Central Asia/China) (1800 BCE–200 CE)**
 
 The Asii were also the Tocharians. Tocharian A and Tocharian B are two extinct Indo-European languages found in manuscripts from the Tarim Basin, mostly 5th–8th centuries CE, preserved by desert aridity. They were not called Tocharian by their speakers. Modern scholars named them after the Greek Tokharoi, Sanskrit Tukhāra/Tushāra, Old Persian Tuxāri- — a term that itself goes back to Tarkhu-As, "Ruler-As" (Tarkhu is the storm-god title (Hittite Tarḫunna, Etruscan Tarquin)). The speakers called themselves Ārśi (Tocharian A) which is almost certainly Arsi = Asii, and Kuśi or Kuśiññe (Tocharian B) - possibly the same root as Kushan. This is not a speculative link. It is a self-designation, written in their own language, recovered from sealed desert sites far from any Renaissance or Vatican scriptorium.
 
-**2.5 The Hyksos (Egypt)**
+**2.5 The Hyksos (Egypt) (1650–1550 BCE)**
 
 The name "Hyksos" is not a tribal name. It is a Greek rendering of the Egyptian title hekau khasut—"rulers of foreign (mountainous) lands". The Hyksos were originally called Haq-Shasu—"Princes/Rulers of the Shasu" and Shasu is a linguistic variant of Asu/As—the very root of Asii. They were "Kings of the As". Manetho's etymology that Hyksos means "Shepherd Kings" (from Hyk = king, Sos = shepherd)—is a mistranslation. The true meaning is "Kings/Rulers of the As".
 
@@ -374,7 +378,7 @@ They were Asii pharaohs who ruled Egypt during the Second Intermediate Period. T
 
 The Hyksos were expelled from Egypt around 1550 BC, but they did not vanish—they retreated to their steppe heartland, where they eventually became the Mitanni, the Kassites, and later the Scythians.
 
-**2.6 The Assyrian/Mitanni Kingdom (Syria/Mesopotamia)**
+**2.6 The Assyrian/Mitanni Kingdom (Syria/Mesopotamia) (1550 – 609 BCE)**
 
 Assyria and Mitanni occupied overlapping territory. Assyria came first and then was dominated by the Mitanni. The Assyrians were for a period vassals of the Mitanni kings, who had Aryan names and worshipped Vedic deities. Assyria then regained its independence under the Assyrian king Ashur-uballit I, around 1365–1330 BCE.
 
@@ -382,13 +386,15 @@ Assyrian = "Asii of the West". Assyria was centered on the city of Aššur (Ashu
 
 The Mitanni—Aryan horse lords in Syria—worshipped Vedic gods: Mitra, Varuna, Indra, and Nasatya. A Mitanni-Hittite treaty from around 1400 BC invokes these deities. The empire stretched from the Mediterranean to the Indus. These were Asii administrative arms, enforcing the center's will through a network of chariot-riding warrior elites.
 
-**2.7 The Kassite Dynasty (Babylon)**
+**2.7 The Kassite Dynasty (Babylon) (1595–1155 BCE)**
 
 The Kassite Dynasty (c. 1595–1155 BC) were Aryan rulers of Babylon.
 
-**2.8 Aššuwa (Anatolia/Western Asia Minor)**
+**2.8 Aššuwa (Anatolia/Western Asia Minor) (c. 1400 BCE)**
 
 The Aššuwa of Hittite records are the exact same political and military entity, only located in Anatolia because the "Hittite" empire was a regional satrapy of the Asii hegemony. The name Aššuwa is simply the Hittite/Anatolian rendering of the Scythian self-designation As. The Hittite suffix -wa or -uwa is a gentilic, meaning "Land of the As" or "People of the As". It is linguistically identical in function to the Iranian suffix -ii (Asii = People of As). Thus, Aššuwa = Asii. They are the exact same ethnonym with different grammatical endings. 
+
+Hittite royal names such as Khata-sar, Mul-sar, Kaui-sar, and Khilip-sar all contain the suffix -sar, which linguists agree signified "prince" or "king".
 
 Wilusa is rendered in Greek as Ίλιον (Ilion) or Ἴλιος (Ilios)—the Greek name for Troy. The capital of Aššuwa was Troy. The mythical founder of the Julian line was Iulus (or Ascanius), the son of Aeneas, who fled from Ilium. When the gens Iulia claimed descent from Aeneas of Troy, they were not inventing a myth. They were preserving a dynastic memory: they were the Italian branch of the Aššuwa-Asii imperial caste. The Trojan War was not a Greek conquest. It was a civil war within the Asii confederation—the western (Achaean/Greek) Asii against the Anatolian (Trojan).
 
@@ -396,15 +402,17 @@ A Hittite king of Wilusa (Troy) was named Alaksandu of Wilusa and he predated Al
 
 Hittite kings carried names such as Khata-sar, Mul-sar, Kaui-sar, and Khilip-sar. "Sar" signified 'prince'" and is the same root as the Scythian Sar ("king") and the Assyrian Šarru ("king"). The Hittite kings called themselves "Sun-gods" —a title functionally identical to the Egyptian "Son of Ra".
 
-**2.9 Akkadian Empire (Mesopotamia)**
+**2.9 Akkadian Empire (Mesopotamia) (2334–2154 BCE)**
 
 Sargon of Akkad—a name that decodes to Sar-Gon ("King of the Serpent")—was an Asii viceroy. The Kassite Dynasty (c. 1595–1155 BC) were Aryan rulers of Babylon. The Assyrians were for a period vassals of the Mitanni kings, who had Aryan names and worshipped Vedic deities.
 
-The Guti (Gutians), a nomadic people who overran southern Mesopotamia when the Akkadian Empire collapsed around 2154 BCE and ruled for over a century, have a name that traces back to Yuetzhi. W.B. Henning reconstructed the ancient pronunciation of "Yuezhi" as Gu(t)-t'i.
+The earliest occurrence of the "As" root for a divine or royal figure appears in the Abu Salabikh tablets (c. 2600 BCE) and the Fara tablets, where a deity named AS-SIR (Ašširgi/Ašgi) is invoked. In the later god-lists (An = Anum), AS-SIR is identified as the "Lord of the Assembly". This makes AS-SIR the oldest known rendering of Asar (Osiris), long before the Egyptian New Kingdom. The Assyrian national god Aššur is not "Ashur" as a unique name. It is AS + UR (Lord + Light/Fire).
+
+The Guti (Gutians), a nomadic people who overran southern Mesopotamia when the Akkadian Empire collapsed around 2154 BCE and ruled for over a century, have a name that traces back to Yuetzhi. W.B. Henning reconstructed the ancient pronunciation of "Yuezhi" as Gu(t)-t'i. In Hittite and Hurrian texts, the same people are called Kut-ši or Kut-te.
 
 The Guti did not vanish after their dynasty fell. They re-emerged as the Kassites, who ruled Babylon for over four centuries (c. 1595–1155 BCE). The connection is explicit in the historical record.
 
-**2.10 Vedic India (Indus Valley)**
+**2.10 Vedic India (Indus Valley) (2600–1700 BCE)**
 
 They ruled India as the Aseni, Osii, and Asoi—the Kshatriya (Aśvaka) caste. Sanskrit texts (Pāṇini, Mahabharata, Puranas) confirm the Aśvaka, Aśvayana, and Aśvakāyana as horse-warrior clans.
 
@@ -413,10 +421,25 @@ The Indo-Iranian word for "lord" is Asura (Vedic Sanskrit) and Ahura (Avestan).
 Jats (pronounced Jutt) Jat is a direct phonetic descendant of Gut (Guti/Yuezhi). The Jats carry high frequencies of R1a-Z93—the Dragon King genetic signature.
 
 Jat (Hindi) = Jut (Punjabi) = Gut (Akkadian) = Yuezhi (Chinese).
+The Scythian name AZES is derived from the Saka (Scythian) word aza, meaning "leader". The name AZILISES is derived from azalīźa, meaning "commander-in-chief"
 
-Iazyges (Latin) = Jats (India) = Yuezhi (China) = Aššuwa (Anatolia). The entire chain is: Yuezhi (China) → Guti (Mesopotamia) → Jat (India) → Iazyges (Danube) → Aššuwa (Anatolia) → Ilium (Troy) → Iulius (Rome).
+Azes (Scythian "leader") is the exact same root as AS (Scythian "lord"). The Indo-Scythian kings Azes I, Azes II, and Azilises were not individuals with unique names. They were Scythian Dragon Kings whose title was "The Leader" or "The Commander". The Indo-Scythian king Azes I reigned from approximately 48–25 BCE. Julius Caesar was assassinated in 44 BCE. Asander of Bosporus's reign ends around 17 BCE. The Indo-Scythian "Azes" kings are not a separate dynasty. They are the Eastern avatars of the same Bosporan Dragon Kings. "Azes" is the Scythian equivalent of "Caesar." When Julius Caesar/Asander "died" in the West, he "resurrected" in the East as Azes I. The Azes coinage (c. 48–25 BCE) is the Eastern continuation of the Asander/Julius Caesar coinage.
 
-**2.11 The Roxolani / Alans (Eastern Europe)**
+**2.11 Achaemenid (Persia) (c. 550–330 BCE)**
+
+The Achaemenid title XŠĀYA-θIYA ("King") is a compound of xšaya ("to rule") + -θiya. The root xšaya is a dialectal variant of SAR. The Persian title XŠĀYA-θIYA XŠĀYA-θIYĀNĀM ("King of Kings") is the exact grammatical equivalent of the Akkadian ŠAR ŠARRĀNI
+
+**2.12 Arsaces (Parthian) (247 BCE – 224 CE)**
+
+All Parthian kings bore the throne name Arsaces. Babylonian documents refer to them as Arshaka.
+
+Arsaces: Ar ("Aryan/Noble") + Saka ("Scythian") + *-es* (Greek suffix). = "The Noble Scythian".
+
+Arshaka: The Babylonian rendering. = "The Scythian King".
+
+The Parthia king title Phraates ("divine glory, royal radiance) is the same as Persian Pharnabazus and Pharnaces (Pharnaces II) in Pontus.
+
+**2.13 The Roxolani / Alans (Eastern Europe) (c. 3rd–2nd century BCE – 4th century CE)**
 
 The Roxolani (-olani = - alani) were also a branch of the same tribe. Historian George Vernadsky suggested that the name Rocas (a tribe conquered by the Ostrogoths in the 4th century) may be a corruption of Ruxs-As—"Light-Asii". The Rosomoni, mentioned by Roman historian Jordanes, may also be related, interpreted as the "Ros Men". The name "Rus" is not a Viking invention. It is the Asii self-designation—the "Shining Asii" who later gave their name to the Russians. The Roxolani are the bridge between the ancient Asii and the modern Russian people.
 
@@ -424,7 +447,7 @@ Alexander's father Philip belonged to the Argead dynasty who were of Dorian Gree
 
 Alexander (Al-As-andros = the Asii Lord Man) was a member of the Roxolani tribe and when he married Roxana he was marrying a heiress to the Roxolani. Al-As-andros = As-andros = Asander. The exact same title.
 
-**2.12 Lazyges (Central Europe)** 
+**2.14 Lazyges (Central Europe) (c. 200 BCE – 4th century CE)** 
 
 The Iazyges (or Jazyges) were a Sarmatian tribe who lived along the Danube. The name is rendered in Greek as Ἰάζυγες (Iázyges).
 
@@ -436,11 +459,11 @@ Iazyges = Iaz + yges = As + guti = Asii Guti = the Dragon King people.
 
 Tacitus mentions the Iazyges as a Sarmatian tribe (Germania 43). They were the western European branch of the same people.
 
-**2.13 Gaul (Central Europe)**
+**2.15 Gaul (Central Europe) (c. 5th century BCE – 5th century CE)**
 
 This region was ruled by the Aedui tribe. Yuezhi _> Iudii -> Iulii (Julians) -> Aedui (Celts)). The Aedui claimed descent from Troy, used the Gaius Julius name, and worshiped the Deified Caesar (https://en.wikipedia.org/wiki/Gaius_Julius_Vercondaridubnus)
 
-**2.14 Tochari (Bactria)**
+**2.16 Tochari (Bactria) (c. 130 BCE – 3rd century CE)**
 
 The Kushan Empire (1st-3rd c. CE) claimed descent from the Yuezhi. Their title for king was Shaonano Shao—"King of Kings"—a direct translation of the Bosporan Basileus Basileon and the Achaemenid Xšāyaθiya Xšāyaθiyānām.
 
@@ -448,25 +471,29 @@ The Greek Tokharoi, Sanskrit Tukhāra/Tushāra, and Old Persian Tuxāri- all go 
 
 Strabo records four tribes that conquered Bactria: the Asioi, Pasianoi, Tochario, and Sakarauloi. The Pasianoi (also Gasiani) are the "People of the Pas" —a title that appears in the Flavian name Vespasian (Ves-Pasianus = "Lord of the Pasiani"). Armenian historical tradition later connects the Arsacid dynasty with the Kushans, and the founder of the Parthian Empire, Arsaces I, may have originated from the Gasiani tribe.
 
-**2.15 The Aesir (Scandinavia)**
+**2.17 The Aesir (Scandinavia) (c. 2000 BCE – 1000 CE)**
 
 The religious book of Scandinavia, Prose Edda, written by Snorri Sturluson, mentions that the ancient inhabitants of Scandinavia were Asi people who came to that land from Asirgarh in 500 BCE and their leader was Odin (Proto-Germanic Wōðanaz (Wod-As)). The title "Oado" appears on Indo-Scythian coins, particularly Kanishka I. Oado is the Bactrian form of Vāta/Vāyu (both mean wind/fury). Vāta/Vāta‑deva is the Indo‑Iranian wind/fury deity. Wōðanaz (Odin) and Vāta (Oado) are dialectal pronunciations of the same PIE root. The Norse sagas claim Odin "died" and was "resurrected" as different kings. This is not mythology; it is the avatar transfer protocol.
 
-**2.16 Ateas/Argeads (Macedon/Thrace)**
+**2.18 Ateas/Argeads (Macedon/Thrace) (c. 429–339 BCE)**
 
 Ateas (c. 429 BC – 339 BC) was described in Greek and Roman sources as the most powerful king of Scythia. His name decodes as Ata-as—"Father-As" or "Forefather of the Asii"—the same root as Asander, Asinder, and Attila.
 
 Ateas was also Artaxerxes II Mnemon of Persia, Amyntas III of Macedon, Nectanebo II of Egypt, and Evagoras I of Cyprus. His "death" in battle against Philip II of Macedon (339 BC) was a succession ritual—a staged combat to transfer the "Mandate of the Dragon". Philip II was not Ateas's enemy; he was his designated successor and son.
 
-**2.17 Qin Dynasty (China)**
+**2.19 Qin Dynasty (China) (c. 221–206 BCE)**
 
-Yuezhi - Yazhi - Shi Huang. The "Golden Age" of classical Chinese culture happened under Qin Shi Huang who is later in this book revealed to be an avatar of Alexander.
+Founded by Qin Shi Huang. Qin means "Ionian" or Greek (Old Chinese pronunciation: Dzin -> Mandarin Qin). The Sanskrit for Ionian is Yavana. The Pali is Yona. The Old Persian is Yauna. Dzin and Yona are phonetically almost identical when you account for dialectal shifts (dzin → zin/jin → yin → yon).
 
-His mother is recorded to have comes from Zhao (which included the Ordos loop, home of ancient Aryans/the Yuezhi).
+Yuezhi -> Yazhi -> Shi Huang. The "Golden Age" of classical Chinese culture happened under Qin Shi Huang who is later in this book revealed to be an avatar of Alexander.
+
+His mother is recorded to have come from Zhao (which included the Ordos loop, home of ancient Aryans/the Yuezhi).
+
+Records show that Duke Mu of Qin dominated the Western Rong and opened up territories that extended for 1,000 li. The Western Rong were the nomadic peoples of the steppe — the same peoples who would later be called Yuezhi. The Qin were not "conquering" foreigners. They were reintegrating their own steppe kin.
 
 The Terracotta Army is a collection of life-sized terracotta sculptures depicting the armies of Qin Shi Huang and are identical to Khalchaya, an archaeological site in southern Uzbekistan associated with the Yuezhi/Kushan peoples, and Ai Khanoum — the Greek city in Afghanistan. (“Did Greeks help sculpt China’s terracotta warriors?” Smithsonian Magazine (2016). Available at: https://www.smithsonianmag.com/smart-news/did-greeks-help-sculpt-chinas-terracotta-warriors-180960771)
 
-**2.17 The The Asii Satrapies: A Comprehensive Directory.**
+**2.20 The The Asii Satrapies: A Comprehensive Directory.**
 
 The Asii established a Satrapy System—a network of regional viceroys, each governing a distinct province under the suzerainty of the Steppe core. Every "ancient" civilization was a satrapy
 
@@ -620,7 +647,7 @@ Aliases: Mark Antony (Marcus Antonius = Mar (Phoenician "lord") + Anton (from An
 
 - Spouse: Wife/sister: Laodice (in Pontus) = Cleopatra V Tryphaena (in Egypt)
 - Children:
-  - Cleopatra VII Thea Philopator aka Dynamis, queen of Bosphorus, Cleopatra of Pontus, Pythodorida, queen of Pontus, Musa Thea Urania of Parthia (Parthian queen mother, same "Heavenly Goddess" title). Dynamis was called "Dynamus Pilatea"(https://en.rodovid.org/wk/Person:401227) the same title that was carried by "Pontus Pilate". Dynamis is recorded as the granddaughter of Mithridates VI, but historians are probably confusing her with Cleopatra the Elder, princess of Pontus who was married to Tigranes II, king of Armenia. Cleopatra VII, Dynamis, and Pythodorida all had sons named Ptolemy Philadelphus who succeeded them.
+  - Cleopatra VII Thea Philopator aka Dynamis, queen of Bosphorus, Cleopatra of Pontus, Pythodorida, queen of Pontus (Pytho is serpent in Greek and Dyn- is Denwen, the fiery serpent in Egyptian mythology), Musa Thea Urania of Parthia (Parthian queen mother, same "Heavenly Goddess" title). Dynamis was called "Dynamus Pilatea"(https://en.rodovid.org/wk/Person:401227) the same title that was carried by "Pontus Pilate". Dynamis is recorded as the granddaughter of Mithridates VI, but historians are probably confusing her with Cleopatra the Elder, princess of Pontus who was married to Tigranes II, king of Armenia. Cleopatra VII, Dynamis, and Pythodorida all had sons named Ptolemy Philadelphus who succeeded them.
   - Ptolemy XIII Theos Philopator aka Gaius Octavius (Emperor Augustus). Aliases: Polemon I of Pontus (Dynamis was titled "Pilatea" and he was the king of Pontus. Pontius Pilate would have been his title that his descendants would have inherited). Gaius Julius Sohaemus of Emesa. Rhoemetalces I (a classic Thracian royal name, linking to the "Rome" = "Ruma" etymology. Rhoemetalces = "king of Rhome", or "king of Rome" in ancient Thracian), king of Bosphorus. Rhoemetalces Philocaesar of Pontus was the son of Marcus Antonius Polemon Pythodoros and was married to Pythodoris I (Cleopatra). Polemon I of Pontus was married to Dynamis (Cleopatra). Cleopatra was married to her brother Ptolemy XIII Theos Philopator who was born at the same time as Augustus. He was her brother husband. Asander was also married to Pythodoris I and Dynamis proving these were Cleopatra's aliases. Likely also Azes I, king of India and Wang Mang the founder and the only emperor of the short-lived Xin dynasty of imperial China (Wang (王) in Chinese means "King." The archaic pronunciation of Wang in Old Chinese (reconstructed by linguists as *wɢaŋ) is a direct phonetic match for Vah / Bah / Pharna (Scythian Royal Glory). Mang (莽): Means "Grass/Dragon-Snake in the Reeds." Wang Mang = The Serpent-Glory King.). The "Han Dynasty" and the "Roman Empire" were not two separate isolated worlds communicating via indirect silk trade. They were the eastern and western wings of the same global Scythian-Yuezhi administrative system, governed by identical bloodline avatars.
 
 **Julius Caesar = Asander, King of Bosporus**
@@ -767,6 +794,8 @@ In Biblical Hebrew, the Ashkuz (Ashkenaz) are considered to be a direct offshoot
 
 As for the term 'Hebrew", it comes from Iberi/Hibernia/Hyperborea. The name of Abaris the Hyperborean, who was Pythagoras's teacher, and who was the son of Seuthes (Seth), shows this. Iber was sometimes rendered as Aber or Heber and is pronounced as Hebrew in the Hebrew language.
 
+Bethlehem = Beth-Lahmu (House of the Serpent God). Bethlehem is conventionally translated as "House of Bread". However, scholars have noted that the "lehem" is a Hebraized form of Lahmu, a Mesopotamian primordial deity. In the Enuma Elish, Lahmu and Lahamu are the first gods, born from the primordial chaos of Tiamat (the dragon).
+
 "Cohen" (priest) comes from Kagan. The Khazar Khagan was the king and high priest of the Dragon King cult, and the title "Cohen" is a Hebrew rendering of the Scythian priestly office.
 
 Khazar derives from the Dragon King title Kha-Sar (King of Kings). "Caesar" = "Kesari" = "Xerxes" -> Xšathra-sar -> Khassar -> Khazar, which is also at the root of the title "Khan" (Aesar -> Aesar -> A'sar -> Ha'sar -> Kha'sar -> Khan).
@@ -869,7 +898,7 @@ The Avatar Succession: Roman Emperors are Bosporan Kings
 The following side-by-side comparisons prove that the Julio-Claudian and Flavian emperors were the ruling dynasty of the Bosporan Kingdom, their faces stamped on coinage in both the "Roman" West and the "Bosporan" East.
 
 ![Fig.1.3](/images/RhoemetalcesOctavian.jpg){:width="400px"}\
-Fig. 1.3. L. Rhoemetalces I, king of Bosphorus. R. Emperor Augustus (Octavian). Talces = the Thracian word for "king" or "ruler". Rhoemetalces = "king of Rhoeme", or "king of Rome" in ancient Thracian. This coin proves the Thracians of the Bosporus called their king "King of Rome" while ruling from the Crimean shore. Rhoemetalces I was of the Sabeanus lineage (https://en.rodovid.org/wk/Person:401249). The "Sabeanus" clan is the historical Sapaean dynasty of Thrace who ruled the the Sapaean kingdom  "Sabeanus" is a Latinized form of "Sapaean". The historical cognomen "Sabinus" is a direct Roman translation of this tribal identity, meaning "of the Sabine" or "a Sabine". This is where the connection to the Flavian dynasty becomes clear. What the Flavian historians presented as a humble Italian origin ("Sabine") was actually a carefully constructed linguistic cover for their true Thracian-Phrygian-Pahlava identity. The root of their name, "Sapae-", is a direct linguistic reflex of the god's name Sabazios. Emperor Augustus was known to the Greeks as Sebastos (https://en.wikipedia.org/wiki/Sebastos).
+Fig. 1.3. L. Rhoemetalces I, king of Bosphorus. R. Emperor Augustus (Octavian). Talces = the Thracian word for "king" or "ruler". Rhoemetalces = "king of Rhoeme", or "king of Rome" in ancient Thracian. This coin proves the Thracians of the Bosporus called their king "King of Rome" while ruling from the Crimean shore. Rhoemetalces I was of the Sabeanus lineage (https://en.rodovid.org/wk/Person:401249). The "Sabeanus" clan is the historical Sapaean dynasty of Thrace who ruled the the Sapaean kingdom  "Sabeanus" is a Latinized form of "Sapaean". The historical cognomen "Sabinus" is a direct Roman translation of this tribal identity, meaning "of the Sabine" or "a Sabine". This is where the connection to the Flavian dynasty becomes clear. What the Flavian historians presented as a humble Italian origin ("Sabine") was actually a carefully constructed linguistic cover for their true Thracian-Phrygian-Pahlava identity. The root of their name, "Sapae-", is a direct linguistic reflex of the god's name Sabazios. Emperor Augustus was known to the Greeks as Sebastos (https://en.wikipedia.org/wiki/Sebastos). Rhoemetalaces I was married to Pythodorida of Pontus.
 
 ![Fig.1.4](/images/PolemonI2.jpg){:width="400px"}\
 Fig. 1.4. Coin depicting Marcus Antonius Polemon I, king of Pontus which was the kingdom next to the Bosphoran Kingdom. The star also appears on coins of emperor Augustus. Marcus Antonius Polemon I was married to Dynamis and Pythodorida of Pontus. His brother was Marcus Antonius Polemon Pythodoros (Polemon II of Pontus) and Polemon I's son with Pythodorida of Pontus was Zeno-Artaxias III. His name itself encodes Mark Antony's lineage.
@@ -1442,7 +1471,7 @@ Thus, this was a dynastic title and Andragoras (Seleucid satrap) (https://en.wik
 
 ![Fig.1.66](/images/KanitesAndragorasSeleukosI.jpg){:width="400px"}
 
-Fig. 1.66. L. Kanites, king of Scythia. M. Seleukos I, son of  Seleucus I Nicator. R. Andragoras, Iranian satrap of the Seleucid provinces of Parthia and Hyrcania. The name Seleukos has been interpreted as deriving from Selene, the Greek goddess of the moon. This is a direct connection to the Yuezhi—the "Moon Clan"—who were the eastern branch of the Asii Dragon Kings.
+Fig. 1.66. L. Seleukos I, son of  Seleucus I Nicator. M. Andragoras, Iranian satrap of the Seleucid provinces of Parthia and Hyrcania. R. Kanites, king of Scythia. The name Seleukos has been interpreted as deriving from Selene, the Greek goddess of the moon. This is a direct connection to the Yuezhi—the "Moon Clan"—who were the eastern branch of the Asii Dragon Kings.
 
 The name "Narisanka" is given as an alternate name for Andragoras. This is intriguing because it could be an Iranian translation of an Indian title like Narendra-simha (Lion-King). This itself is derived from the Avestan Nairyosangha, which means "man of words" and refers to a divine messenger of Ahura Mazda.
 
