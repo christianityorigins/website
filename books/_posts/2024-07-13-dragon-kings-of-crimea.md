@@ -381,7 +381,7 @@ Hittite royal names such as Khata-sar, Mul-sar, Kaui-sar, and Khilip-sar all con
 
 Wilusa is rendered in Greek as Ίλιον (Ilion) or Ἴλιος (Ilios)—the Greek name for Troy. The capital of Aššuwa was Troy. The mythical founder of the Julian line was Iulus (or Ascanius), the son of Aeneas, who fled from Ilium. When the gens Iulia claimed descent from Aeneas of Troy, they were not inventing a myth. They were preserving a dynastic memory: they were the Italian branch of the Aššuwa-Asii imperial caste. The Trojan War was not a Greek conquest. It was a civil war within the Asii confederation—the western (Achaean/Greek) Asii against the Anatolian (Trojan).
 
-A Hittite king of Wilusa (Troy) was named Alaksandu of Wilusa and he predated Alexander the Great by 800 years proving Alexander was a title of a Asii king. 
+A Hittite king of Wilusa (Troy) was named Alaksandu of Wilusa and he predated Alexander the Great by 800 years proving Alexander was a title of a Asii king. One of three gods guaranteeing the treaty with Hittite king Muwatalli II on Alaksandu's side is named Apaliunas (Muwatalli II, Treaty with Alaksandu of Wilusa, CTH 76, KUB 21.1, §17). This is the Hittite reflex of Apollo. Apollo is portrayed in the Iliad as the foremost champion of the Trojans. Apaliunas = Apollo—a Greek god attested in a Hittite treaty eight centuries before "Classical Greece." The Greek pantheon is an Anatolian import. Alexander the Great used Apollo on his coins. 
 
 Hittite kings carried names such as Khata-sar, Mul-sar, Kaui-sar, and Khilip-sar. "Sar" signified 'prince'" and is the same root as the Scythian Sar ("king") and the Assyrian Šarru ("king"). The Hittite kings called themselves "Sun-gods" —a title functionally identical to the Egyptian "Son of Ra".
 
@@ -407,6 +407,8 @@ Jat (Hindi) = Jut (Punjabi) = Gut (Akkadian) = Yuezhi (Chinese).
 The Scythian name AZES is derived from the Saka (Scythian) word aza, meaning "leader". The name AZILISES is derived from azalīźa, meaning "commander-in-chief"
 
 Azes (Scythian "leader") is the exact same root as AS (Scythian "lord"). The Indo-Scythian kings Azes I, Azes II, and Azilises were not individuals with unique names. They were Scythian Dragon Kings whose title was "The Leader" or "The Commander". The Indo-Scythian king Azes I reigned from approximately 48–25 BCE. Julius Caesar was assassinated in 44 BCE. Asander of Bosporus's reign ends around 17 BCE. The Indo-Scythian "Azes" kings are not a separate dynasty. They are the Eastern avatars of the same Bosporan Dragon Kings. "Azes" is the Scythian equivalent of "Caesar." When Julius Caesar/Asander "died" in the West, he "resurrected" in the East as Azes I. The Azes coinage (c. 48–25 BCE) is the Eastern continuation of the Asander/Julius Caesar coinage.
+
+The Indian king Kanishka has a name that decodes as Khan-Isha or ”Lord Jesus” (Khan from Ka-Sar, Dragon King; Isha from Sanskrit Īśa, Lord, cognate with Isho/Iesous). He was the grandson of Kujula Kadphises, prince of the Kushan Empire. His descendant Kanishka III was titled "Maharaja rajadhiraja Devaputra Kaisara Kanishka" ("Great King, King of Kings, Son of God, Caesar, Kanishka).
 
 **Achaemenid (Persia) (c. 550–330 BCE)**
 
