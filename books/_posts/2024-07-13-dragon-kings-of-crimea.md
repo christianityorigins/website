@@ -1440,6 +1440,10 @@ Chandragupta Maurya is consistently referred to as Sandrokottos or Androcottos. 
 
 Thus, this was a dynastic title and Andragoras (Seleucid satrap) (https://en.wikipedia.org/wiki/Andragoras_(Seleucid_satrap)) and Andragoras the Parthian (https://en.wikipedia.org/wiki/Andragoras_(4th_century_BC)) who was the ancestor of the subsequent kings of Parthia (Justin 41.4; Ammianus Marcellinus 23.6.2), were Alexander's heirs using this title (or likely his nephews through "Dara" (Darius III) aka Seleucus I Nicator as Andragoras claimed Seleucid descent)
 
+![Fig.1.66](/images/KanitesAndragorasSeleukosI.jpg){:width="400px"}
+
+Fig. 1.66. L. Kanites, king of Scythia. M. Seleukos I, son of  Seleucus I Nicator. R. Andragoras, Iranian satrap of the Seleucid provinces of Parthia and Hyrcania. The name Seleukos has been interpreted as deriving from Selene, the Greek goddess of the moon. This is a direct connection to the Yuezhi—the "Moon Clan"—who were the eastern branch of the Asii Dragon Kings.
+
 The name "Narisanka" is given as an alternate name for Andragoras. This is intriguing because it could be an Iranian translation of an Indian title like Narendra-simha (Lion-King). This itself is derived from the Avestan Nairyosangha, which means "man of words" and refers to a divine messenger of Ahura Mazda.
 
 Arsaces I, the founder of the Parthian Empire is claimed to have killed Andragoras during the Seleucid-Parthian Wars, but this is likely an avatar switch, or he was his successor.
@@ -1721,9 +1725,9 @@ Through demonizing women they centralized authority in male priests. The Church 
 
 Two years before the Bar Kokhba Revolt (132--136 CE) emperor Hadrian created a religion to deify his underage gay lover as the son of god (Osiris-Antinous) called 'The Cult of Antinous'. The name "Antinous" is an obvious indication of descent from the Antonii line and that he was a descendant of Mark Antony himself, not a random adoption by Hadrian. The use of "-ninus" is really the Greek "nini", which is "baby" or infant (i.e., "baby Jesus"). Historian Cassius Dio claims that Antinous was offered as a human sacrifice to Hadrian (Cassius Dio Cocceianus, Historiae Romanae, book 69, chapter 11) but in the Dragon King tradition they did not practice human sacrifice – they practiced ritual death and resurrection via poison (Mithridatium). Antinous's "drowning" in the Nile is the same allegory as Osiris's drowning. He was not killed; he was re‑baptised into a new avatar. He emerges as Antoninus Pius – the successor emperor. Antoninus Pius's full name is Titus Aelius Hadrianus Antoninus Pius and he was adopted by Hadrian and was his successor, and the cult of Antinous was his imperial cult. One of the scribes for The Cult of Antinous was Aquila of Sinope aka Onkelos who was a kinsman of the Roman emperor Hadrian. Emperor Hadrian also employed Aquila of Sinope to rebuild Jerusalem as Aelia Capitolina after the Bar Kokhba revolt (the city was named after Hadrian's family name (Aelia) and the Roman god Jupiter (Capitolina)). In Acts 18:2-3 and Romans 16:3 NASB, it is claimed that Aquila of Sinope and his wife Prisca or Priscilla lived with Paul the Apostle and Paul called them "my fellow workers in Christ Jesus"
 
-![Fig.1.66](/images/Antinous.jpg){:width="400px"}
+![Fig.1.67](/images/Antinous.jpg){:width="400px"}
 
-Fig. 1.66. Steel relief that shows Antinous holding the grapes of Dionysus in one-hand and a cross in the other.
+Fig. 1.67. Steel relief that shows Antinous holding the grapes of Dionysus in one-hand and a cross in the other.
 
 The Cult of Antinous failed (overt homoeroticism, too tied to a single emperor) but it did serve as a trial run for later cults (Christianity/Islam).
 
