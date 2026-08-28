@@ -43,23 +43,6 @@ Published by Heretical Books
 2: The Four Tribes of the Saka Confederation\
 2.1 The Asii Global Lexicon (Proving their Reach)\
 2.2 The Satrapy Network — The Dragon Empire's Branches\
-2.3 The Asii Core (Pontic-Caspian Steppe)\
-2.4 The Yuezhi/Tocharians (Central Asia/China)\
-2.5 The Hyksos (Egypt)\
-2.6 The Assyrian/Mitanni Kingdom (Syria/Mesopotamia)\
-2.7 The Kassite Dynasty (Babylon)\
-2.8 Aššuwa (Anatolia/Western Asia Minor)\
-2.9 Akkadian Empire (Mesopotamia)\
-2.10 Vedic India (Indus Valley)\
-2.11 Achaemenid (Persia)\
-2.12 Arsaces (Parthian)\
-2.13 The Roxolani / Alans (Eastern Europe)\
-2.14 Lazyges (Central Europe)\
-2.15 Gaul (Central Europe)\
-2.16 Tochari (Bactria)\
-2.17 The Aesir (Scandinavia)\
-2.18 Ateas/Argeads (Macedon/Thrace)\
-2.19 Qin Dynasty (China)\
 3: Timeline: The Proto-Indo-European (Aryan) Hegemony\
 4: Key Historical Figures & Their Aliases\
 4.1 The Primordial Patriarch: Ateas the Scythian (c. 429 BC – 339 BC)\
@@ -266,7 +249,7 @@ From the Yamnaya came the Corded Ware culture in Central Europe. Corded Ware pop
 | **Fatyanovo-Abashevo** | 2800–2000 BCE | R1a-Z93 | The eastern Corded Ware branch |
 | **Sintashta** | 2100–1800 BCE | R1a-Z93 | The chariot inventors |
 | **Andronovo** | 2000–900 BCE | R1a-Z93 | The Indo-Iranian expansion |
-| **Scythian/Saka** | 900–200 BCE | R1a-Z93 | The historical Asii |
+| **Scythian/Saka** | 900–200 BCE | R1a-Z93 | The biological Asii |
 
 **The Substrate Populations (The Ruled):**
 
@@ -358,15 +341,15 @@ The preceding chapter established the four tribes of the Saka Confederation—th
 
 Each satrapy operated under a local name, adapted to the language and customs of its region. But beneath the surface, every satrapy shared the same genetic signature (R1a-Z93), the same linguistic roots (AS, SAR, GUT), the same religious template (the dying-and-resurrecting serpent-god), the same administrative system (the satrapy network), and the same dynastic symbols (the star and crescent, the swastika, the dragon).
 
-**2.3 The Asii Core (Pontic-Caspian Steppe)**
+**The Asii Core (Pontic-Caspian Steppe)**
 
 The Asii/Asiani/Asioi and the Alani are the same people with regional names. Ptolemy (fl. 127-148 AD) records that one of the Alan tribes in the vicinity of the Don was called the Asaioi—the ancestors of the modern Ossetians (https://jis.ut.ac.ir/article_76722.html). The name Alan is an Iranian dialectal form of the Old Iranian word Aryāna, which means "Aryan". The Alans (the western branch of the Asii) were the same people carrying the same "As" title westward.
 
-**2.4 The Yuezhi / Tocharians (Central Asia/China) (1800 BCE–200 CE)**
+**The Yuezhi / Tocharians (Central Asia/China) (1800 BCE–200 CE)**
 
 The Asii were also the Tocharians. Tocharian A and Tocharian B are two extinct Indo-European languages found in manuscripts from the Tarim Basin, mostly 5th–8th centuries CE, preserved by desert aridity. They were not called Tocharian by their speakers. Modern scholars named them after the Greek Tokharoi, Sanskrit Tukhāra/Tushāra, Old Persian Tuxāri- — a term that itself goes back to Tarkhu-As, "Ruler-As" (Tarkhu is the storm-god title (Hittite Tarḫunna, Etruscan Tarquin)). The speakers called themselves Ārśi (Tocharian A) which is almost certainly Arsi = Asii, and Kuśi or Kuśiññe (Tocharian B) - possibly the same root as Kushan. This is not a speculative link. It is a self-designation, written in their own language, recovered from sealed desert sites far from any Renaissance or Vatican scriptorium.
 
-**2.5 The Hyksos (Egypt) (1650–1550 BCE)**
+**The Hyksos (Egypt) (1650–1550 BCE)**
 
 The name "Hyksos" is not a tribal name. It is a Greek rendering of the Egyptian title hekau khasut—"rulers of foreign (mountainous) lands". The Hyksos were originally called Haq-Shasu—"Princes/Rulers of the Shasu" and Shasu is a linguistic variant of Asu/As—the very root of Asii. They were "Kings of the As". Manetho's etymology that Hyksos means "Shepherd Kings" (from Hyk = king, Sos = shepherd)—is a mistranslation. The true meaning is "Kings/Rulers of the As".
 
@@ -378,7 +361,7 @@ They were Asii pharaohs who ruled Egypt during the Second Intermediate Period. T
 
 The Hyksos were expelled from Egypt around 1550 BC, but they did not vanish—they retreated to their steppe heartland, where they eventually became the Mitanni, the Kassites, and later the Scythians.
 
-**2.6 The Assyrian/Mitanni Kingdom (Syria/Mesopotamia) (1550 – 609 BCE)**
+**The Assyrian/Mitanni Kingdom (Syria/Mesopotamia) (1550 – 609 BCE)**
 
 Assyria and Mitanni occupied overlapping territory. Assyria came first and then was dominated by the Mitanni. The Assyrians were for a period vassals of the Mitanni kings, who had Aryan names and worshipped Vedic deities. Assyria then regained its independence under the Assyrian king Ashur-uballit I, around 1365–1330 BCE.
 
@@ -386,11 +369,11 @@ Assyrian = "Asii of the West". Assyria was centered on the city of Aššur (Ashu
 
 The Mitanni—Aryan horse lords in Syria—worshipped Vedic gods: Mitra, Varuna, Indra, and Nasatya. A Mitanni-Hittite treaty from around 1400 BC invokes these deities. The empire stretched from the Mediterranean to the Indus. These were Asii administrative arms, enforcing the center's will through a network of chariot-riding warrior elites.
 
-**2.7 The Kassite Dynasty (Babylon) (1595–1155 BCE)**
+**The Kassite Dynasty (Babylon) (1595–1155 BCE)**
 
 The Kassite Dynasty (c. 1595–1155 BC) were Aryan rulers of Babylon.
 
-**2.8 Aššuwa (Anatolia/Western Asia Minor) (c. 1400 BCE)**
+**Aššuwa (Anatolia/Western Asia Minor) (c. 1400 BCE)**
 
 The Aššuwa of Hittite records are the exact same political and military entity, only located in Anatolia because the "Hittite" empire was a regional satrapy of the Asii hegemony. The name Aššuwa is simply the Hittite/Anatolian rendering of the Scythian self-designation As. The Hittite suffix -wa or -uwa is a gentilic, meaning "Land of the As" or "People of the As". It is linguistically identical in function to the Iranian suffix -ii (Asii = People of As). Thus, Aššuwa = Asii. They are the exact same ethnonym with different grammatical endings. 
 
@@ -402,7 +385,7 @@ A Hittite king of Wilusa (Troy) was named Alaksandu of Wilusa and he predated Al
 
 Hittite kings carried names such as Khata-sar, Mul-sar, Kaui-sar, and Khilip-sar. "Sar" signified 'prince'" and is the same root as the Scythian Sar ("king") and the Assyrian Šarru ("king"). The Hittite kings called themselves "Sun-gods" —a title functionally identical to the Egyptian "Son of Ra".
 
-**2.9 Akkadian Empire (Mesopotamia) (2334–2154 BCE)**
+**Akkadian Empire (Mesopotamia) (2334–2154 BCE)**
 
 Sargon of Akkad—a name that decodes to Sar-Gon ("King of the Serpent")—was an Asii viceroy. The Kassite Dynasty (c. 1595–1155 BC) were Aryan rulers of Babylon. The Assyrians were for a period vassals of the Mitanni kings, who had Aryan names and worshipped Vedic deities.
 
@@ -412,7 +395,7 @@ The Guti (Gutians), a nomadic people who overran southern Mesopotamia when the A
 
 The Guti did not vanish after their dynasty fell. They re-emerged as the Kassites, who ruled Babylon for over four centuries (c. 1595–1155 BCE). The connection is explicit in the historical record.
 
-**2.10 Vedic India (Indus Valley) (2600–1700 BCE)**
+**Vedic India (Indus Valley) (2600–1700 BCE)**
 
 They ruled India as the Aseni, Osii, and Asoi—the Kshatriya (Aśvaka) caste. Sanskrit texts (Pāṇini, Mahabharata, Puranas) confirm the Aśvaka, Aśvayana, and Aśvakāyana as horse-warrior clans.
 
@@ -425,11 +408,11 @@ The Scythian name AZES is derived from the Saka (Scythian) word aza, meaning "le
 
 Azes (Scythian "leader") is the exact same root as AS (Scythian "lord"). The Indo-Scythian kings Azes I, Azes II, and Azilises were not individuals with unique names. They were Scythian Dragon Kings whose title was "The Leader" or "The Commander". The Indo-Scythian king Azes I reigned from approximately 48–25 BCE. Julius Caesar was assassinated in 44 BCE. Asander of Bosporus's reign ends around 17 BCE. The Indo-Scythian "Azes" kings are not a separate dynasty. They are the Eastern avatars of the same Bosporan Dragon Kings. "Azes" is the Scythian equivalent of "Caesar." When Julius Caesar/Asander "died" in the West, he "resurrected" in the East as Azes I. The Azes coinage (c. 48–25 BCE) is the Eastern continuation of the Asander/Julius Caesar coinage.
 
-**2.11 Achaemenid (Persia) (c. 550–330 BCE)**
+**Achaemenid (Persia) (c. 550–330 BCE)**
 
 The Achaemenid title XŠĀYA-θIYA ("King") is a compound of xšaya ("to rule") + -θiya. The root xšaya is a dialectal variant of SAR. The Persian title XŠĀYA-θIYA XŠĀYA-θIYĀNĀM ("King of Kings") is the exact grammatical equivalent of the Akkadian ŠAR ŠARRĀNI
 
-**2.12 Arsaces (Parthian) (247 BCE – 224 CE)**
+**Arsaces (Parthian) (247 BCE – 224 CE)**
 
 All Parthian kings bore the throne name Arsaces. Babylonian documents refer to them as Arshaka.
 
@@ -439,7 +422,7 @@ Arshaka: The Babylonian rendering. = "The Scythian King".
 
 The Parthia king title Phraates ("divine glory, royal radiance) is the same as Persian Pharnabazus and Pharnaces (Pharnaces II) in Pontus.
 
-**2.13 The Roxolani / Alans (Eastern Europe) (c. 3rd–2nd century BCE – 4th century CE)**
+**The Roxolani / Alans (Eastern Europe) (c. 3rd–2nd century BCE – 4th century CE)**
 
 The Roxolani (-olani = - alani) were also a branch of the same tribe. Historian George Vernadsky suggested that the name Rocas (a tribe conquered by the Ostrogoths in the 4th century) may be a corruption of Ruxs-As—"Light-Asii". The Rosomoni, mentioned by Roman historian Jordanes, may also be related, interpreted as the "Ros Men". The name "Rus" is not a Viking invention. It is the Asii self-designation—the "Shining Asii" who later gave their name to the Russians. The Roxolani are the bridge between the ancient Asii and the modern Russian people.
 
@@ -447,7 +430,7 @@ Alexander's father Philip belonged to the Argead dynasty who were of Dorian Gree
 
 Alexander (Al-As-andros = the Asii Lord Man) was a member of the Roxolani tribe and when he married Roxana he was marrying a heiress to the Roxolani. Al-As-andros = As-andros = Asander. The exact same title.
 
-**2.14 Lazyges (Central Europe) (c. 200 BCE – 4th century CE)** 
+**Lazyges (Central Europe) (c. 200 BCE – 4th century CE)** 
 
 The Iazyges (or Jazyges) were a Sarmatian tribe who lived along the Danube. The name is rendered in Greek as Ἰάζυγες (Iázyges).
 
@@ -459,11 +442,11 @@ Iazyges = Iaz + yges = As + guti = Asii Guti = the Dragon King people.
 
 Tacitus mentions the Iazyges as a Sarmatian tribe (Germania 43). They were the western European branch of the same people.
 
-**2.15 Gaul (Central Europe) (c. 5th century BCE – 5th century CE)**
+**Gaul (Central Europe) (c. 5th century BCE – 5th century CE)**
 
 This region was ruled by the Aedui tribe. Yuezhi _> Iudii -> Iulii (Julians) -> Aedui (Celts)). The Aedui claimed descent from Troy, used the Gaius Julius name, and worshiped the Deified Caesar (https://en.wikipedia.org/wiki/Gaius_Julius_Vercondaridubnus)
 
-**2.16 Tochari (Bactria) (c. 130 BCE – 3rd century CE)**
+**Tochari (Bactria) (c. 130 BCE – 3rd century CE)**
 
 The Kushan Empire (1st-3rd c. CE) claimed descent from the Yuezhi. Their title for king was Shaonano Shao—"King of Kings"—a direct translation of the Bosporan Basileus Basileon and the Achaemenid Xšāyaθiya Xšāyaθiyānām.
 
@@ -471,17 +454,17 @@ The Greek Tokharoi, Sanskrit Tukhāra/Tushāra, and Old Persian Tuxāri- all go 
 
 Strabo records four tribes that conquered Bactria: the Asioi, Pasianoi, Tochario, and Sakarauloi. The Pasianoi (also Gasiani) are the "People of the Pas" —a title that appears in the Flavian name Vespasian (Ves-Pasianus = "Lord of the Pasiani"). Armenian historical tradition later connects the Arsacid dynasty with the Kushans, and the founder of the Parthian Empire, Arsaces I, may have originated from the Gasiani tribe.
 
-**2.17 The Aesir (Scandinavia) (c. 2000 BCE – 1000 CE)**
+**The Aesir (Scandinavia) (c. 2000 BCE – 1000 CE)**
 
 The religious book of Scandinavia, Prose Edda, written by Snorri Sturluson, mentions that the ancient inhabitants of Scandinavia were Asi people who came to that land from Asirgarh in 500 BCE and their leader was Odin (Proto-Germanic Wōðanaz (Wod-As)). The title "Oado" appears on Indo-Scythian coins, particularly Kanishka I. Oado is the Bactrian form of Vāta/Vāyu (both mean wind/fury). Vāta/Vāta‑deva is the Indo‑Iranian wind/fury deity. Wōðanaz (Odin) and Vāta (Oado) are dialectal pronunciations of the same PIE root. The Norse sagas claim Odin "died" and was "resurrected" as different kings. This is not mythology; it is the avatar transfer protocol.
 
-**2.18 Ateas/Argeads (Macedon/Thrace) (c. 429–339 BCE)**
+**Ateas/Argeads (Macedon/Thrace) (c. 429–339 BCE)**
 
 Ateas (c. 429 BC – 339 BC) was described in Greek and Roman sources as the most powerful king of Scythia. His name decodes as Ata-as—"Father-As" or "Forefather of the Asii"—the same root as Asander, Asinder, and Attila.
 
 Ateas was also Artaxerxes II Mnemon of Persia, Amyntas III of Macedon, Nectanebo II of Egypt, and Evagoras I of Cyprus. His "death" in battle against Philip II of Macedon (339 BC) was a succession ritual—a staged combat to transfer the "Mandate of the Dragon". Philip II was not Ateas's enemy; he was his designated successor and son.
 
-**2.19 Qin Dynasty (China) (c. 221–206 BCE)**
+**Qin Dynasty (China) (c. 221–206 BCE)**
 
 Founded by Qin Shi Huang. Qin means "Ionian" or Greek (Old Chinese pronunciation: Dzin -> Mandarin Qin). The Sanskrit for Ionian is Yavana. The Pali is Yona. The Old Persian is Yauna. Dzin and Yona are phonetically almost identical when you account for dialectal shifts (dzin → zin/jin → yin → yon).
 
@@ -493,7 +476,7 @@ Records show that Duke Mu of Qin dominated the Western Rong and opened up territ
 
 The Terracotta Army is a collection of life-sized terracotta sculptures depicting the armies of Qin Shi Huang and are identical to Khalchaya, an archaeological site in southern Uzbekistan associated with the Yuezhi/Kushan peoples, and Ai Khanoum — the Greek city in Afghanistan. (“Did Greeks help sculpt China’s terracotta warriors?” Smithsonian Magazine (2016). Available at: https://www.smithsonianmag.com/smart-news/did-greeks-help-sculpt-chinas-terracotta-warriors-180960771)
 
-**2.20 The The Asii Satrapies: A Comprehensive Directory.**
+**The The Asii Satrapies: A Comprehensive Directory.**
 
 The Asii established a Satrapy System—a network of regional viceroys, each governing a distinct province under the suzerainty of the Steppe core. Every "ancient" civilization was a satrapy
 
