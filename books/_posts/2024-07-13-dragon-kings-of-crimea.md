@@ -365,7 +365,7 @@ The three core roots that form the linguistic foundation of the Dragon King hege
 
 **Deities:** Osiris/Asar (Egyptian) is a direct link to As (Lord). Osiris is the deified form of the Dragon King archetype. Jesus: Ie-Zeus (Divine Zeus). But Zeus=Dyēus (Sky Father). The Scythian form? Izas (as in Izates). Izates = Ie (divine) + Zates (cognate of Zeus). Ie-sus (Esus). The title connects to the Celtic Esus (Lord), another avatar of the same archetype, Zarathustra (Sar + Ustra = "serpent-lord"), Saraswati (Hindi goddess of knowledge), Šaruma (Mitanni deity), feminine Sarai (or "Sarah" meaning "princess" (Genesis 17:15)).
 
-The oldest attestations of the title "As" can be traced back to the Sumerian civilization of ancient Mesopotamia (c. 2500–2000 BCE). The Sumerian word for "lord" or "ruler" was "As". This is the foundation. Then "Asar" (Osiris) (c. 2500 BCE) in Egypt.
+The oldest attestations of the title "As" can be traced back to the Sumerian civilization of ancient Mesopotamia (c. 2500–2000 BCE). The Sumerian word for "lord" or "ruler" was "As". This is the foundation. Then "Asar" (Osiris) (c. 2500 BCE) in Egypt and the Ebla Tablets in modern-day Syria, (c. 2400 BCE) contain a deity named "Aš-tar" (Aštar) and a royal title "En-As", or "Lord of the As" – a royal title for the Eblaite kings.
 
 ---
 
@@ -455,7 +455,7 @@ The Sintashta culture (c. 2100–1800 BCE) develops the chariot, the weapon syst
 
 First Aryan rulers of Mesopotamia. Guti = Goth = Scythian. Their king Sarlagab bore the Sar title—the earliest known explicit use of the "Serpent-King" title. The Guti styled themselves "Kings of the Four Quarters" —the prototype of the "King of Kings" title that will be used by every subsequent Dragon King. W.B. Henning's reconstruction of the ancient pronunciation of "Yuezhi" as *Gu(t)-t'i* confirms the Guti = Yuezhi = Asii chain.
 
-Gutian king names explicitly contain the "Sar" root: Sar-a-ti-gu-bi-ši-in, Sarlak, etc. This was in c. 2150–2050 BCE – predating any known Persian or Greek "King of Kings" title by over a millennium. The Guti did not vanish after their dynasty fell. They re-emerged as the Kassites, who ruled Babylon for over four centuries (c. 1595–1155 BCE).
+Gutian king names explicitly contain the "Sar" root: Sarlagab, Sarlak, etc. This was in c. 2150–2050 BCE – predating any known Persian or Greek "King of Kings" title by over a millennium. The Guti did not vanish after their dynasty fell. They re-emerged as the Kassites, who ruled Babylon for over four centuries (c. 1595–1155 BCE).
 
 **c. 2000–1800 BCE: The Tocharians in the Tarim Basin**
 
@@ -488,6 +488,8 @@ Wilusa is rendered in Greek as Ίλιον (Ilion) or Ἴλιος (Ilios)—the G
 A Hittite king of Wilusa (Troy) was named Alaksandu of Wilusa and he predated Alexander the Great by 800 years proving Alexander was a title of a Asii king. One of three gods guaranteeing the treaty with Hittite king Muwatalli II on Alaksandu's side is named Apaliunas (Muwatalli II, Treaty with Alaksandu of Wilusa, CTH 76, KUB 21.1, §17). This is the Hittite reflex of Apollo. Apollo is portrayed in the Iliad as the foremost champion of the Trojans. Apaliunas = Apollo—a Greek god attested in a Hittite treaty eight centuries before "Classical Greece." The Greek pantheon is an Anatolian import. Alexander the Great used Apollo on his coins.
 
 Hittite kings carried names such as Khata-sar, Mul-sar, Kaui-sar, and Khilip-sar. "Sar" signified 'prince'" and is the same root as the Scythian Sar ("king") and the Assyrian Šarru ("king"). The Hittite kings called themselves "Sun-gods" —a title functionally identical to the Egyptian "Son of Ra".
+
+Hittite king Ḫattušili I was originally named Labarna (or Tabarna). He was associated with Kuššara, the ancestral center of the dynasty. After establishing himself at Ḫattuša, he adopted the name Ḫattušili. This is the same avatar-switching protocol used by the Bosporan kings (Asander → Caesar). The name was a function of geography, not a person's identity.
 
 **c. 1595–1155 BCE: Kassite Dynasty**
 
@@ -1098,9 +1100,11 @@ The Flavians didn't just remake their main enemy's cult; they rewrote history, i
 
 - **Cotys:** In Thracian, "Cotys" is related to the word "kotys", a title meaning "lord". In the Celtic languages the word "cottos" or "cottius" means "chieftain".
 
-- **Flavius:** Flavus = yellow/golden is a deliberate Latin mistranslation of the Scythian root Pālava or Palavi (Pahlavi), the term for the Parthian/Iranian aristocracy. The name traces back to the Volga River which was called "Rā" (Ammianus Marcellinus, in his work Res Gestae (Book XXXI, Chapter 2)). In Sanskrit, Rā means "wealth, gold". They were the Pālava—the "golden clan" of the Roxolani Sarmatians from the Volga River (Flavus). The Pallava dynasty in India derives from this term. The Asii were the royal caste of a confederation of four tribes that conquered Bactria: the Asii, Pasiani, Tochari, and Sacarauli. Strabo calls them "the four tribes of the Sacae" The Flavians were not Asii. They were Pahlavi—a related but subordinate Iranian clan that had served as mercenaries and administrators. When they seized power, they demonized the Asii in the same way the Brahmins demonized the Asuras: they turned the old lords into monsters, dragons, and devils. Aži Dahāka—the Dragon King—became Satan. Asura became demon. Caesar became merely a family name.
+- **Flavius:** Flavus = yellow/golden is a deliberate Latin mistranslation of the Scythian root Pālava or Palavi (Pahlavi), the term for the Parthian/Iranian aristocracy. The name traces back to the Volga River which was called "Rā" (Ammianus Marcellinus, in his work Res Gestae (Book XXXI, Chapter 2)). In Sanskrit, Rā means "wealth, gold". They were the Pālava—the "golden clan" of the Roxolani Sarmatians from the Volga River (Flavus). The Flavians were a part of the same Pasiani clan that produced the Parthian Arsacid dynasty (Pahlava is the Indian name for the Parthians), Indian Pallava dynasty, and Flavian dynasty. The Title "Jin" is Chinese for "Gold" or "Golden". The Connection: This is the exact same root as Flavius (Golden/Yellow) and Pahlava (The Golden Clan). The Jin Dynasty was the Chinese branch of the Dragon Kings, claiming the same solar-golden ancestry as the Flavians in Rome. The Pahlava were a subordinate Iranian clan that had served as mercenaries and administrators for the Asii. When they seized power, they demonized the Asii in the same way the Brahmins demonized the Asuras: they turned the old lords into monsters, dragons, and devils. Aži Dahāka—the Dragon King—became Satan. Asura became demon. Caesar became merely a family name.
 
 - **Hasmonean:** The Hasmonean dynasty of Judea derives its name from the Hittite Ḫaššu, which is the Hittite word for king. The Aššuwa of Hittite records are not separate from the Asii; they are the exact same political and military entity, only located in Anatolia because the "Hittite" empire was a regional satrapy of the Asii hegemony.
+
+-**Herod:** Egyptian: Heru (Horus) + Ud (divine) -> Herud -> “Herod”*.
 
 - **Isaac = The name Iesas** is a variant of Iesous (Jesus) or Ie-Asar – "Lord Osiris". Asar is another name for Osiris. Therefore, Isaac is a Jesus avatar – the son of Abraham (the Dragon King) who is "sacrificed" and "resurrected". Also, remove the Hebrew theophoric Y- = -tzak = Hebrew rendering of Sacae (Scythians).
 
@@ -1396,8 +1400,6 @@ The Scythians ruled a Eurasian empire that stretched into China.
 
 Azhi = Asia (Azhi-A) = "land of the mighty dragon" (Aži is cognate with the Chinese Zhī (dragon)), a very similar name as Rome (Rhu-Ma) = "Place of the Dragon", Romania (Rhu-Ma + Na) = "dragon land", and Sarmatia (serpent) + ma (mother, land). The Chinese dragon, a symbol of imperial power, is a direct descendant of the Scythian Draco standard, carried by Sarmatian cavalry and adopted by the Han dynasty.
 
-The Yuezhi, the Central Asian tribe that founded the Kushan Empire, are identified by Chinese sources as the heirs of the Scythian steppe tradition. The name "Yuezhi" decodes as Yue-Zhi in Chinese transcription. The Yuezhi are the Iudii—the Dragon Kings.
-
 The Tarim basin mummies are Tocharians, and the Kizilgaha cave portraits depict redheaded "Chinese" people. Genetic studies show that indigenous people of Linzi in south east China were genetically more similar to Europeans than modern Chinese [^28]. Tang dynasty mural in tomb unearthed in China portrays a 'Westerner' man with blond hair [^29].
 
 Alexander the Great = Qin Shi Huang (China's First Emperor). Both "died" mysteriously at 33 (Alexander in 323 BC; Qin Shi Huang in 210 BC). Alakshandra (Sanskrit) → Qin Shi Huang (Chinese): The "-shandra" morpheme appears in "Shi Huang" meaning "First Guardian". Qin was founded by Alexander, it starts right exactly around the Greco-Bactrian city states era in Central Asia, it was started by people coming from the West right exactly bordering Central Asia during Greco-Bactrian rule, DA-QIN meaning BIG OR GREATER QIN as a word name term was used to refer to the Roman empire during the "Han dynasty" that came after Qin dynasty which means the QIN people had to have been Greco-Bactrian Seleucids since they equated with Roman type people and they came from the farthest West direction.
@@ -1408,15 +1410,38 @@ Julius Caesar aka Asander, king of Bosphorus was Prince Jin Midi in China. Jin (
 
 Emperor Tiberius aka Tiberius Julius Aspurgus I, king of Bosphorus was the Chinese emperor Yu the Great. He was also Kadphises, prince of the Kushan Empire. Kujula Kadphises unifies the Yuezhi tribes and establishes the Kushan Empire right after the "death" of Julius Caesar/Asander. The "Yuezhi" are the "Iudii"/"Jove" tribe—the same Scythian-Celtic priestly class. "Yazhi" (亞茲)) = Julius, from Ioulius, related to Iove (Jove). Iove is linguistically linked to the Scythian tribal name Yuehzi (Yuezhi). He is "The Jove/Yuezhi King".
 
+The modern "Han Chinese" are not in fact "Han" or "Chinese" ("Chinese" is an identity fabricated and conjured up by Jesuits) but are in fact Miao-Hmong people. Han comes from Ahan (Aryans) of Buddhist texts who were related to the Scythian Yuezhi/Kushan rulers. The real Han = Yangshao R1a (90% steppe, 5000 BC), purged in the An Lushan Caucasoid genocide. Genetic studies show the Yangshao culture (5000 BC) had 90% European DNA (Haplogroup R1a). 
+
+The genetic reality is that the Yangshao culture (5000 BCE) in northern China was 90% R1a – European steppe DNA. The modern "Han" population of China is predominantly O2 and O3 (Mongoloid haplogroups) – they are the descendants of the Miao, Hmong, and Tai peoples who migrated north from Vietnam after the Dragon Kings were purged.
+
+"Han" decodes to Ah-an (Aryan) – the same root as the Achaemenid Ariya and the Irish Eire. The Jesuits took this ancient Aryan self-designation and applied it to the southern Miao-Hmong populations to fabricate a continuous, unbroken Chinese identity that never existed.
+
 China had no chronology until the Jesuits came to the Emperor's court. Their oldest "ancient" records date from this period. Stone inscriptions and bronze engravings and a few bamboo slips survive from older times, but they were never arranged into a consistent chronology. If you read the Bellum Tartaricum, a pre-edit Jesuit source, it gives a very different chronology as well as info about the white Slav-like race known as the Tartarians, their rulers and their wars with China. The Jesuits essentially wrote early Chinese history for them. They "reconstructed" the Xia and Shang dynasties based on fragmentary records, arranging them to fit the Biblical timeline. Martino Martini wrote 'Sinicae historiae decas prima' (1658)—the foundation of all Chinese chronology—using Chinese sources he alone could read and interpret. There were no independent Western verifications. Mateo Ricci invented Confucius and was the one who retroactively attributed 'The Art of War' to Sun Tzu. The Art of War was originally a Flavian-era strategic treatise on psychological warfare and systems control (the exact principles the Synarchy used to manage its global hegemony).
 
-The modern "Han Chinese" are not in fact "Han" or "Chinese" ("Chinese" is an identity fabricated and conjured up by Jesuits) but are in fact Miao-Hmong people. Han comes from Ahan (Aryans) of Buddhist texts who were related to the Scythian Yuezhi/Kushan rulers. The real Han = Yangshao R1a (90% steppe, 5000 BC), purged in the An Lushan Caucasoid genocide. Genetic studies show the Yangshao culture (5000 BC) had 90% European DNA (Haplogroup R1a). The modern Han are Miao who migrated from Vietnam after the Mongol invasions.
+**The Ran Min Genocide (349–350 CE): The First "Golden Clan" Purge**
 
-The An Lushan rebellion was an ethnic war, Mongoloids vs Caucasoids which resulted the slaughter of millions of caucasians [^31]. The Xianbei were Mongoloids and helped rape and sexually enslave Indo Europeans in China in the An Lushan rebellion. Goguryeo Korean general Gao Juren in the Tang dynasty committed genocide and rape against An Lushan's community after defeating An Lushan at his headquarters in Fanyang (Beijing).
+During the Jin dynasty, the northern plains were ruled by the "Five Barbarians"—tribes that had invaded from the steppe. Among them were:
 
-Similarly, Ran Min slaughtered and committed genocide on the entire Caucasian Jie people who were native to Chin, and the Manchus had the Central Asian Indo-European children castrated.
+- The Xianbei: Described in Chinese records as "White Barbarians" because of their pale skin and, in some sub-tribes, blonde or red hair. The Jin Emperor Ming himself had a yellow beard from his Xianbei mother, and his own soldiers almost killed him because they mistook him for a Xianbei enemy.
+- The Jie: Described as "Yellow-Headed", with "deep-set eyes, high noses, and abundant beards" – classic Caucasoid features. The Jie were likely a remnant of the Tocharian/Yuezhi (Asii) population that had settled in Shanxi.
 
-Then Mao-tse Dong used artificial weaponized famines and outright direct purges to direct human wave attacks in the Korean war to mass kill off original Scythian Tartar Turanian stock authentic real "Chinese" populations which is continuing today with the genocide and ethnic cleansing of the Uighurs and Mongolians whom are far more genetically ancestrally connected and linked to the original real actual ancient "Chinese" rather than a vast majority of modern "Han Chinese" whom are actually Miao-Hmong or Miao-Tse or Hmong or Yao or other southern origin non-"Chinese" group pretending to be "Chinese".
+**The Event:** In 349–350 CE, the Han-Chinese general Ran Min issued the infamous "Kill the Barbarians" edict. He systematically slaughtered the Jie and Xianbei populations. The number killed is recorded as over 200,000 – a demographic genocide targeting specifically the "White" and "Yellow" tribes.
+
+The Jie tribe's name is phonetically identical to Gut (Gutians) and Goth (Goths). They were the eastern refugium of the Scythian Dragon Kings. Ran Min's genocide was not a war of liberation; it was a J2/J1 Miao-Hmong uprising against the R1a Dragon King administration in northern China, mirroring the Flavian coup in Rome.
+
+**The An Lushan Rebellion (755–763 CE): The Sogdian Purge**
+
+After the Ran Min genocide then came the An Lushan rebellion.
+
+The Tang Dynasty (618–907 CE) was the zenith of the "Golden Clan" influence in China. The Tang emperors had heavy Sogdian (Iranian, R1a) ancestry. An Lushan was a Sogdian-Turkic general who rebelled against the Tang. The Tang loyalists, led by the Turkic (Mongoloid) general Gao Juren, brutally suppressed the rebellion. But the suppression turned into an ethnic purge. Gao Juren's army specifically targeted the Sogdian and Tocharian populations of northern China, massacring entire communities. The Tongdian records that over 2 million people were killed or displaced in the subsequent ethnic cleansings. This was the systematic destruction of the R1a elite in the East.
+
+ **The Jurchen Jin Dynasty (1115–1234 CE): The Last "Golden" Empire**
+
+The Jurchens who founded the Jin dynasty deliberately chose the title "Golden" to claim the legacy of the Dragon Kings. They modeled their empire on the Khitan (who were partly Scythian) and the Tang.
+
+Then the Mongols, under Genghis Khan, utterly destroyed the Jin dynasty. The siege of Kaifeng in 1233 CE resulted in the massacre of over 1 million Jurchens. The Mongols did not stop at the Jurchens; they systematically purged the remaining Sogdian, Tocharian, and Persian populations of Central Asia and northern China.
+
+The twist is that Genghis Khan is a Dragon King avatar. His name decodes to is Genghis= Janis the Roman deiy, and Khan = Dragon King title (Ka-Sar → Khasar → Khazar → Khan), yet destroyed the Aryan remnants in China.
 
 ---
 
@@ -1735,7 +1760,9 @@ According to his prophecy, after Ishmael weakens Edom (Rome) and then "dies a no
 
 In Jerusalem Talmud Kiddushin, Rabbi Shimon bar Yochai stated: "Kill the best of Gentiles, smash the head of the best of snakes". He was the biggest proponent of the belief that Rome was Edom.
 
-Muhammad, or "The "Praised One" is a direct Arabic translation of the Scythian title *Yasht" or Yazata (worthy of worship, praised). Izates (Izas) means "Lord" (from Yazata). Muhammad is the Arabic-language version of the same title. King Izates's son was named Zamaris (Zamaris the Babylonian jew) and Zamaris has the same meaning as Muhammad.
+Muhammad means "The Praised One" – a translation of the Scythian Yazata (The Praised/Worthy of Worship). Muhammad is the Arabic-language version of Izates (King of Adiabene) and Isa (Jesus). King Izates's son was named Zamaris (Zamaris the Babylonian jew) and Zamaris also has the same meaning as Muhammad.
+
+Muhammad's tribal designation Quraysh is a cognate of Kish (the Sumerian city) and Koresh (Cyrus the Great). It means the "Kish-People" – the Dragon Kings of Mesopotamia.
 
 Allah and Muhammad the red-headed warlord then became parodies of Attila the Hun [^39] and his uncle Ruglia waging war against Rome (Edom) because they wanted the Arabs to attack eastern Rome.
 
@@ -1758,7 +1785,9 @@ Endnotes (Chapter 27.3)
 
 There was never a "Roman Empire," a "Persian Empire," and an "Indian Empire". There was only the Dragon Empire, stretching from the Atlantic to the Pacific, whose king carried the title "The Great King of Kings, Lord of the Four Quarters, the Serpent of Wisdom, the Sun of the Earth". His name was Sar in Akkad. His name was Asar in Egypt. His name was Mithridates in Pontus. His name was Caesar in Rome. His name was Alexander in Greece. His name was Azes in India. His name was Kanishka in Kushan. His name was Khan in the Steppe.
 
-The Flavian-Vatican-Jesuit forgery was designed to destroy this memory and replace it with a fragmented, inverted history, but the coins still say As. The Jats still say Asinder. The Ossetians still call themselves As. The Russians are still the Roxolani—the "Shining Asii". And the river Narmada still flows from the Asii mountains to the Asii sea.
+The Flavian-Vatican-Jesuit forgery did not just forge texts. They orchestrated a global demographic reset—replacing the R1a "Golden Clan" with the J1/J2/E-M81/O2 populations that now dominate the world. 
+
+But the coins still say As. The Jats still say Asinder. The Ossetians still call themselves As. The Russians are still the Roxolani—the "Shining Asii". And the river Narmada still flows from the Asii mountains to the Asii sea.
 
 Ateas never died. His genetic and titular code was replicated, stolen, fought over, and hidden. But it was never extinguished. This book is the key to waking the King in the Mountain. This is the fully expanded, suppressed history—the story not of nations, but of a single family of the world, written in the grammar of genetics, stone, and myth.
 
