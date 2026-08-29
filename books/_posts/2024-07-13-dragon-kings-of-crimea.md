@@ -328,7 +328,7 @@ According to Strabo (c. 64 BC – c. AD 24), writing in his Geography (11.8.2), 
 
 - **The Sacarauli** (Sacaraucae, Sakaraulo), or the "Royal Saka".
 
-All four tribes were R1a-Z93 and were an extended family except the Pasiani/Gasiani who later picked up J2/J1 lineages through intermarriage with the Anatolian and Zagros populations.
+All four tribes were R1a-Z93 and were an extended family except different branched eventually added different lineages through intermarriage with local populations.
 
 Yuezhi is the same as Asii. The Chinese "Yuezhi" is a exonym—a transcription of the Scythian self-designation "Asii" or "Asiani". Iranologist W.B. Henning proposed that the ancient pronunciation of the Chinese name yue-zhi = Yuezhi (= Kuchan) can be reconstructed as Gu(t)-t'i . Thus, Guti (Gutians), a nomadic people who overran southern Mesopotamia when the Akkadian Empire collapsed around 2154 BCE), and Yüe-chih, are equivalent.
 
@@ -1367,11 +1367,17 @@ The Levites who survived the purges by the Flavians and Emperor Hadrian were the
 
 ## Chapter 11: The Flavian Dynasty
 
-Vespasian was also a great-grandson of Cleopatra and Mark Antony (King Herod). He was Herod Pollio aka Herod Agrippa I, grandson of King Herod's son Aristobulus IV. Vespasian was his title, not his name Vas/Bas was the royal abbreviation for the Greek word Basilius which = King. Ves‑ is also a contraction of Vah‑ / Bah‑, an honorific prefix (cf. Bahram, Vahram). Pas‑ is exactly the Paisa/Pahlav root, plus the adjectival suffix ‑ianus ("belonging to"). Thus Vespasianus = Ves‑pasianus = "Lord of the Pasa (Parthians)" or "King belonging to the Pahlav clan" (another option: Vas/Bas was the royal abbreviation for the Greek word Basilius which = King, and Pas means "all" as in Pan. "Vespasian" = "King of All", or "King of Everything" which is a claim to the title "King of Kings") [^26]).
+Vespasian’s father, Titus Flavius Sabinus, was a publicanus—a tax/financial contractor—and later became a moneylender/collector in Asia. He was the "honest tax collector". His father, Poppaeus Sabinus was the "Sabinus" in Josephus who stole the Jerusalem temple treasury. With this money he bought Senatorial rank in Rome. The Jewish Encyclopedia confirms a Sabinus—a Roman procurator and treasurer of Augustus—stole 400 talents from the Temple. The Flavian dynasty was literally founded on stolen Temple wealth.
 
-Vespasian's mother was Vespasia Pollo. Pollio derives from Ptolemy, or Polemon. The hypocoristic (pet‑name) form of Ptolemy in Greek was Ptollion. In Latin, that became Pollio (the initial Pt‑ was simplified to P‑, as happened with many Greek loanwords). Ptolemy and Polemon are regional pronunciations of the same Dragon‑King title. In the Bible Ptollion was a leader of the Pharisees during the 1st century BCE. Vespasia Pollo was a secret descendant of Cleopatra and her brother-husband Ptolemy XIII Theos Philopator (aka Gaius Octavius (Emperor Augustus) aka Polemon I of Pontus). Also, their "Sabine" origins are a cover for their Bosporan roots: Suetonius, a Flavian court historian, claims the Flavian family was of "Sabine" origin. This was a lie. They were not Sabine; they were Sabi—priestly Dragon Kings from Scythian Sabi, which means "seven" (a sacred number) and is the root of Sabazios (the Thracian Zeus) and Sabaoth (Lord of Hosts).
+The conventional narrative is wrong—Vespasian was not born a Flavius but became one through this marriage to Flavia Domitilla and the later historians (Suetonius, Tacitus) back-projected the Flavian name onto his ancestry to legitimize the dynasty.
 
-He was also 'Flavius Scaevinus' the conspirator involved in Nero's assassination.
+Vespasian was born in the Sabine region, near Reate. The Sabine territory was associated with the Vipsanii—the family of Marcus Vipsanius Agrippa, Augustus's son-in-law. Titus Flavius Sabinus's purchase of a villa from a defunct aristocratic family (the Vipsanii) was a way to claim Senatorial rank and he possibly even bought then their titles.
+
+Their Pahlavi/Flavian, “Sabeanus”, -Pasiani/Parthian names and titles, and their entire genealogy, likely was purchased off of Marcus Vipsanius Agrippa. [^26]).
+
+Vespasian's mother is recorded as Vespasia Pollo. Pollio derives from Ptolemy, or Polemon. The hypocoristic (pet‑name) form of Ptolemy in Greek was Ptollion. In Latin, that became Pollio (the initial Pt‑ was simplified to P‑, as happened with many Greek loanwords). Ptolemy and Polemon are regional pronunciations of the same Dragon‑King title. In the Bible Ptollion was a leader of the Pharisees during the 1st century BCE. Vespasia Pollo was a secret descendant of Cleopatra and her brother-husband Ptolemy XIII Theos Philopator (aka Gaius Octavius (Emperor Augustus) aka Polemon I of Pontus). Also, their "Sabine" origins are a cover for their Bosporan roots: Suetonius, a Flavian court historian, claims the Flavian family was of "Sabine" origin. This was a lie. They were not Sabine; they were Sabi—priestly Dragon Kings from Scythian Sabi, which means "seven" (a sacred number) and is the root of Sabazios (the Thracian Zeus) and Sabaoth (Lord of Hosts).
+
+He was also Gaius Poppaeus Sabianus and 'Flavius Scaevinus' the conspirator involved in Nero's assassination.
 
 ![Fig.1.64](/images/Vespasian.jpg){:width="400px"}
 
@@ -1938,7 +1944,7 @@ King Arthur is not a medieval fiction. He is the memory of the last Romano-Briti
 
 [^25]: "Apollonius of Tyre," *Wikipedia*. Available at: https://en.wikipedia.org/wiki/Apollonius_of_Tyre
 
-[^26]: Henry Davis, "The Royal Ancestry of the Roman Emperor Vespasian," *Medium* (2021). Available at: https://henrydavis-cc.medium.com/the-royal-ancestry-of-the-roman-emperor-vespasian-72e144335299
+[^26]: He was also Gaius Poppaeus Sabianus and 'Flavius Scaevinus' the conspirator involved in Nero's assassination.
 
 [^27]: "Coin: Antiochus IV of Commagene," *CoinArchives*. Available at: https://www.coinarchives.com/a/lotviewer.php?LotID=2528933&AucID=6356&Lot=485&Val=e5e4db7aa704d656893926a33a970991
 
