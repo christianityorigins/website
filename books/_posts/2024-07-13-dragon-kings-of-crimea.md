@@ -6,11 +6,19 @@ date: 2024-07-13
 category: books
 ---
 
-# The Dragon Kings of Crimea: A Complete History
-
-**A Genetic, Numismatic, and Onomastic Reconstruction of the Eurasian Asii Hegemony and Its Flavian Subversion**
+# The Dragon Kings of Crimea: A Complete History — A Genetic, Numismatic, and Onomastic Reconstruction of the Eurasian Asii Hegemony and Its Flavian Subversion
 
 **By Ralph Perrier**
+
+<img src="/images/bookcover.png" alt="Title Page" style="max-width:100%; height:auto; display:block; margin:0 auto;">
+
+Copyright © 2025 Ralph Perrier\
+All rights reserved. No part of this publication may be reproduced or transmitted in any form without written permission from the publisher, except for brief quotations in reviews or scholarly works.
+For permissions, contact: hereticalbooks.com\
+First Edition: 2025\
+ISBN: 978-1-0696862-0-6 \
+Library of Congress Control Number: 2025917902\
+Published by Heretical Books
 
 ---
 
