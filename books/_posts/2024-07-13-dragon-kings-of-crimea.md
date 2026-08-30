@@ -289,7 +289,7 @@ According to Strabo (c. 64 BC – c. AD 24), writing in his Geography (11.8.2), 
 
 - **The Sacarauli** (Sacaraucae, Sakaraulo), or the "Royal Saka".
 
-All four tribes were R1a-Z93 and were an extended family except different branched eventually added different lineages through intermarriage with local populations.
+All four tribes were R1a-Z93 and were an extended family except different branches eventually added different lineages through intermarriage with local populations.
 
 Yuezhi is the same as Asii. The Chinese "Yuezhi" is a exonym—a transcription of the Scythian self-designation "Asii" or "Asiani". Iranologist W.B. Henning proposed that the ancient pronunciation of the Chinese name yue-zhi = Yuezhi (= Kuchan) can be reconstructed as Gu(t)-t'i . Thus, Guti (Gutians), a nomadic people who overran southern Mesopotamia when the Akkadian Empire collapsed around 2154 BCE), and Yüe-chih, are equivalent.
 
@@ -298,6 +298,9 @@ Yuezhi (Chinese) = Asii (Greek) = Iudii (Hebrew) = Iulii (Latin). Iulii is the s
 The Chinese characters 月氏 (Yuezhi) literally translate to "Moon Clan" or "Moon Tribe". This connects directly to: Sin (Mesopotamian moon god), Hecate/Artemis (Greek moon goddess), Mari (Scythian snake-goddess), the star and crescent on the coins of Asander/Julius Caesar and Dynamis/Cleopatra.
 
 The Asii established a Satrapy System—a network of regional viceroys, each governing a distinct province under the suzerainty of the Steppe core. Every "ancient" civilization was a satrapy.
+
+![Fig.1](/images/R1a.png){:width="400px"}\
+Fig. 1. Global distribution of the haplogroup R1a (M420) of the human Y chromosome in native populations (Battaglia V, Fornarino S, Al-Zahery N, Olivieri A, Pala M, Myres NM, et al. (June 2009). "Y-chromosomal evidence of the cultural diffusion of agriculture in Southeast Europe". European Journal of Human Genetics. 17 (6): 820–30. doi:10.1038/ejhg.2008.249. PMC 2947100. https://pubmed.ncbi.nlm.nih.gov/19107149/)
 
 This was not a series of separate "ancient civilizations". It was a global empire administered through a unified linguistic, genetic, and theological framework.
 
@@ -415,7 +418,7 @@ The Tocharians (Yuezhi) establish themselves in the Tarim Basin. The Tarim mummi
 
 **c. 1894–1595 BCE: The Amorite Kings of Babylon**
 
-The Amorites, a branch of the Scythian-Aryan migration, ruled Babylon from c. 1894–1595 BCE. Hammurabi (c. 1754 BCE) was a Dragon King. His title was "King of Babylon, King of the Four Quarters of the World." His name decodes to Hammu-rabi = "Great Protector" or "Great King." His Code was a divine mandate—the same psychological pacification software you identify in Christianity and Islam. The stele depicts Hammurabi receiving the laws from Shamash (the sun god), who is seated on a throne with flames emanating from his shoulders—the same iconography as the Mithraic and Sol Invictus cults.
+The Amorites, a branch of the Scythian-Aryan migration, ruled Babylon from c. 1894–1595 BCE. Hammurabi (c. 1754 BCE) was a Dragon King. His title was "King of Babylon, King of the Four Quarters of the World." His name decodes to Hammu-rabi = "Great Protector" or "Great King". The stele depicts Hammurabi receiving the laws from Shamash (the sun god), who is seated on a throne with flames emanating from his shoulders—the same iconography as the Mithraic and Sol Invictus cults.
 
 **c. 1650–1550 BCE: The Hyksos**
 
