@@ -191,7 +191,7 @@ What the reader needs to know before entering this book:
 
 ## Chapter 1: The Three Castes of Ancient Eurasia
 
-**The Hyperborean Homeland (c. 50,000–10,000 BCE)**
+**The Hyperborean Genesis (c. 50,000–10,000 BCE)**
 
 The original ruling lineage of humanity emerged not from the tropics, but from the Hyperborean North—the circumpolar region that included Siberia, Scandinavia, and the northern reaches of Eurasia. These were the Cro-Magnon peoples: tall, robust, light-haired, light-eyed, and genetically adapted to cold climates. They carried the Haplogroup R lineage—the ancestor of R1a and R1b.
 
@@ -275,7 +275,7 @@ Role: The conquered, absorbed, or eradicated populations over whom the Farmers f
 
 ## Chapter 2: The Four Tribes of the Saka Confederation
 
-The eastern branch of the Yamnaya, which migrated into the Volga-Ural region, became predominantly R1a-Z93. The western branch was Corded Ware culture (c. 3000–2350 BCE) who emerged in Central Europe (modern Germany, Poland, Czechia) as a result of a massive Yamnaya migration westward. Genetically, Corded Ware populations are ~75% Yamnaya steppe ancestry. The Indo-European languages (Latin, Greek, Sanskrit, Persian) are all siblings descended from Yamnaya Proto-Indo-European languages.
+By 2800–2600 BCE, the Yamnaya had moved eastward into the region of the Poltavka culture, carrying the R1a-Z93 subtype. This subtype is common in South Asia today. The same R1a-Z93 lineage appears in the Fatyanovo culture (third millennium BCE) in the Yaroslavl region of Russia. The western branch was Corded Ware culture (c. 3000–2350 BCE) who emerged in Central Europe (modern Germany, Poland, Czechia) as a result of a massive Yamnaya migration westward. Genetically, Corded Ware populations are ~75% Yamnaya steppe ancestry. The Indo-European languages (Latin, Greek, Sanskrit, Persian) are all siblings descended from Yamnaya Proto-Indo-European languages. This is the genetic signature of the Dragon Kings. They originated on the steppe, they conquered Europe and Asia, and they established a global ruling caste that lasted for millennia.
 
 The Aryans were the broader confederation of Indo-Iranian clans—the horse-riding, chariot-using pastoralists who spread from the Pontic-Caspian Steppe into Europe, Anatolia, and South Asia. They were the ethnic and linguistic foundation of the ancient world. The Asii were the ruling caste. Roman historian Justin in 'Liber Historiarum Philippicarum' makes this explicit: "The Asii were the reges—the kings—of the Tochari. The Tochari and Sakaraucae were Aryan/Iranian peoples. The Asii ruled them".
 
@@ -328,7 +328,7 @@ The oldest attestations of the title "As" can be traced back to the Sumerian civ
 
 **The Dragon Cult**
 
-The serpent (Azhi in Avestan) was the Asii symbol of wisdom, metallurgy, and royal power. All ancient Mediterranean religions derive from the serpent-dragon cult. See: Papaios and the Snake-Legged Goddess (Scythian) = Nehebkau, Uraeus, and Apep/Apophis (Egypt) = Ningishzida (Sumerian) = Tiamat and Mušḫuššu who was associated with Marduk (Babylonian) = Aži Dahāka (Zoroastrianism) later syncretized with Mithra = Ophion, Agathodaemon, Typhon, and Delphi's Pythoness priestess (Greek) = Nāgendra and Nāga (Vedic), Nehushtan/serpent staff of Moses, the Dacian and Roman Draco standards, the serpent-worshipping Essenes and Gnostics, Sebazi (Phrygian/Bulgarian), Jörmungandr (Norse), Ouroboros serpent in Freemasonry, etc. The Knights Templar knew the truth. The Templars worshipped Baphomet—a Sarmatian dragon deity (Aži Dahāka).
+The serpent (Azhi in Avestan) was the Asii symbol of wisdom, metallurgy, and royal power. All ancient Eurasian religions derive from the serpent-dragon cult. See: Papaios and the Snake-Legged Goddess (Scythian) = Nehebkau, Uraeus, and Apep/Apophis (Egypt) = Ningishzida (Sumerian) = Tiamat and Mušḫuššu who was associated with Marduk (Babylonian) = Aži Dahāka (Zoroastrianism) later syncretized with Mithra = Ophion, Agathodaemon, Typhon, and Delphi's Pythoness priestess (Greek) = Nāgendra and Nāga (Vedic), in Mesopotamia, the Dragon (ušumgal) was the symbol of the king's power, Nehushtan/serpent staff of Moses, the Dacian and Roman Draco standards, the serpent-worshipping Essenes and Gnostics, Sebazi (Phrygian/Bulgarian), Jörmungandr (Norse), Ouroboros serpent in Freemasonry, etc. The Knights Templar knew the truth. The Templars worshipped Baphomet—a Sarmatian dragon deity (Aži Dahāka).
 
 The name "Scythian" itself decodes as "Scyth" = "Sak" = "Saka" which is related to the word for "serpent" in many Indo-European languages. The Scythians were known as the "Saka" to the Persians, and this term is linked to the Sanskrit "Sarp" (serpent). Thus, the Scythians were the "Serpent People". Sauromatians = "Saur" = "Snake/Dragon" + "Matae" = "Men/Warriors" - where the Sumerian "sar" (king) comes from. The Scythicon (snake-venom poison/antidote) was the Asii medical technology, later known as Mithridatium—the potion that conferred ritual invincibility.
 
@@ -458,6 +458,8 @@ Aryan horse lords in Syria. Their ruling class has pure Vedic (Aryan) names: Mit
 
 Assyria and Mitanni occupied overlapping territory. Assyria came first and then was dominated by the Mitanni. The Assyrians were for a period vassals of the Mitanni kings, who had Aryan names and worshipped Vedic deities. Assyria then regained its independence under the Assyrian king Ashur-uballit I, around 1365–1330 BCE.
 
+The deity Assara Mazas is recorded in an inscription of the Assyrian king Assurbanipal. This is the first attested form of the Persian deity Ahura Mazda which proves that Ahura is the Iranian pronunciation of As-Sara ("Lord-King").
+
 ---
 
 ### PHASE 3: The Great Upheaval & Reorganization (c. 1600 – 339 BCE)
@@ -555,6 +557,10 @@ The Arsacid dynasty of Parthia was not a separate Iranian empire. It was the eas
 
 Babylonian documents refer to them as Arshaka = "The Scythian King". The Parthian king title Phraates ("divine glory, royal radiance") is the same title as Persian Pharnabazus and Pharnaces (Pharnaces II) in Pontus. These names all contain the root Pharna-/Phraa-, which is a Greek rendering of the Iranian farnah- which becomes Egyptian Pharaoh.
 
+**c. 281 BCE–63 CE: The Mithridatic Dynasty**
+
+The Mithridatic dynasty of Pontus was the direct continuation of the Dragon King bloodline. Mithridates VI Eupator (c. 120–63 BCE) was the Dragon King who fought Rome in three wars. He was also Ptolemy XII Auletes (Egypt), Mark Antony (Rome), King Herod (Judea), Ariarathes IX (Cappadocia), and Simon Boethus (High Priest of the Sabazios cult).
+
 **c. 200 BCE–50 CE: The Dacian/Thracian Garrison**
 
 The Thracians/Dacians (Getae = Goth = Jat = Scythian) become the Asii power center for Southeastern Europe. Their Draco standard = wolf-headed serpent = Asii royal and religious symbol.
@@ -566,10 +572,6 @@ The Latin originates in Dacia—the administrative language of the Asii Scythian
 Bosporan and Dacian kingdoms control the Danube Delta and Bosporus Strait—the chokepoints of Eurasian trade.
 
 The Dacian gold mines (100 BC – 100 AD) funded the "Roman" Empire. Asander, King of Bosporus (Julius Caesar), was the richest man in the world.
-
-**c. 281 BCE–63 CE: The Mithridatic Dynasty**
-
-The Mithridatic dynasty of Pontus was the direct continuation of the Dragon King bloodline. Mithridates VI Eupator (c. 120–63 BCE) was the Dragon King who fought Rome in three wars. He was also Ptolemy XII Auletes (Egypt), Mark Antony (Rome), King Herod (Judea), Ariarathes IX (Cappadocia), and Simon Boethus (High Priest of the Sabazios cult).
 
 **c. 110 BCE–17 BCE: Asander/Julius Caesar**
 
@@ -717,9 +719,11 @@ Fig. 1.13. L. Polemon II, king of Bosphorus. R. Emperor Titus.
 
 ---
 
-## Chapter 7: Ancient Alias Names List**
+## Chapter 7: Ancient Alias Names List
 
 The Asii/Aryan elite governed a transregional aristocratic network that reused titulature, divine archetypes, and dynastic names to project localized legitimacy. They role-played as deities, religious figures, and various characters as if they were actors in a play. This was done partially for obscuration, but also because people wouldn’t accept foreign kings or kings with foreign names, and also, for theological requirements: a god-king had to manifest in different regions according to local religious expectations. However, as their names were mostly job titles, an etymology across languages (Latin, Greek, “Old Persian,” Sanskrit, Aramaic) reveals a unified administrative lexicon, and you can also identify their aliases through spouses.
+
+Kings were not individuals. They were offices. In Sumer, the King List records kings who ruled for thousands of years. This is not a mistake—it is a theological statement. The king was not a man; he was a divine office, and the same office could be occupied by different men over time.
 
 For example, Asander/Julius Caesar had at least a dozen names, titles, and localized aliases that history considers to be different people, but these were avatars that he held in different locations and his title would change as his rank or regional assignment changed. They would do a ritual death of their avatar as their assignment changed—it was a legal and administrative protocol encoded in theology. When an Asii king's administrative position ended (or when he transferred to a new region), the local identity was ritually executed to satisfy the laws of that satrapy, while the living king continued under a new avatar in a different administrative theater. This is the resurrection motif.
 
@@ -1140,7 +1144,7 @@ The Flavians didn't just remake their main enemy's cult; they rewrote history, i
 
 - **Caesar:** Core root is AS/AZ/AŠ. Its primary zoomorphic association is with the Serpent/Dragon (Aži, Azhi, Aži Dahāka). Azi-Sar - Dragon King. The Egyptian expression was Asar (Wsir/Osiris). "Asar" was another name for Osiris. "Ra" was the Egyptian deity of the Sun (Asar-Ra). Sar means king in Scythian. This title connects to "Asar-Hapi" (Osiris-Apis), another name for the Graeco-Egyptian god Serapis (Serapis = Sabazios (Osiris + Apis or Šar Apsi - King Apsu = Enki-Ea)). The Etruscan-Mediterranean expression was "Aesar" (also spelled "Aeser" or "Aisar"). The Greek language adds a "K" to foreign words, so Aesar -> Greek Kaesar. Connected to the Scytho-Hurrian expression Kur-Sar (Sun King), Phoenician "Kosar" (sun god), Assyrian "Aššur" (god), Germanic Æsir (the Norse gods, like Odin), Sanskrit Kesari (lion), Persian Kesar (king), Scythian "As" (lord) and Scythian Sar (king), Kšar (from the Old Persian Xšaya = king), and also Cyrus the Great's title (Kuruš (Cyrus) = Khur (Sun) + -uš (lord)). "Caesar" = "Asander" = "Kesari" = "Xerxes" -> Xšathra-sar -> Khassar -> Khazar. Also, Caesar is at the root of the title "Khan" (Aesar -> Aesar -> A'sar -> Ha'sar -> Kha'sar -> Khan). "Genghis" is "Janus". This proves that Genghis Khan was not a Mongol upstart. He was a later avatar of the Dragon King title, consciously restoring the global hegemony from its Central Asian core. The Mongol court called itself the "Great Yuan" (Great Ion/Janus)
 
-- **Christ:** Satrap kings were called Xšaθra (Scythian "power, dominion"). This becomes Old Persian xšaçapāvan ("satrap") = xšaça (realm) + pāvan (protector), Avestan xšaθra = "power, dominion, rule", Sanskrit kṣatra = "rule, dominion, power", Greek Christos (Χριστός) = "anointed one". The chain: Xšaθra (Avestan) → Xšaçapāvan (Old Persian, satrap) → Khasut (Egyptian, Hyksos) → Kshatriya (Sanskrit, warrior-king) → Christos (Greek, anointed one). Christ is identical to the title Soter. Several historical figures were Christs/Soters. In Isaiah 45:1 the jews called Cyrus the Great "The Anointed One". Alexander the Great was also a Chréstos/Soter (Josephus. Antiquities, XI. 8. Talmud, Yoma 67b). Up until the First Council of Nicaea the title "Christ", or "Christian", referred to the Serapis Cult ("those who worship Serapis are, in fact, Christians, and those who call themselves bishops of Christ are, in fact, devotees of Serapis.". Source: The Letter of Hadrian to Servianus).
+- **Christ:** Satrap kings were called Xšaθra (Scythian "power, dominion"). This becomes Old Persian xšaçapāvan ("satrap") = xšaça (realm) + pāvan (protector), Avestan xšaθra = "power, dominion, rule", Sanskrit kṣatra = "rule, dominion, power", Greek Christos (Χριστός) = "anointed one". The chain: Xšaθra (Avestan) → Xšaçapāvan (Old Persian, satrap) → Khasut (Egyptian, Hyksos) → Kshatriya (Sanskrit, warrior-king) → Christos (Greek, anointed one). Christ meant regional administrator. The title "Son of God" was a standard royal title that was applied to the heir apparent/crown prince: Kushan (Devaputra), Tocharian (Ñäktemts), Bactrian (Bagopouro), Chinese (T'ien-tzu), Emperor Augustus, etc.
 
 - **Cotys:** In Thracian, "Cotys" is related to the word "kotys", a title meaning "lord". In the Celtic languages the word "cottos" or "cottius" means "chieftain".
 
@@ -1473,7 +1477,7 @@ The Jurchens who founded the Jin dynasty deliberately chose the title "Golden" t
 
 Then the Mongols, under Genghis Khan, utterly destroyed the Jin dynasty. The siege of Kaifeng in 1233 CE resulted in the massacre of over 1 million Jurchens. The Mongols did not stop at the Jurchens; they systematically purged the remaining Sogdian, Tocharian, and Persian populations of Central Asia and northern China.
 
-The twist is that Genghis Khan is a Dragon King avatar. His name decodes to Genghis= Janis the Roman deiy, and Khan = Dragon King title (Ka-Sar → Khasar → Khazar → Khan). The Mongol court called itself the “Great Yuan” (Great Ion/Janus). Yet he destroyed the last Aryan remnants in China.
+The twist is that Genghis Khan is a Dragon King avatar. His name decodes to Genghis= Janis the Roman deity, and Khan = Dragon King title (Ka-Sar → Khasar → Khazar → Khan). The Mongol court called itself the “Great Yuan” (Great Ion/Janus). Yet he destroyed the last Aryan remnants in China.
 
 ---
 
@@ -1489,7 +1493,7 @@ Thus, this was a dynastic title and Andragoras (Seleucid satrap) (https://en.wik
 
 ![Fig.1.66](/images/KanitesAndragorasSeleukosI.jpg){:width="400px"}
 
-Fig. 1.66. L. Seleukos I, son of  Seleucus I Nicator. M. Andragoras, Iranian satrap of the Seleucid provinces of Parthia and Hyrcania. R. Kanites, king of Scythia. The name Seleukos has been interpreted as deriving from Selene, the Greek goddess of the moon. This is a direct connection to the Yuezhi—the "Moon Clan"—who were the eastern branch of the Asii Dragon Kings.
+Fig. 1.66. L. Seleukos I, son of  Seleucus I Nicator. M. Andragoras, Iranian satrap of the Seleucid provinces of Parthia and Hyrcania. R. Kanites, king of Scythia.
 
 The name "Narisanka" is given as an alternate name for Andragoras. This is intriguing because it could be an Iranian translation of an Indian title like Narendra-simha (Lion-King). This itself is derived from the Avestan Nairyosangha, which means "man of words" and refers to a divine messenger of Ahura Mazda.
 
@@ -1832,6 +1836,8 @@ Endnotes (Chapter 24.3)
 ---
 
 # Conclusion
+
+The truth is that history is a weapon. The victors write the history, and they write it to serve their own purposes.
 
 There was never a "Roman Empire," a "Persian Empire," and an "Indian Empire". There was only the Dragon Empire, stretching from the Atlantic to the Pacific, whose king carried the title "The Great King of Kings, Lord of the Four Quarters, the Serpent of Wisdom, the Sun of the Earth". His name was Sar in Akkad. His name was Asar in Egypt. His name was Mithridates in Pontus. His name was Caesar in Rome. His name was Alexander in Greece. His name was Azes in India. His name was Kanishka in Kushan. His name was Khan in the Steppe.
 
