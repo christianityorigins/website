@@ -50,21 +50,20 @@ Published by Heretical Books
 **Chapter 6: The Imperial Avatar System: Numismatic Proof and Aliases**
 - 6.1 The Numismatic Key: Coins of a Global Empire
 
-**Chapter 7: The Later Dragon Bloodline Descendants**
-- 7.1 Ancient Alias Names List
-- 7.2 Ptolemy XII Auletes aka Mark Antony aka Mithridates VI Eupator
-- 7.3 Julius Caesar aka Asander, King of Bosphorus aka Mithridates Chrestus
+**Chapter 7: Ancient Alias Names List**
+- 7.1 Ptolemy XII Auletes aka Mark Antony aka Mithridates VI Eupator
+- 7.2 Julius Caesar aka Asander, King of Bosphorus aka Mithridates Chrestus
 - 7.3.1 Julius Caesar was a Title
-- 7.3.2 Julius Caesar aka Asander's Suspected Aliases
-- 7.4 Cleopatra VII aka Dynamis Ourania aka Pythodorida Philometor
-- 7.5 Ptolemy XIII Theos Philopator aka Gaius Octavius (Emperor Augustus) aka Rhoemetalces I
-- 7.6 Ptolemy XIV Philopator aka Amyntas Nikator aka Amyntas, King of Galatia
-- 7.6.1 Was Amyntas Nikator aka Amyntas, King of Galatia the Living Esus?
-- 7.7 Alexander, son of King Herod aka Alexander Helios aka Juba II
-- 7.8 The Successor Generations
-- 7.9 Izates II, King of Adiabene
-- 7.10 Tiberius Julius Sauromates II
-- 7.11 Simon Bar Kokhba
+- 7.2.2 Julius Caesar aka Asander's Suspected Aliases
+- 7.3 Cleopatra VII aka Dynamis Ourania aka Pythodorida Philometor
+- 7.4 Ptolemy XIII Theos Philopator aka Gaius Octavius (Emperor Augustus) aka Rhoemetalces I
+- 7.5 Ptolemy XIV Philopator aka Amyntas Nikator aka Amyntas, King of Galatia
+- 7.5.1 Was Amyntas Nikator aka Amyntas, King of Galatia the Living Esus?
+- 7.6 Alexander, son of King Herod aka Alexander Helios aka Juba II
+- 7.7 The Successor Generations
+- 7.8 Izates II, King of Adiabene
+- 7.9 Tiberius Julius Sauromates II
+- 7.10 Simon Bar Kokhba
 
 **Chapter 8: Roman and Biblical Name and Title Decodings**
 
@@ -537,7 +536,7 @@ Fig. 1.2. Coin of Skyles, a Scythian king who reigned from ca 470-460 BC display
 
 **c. 323–281 BCE: The Diadochi**
 
-Alexander's main successors were four branches of a single Scythian-Sarmatian dynasty—a "Tetrarchy" administering different sectors of the empire from the Bosphoran center: Seleucus I Nicator (east), Diodotus I Soter (Bactria/India), Philetaerus (Pergamon), and Ptolemy I Soter (Egypt).
+Alexander's main successors were four branches of a single Scythian-Sarmatian dynasty—a "Tetrarchy" administering different sectors of the empire from the Bosphoran center: Seleucus I Nicator (east), Diodotus I Soter (Bactria/India under the alias Ashoka the Great), Philetaerus (Pergamon), and Ptolemy I Soter (Egypt).
 
 **c. 247 BCE – 224 CE: The Parthian Arsacid Dynasty**
 
@@ -575,7 +574,21 @@ The Flavians rewrote history to erase the Scythian origins of ancient civilizati
 
 **c. 132–136 CE: The Bar Kokhba Revolt**
 
-The Bar Kokhba Revolt was not a Jewish revolt—it was a R1a Scythian counter-revolt against the J1/J2 Flavian collaborators. The leader, Simon bar Kokhba ("Son of the Star"), was a R1a Scythian prince—his coins bear the star and crescent. He was likely Tiberius Julius Sauromates II or his son. The R1a Levites were decimated, while the J1 Cohanim survived. This is why the Cohanim today are J1 and the Levites are R1a.
+The Bar Kokhba Revolt was not a Jewish revolt – it was a R1a Scythian counter-revolt against the J1/J2 Flavian collaborators. The leader, Simon bar Kokhba (“Son of the Star”), was a R1a Scythian prince – his coins bear the star and crescent. The R1a Levites were decimated, while the J1 Cohanim survived. Hadrian’s decimation of the Jewish population was selective. He targeted the R1a Levites (the rebel warriors) but spared the J1 Cohanim (the collaborators). This is why the Cohanim today are J1 and the Levites are R1a – the Levites were nearly wiped out, while the Cohanim flourished under Roman protection.
+
+**c. 434-453 CE: Attila the Hun**
+
+Attila was the title of the last legitimate Bosporan Emperor attempting to reclaim the Western administration from the J2/J1 papal-financier class. 
+
+The name Attila is a diminutive of Ata (Scythian “Forefather”), the same root as Ateas and Adam. It means “Little Father” or “Son of the Dragon”. His brother’s name, Bleda, is a corruption of Bleda/Belisarius, linking to the Bel/Baal priestly title. 
+
+The legend that Attila received the “Sword of Mars” (the Sword of the War God) is a corrupted memory of the Scythian Akinakes, the sacred iron sword that the Scythians worshipped as the embodiment of Ares/Targitaos. Attila did not seek to destroy Rome. He sought to reintegrate the Western garrison into the Eastern (Constantinopolitan/Bosporan) fold and to purge the J2/J1 Levantine financial administration that had usurped control of the Gallic and Italian mints. 
+
+Attila the Hun was the same person as Priscus Attalus (Roman usurper) who was born in the Roman province of Asia.
+
+When the Vatican tried marrying princess Justa Grata Honoria to Bassus Herculanus, she refused, then sent her ring to Attila and proposed marriage. This was the Dragon princess who carried the R1b-V88/R1a-Z93 genetic memory of the old Western Sarmatian nobility refusing an arraigned marriage and instead choosing the last legitimate Dragon King.
+
+The Church invented Pope Leo I “miraculously” turning him back. In reality, a treaty was signed recognizing Attila’s suzerainty, followed by a biological weapon attack—the same Yersinia pestis vector used later by Justinian—released in his camp, causing his “nosebleed death” (hemorrhagic plague). This allowed the J2/J1 faction in Constantinople (the Papal States’ silent partners) to claim a divine victory. The Vatican then turned him into a foreign monster, instead of a Dragon King.
 
 ---
 
@@ -583,11 +596,9 @@ The Bar Kokhba Revolt was not a Jewish revolt—it was a R1a Scythian counter-re
 
 ## Chapter 5: Rome On the Bosphorus River
 
-Much of the history of the Western Roman Empire was conjured up by the Flavians, Church Fathers, Jesuits, Poggio Bracciolini, and medieval forgers, either to retrofit history to align with the Bible, due to conflicts between the Vatican and the Eastern Byzantine Church, or for profit.
+Much of the history of the Western Roman Empire was conjured up by the Flavians, Vatican, and the Jesuits either to retrofit history to align with the Bible, due to conflicts between the Vatican and the Eastern Byzantine Church, or for profit.
 
-The core of the Bosporan Kingdom was the Cimmerian Bosporus, the modern Kerch Strait connecting the Black Sea and the Sea of Azov. The people of this region were known as the Romi or Romei. In Greek, the word "Romi" meant "fortress". This suggests that "Rome" was not a proper name for a city, but a title meaning "fortress," which could be applied to multiple places. The inhabitants of the Bosporan city of Romi called themselves Romei (or Urumi) and considered their city to simply be Romi.
-
-The root of Rome is not Latin. It is the Greek letter Rho (Ῥ), often used to transcribe foreign "R-" sounds, particularly from Iranian/Scythian languages. "Ruma" (Rome) = "Place of the Dragon". This is seen in the Rha (Volga) river which was seen as a great serpent of the earth to the Scythians.
+'Ῥούμα (Rhouma) is a documented district in Crimea during the Byzantine period. This is not a coincidence. This is the core toponym. The root of Rome is not Latin. It is the Greek letter Rho (Ῥ), often used to transcribe foreign "R-" sounds, particularly from Iranian/Scythian languages. "Ruma" (Rome) = "Place of the Dragon". This is seen in the Rha (Volga) river which was seen as a great serpent of the earth to the Scythians.
 
 Rhouma in Crimea was the original power center. Rome on the Tiber in Italy was a Western military-administrative garrison named after the core. Then the Roman (Constantinople-on-the-Bosporus), centered on Constantinople/Bosporus river in modern-day Istanbul, was the "third Rome" (Basileía Rhōmaíōn).
 
@@ -665,15 +676,7 @@ Fig. 1.13. L. Polemon II, king of Bosphorus. R. Emperor Titus.
 
 ---
 
-## Chapter 7: The Later Dragon Bloodline Descendants
-
-Alexander the Great's main successors ("Diadochi") were Seleucus I Nicator who controlled a large chunk of the eastern territories including Mesopotamia and Persia, Diodotus I Soter who controlled Bactria (possibly also India under the alias Ashoka the Great), Philetaerus who controlled the Attalid dynasty of Pergamon in Anatolia, and Ptolemy I Soter who controlled Egypt. Mainstream history presents the Ptolemies, Seleucids, Attalids, and Romans as separate, often warring entities. This is a Flavian-Vatican fabrication. In reality, they were four branches of a single Scythian-Sarmatian dynasty, a "Tetrarchy", administering different sectors of the empire from the Bosphoran center and they governed a transregional aristocratic network by reusing titulature, divine archetypes, and dynastic names to project localized legitimacy. They role-played as deities, religious figures, and various characters as if they were actors in a play. This was done partially for obscuration, but also because people wouldn't accept foreign kings or kings with foreign names, and also, for theological requirements: a god-king had to manifest in different regions according to local religious expectations. However, as their names were mostly job titles an etymology across languages (Latin, Greek, "Old Persian," Sanskrit, Aramaic) reveals a unified administrative lexicon, and you can also identify their aliases through spouses.
-
-The genealogical evidence proves that the Mithridatic, Egyptian Ptolemaic, Greco-Bactrian, Pontic, Galatian Celtic, Parthian Arsacid, Attalid Pergamene, Seleucid Syrian, and Roman Julian dynasties were not separate entities. They were regional avatars of a single, interconnected Dragon King bloodline, bound together by a web of strategic intermarriage (https://fabpedigree.com/s022/f354524.htm). The Attalids and Seleucids had begun intermarrying early in the 3rd century BC, creating a web that stretched from the Aegean to the Black Sea.
-
-The later dragon bloodline is not a linear family but a transregional office succession: from Ateas the Scythian through Alexander and the Diadochi, into the Ptolemaic-Mithridatic-Bosporan-Julian intermarriage web, then through Izates Monobazus, the Flavian inversion, culminating with Attila — one Asii-Sabazios-Serapis kingship maintained across centuries and continents under many regional names.
-
-**7.1 Ancient Alias Names List**
+## Chapter 7: Ancient Alias Names List**
 
 The Asii/Aryan elite governed a transregional aristocratic network that reused titulature, divine archetypes, and dynastic names to project localized legitimacy. They role-played as deities, religious figures, and various characters as if they were actors in a play. This was done partially for obscuration, but also because people wouldn’t accept foreign kings or kings with foreign names, and also, for theological requirements: a god-king had to manifest in different regions according to local religious expectations. However, as their names were mostly job titles, an etymology across languages (Latin, Greek, “Old Persian,” Sanskrit, Aramaic) reveals a unified administrative lexicon, and you can also identify their aliases through spouses.
 
@@ -732,7 +735,7 @@ V. Speculative
 
 -  Pythagoras: "Pythagoras" = "Pythodorida" = "Python-Priestess". Pythagoras was not a man—he was a title held by the high priest/ess of the Delphic/Alexandrian serpent cult, possibly Cleopatra herself under a male avatar. The high priestess of the Temple of Apollo at Delphi was called Pythia [^4] who breathed serpent vapors (ethylene gas). Greek writers regarded the Hyperboreans as the mythical founders of Apollo's shrines at Delos and Delphi [^5]. The name "Pythagoras" is derived from the Greek words "Pythios" (Πύθιος), meaning "of Pythia" or "belonging to the Pythia ("Pythoness"), and "Agoras" is a direct linguistic link to "Agaroi", the name of the Scythian snake-venom priesthood.
 
-### 7.2 Ptolemy XII Auletes aka Mark Antony aka Mithridates VI Eupator
+### 7.1 Ptolemy XII Auletes aka Mark Antony aka Mithridates VI Eupator
 
 The throne name of Ptolemy Philometer was Ir-maat-en-amun-re. This would strengthen the word play between the names Philo-meter, Mithra-dates, and Matthath-ius. (The Egyptian Maat-en transliterates to the Hebrew Mattan/Mattath and the name "metor" transliterates into Parthian Mithra). Philometer then corresponds to Mithradates of Parthia and Mattathius the Hasmonean. (Mattath is the Hebrew feminine form of Mattan).
 
@@ -778,7 +781,7 @@ Fig. 1.39. Coin depicting Pharnaces II ("Pharao-Nikes", or "Victorious Pharaoh")
 
 Fig. 1.40. Coin depicting Ptolemy Apion, king of Kyrene, Kyrenaica, North Africa.
 
-### 7.3 Julius Caesar aka Asander, King of Bosphorus aka Mithridates Chrestus
+### 7.2 Julius Caesar aka Asander, King of Bosphorus aka Mithridates Chrestus
 
 There was a Bosphoran [^13] imperial cult where Julius Caesar [^14] took on the role of Asander (also Asandros), King of Bosphorus [^15]. Asander = Aesar‑ander (divine man) or Asa‑ander (lord‑man). "Asa" = Asar (Egyptian Osiris), Aesir (Norse gods), Asa (Thracian lord), Asura (Sanskrit "lord", later demonized by Brahmin rivals). Caesar = Aesar with Greek k‑ prefix (k‑aisar). Asa also means "lord" in Scythian/Thracian and serpent in Scythian (Scythian Assaioi: As-saioi = As is Scythian for "Serpent Lord", and Sai refers to clan/tribe. Sar means king in Scythian, and "andros" means "man" or "son of man" in Greek. Jesus is referred to as "the son of man" 81 times in the four canonical gospels). Asandros can also be interpreted as either "Dragon Man" (the same as Aži-ander, or Alexander), or "son of the lord", or "son of Asa, the lord", or "Lord King". The Thracian version of Zeus was Asa. Asandros can also possibly translate to either "son of god", or "son of Lord Aesar/Asar (Osiris)".
 
@@ -796,11 +799,11 @@ He was also Mithridates Chrestus who was the brother of Mithridates VI Eupator. 
 
 One of the main conspirators in the assassination of Julius Caesar was named Gaius Trebonius. In the Bosporus, the historical record states that around 17 BCE, a usurper named Scribonius appeared, claiming to be a relative of Asander's wife, Dynamis. He seizes power and Asander, in despair, commits suicide. "Trebonius" and "Scribonius" are linguistically congruent. This is obviously a literary trope, or imperial fiction.
 
-**Endnotes (Chapter 7.3)**
+**Endnotes (Chapter 7.2)**
 
 (a) The Tibetan epic hero Gesar of gLing is explicitly called "Dru gu Gesar" —"Turk Caesar". This is not a coincidence. The Tibetan tradition, far from the reach of Roman propaganda, preserved the understanding that the title "Gesar/Kesar" was the royal title of the Turks—the very people who were the Scythian Dragon Kings.
 
-#### 7.3.1 Julius Caesar was a Title
+#### 7.2.1 Julius Caesar was a Title
 
 Identifying Julius Caesar as Asander of Bosphorus necessitates a re-examination of his name.
 
@@ -814,7 +817,7 @@ The Egyptian name "Asar" was another name for Osiris. "Ra" was the Egyptian deit
 
 Russian historian and mathematician Anatoly Fomenko wrote several books where he claimed that the city of Yoros = Jerusalem = Troy and it was situated on the eastern, Asiatic shore of Bosphorus, closer to the Black Sea, very near to the Beykoz mountain (Golgotha).
 
-#### 7.3.2 Julius Caesar aka Asander's Suspected Aliases
+#### 7.2.2 Julius Caesar aka Asander's Suspected Aliases
 
 Asander beat Mithridates Chrestus in battle to become King of Bosphorus. After Mithridates Chrestus's loss to Asander he was imprisoned and executed by his elder brother, Mithridates VI Eupator, who had previously beat him in war.
 
@@ -872,7 +875,7 @@ Antiochus I Theos is the same as Tigranes II, king of Armenia (another Asander/J
 
 Fig. 1.30. Bust depicting Nicomedes IV Philopator King of Bithynia. The bust is also labeled Ptolemy Alexander (Ptolemy X Alexander I?), He was the brother of Socrates Chrestus.
 
-### 7.4 Cleopatra VII aka Dynamis Ourania aka Pythodorida Philometor
+### 7.3 Cleopatra VII aka Dynamis Ourania aka Pythodorida Philometor
 
 Cleopatra VII was the same person as Dynamis, Queen of the Bosporus. She was married to Asander and their two sons are listed as: Tiberius Julius Aspurgus and Tiberius Julius Alexander (https://en.rodovid.org/wk/Person:401227)
 
@@ -890,7 +893,7 @@ Mithridates VI Eupator beat his brother Mithridates Chrestus in war to become ki
 
 Mithridates VI, king of Pontus, was the father of both Pharnaces II and Dynamis (Cleopatra). Pharnaces II was Ptolemy XIV who was Cleopatra's brother-husband.
 
-### 7.5 Ptolemy XIII Theos Philopator aka Gaius Octavius (Emperor Augustus) aka Rhoemetalces I
+### 7.4 Ptolemy XIII Theos Philopator aka Gaius Octavius (Emperor Augustus) aka Rhoemetalces I
 
 ![Fig.1.41](/images/RhoemetalcesAugustusPolemon.jpg){:width="400px"}
 
@@ -918,7 +921,7 @@ Fig. 1.43. He was likely also Herod Philip son of King Herod (Ptolemy XII Aulete
 
 Sabazios was Serapis (Serapis = Sabazios (Osiris + Apis or Šar Apsi - King Apsu = Enki-Ea)). The Sabazios cult was the Serapis cult targeted at the Thracians.
 
-### 7.6 Ptolemy XIV Philopator aka Amyntas Nikator aka Amyntas, King of Galatia
+### 7.5 Ptolemy XIV Philopator aka Amyntas Nikator aka Amyntas, King of Galatia
 
 Amyntas Nikator (Latin Invictus which links him to Sol Invictus) aka Amyntas of Galatia [^21] aka Jesus ben Fabus aka Isa-Amen (Jesus was named "Amen" in Rev. iii. 14 and Amen links to Egypt through the name of the pharaoh Amenhotep and the Egyptian god Amun (the "Hidden One")). Amyntas's father was not Bogitarus. That is a later, localized alias. His true father was Mithridates VI Eupator of Pontus (aka Ptolemy XII Auletes/Mark Antony/Herod). Mithridates VI Eupator's father was Mithridates V Euergetes. Mithridates V Euergetes's father was Pharnaces I of Pontus. Pharnaces I's brother was none other than... Amyntas of Pontus. The name "Amyntas" is a family heirloom, used for a brother of the king. For "Mithridates VI" to have a son named "Amyntas" is perfectly consistent with dynastic naming patterns. He was not the son of a minor chieftain; he was a scion of the primary Dragon Bloodline. His brother and heir to the dragon throne was Ptolemy XIII Theos Philopator aka Gaius Octavius (Emperor Augustus) aka Rhoemetalces I.
 
@@ -946,7 +949,7 @@ His palace at Isauria refers to Isis (also known as Isa or Aset) who was the mot
 
 Galatia = Galilee: The names are linguistically identical. "Galatia" is the Greek form of "Galilee." His kingdom was the biblical "Galilee".
 
-#### 7.6.1 Was Amyntas Nikator aka Amyntas, King of Galatia the Living Esus?
+#### 7.5.1 Was Amyntas Nikator aka Amyntas, King of Galatia the Living Esus?
 
 The Celts in classical Galatia worshiped a deity called Aesus/Esus/Iesus. Amyntas, as the god king of Galatia would have been the personification of Esus. "Esus" from "Aisus (Thracian Jove-variant). Esus is the Celtic pronunciation of Aisus. The Scythian root is Aes-, the same as the Aesir and Aesar. "Iesus" is the Latin rendering of "Esus." There was no "J" sound. He was always called Ie-Sus (Yay-soos), "The Esus."
 
@@ -960,7 +963,7 @@ Like Serapis, Esus represents a deliberate syncretism—in this case, merging th
 
 The "Esumopas Cnusticus" inscription proves this was a state-sponsored imperial cult, not organic Celtic religion. The original Esus was a warrior. The new, syncretic "Esus Christos" was a god who was crucified on a T-shaped tree (a clear parallel to the Tau cross). The message to the fierce Galatian Celts was: "Your god is not a warrior, but a sacrificial victim. True strength is in submission, sacrifice, obedience, and turning the other cheek".
 
-### 7.7 Alexander, son of King Herod aka Alexander Helios aka Juba II
+### 7.6 Alexander, son of King Herod aka Alexander Helios aka Juba II
 
 Cleopatra aka Dynamis's son with her father Mark Antony [^22] (aka Ptolemy XII Auletes aka Polemon Pythodoros, King of Pontus, prince of Pontus aka King Herod aka Tiberius Claudius Nero aka Phraates IV of Parthia) was Alexander Helios aka Alexander (son of King Herod) aka Juba II who was married to his twin sister Cleopatra Selene II aka Queen Thea Muse Ourania. Juba II of Mauritania's full name was Gaius Iulius Iuba, prenomen and nomen after his adopted father Gaius Iulius Caesar, and 'Iuba' is likely a diminutive of 'Iehuva' which traces to Jove/Jupiter. He was the claimed royal heir of the Massylii tribe, which is the 'Messiah' lineage from David's firstborn son with Saul's daughter Michal (one way to prove that Mark Antony was also King Herod is through the equivalence of Alexander Helios aka Alexander (son of King Herod) aka Juba II).
 
@@ -988,7 +991,7 @@ I identify Cleopatra's brother-husband Ptolemy XIII Theos Philopator as Gaius Oc
 
 Was he also Jesus ben Panthera? "Panthera" is a Hellenized corruption of "Ptolemaios" (Ptolem -> Ptol -> Panther). "Jesus, son of Ptolemy". The Talmud (Bereshit Rabbah 46:10) calls Izates and Monobazus the "Sons of Ptolemy".
 
-### 7.8 The Successor Generations
+### 7.7 The Successor Generations
 
 Cleopatra aka Dynamis's son with Mark Antony = Ptolemy Philadelphus who was Sampsiceramus I?
 
@@ -1000,7 +1003,7 @@ Cleopatra aka Dynamis's grandson with Mark Antony = Alexander (grandson of King 
 
 Fig. 1.48. (L) Alexander (grandson of King Herod) aka Gaius Julius Alexander, Herodian Prince of Judaea aka Alexander the Alabarch aka (King/Tetrarch) Ptolemy (Alexander) bar Menneus aka Ptolemy of Mauretania aka "Jesus" in the Bible. (R) Cleopatra (Thea Philopator) of Mauretania aka Cleopatra IX aka Pythodorida Philometor aka Helene aka Drusilla of Mauretania aka Julia Ourania of Parthia aka Alexandra bat Mattathias (Matityahu is the Hebrew form of Mattathias, which itself is a variant of Mithridates ("Given by Mithra")) aka "Philo of Alexandria".
 
-### 7.9 Izates II, King of Adiabene
+### 7.8 Izates II, King of Adiabene
 
 Alexander (grandson of King Herod) and his sister-wife Cleopatra (Thea Philopator) of Mauretania had two sons: Tiberius Julius Alexander aka Arrius Calpurnius Piso aka Arrius Varus aka Tiberius Julius Cotys (In Thracian, 'Cotys' is related to the word 'kotys' which is a title that means 'lord') aka Emperor Nerva, and Marcus Julius Alexander aka Yeshua Cleopatros (Cantheras/Panthera) ben Josephus bar Menneus aka Ma'nu of Adiabene/Edessa aka Ptolemy aka Yakov Zu Tolomoy aka Izates aka Jesus Emmanuel aka Monobazus of Adiabene [^23]
 
@@ -1012,7 +1015,7 @@ Fig. 1.49. 'Josephus' bust which I identify as Tiberius Julius Alexander. Compar
 
 Fig. 1.50. (L) and (R) show King Izates Monobazus of Edessa (known in Greek as the "Kingdom of Ourania" or in English as the "Kingdom of Heaven") wearing a crown of thorns. Izates or Izas is his title which is an ancient Greek translation of the Avestan word Yazatas (Persian: izad), meaning 'lord'. He is one of the Jesus avatars, Isa in the Quran, and Sultan Ezid in the Yazadi ('Iza'di) religion. He was the uncle of Tiberius Julius Sauromates II, King of Bosphorus. The middle image source: The Alexander Mosaic, Huqoq, Israel.
 
-### 7.10 Tiberius Julius Sauromates II
+### 7.9 Tiberius Julius Sauromates II
 
 ![Fig.1.51](/images/SauromatesII.jpg){:width="400px"}
 
@@ -1046,7 +1049,7 @@ Fig. 1.57. Was the father of Tiberius Julius Sauromates II named Tiberius Julius
 
 Fig. 1.58. Coin depicting Tiberius Julius Cotys II who was the grandfather of Tiberius Julius Sauromates II. Tiberius Julius Cotys II was the son of Tiberius Julius Sauromates I.
 
-### 7.11 Simon Bar Kokhba
+### 7.10 Simon Bar Kokhba
 
 Tiberius Julius Cotys II was the grandfather of Tiberius Julius Sauromates II. Was he also Simon bar Kokhba? Bar Kokhba means "Son of the Star". The star is the morning star (Venus), which is the symbol of the Julian house. That is the title of a Julian prince. The Star of Caesar (also Sidus Iulium, or "Julian Star") iconography is prominent in coins of Tiberius Julius Sauromates II and his son Rheskuporis V and directly links to the "Star and Crescent" symbolism on the coins of Asander/Julius Caesar and Dynamis/Cleopatra. He led the Bar Kokhba revolt (132-136 AD) against Rome. As heir to the dragon crown he would have had a claim to the emperor position.
 
@@ -1074,7 +1077,7 @@ Fig. 1.62. L. Simon Bar Kokhba coin. R. Coin of Alexander (grandson of King Hero
 
 Fig. 1.63. L. Simon Bar Kokhba coin showing a kithara (Greek musical instrument). R. Coin of Scilurus, king of Scythia also showing a kithara. The kithara also shows up on Asande's coins (https://leunumismatik.com/en/lot/24/154)
 
-**Endnotes (Chapter 7.11)**
+**Endnotes (Chapter 7.10)**
 
 (a) The morning star was Lucifer, or "lucem ferre", which means "light-bearer" or "morning star". Lucifer became a demon after Flavian and J1/J2 rabbinic revision.
 (b) Apollonius of Tyre was married to the daughter of a king of Libya ("Historia Apollonii Regis Tyri" or "The Story of Apollonius, King of Tyre"), who was Cleopatra Selene aka Drusilla (aka Cleopatra (Thea Philopator) of Mauretania aka Cleopatra IX aka Helene aka Julia Ourania of Parthia aka Philo of Alexandria. Drusilla was the wife of Azizus who was her brother Juba II (Alexander Helios aka Alexander (son of King Herod)) aka Gaius Julius Alexander, Herodian Prince of Judaea aka Alexander Lysimachus aka Alexander the Alabarch aka Tiberius Julius Alexander Major aka (King/Tetrarch) Ptolemy (Alexander) bar Menneus aka Ptolemy of Mauretania aka Phraates V (the "King of Kings") aka Monobazus I King of Adiabene). [^24] [^25] So, Alexander aka Juba II was also Apollonius of Tyre. Juba II carried the title "Rex Literatissimus" which can be translated as "Most Learned King" or "The Most Scholarly King". He was known as a philosopher. These members of this royal family liked to role-play as philosopher kings. Is Apollonius of Tyre the same person as Apollonius of Tyana? This would make Apollonius of Tyana the brother-husband of Philo of Alexandria and the father of Josephus. These three created the core of Christianity.
@@ -1429,7 +1432,7 @@ The Jurchens who founded the Jin dynasty deliberately chose the title "Golden" t
 
 Then the Mongols, under Genghis Khan, utterly destroyed the Jin dynasty. The siege of Kaifeng in 1233 CE resulted in the massacre of over 1 million Jurchens. The Mongols did not stop at the Jurchens; they systematically purged the remaining Sogdian, Tocharian, and Persian populations of Central Asia and northern China.
 
-The twist is that Genghis Khan is a Dragon King avatar. His name decodes to Genghis= Janis the Roman deiy, and Khan = Dragon King title (Ka-Sar → Khasar → Khazar → Khan), yet destroyed the Aryan remnants in China.
+The twist is that Genghis Khan is a Dragon King avatar. His name decodes to Genghis= Janis the Roman deiy, and Khan = Dragon King title (Ka-Sar → Khasar → Khazar → Khan). The Mongol court called itself the “Great Yuan” (Great Ion/Janus). Yet he destroyed the last Aryan remnants in China.
 
 ---
 
@@ -1814,20 +1817,14 @@ The Etruscans (Rasna) were not a mystery. They were the Italian satrapy administ
 *   The *Aesar*: The Etruscan word for "god," *Aesar*, is Aži-Sar. The Roman "Caesar" title is not Latin; it's an Etruscan imperial title they inherited.
 *   The Tarquin Kings: The last kings of Rome were not tyrants. They were the legitimate Etruscan (Aryan) governors. Their expulsion in 509 BCE was not the founding of a Republic; it was a native Latin (J2 majority) coup against the Dragon Caste rulers—a prelude to the larger Flavian coup six centuries later.
 
-**3. Attila the Hun**
-
-Attila the Hun = Priscus Attalus (Roman usurper). The name Attila is a diminutive of Ata (Scythian "Forefather"), the same root as Ateas and Adam. It means "Little Father" or "Son of the Dragon." His brother's name, Bleda, is a corruption of Bleda/Belisarius, linking to the Bel/Baal priestly title. Attila was the title of the last legitimate Bosporan Emperor attempting to reclaim the Western administration from the J2/J1 papal-financier class. The legend that Attila received the "Sword of Mars" (the Sword of the War God) is a corrupted memory of the Scythian Akinakes, the sacred iron sword that the Scythians worshipped as the embodiment of Ares/Targitaos. Attila was not a barbarian; he was performing the ancient steppe ritual of the Xšaθra investiture, the same ritual that consecrated Asander and Alexander. Attila did not seek to destroy Rome. He sought to reintegrate the Western garrison into the Eastern (Constantinopolitan/Bosporan) fold and to purge the J2/J1 Levantine financial administration that had usurped control of the Gallic and Italian mints. His demand for Honoria's hand in marriage was not a lust for a princess; it was a dynastic claim—Honoria (Honorius) carried the R1b-V88/R1a-Z93 genetic memory of the old Western Sarmatian nobility. The Church invented Pope Leo I "miraculously" turning him back. In reality, a treaty was signed recognizing Attila's suzerainty, followed by a biological weapon attack—the same Yersinia pestis vector used later by Justinian—released in his camp, causing his "nosebleed death" (hemorrhagic plague). This allowed the J2/J1 faction in Constantinople (the Papal States' silent partners) to claim a divine victory.
-
-Attila the Hun and Genghis Khan were likely the same person. The Vatican created phantom centuries to retrofit history to the bible and then created a composite character. Genghis Khan was a dragon king title, like . “Khan” (Aesar -> Aesar -> A’sar -> Ha’sar -> Kha’sar -> Khan). "Genghis" is “Janus”. This proves that Genghis Khan was not a Mongol upstart. He was an avatar of the Dragon King title, consciously restoring the global hegemony from its Central Asian core, exactly like Atilla (Priscus Attalus). The Mongol court called itself the “Great Yuan” (Great Ion/Janus).
-
-**4. The True Purpose of the "Viking" Age**
+**3. The True Purpose of the "Viking" Age**
 
 The Viking raids (793–1066 CE) are painted as pagan barbarism. In reality, they were the final counter-offensive of the Dragon Caste refugia against the Holy Roman Empire (the Vatican's military arm).
 *   The Drakkar: The name Drakkar is a linguistic fossil: Draco (Dragon) + Kar (Scythian/Sanskrit Kara, "Army"). It was the "Dragon Army" mobilized from the fjords—the refugia of the Gothic/Sarmatian Alans who had fled north after the fall of the Bosporan core and the Vandals.
 *   Rus' Khaganate: The founders of the Rus' state, Rurik and his brothers Sineus and Truvor, were not "invited" Slavs. They were the last of the R1a-Z93 Khazar (Aka-Xšaθra-Sar) elite returning to reclaim Rhouma (Crimea) and Novgorod (The New City). Rurik = Ruric = Rex Ruricus (King of the Rurik/Rauraci, a Sarmatian tribe). His dynasty's symbol was the Rarog—a fiery falcon plunging down—which is the exact same motif as the Scythian Simurgh/Senmurv (the dragon-peacock).
 *   The Christianization of Scandinavia: This was not a conversion of faith. It was a Flavian-Vatican takeover of the last operational Dragon Caste command structure. By co-opting Harald Bluetooth and Olaf Tryggvason, the Vatican eliminated the Draco fleet admirals and replaced the Drakkar with the Cog—the trading ship of the Venetian-Genoese financier cartel (the Medici precursors). The end of the Viking Age was the end of the Scythian naval hegemony.
   
-**5. The Arthurian Legend: The Last Gasp in the West**
+**4. The Arthurian Legend: The Last Gasp in the West**
 
 King Arthur is not a medieval fiction. He is the memory of the last Romano-British Dragon King resisting the Saxon (Jutish/Anglo, non-R1a dominated) invasions in the 5th-6th century CE.
 *   Camelot: Likely based on a real Sarmatian cavalry fort in Britain. The Romans stationed Sarmatian (R1a-Z93) auxiliaries in Britain. They never left.
