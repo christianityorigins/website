@@ -1324,31 +1324,29 @@ The Levites who survived the purges by the Flavians and Emperor Hadrian were the
 
 ## Chapter 10: The Flavian Dynasty
 
-Vespasian’s father, Titus Flavius Sabinus, was a publicanus—a tax/financial contractor—and later became a moneylender/collector in Asia. He was the "honest tax collector". His father, Poppaeus Sabinus was the "Sabinus" in Josephus who stole the Jerusalem temple treasury. With this money he bought Senatorial rank in Rome. The Jewish Encyclopedia confirms a Sabinus—a Roman procurator and treasurer of Augustus—stole 400 talents from the Temple. The Flavian dynasty was literally founded on stolen Temple wealth.
+Vespasian’s father, Titus Flavius Sabinus, was a publicanus—a tax/financial contractor—and later became a moneylender/collector in Asia. He was the "honest tax collector". His father, Titus Flavius Petro was actually named Poppaeus Sabinus. Gaius "Petro" Petoporus is given the former estate of Vipsania Polla in Falacrine, and attains senatorial rank along with the cognomen Sabinus. His nomen is latinized to "Poppaeus".
 
-The conventional narrative is wrong. Vespasian was not born a Flavius but became one through his marriage to Flavia Domitilla and the later historians (Suetonius, Tacitus) back-projected the Flavian name onto his ancestry to legitimize the dynasty.
+Poppaeus Sabinus was the "Sabinus" in Josephus who stole the Jerusalem temple treasury. With this money he bought Senatorial rank in Rome. The Jewish Encyclopedia confirms a Sabinus—a Roman procurator and treasurer of Augustus—stole 400 talents from the Temple. The Flavian dynasty was literally founded on stolen Temple wealth.
 
-Vespasian was born in the Sabine region, near Reate. The Sabine territory was associated with the Vipsanii—the family of Marcus Vipsanius Agrippa, Augustus's son-in-law. Titus Flavius Sabinus's purchase of a villa from a defunct aristocratic family (the Vipsanii) was a way to claim Senatorial rank and he possibly even bought their titles.
+Vespasian was born in the Sabine region, near Reate. The Sabine territory was associated with the Vipsanii—the family of Marcus Vipsanius Agrippa, Augustus's son-in-law. Titus Flavius Sabinus's purchase of Vipsania Polla's also meant that he bought their titles. This wasn't unusual in Roman times, there was a practice of adoption (adoptio/adrogatio) where a wealthy outsider could be adopted by an aristocrat, acquire his nomen and family identity, and become legally part of the aristocratic lineage.
+
+Also, the conventional narrative is wrong. Vespasian was not born a Flavius but became one through his marriage to Flavia Domitilla and the later historians (Suetonius, Tacitus) back-projected the Flavian name onto his ancestry to legitimize the dynasty.
 
 Their Pahlavi/Flavian, “Sabeanus”, -Pasiani/Parthian names and titles, and their entire genealogy, could have been purchased off of Marcus Vipsanius Agrippa's family [^26]).
 
 Vespasian's mother is recorded as Vespasia Pollo. Pollio derives from Ptolemy, or Polemon. The hypocoristic (pet‑name) form of Ptolemy in Greek was Ptollion. In Latin, that became Pollio (the initial Pt‑ was simplified to P‑, as happened with many Greek loanwords). Ptolemy and Polemon are regional pronunciations of the same Dragon‑King title (Marcus Vipsanius Agrippa's eldest daughter was married to Asinius Pollio). In the Bible Ptollion was a leader of the Pharisees during the 1st century BCE. Vespasia Pollo was a secret descendant of Cleopatra and her brother-husband Ptolemy XIII Theos Philopator (aka Gaius Octavius (Emperor Augustus) aka Polemon I of Pontus). Also, their "Sabine" origins are a cover for their Bosporan roots: Suetonius, a Flavian court historian, claims the Flavian family was of "Sabine" origin. This was a lie. They were not Sabine; they were Sabi—priestly Dragon Kings from Scythian Sabi, which means "seven" (a sacred number) and is the root of Sabazios (the Thracian Zeus) and Sabaoth (Lord of Hosts).
 
-He was also Gaius Poppaeus Sabianus and 'Flavius Scaevinus' the conspirator involved in Nero's assassination.
+Vespasian's true identity was Gaius Poppaeus Sabianus. The missing Flavian sister (died in childhood) is actually Poppaea the Elder. Her political career is marked with disgrace and scandal. She's forced to commit suicide by Claudius. Her daughter becomes a ward of the court. Due to Poppaea's disgrace, and the novelty of their family, Vespasian and his brother change their names. He becomes 'Flavius Scaevinus' after inheriting the Flavian title from his wife. He was the same Flavius Scaevinus who was a conspirator involved in Nero's assassination. [^26]. He then helped incite the Jewish Revolt. The Pauline ministry was originally an attempt to lay the groundwork for Vespasian to become emperor. They wanted a Roman Jew to become the new messiah, ending messianic cults.
 
 ![Fig.1.64](/images/Vespasian.jpg){:width="400px"}
 
 Fig. 1.64. L. Vespasian. R. Herod Agrippa I
 
-'Antonia Caenis' was Vespasian's mistress who was his first cousin who was Cleopatra (Thea Philopator) of Mauretania aka Cleopatra IX aka Helene aka Drusilla of Mauretania aka Julia Ourania of Parthia aka Philo of Alexandria. (Caenis was the Greek goddess who was transformed into a man, and she role-played as two men: Marcus Antonius Pallas and Philo).
+Vespasian's son Titus was in a relationship with Berenice, granddaughter of King Herod, who was St. Veronica in the Bible (Veronica is a transliteration of the Greek name Berenike meaning 'victory').
 
-Cleopatra (Thea Philopator) of Mauretania aka Cleopatra IX aka Helene aka Drusilla of Mauretania aka Julia Ourania of Parthia aka Philo of Alexandria aka Antonia Caenis's son was Tiberius Julius Alexander aka Josephus who was the Prefect (leader) of the Praetorian Guard which made him arguably the most powerful man in the empire during Vespasian's reign.
+Berenice's brother Marcus Julius Agrippa II, whom she was in an incestuous relationship with (previous to this she was married to her uncle Herod of Chalcis), was the governor of all foreign Roman territories except Egypt (which was governed by Tiberius Julius Alexander) during the Flavian period.
 
-Vespasian's son Titus was in a relationship with his aunt Berenice, granddaughter of King Herod, who was St. Veronica in the Bible (Veronica is a transliteration of the Greek name Berenike meaning 'victory').
-
-Berenice's brother Marcus Julius Agrippa II, whom she was in an incestuous relationship with before moving on to her nephew (previous to this she was married to her uncle Herod of Chalcis), was the governor of all foreign Roman territories except Egypt (which was governed by Tiberius Julius Alexander) during the Flavian period.
-
-Emperor Vitellius was probably an alias for Vespasian's older brother Titus Flavius Sabinus who was married to Mariamne III aka "Arria the Elder" ("Arria" from her father's name judean king Aristobulus IV who was the son of King Herod and he was also Julius Caesar's adopted son. Aristobulus IV was likely Vespasian and Vitellius's father, so like his cousin Alexander (grandson of King Herod), he was also married to his sister).
+Emperor Vitellius was probably an alias for Vespasian's older brother Titus Flavius Sabinus who was married to Mariamne III aka "Arria the Elder" ("Arria" from her father's name judean king Aristobulus IV who was the son of King Herod and he was also Julius Caesar's adopted son).
 
 ## Chapter 10.1: The Invention of Christianity
 
@@ -1901,7 +1899,7 @@ King Arthur is not a medieval fiction. He is the memory of the last Romano-Briti
 
 [^25]: "Apollonius of Tyre," *Wikipedia*. Available at: https://en.wikipedia.org/wiki/Apollonius_of_Tyre
 
-[^26]: He was also Gaius Poppaeus Sabianus and 'Flavius Scaevinus' the conspirator involved in Nero's assassination.
+[^26]: https://earlywritings.com/forum/viewtopic.php?t=8347
 
 [^27]: "Coin: Antiochus IV of Commagene," *CoinArchives*. Available at: https://www.coinarchives.com/a/lotviewer.php?LotID=2528933&AucID=6356&Lot=485&Val=e5e4db7aa704d656893926a33a970991
 
