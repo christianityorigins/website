@@ -87,15 +87,15 @@ Published by Heretical Books
 
 ### Part 6: The Demographic Erasure of the Scythian-Aryan Hegemony
 
-**Chapter 11: Plagues and Biological Warfare**
+**Chapter 11: The Flavians and Demographic Replacement (c. 50 BCE – 300 CE)**
 
-**Chapter 12: The Flavians and Demographic Replacement (c. 50 BCE – 300 CE)**
+**Chapter 12: China: The Han Synthesis and the Tartarian Genocide**
 
-**Chapter 13: China: The Han Synthesis and the Tartarian Genocide**
+**Chapter 13: Ancient India: The Mauryan Mirage**
 
-**Chapter 14: Ancient India: The Mauryan Mirage**
+**Chapter 14: The Middle East and North Africa: Invasions and Slave Colonization (250–650 CE)**
 
-**Chapter 15: The Middle East and North Africa: Invasions and Slave Colonization (250–650 CE)**
+**Chapter 15: Plagues and Biological Warfare**
 
 **Chapter 16: Where Did The Scythian Aryans Go? The Refugia**
 
@@ -1333,7 +1333,7 @@ Poppaeus Sabinus was the same "Sabinus" in Josephus who stole the Jerusalem temp
 
 Suetonius records in The Life of Vespasian: "Vespasian was born in the Sabine country, in a small village beyond Reate, called Falacrina, on the evening of the fifteenth day before the Kalends of December, in the consulate of Gaius Poppaeus Sabinus".
 
-Vespasian's mother is listed as Vipsania Polla. Vipsania Agrippina, who was the first wife of the Emperor Tiberius, was named Vipsania Pollio through her second marriage to Asinius Pollio. Titus Flavius Sabinus' purchase of Vipsania Polla's villa also likely meant that he bought their titles. This wasn't unusual in Roman times, there was a practice of adoption (adoptio/adrogatio) where a wealthy outsider could be adopted by an aristocrat, acquire his nomen and family identity, and become legally part of the aristocratic lineage. (two famous examples are Gaius Octavius being adopted by Julius Caesar and then becoming Gaius Julius Caesar Octavianus, and emperor Nero, who was born Lucius Domitius Ahenobarbus, and became Nero Claudius Caesar Augustus Germanicus after his adoption by Claudius)
+Vespasian's mother is listed as Vipsania Polla. Vipsania Agrippina, who was the first wife of the Emperor Tiberius, was named Vipsania Pollio through her second marriage to Asinius Pollio. Titus Flavius Sabinus' purchase of Vipsania Polla's villa also likely meant that he bought their titles. This wasn't unusual in Roman times, there was a practice of adoption (adoptio/adrogatio) where a wealthy outsider could be adopted by an aristocrat, acquire his nomen and family identity, and become legally part of the aristocratic lineage. (two famous examples are Gaius Octavius being adopted by Julius Caesar and then becoming Gaius Julius Caesar Octavianus, and emperor Nero, who was born Lucius Domitius Ahenobarbus, becoming Nero Claudius Caesar Augustus Germanicus after his adoption by Claudius)
 
 Also, the conventional narrative is wrong. Vespasian was not born a Flavius but became one through his marriage to Flavia Domitilla and the later historians (Suetonius, Tacitus) back-projected the Flavian name onto his ancestry to legitimize the dynasty.
 
@@ -1366,25 +1366,7 @@ Emperor Vespasian created a religion as part of his rise to power, he wanted the
 
 # Part 6: The Demographic Erasure of the Scythian-Aryan Hegemony
 
-## Chapter 11: Plagues and Biological Warfare
-
-All three major plague pandemics (Justinianic, Black Death, Third Pandemic) were deliberate deployments of Yersinia pestis by the J2/J1 priestly-financier class (the heirs of the Flavians) to cull the R1a refugia populations in Europe and Central Asia.
-
-**The Epidemiological Anomalies:**
-
-The Plague of Justinian (541-549 CE): Targeted the Eastern Roman (Byzantine) Empire, the successor state to the Bosporan Hegemony. It decimated the urban and military populations—the core R1a and R1b remnants. The Vatican in Rome was relatively spared.
-
-The Black Death (1346-1353 CE): Spread along trade routes controlled by Venetian and Genoese bankers (the Medici precursors). It disproportionately killed the rural peasantry of Europe, who had higher R1a/R1b ancestry. The Jewish (J2/J1) communities had significantly lower mortality rates, not due to hygiene, but due to genetic immunity and prior inoculation.
-
-The Mechanism: The plague was not spread by rats. It was spread by human fleas and contaminated grain shipments. The grain trade was controlled by the same financier cartels that had controlled the Alexandrian grain dole. Releasing plague-infested grain into the European countryside was a targeted demographic weapon.
-
-The Genetic Evidence: Modern Europeans have a higher frequency of CCR5-delta32 (a gene that confers immunity to plague and HIV) than other populations. This gene is not found in the Neolithic farmer (G2a) or Hunter-Gatherer (I) populations; it is specific to the Steppe-derived (R1a/R1b) populations. It arose precisely during the Bronze Age and was selected for by repeated plague exposures. The Dragon Caste had been bioweaponed for millennia.
-
-The plagues were not natural. They were the final solution of the Flavian-Vatican cartel to the "R1a problem"—the persistent genetic memory of the Dragon Kings.it is specific to the Steppe-derived (R1a/R1b) populations. It arose precisely during the Bronze Age and was selected for by repeated plague exposures. The Dragon Caste had been bioweaponed for millennia.
-
----
-
-## Chapter 12: The Flavians and Demographic Replacement (c. 50 BCE – 300 CE)
+## Chapter 11: The Flavians and Demographic Replacement (c. 50 BCE – 300 CE)
 
 The Flavians (the Pālava/Pahlavi clan, a junior branch of the R1 Sarmatian elite) were heavily intermarried with the Judeo-Anatolian J2 priesthood by Vespasian's reign. The haplotype R1a (the famed "Arya" gene) was the dominant haplogroup of the Roman elite before the Flavian empire. After the Flavian reign the haplotype J2/J1 became the dominant haplogroup among the Roman elite [^37](https://inf.news/en/science/bee8bab603736d7530f42b64ea756397.html). The Flavians then created a new ruling ethnicity in Rome—the Neo-Flavians—who were biologically the hybrid Pālava-J2 administrative class. The subsequent Catholic Church was the institutional memory of this coup, a permanent bureaucracy staffed by this new genetic elite, tasked with completing the erasure of their Dragon King predecessors. This is why they erased the Scythian origins of ancient civilizations and painted the Scythians (R1a) as monstrous foreigners. "Flavius" (Pālava/Pahlavi) eventually became Shabbos. From Constantine to Heraklios, for 500 years nearly every single Emperor bore the Flavius (Shabbos) title. By my count, 37 Roman and Byzantine emperors in all bore the honorary title "Flavius", and then later, "Phlabios" (https://en.wikipedia.org/wiki/Special:MobileDiff/1062698821)
 
@@ -1400,7 +1382,7 @@ This is why they erased the Scythian origins of ancient civilizations and painte
 
 ---
 
-## Chapter 13z: China: The Han Synthesis and the Tartarian Genocide
+## Chapter 12: China: The Han Synthesis and the Tartarian Genocide
 
 The Scythians ruled a Eurasian empire that stretched into China.
 
@@ -1451,7 +1433,7 @@ The twist is that Genghis Khan is a Dragon King avatar. His name decodes to Geng
 
 ---
 
-## Chapter 14: Ancient India: The Mauryan Mirage
+## Chapter 13: Ancient India: The Mauryan Mirage
 
 The "Mauryan" Empire is a Flavian/Vatican fabrication. Chandragupta Maurya is Alexander the Great.
 
@@ -1501,7 +1483,7 @@ The caste system itself was a genetic cordon sanitaire to keep the old bloodline
 
 ---
 
-## Chapter 15: The Middle East and North Africa: Invasions and Slave Colonization (250 - 650 CE)
+## Chapter 14: The Middle East and North Africa: Invasions and Slave Colonization (250 - 650 CE)
 
 The destruction of the Aryans in the Middle East and North Africa was done in three phases:
 
@@ -1525,6 +1507,24 @@ The Vandals were the last R1a elite in North Africa. Their destruction by Belisa
 | **Mesopotamia**  | **R1a-Z93** (Mitanni/Kassite), **R1b-Z2103** | **J1-L222** ("Bedouin"), **J2-M67** (Highland), **E-M2** (Basra Zanj) | Abbasid "Zanj Rebellion" (869-883 CE) was not a rebellion; it was a **failed slave genocide** against the *replaced* population that had become too numerous. |
 | **Anatolia**     | **R1a-Z93**, **R1b-Z2103** (Hittite/Luwian elite) | **J2-M172**, **R1b-M269** (Armenian/Greek), later **Turkic Q**        | The "Byzantine-Arab" wars were a **demographic pump**, clearing the plateau for later Turkic settlement. Theme system broke old land patterns. |
 | **North Africa** | **R1b-V88** (Garamantes), **R1a-Z93** (Numidian cavalry elite) | **E-M81** (Berber), **J1-M267**                                        | **Vandal kingdom was the last R1a elite.** Its destruction by Byzantium (534 CE) was the key event. Subsequent "Arab" invasions were clean-up operations. |
+
+---
+
+## Chapter 15: Plagues and Biological Warfare
+
+All three major plague pandemics (Justinianic, Black Death, Third Pandemic) were deliberate deployments of Yersinia pestis by the J2/J1 priestly-financier class (the heirs of the Flavians) to cull the R1a refugia populations in Europe and Central Asia.
+
+**The Epidemiological Anomalies:**
+
+The Plague of Justinian (541-549 CE): Targeted the Eastern Roman (Byzantine) Empire, the successor state to the Bosporan Hegemony. It decimated the urban and military populations—the core R1a and R1b remnants. The Vatican in Rome was relatively spared.
+
+The Black Death (1346-1353 CE): Spread along trade routes controlled by Venetian and Genoese bankers (the Medici precursors). It disproportionately killed the rural peasantry of Europe, who had higher R1a/R1b ancestry. The Jewish (J2/J1) communities had significantly lower mortality rates, not due to hygiene, but due to genetic immunity and prior inoculation.
+
+The Mechanism: The plague was not spread by rats. It was spread by human fleas and contaminated grain shipments. The grain trade was controlled by the same financier cartels that had controlled the Alexandrian grain dole. Releasing plague-infested grain into the European countryside was a targeted demographic weapon.
+
+The Genetic Evidence: Modern Europeans have a higher frequency of CCR5-delta32 (a gene that confers immunity to plague and HIV) than other populations. This gene is not found in the Neolithic farmer (G2a) or Hunter-Gatherer (I) populations; it is specific to the Steppe-derived (R1a/R1b) populations. It arose precisely during the Bronze Age and was selected for by repeated plague exposures. The Dragon Caste had been bioweaponed for millennia.
+
+The plagues were not natural. They were the final solution of the Flavian-Vatican cartel to the "R1a problem"—the persistent genetic memory of the Dragon Kings.it is specific to the Steppe-derived (R1a/R1b) populations. It arose precisely during the Bronze Age and was selected for by repeated plague exposures. The Dragon Caste had been bioweaponed for millennia.
 
 ---
 
