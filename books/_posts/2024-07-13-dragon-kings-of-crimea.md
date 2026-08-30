@@ -41,6 +41,7 @@ Published by Heretical Books
 
 **Chapter 4: The Master Timeline — A Complete Chronology of the Dragon Empire**
 - 4.1 The Primordial Patriarch: Ateas the Scythian (c. 429–339 BCE)
+- 4.2 Later Dragon Kings
 
 
 ### Part 3: The Dragon Bloodline & The Bosphoran Connection
@@ -355,6 +356,8 @@ The preceding chapters established the four tribes of the Saka Confederation—t
 
 Each satrapy operated under a local name, adapted to the language and customs of its region. But beneath the surface, every satrapy shared the same genetic signature (R1a-Z93), the same linguistic roots (AS, SAR, GUT), the same religious template (the dying-and-resurrecting serpent-god), the same administrative system (the satrapy network), and the same dynastic symbols (the star and crescent, the swastika, the dragon).
 
+When arranged chronologically, the Asii satrapies reveal a continuous, unbroken chain of Dragon King rule spanning from the Bronze Age to the Iron Age, starting from the Hyksos (c. 1650–1550 BCE), the Mitanni (c. 1600–1260 BCE), the Aššuwa (c. 1430 BCE), the Kassites (c. 1595–1155 BCE), and the Tocharians/Yuezhi (c. 2000 BCE).
+
 ---
 
 ### PHASE 1: The First Global Network (c. 9500 – 3100 BCE)
@@ -528,33 +531,61 @@ He was also:
 **Grandson:** Ptolemy I Soter was another grandson of Ateas/Amyntas III/Artaxerxes who received Egypt. Following Alexander's "resurrection" as Chandragupta in the East, his bloodline consolidated its rule in the West. Ptolemy I Soter, a fellow Scythian noble and Alexander's half-brother, took the Egyptian satrapy. The Ptolemaic Dynasty was not a new Greek ruling class, but the continuation of the Akrosander bloodline using Egypt as its new imperial base.
 
 ![Fig.1.2](/images/Skyles.jpg){:width="400px"}\
-Fig. 1.2. Coin of Skyles, a Scythian king who reigned from ca 470-460 BC displaying a Scythian Solar Wheel and the World Tree combined. Skyles was Ateas's father or grandfather? The cross was prominent in ancient Europe. It was a sundial and every city would have had one to track the time, dates, and agricultural and lunar cycles. "Skylesis" a Greek mockery of Skuða-las (Scythian King). The owl on the reverse side is the Owl of Athena also known as the Owl of Minerva, a sacred bird in Greek mythology that accompanies Athena. It shows up prominently in later Greek tetradrachms connecting him to Greece. Skyles = Xerxes I in Persia and King Amyntas I of Macedon?
+Fig. 1.2. Coin of Skyles, a Scythian king who reigned from ca 470-460 BC displaying a Scythian Solar Wheel and the World Tree combined. The cross was prominent in ancient Europe. It was a sundial and every city would have had one to track the time, dates, and agricultural and lunar cycles. "Skylesis" a Greek mockery of Skuða-las (Scythian King). The owl on the reverse side is the Owl of Athena also known as the Owl of Minerva, a sacred bird in Greek mythology that accompanies Athena. It shows up prominently in later Greek tetradrachms connecting him to Greece. For a Scythian king to carry that iconography shows direct interaction.
+
+Endnotes (Chapter 4.1)
+
+(a) The Altai people of Siberia carry Ateas's name. The Altai people are the progenitors of the Native American people as the basal Q haplogroup traces back to them. This is not an anomaly—it is the final piece of evidence that proves the Dragon Kings were a global phenomenon, not a localized European one, and this is where the Native American terms like Aztec and Aztlán derive from. \
 
 ---
 
-### PHASE 4: The Hellenistic Cover to the Flavian Coup (c. 323 BCE – 135 CE)
+**4.2 Later Dragon Kings**
 
-**c. 323–281 BCE: The Diadochi**
+**c. 500 BCE: Scandinavia (The Aesir)**
+
+The religious book of Scandinavia, Prose Edda, written by Snorri Sturluson, mentions that the ancient inhabitants of Scandinavia were Asi people who came to that land from Asirgarh in 500 BCE and their leader was Odin (Proto-Germanic Wōðanaz (Wod-As)). The title "Oado" appears on Indo-Scythian coins, particularly Kanishka I. Oado is the Bactrian form of Vāta/Vāyu (both mean wind/fury). Vāta/Vāta‑deva is the Indo‑Iranian wind/fury deity. Wōðanaz (Odin) and Vāta (Oado) are dialectal pronunciations of the same PIE root. The Norse sagas claim Odin "died" and was "resurrected" as different kings. This is not mythology; it is the avatar transfer protocol.
+
+**c. 323 BCE–181 CE: The Diadochi**
 
 Alexander's main successors were four branches of a single Scythian-Sarmatian dynasty—a "Tetrarchy" administering different sectors of the empire from the Bosphoran center: Seleucus I Nicator (east), Diodotus I Soter (Bactria/India under the alias Ashoka the Great), Philetaerus (Pergamon), and Ptolemy I Soter (Egypt).
 
-**c. 247 BCE – 224 CE: The Parthian Arsacid Dynasty**
+**c. 247 BCE–224 CE: The Parthian Arsacid Dynasty**
 
 The Arsacid dynasty of Parthia was not a separate Iranian empire. It was the eastern holding pattern of the same Dragon King bloodline. Arsaces = "Aryan-Saka" or "Dragon-Saka." All Parthian kings bore the throne name Arsaces—anonymized under a single dynastic brand name, identical to the way all Bosporan kings used "Tiberius Julius."
 
 Babylonian documents refer to them as Arshaka = "The Scythian King". The Parthian king title Phraates ("divine glory, royal radiance") is the same title as Persian Pharnabazus and Pharnaces (Pharnaces II) in Pontus. These names all contain the root Pharna-/Phraa-, which is a Greek rendering of the Iranian farnah- which becomes Egyptian Pharaoh.
 
-**c. 281–63 BCE: The Mithridatic Dynasty**
+**c. 200 BCE–50 CE: The Dacian/Thracian Garrison**
+
+The Thracians/Dacians (Getae = Goth = Jat = Scythian) become the Asii power center for Southeastern Europe. Their Draco standard = wolf-headed serpent = Asii royal and religious symbol.
+
+Their capital was Sarmizegetusa (Dacian capital) = "Sarmatian fortress" (Sar = king).
+
+The Latin originates in Dacia—the administrative language of the Asii Scythian elite, not a native Italian tongue.
+
+Bosporan and Dacian kingdoms control the Danube Delta and Bosporus Strait—the chokepoints of Eurasian trade.
+
+The Dacian gold mines (100 BC – 100 AD) funded the "Roman" Empire. Asander, King of Bosporus (Julius Caesar), was the richest man in the world.
+
+**c. 281 BCE–63 CE: The Mithridatic Dynasty**
 
 The Mithridatic dynasty of Pontus was the direct continuation of the Dragon King bloodline. Mithridates VI Eupator (c. 120–63 BCE) was the Dragon King who fought Rome in three wars. He was also Ptolemy XII Auletes (Egypt), Mark Antony (Rome), King Herod (Judea), Ariarathes IX (Cappadocia), and Simon Boethus (High Priest of the Sabazios cult).
 
-**c. 110–17 BCE: Asander / Julius Caesar**
+**c. 110 BCE–17 BCE: Asander/Julius Caesar**
 
 Asander (c. 110–17 BCE) was the Bosporan Dragon King who was also Julius Caesar (Rome), Mithridates Chrestus (Pontus), Ptolemy of Cyprus (Egypt), Azes I (India), and Wang Mang (China). Asander = Asa-ander = "Serpent-Lord-Man." His reign ended with the "assassination" of Julius Caesar (44 BCE)—a ritual death that preceded his "resurrection" as Azes I in India.
 
-**c. 69–30 BCE: Cleopatra / Dynamis**
+**c. 69–30 BCE: Cleopatra/Dynamis**
 
 Cleopatra VII was the same person as Dynamis, Queen of Bosporus, and Pythodorida Philometor. Dynamis = "Serpent-Power" (from Egyptian Denwen, the fiery serpent). She was married to her father Mark Antony/Herod/Mithridates VI, and to her brother Ptolemy XIII/Augustus/Rhoemetalces I.
+
+**c. 30–375 AD: Tochari (Bactria)**
+
+The Kushan Empire (1st-3rd c. CE) claimed descent from the Yuezhi. Their title for king was Shaonano Shao—"King of Kings"—a direct translation of the Bosporan Basileus Basileon and the Achaemenid Xšāyaθiya Xšāyaθiyānām.
+
+The Greek Tokharoi, Sanskrit Tukhāra/Tushāra, and Old Persian Tuxāri- all go back to Tarkhu-As, meaning "Ruler-As" (Tarkhu is the storm-god title, as in Hittite Tarḫunna, Etruscan Tarquin).
+
+Strabo records four tribes that conquered Bactria: the Asioi, Pasianoi, Tochario, and Sakarauloi. The Pasianoi (also Gasiani) are the "People of the Pas" —a title that appears in the Flavian name Vespasian (Ves-Pasianus = "Lord of the Pasiani"). Armenian historical tradition later connects the Arsacid dynasty with the Kushans, and the founder of the Parthian Empire, Arsaces I, may have originated from the Gasiani tribe.
 
 **c. 37–55 CE: Izates II of Adiabene**
 
@@ -564,13 +595,23 @@ Izates II (c. 37–55 CE) was the primary Jesus avatar. Izates = Yazata = "Divin
 
 The "First Jewish-Roman War" was not a provincial revolt. It was a civil war within the Dragon King hegemony. The Flavians did not put down a revolt. They launched a blitzkrieg against the core Eastern administration and destroyed the Scythian steppe hegemony. King Izates II (Jesus Emmanuel) led the Judean-Adiabenean forces against Rome.
 
+### PHASE 4: The Flavian Coup
+
 **c. 70 CE: The Flavian Dynasty Seizes Power**
 
 Vespasian (69–79 CE) was the first Flavian emperor. Vespasian = Ves-Pasianus = "Lord of the Pasiani" (the Parthians). The Flavians were not Asii. They were Pahlavi (Parthian)—a related but subordinate Iranian clan that had served as mercenaries and administrators. They were heavily intermarried with the Judeo-Anatolian J2 priesthood.
 
 **c. 70–100 CE: The Flavian Historiographical Project**
 
-The Flavians rewrote history to erase the Scythian origins of ancient civilizations and paint the Scythians (R1a) as monstrous foreigners. Tiberius Julius Alexander (aka Josephus) was the Flavian court historian—the brother of Izates II, a collaborator who betrayed his own bloodline. The Flavian scribes took the cult of King Izates II and rewrote it as pacifist allegory—this became Christianity.
+J2/J1 Pahlavi-Flavian usurpers overthrow the R1a Asii hegemony. The Flavians (Vespasian, Titus) rewrite history, burn the Alexandrian Library, and create Christianity as the ontological inversion of the Asii Dragon Cult.
+
+**c. 117-138 CE: The Roxolani / Alans (Eastern Europe)**
+
+The Roxolani (-olani = - alani) were also a branch of the same tribe. Historian George Vernadsky suggested that the name Rocas (a tribe conquered by the Ostrogoths in the 4th century) may be a corruption of Ruxs-As—"Light-Asii". The Rosomoni, mentioned by Roman historian Jordanes, may also be related, interpreted as the "Ros Men". The name "Rus" is not a Viking invention. It is the Asii self-designation—the "Shining Asii" who later gave their name to the Russians. The Roxolani are the bridge between the ancient Asii and the modern Russian people.
+
+Alexander's father Philip belonged to the Argead dynasty who were of Dorian Greek ancestry. The name is traditionally derived from Argos, the Peloponnesian city, but this is a Hellenized etymology designed to obscure a deeper truth. The root Arge- is cognate with Sanskrit (rajata) = "silver, shining" and the Scythian Ar-/Al- = "noble, shining" (as in Alans, Roxolani). This is the exact same semantic field as the Roxolani ("Shining Alans") and the Asii ("The Shining Lords").
+
+Alexander (Al-As-andros = the Asii Lord Man) was a member of the Roxolani tribe and when he married Roxana he was marrying a heiress to the Roxolani. Al-As-andros = As-andros = Asander. The exact same title.
 
 **c. 132–136 CE: The Bar Kokhba Revolt**
 
