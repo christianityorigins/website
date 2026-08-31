@@ -503,11 +503,39 @@ The scattered Scythian (Saka) clans are unified under a single "King of Kings," 
 - His reign is encoded in myth as the quest for the Golden Fleece and in biblical lore as the prototype for Nebuchadnezzar.
 - This is the foundational event. All subsequent "empires" are either his direct descendants or rebel satraps attempting to reclaim his title.
 
-**c. 600–500 BCE: The Akrosander Hegemony Begins to Fragment**
+**c. 500 BCE: Scandinavia (The Aesir)**
 
-Civil wars erupt between descendant lines, leading to the rise of competing Dragon King factions—the Persians, the Greeks, the Macedonians—all claiming the same "King of Kings" title.
+The religious book of Scandinavia, Prose Edda, written by Snorri Sturluson, mentions that the ancient inhabitants of Scandinavia were Asi people who came to that land from Asirgarh in 500 BCE and their leader was Odin (Proto-Germanic Wōðanaz (Wod-As)). The title "Oado" appears on Indo-Scythian coins, particularly Kanishka I. Oado is the Bactrian form of Vāta/Vāyu (both mean wind/fury). Vāta/Vāta‑deva is the Indo‑Iranian wind/fury deity. Wōðanaz (Odin) and Vāta (Oado) are dialectal pronunciations of the same PIE root. The Norse sagas claim Odin "died" and was "resurrected" as different kings. This is not mythology; it is the avatar transfer protocol.
+
+**c. 500 BCE: The Bosporan Kingdom**
+
+The Bosporan Kingdom as the administrative core of the Dragon Kings. The Asian side of the Cimmerian Bosporus, the Taman Peninsula, is a region known in antiquity as Sindica and was the homeland of the Sindi people. Strabo (Geography, 11.2.11) explicitly lists the Sindi as the dominant tribe among the Maeotae, a confederation of peoples living around the Sea of Azov. The Maeotae included the Sindi, Dandarii, Toreatae, Agri, Arrechi, Tarpetes, Obidiaceni, Sittaceni, Dosci, and Aspurgiani.  
+
+A 4th-century BC inscription from the Bosporan Kingdom explicitly lists the Bosporan ruler as "archon of the Bosporus, Theodosia, all Sindike, Toretai, Dandarioi, Psessoi" (https://brill.com/view/journals/acss/12/1-2/article-p1_1.xml#1). This is not a list of conquered peoples—it is a formal administrative title listing the satrapies under the Dragon King's authority.
+
+Sindi contains the Sin- root which is the same as Sin (the Mesopotamian moon god), Sinai (the mountain of the moon god), and Yuezhi ("Moon Clan"). The suffix -di is a cognate of the Scythian -ti (clan/people). Sindi = "The Moon Clan People". The were the Sindhi (India/Pakistan) and Kurdish Sindi clan.
+
+Aspurgiani: is the Aspurgus (Tiberius Julius Aspurgus) lineage. 
+
+Dandarii: Contains Dan- (the same root as Dan—judge/ruler, and Danu—the primordial waters) and -darii (a variant of Darius—"holder"). They are the same as the Tribe of Dan in Israel and the Danuna (Denyen/Sea Peoples). They were the Gandarii tribe in India.
+
+Agri: "The Horse People". The cavalry. The Sanskrit Agni (fire god) is a cognate. The Agrianes were a Thracian tribe who served as elite light infantry in Alexander the Great's army.
+
+Arrechi: Alans/Asii. Ar- is the same root as Arya (Noble) and As (Lord).v-rechi is a variant of Rex (King). Arrechi = "The Noble Kings". The Arrechi carry the Ar- root—the same as Aryan, Arsaces, and Artorius. They are the royal lineage of the Maeotae federation, the Dragon King bloodline itself. The Parthian royal title Arsaces (Ar- + Saka) contains the same Ar- root. The Arrechi are the western branch of the same Arsacid/Saka royal lineage and became the Arsacid dynasty of Parthia. The name Artorius (the origin of King Arthur) contains Ar- + Tor (Bull/Storm). The Arrechi bloodline likely migrated to Britain with the Sarmatian auxiliaries.
+
+Obidiaceni: -diaceni is a cognate of Dacia (the Dacian tribe) and Dahae (the Scythian confederation). The Obidiaceni connect the Maeotae federation to the Dacian/Getae branch of the Scythian world. The Dahae were a Scythian confederation that included the Parni (founders of the Parthian Empire). The Obidiaceni are the link between the Bosporan Asii and the Danubian/Dacian Dragon Kings.
+
+Dosci: -sci is a cognate of Saka (Scythian). The Dosci are the Saka/Scythian tribe of the Maeotae federation. Their name encodes the Saka identity—the same as the Sacarauli (Royal Saka) who, along with the Asii, destroyed the Greco-Bactrian Kingdom.
+
+Toreatae: The name Turan (the ancient Iranian term for Central Asia, the land of the nomadic Scythians) contains the same Tor-/Tur- root. The Turanians were the eastern Scythian branch, and the Toreatae were their western kin. The Tūr dynasty in Iranian mythology (the enemies of the Iranians) are the same Storm-King people. The Tauri of Crimea (mentioned by Herodotus) share the same root. The Tauri were a Scythian tribe inhabiting the southern Crimean peninsula—directly adjacent to the Bosporan Kingdom.
+
+Sittaceni: The name Sittake appears in Persian geography as a region in Mesopotamia. This is the eastern cognate of the Sittaceni who administered the Persian satrapies.
+
+Strabo reports that King Ateas the Scythian united under his power the Scythian tribes living between the Maeotian marshes and the Danube. This is not a vague geographic description. It is a precise administrative claim that Ateas ruled the Maeotae federation.
 
 ### 4.1 The Primordial Patriarch: Ateas the Scythian (c. 429–339 BCE)
+
+Sometime after 500 BCE the Akrosander Hegemony begins to fragment. Civil wars erupt between descendant lines, leading to the rise of competing Dragon King factions—the Persians, the Greeks, the Macedonians—all claiming the same "King of Kings" title. They were then all subdued by Ateas the Scythian who reestablished the Scythian hegemony. 
 
 Ateas the Scythian was the last great emperor of the direct Akrosander bloodline, ruling from the Danube to the Caucasus. The name "Ateas" is not a Scythian personal name. It is the core title of the Dragon King. Ateas = Ata-as = "Father-As" or "Forefather of the Asii"—the same root as Asander, Asinder and Attila. His name also occurs as Atheas, Ateia, Ataias, and Ateus. He was not just a king; he was the eponymous ancestor of the Asii-Alan people.
 
@@ -546,10 +574,6 @@ Endnotes (Chapter 4.1)
 ---
 
 **4.2 Later Dragon Kings**
-
-**c. 500 BCE: Scandinavia (The Aesir)**
-
-The religious book of Scandinavia, Prose Edda, written by Snorri Sturluson, mentions that the ancient inhabitants of Scandinavia were Asi people who came to that land from Asirgarh in 500 BCE and their leader was Odin (Proto-Germanic Wōðanaz (Wod-As)). The title "Oado" appears on Indo-Scythian coins, particularly Kanishka I. Oado is the Bactrian form of Vāta/Vāyu (both mean wind/fury). Vāta/Vāta‑deva is the Indo‑Iranian wind/fury deity. Wōðanaz (Odin) and Vāta (Oado) are dialectal pronunciations of the same PIE root. The Norse sagas claim Odin "died" and was "resurrected" as different kings. This is not mythology; it is the avatar transfer protocol.
 
 **c. 323 BCE–181 CE: The Diadochi**
 
