@@ -366,6 +366,10 @@ When arranged chronologically, the Asii satrapies reveal a continuous, unbroken 
 
 Göbekli Tepe and the Tas Tepeler sites of Anatolia were not temples. They were Dragon King administrative centers—the first known "satrapy headquarters". The builders were G2a Neolithic farmers working under the direction of R1a/R1b elite who had already mastered astronomical and architectural knowledge. The T-shaped pillars depict serpents, foxes, and vultures—the Dragon King bestiary. The central motif is the serpent, the symbol of the Asii.
 
+The name Göbekli Tepe is Turkish for "Potbelly Hill". But the older, substrate name for the region is Tas Tepeler (Stone Hills). The root Tas is a direct cognate of the Scythian As (Lord).
+
+Göbekli Tepe predates Sumer and Egypt by over 5,000 years. It is the origin point of the Asii network.
+
 **c. 7000–5000 BCE: The Proto-Indo-European Homeland**
 
 The Kurgan culture (Proto-Indo-Europeans) crystallizes on the Pontic-Caspian Steppe. The Dnieper-Donets culture (c. 5000–4200 BCE) shows the first signs of horse domestication—the key technology of the Dragon Kings. The concept of the "Asa-caste" —the Lord-people—crystallizes in the steppe, encoded in the Tocharian self-designation Ārśi (Arshi), which the Greeks will later render as Asii.
@@ -722,8 +726,6 @@ Fig. 1.13. L. Polemon II, king of Bosphorus. R. Emperor Titus.
 ## Chapter 7: Ancient Alias Names List
 
 The Asii/Aryan elite governed a transregional aristocratic network that reused titulature, divine archetypes, and dynastic names to project localized legitimacy. They role-played as deities, religious figures, and various characters as if they were actors in a play. This was done partially for obscuration, but also because people wouldn’t accept foreign kings or kings with foreign names, and also, for theological requirements: a god-king had to manifest in different regions according to local religious expectations. However, as their names were mostly job titles, an etymology across languages (Latin, Greek, “Old Persian,” Sanskrit, Aramaic) reveals a unified administrative lexicon, and you can also identify their aliases through spouses.
-
-Kings were not individuals. They were offices. In Sumer, the King List records kings who ruled for thousands of years. This is not a mistake—it is a theological statement. The king was not a man; he was a divine office, and the same office could be occupied by different men over time.
 
 For example, Asander/Julius Caesar had at least a dozen names, titles, and localized aliases that history considers to be different people, but these were avatars that he held in different locations and his title would change as his rank or regional assignment changed. They would do a ritual death of their avatar as their assignment changed—it was a legal and administrative protocol encoded in theology. When an Asii king's administrative position ended (or when he transferred to a new region), the local identity was ritually executed to satisfy the laws of that satrapy, while the living king continued under a new avatar in a different administrative theater. This is the resurrection motif.
 
@@ -1416,7 +1418,7 @@ Emperor Vespasian created a religion as part of his rise to power, he wanted the
 
 ## Chapter 11: The Flavians and Demographic Replacement (c. 50 BCE – 300 CE)
 
-The Flavians (the Pālava/Pahlavi clan, a junior branch of the R1 Sarmatian elite) were heavily intermarried with the Judeo-Anatolian J2 priesthood by Vespasian's reign. The haplotype R1a (the famed "Arya" gene) was the dominant haplogroup of the Roman elite before the Flavian empire. After the Flavian reign the haplotype J2/J1 became the dominant haplogroup among the Roman elite [^37](https://inf.news/en/science/bee8bab603736d7530f42b64ea756397.html). The Flavians then created a new ruling ethnicity in Rome—the Neo-Flavians—who were biologically the hybrid Pālava-J2 administrative class. The subsequent Catholic Church was the institutional memory of this coup, a permanent bureaucracy staffed by this new genetic elite, tasked with completing the erasure of their Dragon King predecessors. This is why they erased the Scythian origins of ancient civilizations and painted the Scythians (R1a) as monstrous foreigners. "Flavius" (Pālava/Pahlavi) eventually became Shabbos. From Constantine to Heraklios, for 500 years nearly every single Emperor bore the Flavius (Shabbos) title. By my count, 37 Roman and Byzantine emperors in all bore the honorary title "Flavius", and then later, "Phlabios" (https://en.wikipedia.org/wiki/Special:MobileDiff/1062698821)
+The haplotype R1a (the famed "Arya" gene) was the dominant haplogroup of the Roman elite before the Flavian empire. After the Flavian reign the haplotype J2/J1 became the dominant haplogroup among the Roman elite [^37](https://inf.news/en/science/bee8bab603736d7530f42b64ea756397.html). The Flavians then created a new ruling ethnicity in Rome—the Neo-Flavians—who were biologically the hybrid Pālava-J2 administrative class. The subsequent Catholic Church was the institutional memory of this coup, a permanent bureaucracy staffed by this new genetic elite, tasked with completing the erasure of their Dragon King predecessors. This is why they erased the Scythian origins of ancient civilizations and painted the Scythians (R1a) as monstrous foreigners. "Flavius" (Pālava/Pahlavi) eventually became Shabbos. From Constantine to Heraklios, for 500 years nearly every single Emperor bore the Flavius (Shabbos) title. By my count, 37 Roman and Byzantine emperors in all bore the honorary title "Flavius", and then later, "Phlabios" (https://en.wikipedia.org/wiki/Special:MobileDiff/1062698821)
 
 ![Fig.1.65](/images/VespasianBust.jpg){:width="400px"}
 
@@ -1870,8 +1872,16 @@ The Viking raids (793–1066 CE) are painted as pagan barbarism. In reality, the
 *   The Drakkar: The name Drakkar is a linguistic fossil: Draco (Dragon) + Kar (Scythian/Sanskrit Kara, "Army"). It was the "Dragon Army" mobilized from the fjords—the refugia of the Gothic/Sarmatian Alans who had fled north after the fall of the Bosporan core and the Vandals.
 *   Rus' Khaganate: The founders of the Rus' state, Rurik and his brothers Sineus and Truvor, were not "invited" Slavs. They were the last of the R1a-Z93 Khazar (Aka-Xšaθra-Sar) elite returning to reclaim Rhouma (Crimea) and Novgorod (The New City). Rurik = Ruric = Rex Ruricus (King of the Rurik/Rauraci, a Sarmatian tribe). His dynasty's symbol was the Rarog—a fiery falcon plunging down—which is the exact same motif as the Scythian Simurgh/Senmurv (the dragon-peacock).
 *   The Christianization of Scandinavia: This was not a conversion of faith. It was a Flavian-Vatican takeover of the last operational Dragon Caste command structure. By co-opting Harald Bluetooth and Olaf Tryggvason, the Vatican eliminated the Draco fleet admirals and replaced the Drakkar with the Cog—the trading ship of the Venetian-Genoese financier cartel (the Medici precursors). The end of the Viking Age was the end of the Scythian naval hegemony.
+
+**4. The Albigensian Crusade (1209–1229) – The Final Western Purge**
+
+Albigensian is a city in Languedoc, southern France. The names comes from Albi which is a direct contraction of Al-Bi – "The Place of the Alans" (Al = Aryan, Bi = settlement). The Cathars of Languedoc were the last Western European stronghold of the Dragon Kings. The Cathar "Parfaits" (Perfect Ones) practiced consolamentum—the ritual death and rebirth into the spirit. This is the exact same protocol as the Mithridatium ritual (poison-venom initiation) practiced by the Bosporan kings.
+
+Pope Innocent III launched the Crusade not because of theological disagreement, but because the Cathar nobility (the Counts of Toulouse, Trencavel) were actively harboring the Merovingian bloodline and refusing to submit to the Roman J1/J2 financial bureaucracy.
+
+The massacre at Béziers ("Kill them all, God will know his own") was not religious zeal; it was a genocide. The destruction was so complete that only fragments of Cathar scripture (the Liber de Duobus Principiis) survived, and those were immediately labeled as "Manichaean" by the Vatican scribes to discredit them.
   
-**4. The Arthurian Legend: The Last Gasp in the West**
+**5. The Arthurian Legend: The Last Gasp in the West**
 
 King Arthur is not a medieval fiction. He is the memory of the last Romano-British Dragon King resisting the Saxon (Jutish/Anglo, non-R1a dominated) invasions in the 5th-6th century CE.
 *   Camelot: Likely based on a real Sarmatian cavalry fort in Britain. The Romans stationed Sarmatian (R1a-Z93) auxiliaries in Britain. They never left.
