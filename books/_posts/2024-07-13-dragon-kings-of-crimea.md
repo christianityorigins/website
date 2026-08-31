@@ -279,7 +279,7 @@ By 2800–2600 BCE, the Yamnaya had moved eastward into the region of the Poltav
 
 The Aryans were the broader confederation of Indo-Iranian clans—the horse-riding, chariot-using pastoralists who spread from the Pontic-Caspian Steppe into Europe, Anatolia, and South Asia. They were the ethnic and linguistic foundation of the ancient world. The Asii were the ruling caste. Roman historian Justin in 'Liber Historiarum Philippicarum' makes this explicit: "The Asii were the reges—the kings—of the Tochari. The Tochari and Sakaraucae were Aryan/Iranian peoples. The Asii ruled them".
 
-According to Strabo (c. 64 BC – c. AD 24), writing in his Geography (11.8.2), the four tribes that "took away Bactriana from the Greeks" were:
+According to Strabo, writing in his book Geography (Strabo, Geography, 11.8.2), the four tribes that "took away Bactriana from the Greeks" were:
 
 - **Asii** (Asioi, Asiani, Osii, Asoi).
 
@@ -338,7 +338,7 @@ The name "Scythian" itself decodes as "Scyth" = "Sak" = "Saka" which is related 
 
 **The Crescent:** Yuezhi" in Chinese translates literally as the 'Moon clan" or "Moon tribe" and is the symbol of Sin (Moon god), Hecate/Artemis (Greek), the "Mari" (Scythian Snake-Goddess)
 
-The star and crescent on Julius Caesar and Asander's coins is the Dragon King symbol translated across the regional avatars of the Dragon Kingdom. ". . This is a dynastic legitimacy mark within the Julian/Dragon King system—not a quality control stamp. This countermark proves they were part of a larger unified system.
+The star and crescent on Julius Caesar and Asander's coins is the Dragon King symbol translated across the regional avatars of the Dragon Kingdom. This is a dynastic legitimacy mark within the Julian/Dragon King system. This countermark proves they were part of a larger unified system.
 
 **The Swastika:** Swastika, Gammadion, Tetraskelion, Fylfot, Kolovrat, Hakenkreuz, et.al., appears on ancient artifacts and petroglyphs throughout Europe, in every group ranging from the Vinça culture in the Balkans to the Celts, Germanics, Slavs, Baltics, Greco-Romans, Illyrians, as well as, the coins of the Paratarajas, the Parthians, the Kushans, and the Indo-Scythians and this is not a coincidence. It is the unified graphic signature of the same trans-continental, pre-Flavian ruling class.
 
@@ -1377,7 +1377,7 @@ The Levites who survived the purges by the Flavians and Emperor Hadrian were the
 
 ## Chapter 10: The Flavian Dynasty
 
-Vespasian’s father, Titus Flavius Sabinus, was a publicanus—a tax/financial contractor—and later became a moneylender/collector in Asia. He was the "honest tax collector". Titus Flavius Sabinus's father, Titus Flavius Petro, was actually named Poppaeus Sabinus and was "given" the former estate of Vipsania Polla in Falacrine, and he attained the cognomen Sabinus with his senatorial rank.
+Vespasian’s father, Titus Flavius Sabinus, was a publicanus—a tax/financial contractor—and later became a moneylender/collector in Asia. He was recorded as "the honest tax collector". Titus Flavius Sabinus's father, Titus Flavius Petro, was actually named Poppaeus Sabinus and was "given" the former estate of Vipsania Polla in Falacrine, and he attained the cognomen Sabinus with his senatorial rank.
 
 Poppaeus Sabinus was the same "Sabinus" in Josephus who stole the Jerusalem temple treasury. With this money he bought a Senatorial rank in Rome. The Jewish Encyclopedia confirms a Sabinus—a Roman procurator and treasurer of Augustus—stole 400 talents from the Temple. 400 talents of gold would equal $1.52 billion USD in today's money and would have made him the richest person in Rome. The Flavian dynasty was literally founded on stolen Temple wealth.
 
@@ -1387,7 +1387,7 @@ Vespasian's mother is listed as Vipsania Polla. Vipsania Agrippina, who was the 
 
 Also, the conventional narrative is wrong. Vespasian was not born a Flavius but became one through his marriage to Flavia Domitilla and the later historians (Suetonius, Tacitus) back-projected the Flavian name onto his ancestry to legitimize the dynasty.
 
-Their Pahlavi/Flavian, “Sabeanus”, Vespasian (-Pasiani/Parthian) names and titles, and their entire genealogy, could have been purchased off of Marcus Vipsanius Agrippa's family.
+Their Vespasian (-Pasiani/Parthian) name and title, and their entire genealogy, likely was purchased off of Marcus Vipsanius Agrippa's family. Pahlavi/Flavian came through marriage and “Sabeanus” was purchased with Poppaeus Sabinus' Senatorial position.
 
 Vespasian's mother is recorded as Vespasia Pollo. Pollio derives from Ptolemy, or Polemon. The hypocoristic (pet‑name) form of Ptolemy in Greek was Ptollion. In Latin, that became Pollio (the initial Pt‑ was simplified to P‑, as happened with many Greek loanwords). Ptolemy and Polemon are regional pronunciations of the same Dragon‑King title. In the Bible Ptollion was a leader of the Pharisees during the 1st century BCE. Vipsania Pollio (Marcus Vipsanius Agrippa's daughter) was a secret descendant of Cleopatra and her brother-husband Ptolemy XIII Theos Philopator (aka Gaius Octavius (Emperor Augustus) aka Polemon I of Pontus). Also, their "Sabine" origins are a cover for their Bosporan roots: Suetonius, a Flavian court historian, claims the Flavian family was of "Sabine" origin. This was a lie. They were not Sabine; they were Sabi—priestly Dragon Kings from Scythian Sabi, which means "seven" (a sacred number) and is the root of Sabazios (the Thracian Zeus) and Sabaoth (Lord of Hosts).
 
@@ -1418,7 +1418,13 @@ Emperor Vespasian created a religion as part of his rise to power, he wanted the
 
 ## Chapter 11: The Flavians and Demographic Replacement (c. 50 BCE – 300 CE)
 
-The haplotype R1a (the famed "Arya" gene) was the dominant haplogroup of the Roman elite before the Flavian empire. After the Flavian reign the haplotype J2/J1 became the dominant haplogroup among the Roman elite [^37](https://inf.news/en/science/bee8bab603736d7530f42b64ea756397.html). The Flavians then created a new ruling ethnicity in Rome—the Neo-Flavians—who were biologically the hybrid Pālava-J2 administrative class. The subsequent Catholic Church was the institutional memory of this coup, a permanent bureaucracy staffed by this new genetic elite, tasked with completing the erasure of their Dragon King predecessors. This is why they erased the Scythian origins of ancient civilizations and painted the Scythians (R1a) as monstrous foreigners. "Flavius" (Pālava/Pahlavi) eventually became Shabbos. From Constantine to Heraklios, for 500 years nearly every single Emperor bore the Flavius (Shabbos) title. By my count, 37 Roman and Byzantine emperors in all bore the honorary title "Flavius", and then later, "Phlabios" (https://en.wikipedia.org/wiki/Special:MobileDiff/1062698821)
+A recent study published in the Journal of Science (Ancient Rome: A genetic crossroads of Europe and the Mediterranean. https://www.science.org/doi/10.1126/science.aay6826) explicitly notes that during the Imperial period (27 BC – 300 AD), Rome experienced a massive genetic shift from local Italian (Etruscan/Latin/R1a) ancestry toward Eastern Mediterranean and Anatolian ancestry (J1/J2). The study dates this shift to exactly the Flavian period (70–100 AD). The influx of “Eastern” DNA coincides perfectly with Vespasian’s importation of 100,000+ Jews/Adiabeneans into Italy after the Jewish-Roman War (Josephus, Jewish War vi). This is why the Flavian dynasty and their court historians (Josephus, Pliny, Tacitus) rewrote history to erase the Scythian origins of ancient civilizations and painted the Scythians (R1a) as monstrous foreigners.
+
+The "Jews" that the Flavians were destroying i[^37]n the Roman-Jewish Wars were the Steppe R1a Dragon Kings. J1 Levantine Jews were sparred. This is also why Vespasian burned the Jerusalem temple. He was covering up the tracks of his grandfathers robbery.
+
+The haplotype R1a (the famed "Arya" gene) was the dominant haplogroup of the Roman elite before the Flavian empire. After the Flavian reign the haplotype J2/J1 became the dominant haplogroup among the Roman elite (https://inf.news/en/science/bee8bab603736d7530f42b64ea756397.html). The Flavians then created a new ruling ethnicity in Rome—the Neo-Flavians—who were biologically the hybrid Pālava-J2 administrative class. The subsequent Catholic Church was the institutional memory of this coup, a permanent bureaucracy staffed by this new genetic elite, tasked with completing the erasure of their Dragon King predecessors. 
+
+"Flavius" (Pālava/Pahlavi) eventually became Shabbos. From Constantine to Heraklios, for 500 years nearly every single Emperor bore the Flavius (Shabbos) title. By my count, 37 Roman and Byzantine emperors in all bore the honorary title "Flavius", and then later, "Phlabios" (https://en.wikipedia.org/wiki/Special:MobileDiff/1062698821)
 
 ![Fig.1.65](/images/VespasianBust.jpg){:width="400px"}
 
