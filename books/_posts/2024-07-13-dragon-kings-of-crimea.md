@@ -452,6 +452,8 @@ Hittite kings carried names such as Khata-sar, Mul-sar, Kaui-sar, and Khilip-sar
 
 Hittite king Ḫattušili I was originally named Labarna (or Tabarna). He was associated with Kuššara, the ancestral center of the dynasty. After establishing himself at Ḫattuša, he adopted the name Ḫattušili. This is the same avatar-switching protocol used by the Bosporan kings (Asander → Caesar). The name was a function of geography, not a person's identity.
 
+In the Hittite archaeological site of Euyuk (Büyükkale/Boğazköy area) Asis was the name of a deity encountered by the Phrygians in central Anatolia. This is Zeus Aseis and in Phrygian Anatolian religious tradition and proves that Zeus was associated with As/Asa (https://ignca.gov.in/Asi_data/25979.pdf)
+
 **c. 1595–1155 BCE: Kassite Dynasty**
 
 The Kassite dynasty, which ruled Babylon for nearly 600 years (c. 1595–1155 BCE), is yet another forgotten Dragon King outpost. The name of the Kassites themselves is a direct phonetic match for the Kushans, who were the eastern branch of the Yuezhi. The Kassites were the western, Mesopotamian branch of the same Dragon King diaspora, ruling Babylon for six centuries before fading from history.
@@ -888,6 +890,8 @@ Caesar's gentilice (surname) was Iulius. Iulius comes from Dyaus Pter (the sky g
 The supreme deity of the Roman state was Jupiter Optimus Maximus (Jove).
 
 The Egyptian name "Asar" was another name for Osiris. "Ra" was the Egyptian deity of the Sun (Asar-Ra). This title very likely connects to "Asar-Hapi" (Osiris-Apis), another name for the Graeco-Egyptian god Serapis (Serapis = Sabazios (Osiris + Apis or Šar Apsi - King Apsu = Enki-Ea)). The Etruscan word "Aesar" (also spelled "Aeser" or "Aisar"), meaning god or divine, likely derives from the Egyptian Asar. The Greek language adds a "K" to foreign words, so Aesar -> Greek Kaesar -> Latin Caesar. This title also resembles the Scythian/Hurrian "Kur-Sar" (Sun King) and the Phoenician "Kosar" (sun god). In Celtic cultures, Caesarus also referred to a Celtic chieftain who likely took on a divine role. For example, Caesorix was the leader of the Cimbri tribe during the Cimbrian War.
+
+The Liber Linteus Zagrabiensis (Latin for "Linen Book of Zagreb", also known rarely as Liber Agramensis, "Book of Agram") is the longest Etruscan text and the only extant linen book (libri lintei), dated to the 3rd century BC, making it arguably the oldest extant European book. In Column V, the phrase "Aesar es" appears, which translates to "He is God" or "God is".  This proves that the Etruscan elite explicitly equated their rulers with divinity using the "Aesar" title. The Roman adoption of "Caesar" was not a new creation but the continuation of an ancient Etruscan-Scythian political theology.
 
 Russian historian and mathematician Anatoly Fomenko wrote several books where he claimed that the city of Yoros = Jerusalem = Troy and it was situated on the eastern, Asiatic shore of Bosphorus, closer to the Black Sea, very near to the Beykoz mountain (Golgotha).
 
@@ -1560,7 +1564,21 @@ This was not mere commerce. It was demographic engineering designed to break the
 
 From at least 500 CE, Jewish merchant houses (the Radhanites, the Cochin Jews) controlled the sea route from the Horn of Africa to the Malabar coast. Ethiopian captives, sold by the J1-linked Solomonic kings of Aksum, were transported en masse to South India. The trade peaked after the collapse of the Gupta empire (6th century CE) and under the Rashtrakuta dynasty (8th–10th centuries), which used Habshi slave-soldiers to counter the power of the indigenous Kshatriya clans, many of whom still carried high frequencies of R1a-Z93.
 
-These Ethiopian slaves were not just labour. They were systematically bred with the local Dravidian-Australoid population, creating a new, genetically distinct underclass that diluted the older Indo-Aryan bloodlines. The term "Habshi" is what Northern Indians called Southern Indians and Habesha comes from "Abyssinia" which refers to Ethiopia. "Abyssinia" also refers to the Habshi military commanders—such as Malik Ambar in the Deccan—who eventually became kingmakers. By the time of the Bahmani Sultanate, the ruling elite of the Deccan was heavily African-admixed, and the old Kshatriya lineages had been either exterminated or pushed into the far north (Rajputs, Jats).
+9th-century geographer Ibn Khordadbeh gives us a description of the Radhanites route:
+
+Western Europe → Egypt → Suez → Red Sea → Jeddah/al-Jar → Sind → India → China (https://jewishvirtuallibrary.org/radaniya). So there is no question that the Radhanite network reached India and dealt in enslaved people.
+
+A population-genetics study of the Makrani population on the Arabian Sea coast explicitly describes an Indian Ocean slave trade operating from the 8th century onward, involving sub-Saharan Africans (https://pmc.ncbi.nlm.nih.gov/articles/PMC5812914/)
+
+These Ethiopian slaves bred with the local Dravidian-Australoid population, creating a new, genetically distinct underclass that diluted the older Indo-Aryan bloodlines. The term "Habshi" is what Northern Indians called Southern Indians and Habesha comes from "Abyssinia" which refers to Ethiopia. "Abyssinia" also refers to the Habshi military commanders—such as Malik Ambar in the Deccan—who eventually became kingmakers. By the time of the Bahmani Sultanate, the ruling elite of the Deccan was heavily African-admixed, and the old Kshatriya lineages had been either exterminated or pushed into the far north (Rajputs, Jats).
+
+But this African slave trade into India didn't stop in the 9th century.
+
+A genome-wide study found that Siddis (Habishi) carry substantial African, South Asian and possibly European ancestry. Their Y-chromosome lineages include African haplogroups E1b1a-M2 and B2-M182, characteristic of sub-Saharan/Bantu populations. Approximately 70% of the sampled Siddi male lineages in that study fell into haplogroups generally characteristic of African populations (https://pmc.ncbi.nlm.nih.gov/articles/PMC3135801/)
+
+Another study specifically notes historical evidence for a substantial influx from Mozambique between approximately 1680 and 1720 (https://pmc.ncbi.nlm.nih.gov/articles/PMC5518532/)
+
+One study estimates the major Siddi–South Asian admixture event happened as recently as 200 years ago (https://pmc.ncbi.nlm.nih.gov/articles/PMC3135801/)
 
 The caste system itself was a genetic cordon sanitaire to keep the old bloodlines pure, but the slave waves eroded it from below. The Islamic invasions (11th–16th centuries) then finished the R1a castes off. The modern South Indian gene pool—full of E-M2 and H—is the gravestone of the Scythian lords who once ruled the Deccan.
 
