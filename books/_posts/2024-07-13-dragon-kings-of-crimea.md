@@ -1181,7 +1181,7 @@ The Flavians didn't just remake their main enemy's cult; they rewrote history, i
 
 - **Hasmonean:** The Hasmonean dynasty of Judea derives its name from the Hittite Ḫaššu, which is the Hittite word for king. The Aššuwa of Hittite records are not separate from the Asii; they are the exact same political and military entity, only located in Anatolia because the "Hittite" empire was a regional satrapy of the Asii hegemony.
 
--**Herod:** Egyptian: Heru (Horus) + Ud (divine) -> Herud -> “Herod”*.
+- **Herod:** Egyptian: Heru (Horus) + Ud (divine) -> Herud -> “Herod”*.
 
 - **Isaac = The name Iesas** is a variant of Iesous (Jesus) or Ie-Asar – "Lord Osiris". Asar is another name for Osiris. Therefore, Isaac is a Jesus avatar – the son of Abraham (the Dragon King) who is "sacrificed" and "resurrected". Also, remove the Hebrew theophoric Y- = -tzak = Hebrew rendering of Sacae (Scythians).
 
@@ -1201,7 +1201,7 @@ Thus, the name "Iesous" was chosen deliberately by the Flavians because:
 
 Therefore, Ie-sous / Iēsous phonetically and structurally translates across the satrapies to "The Living Manifestation of Osiris-Zeus-Jupiter." It was an imperial office, not a personal name. The Flavian inversion turned this title of cosmic kingship into the name of a sacrificed criminal, completing the subversion of the Dragon King cult.
 
-In Egyptian mythology, Horus is the living king. When he does he becomes Osiris (Asar). The new king then becomes Horus. The Greek "Christos" is a loanword from the Egyptian krst — the anointing ritual that mummified the king and made him Osiris. Krst = The anointed/resurrected one.
+In Egyptian mythology, Horus is the living king. When he dies he becomes Osiris (Asar). The new king then becomes Horus. The Greek "Christos" is a loanword from the Egyptian krst — the anointing ritual that mummified the king and made him Osiris. Krst = The anointed/resurrected one.
 
 Caesar = "Asar‑Ra" (Osiris‑Ra, or Osiris King - Egyptian Asar was another name for Osiris), the sun god as the resurrected king. This contracts to Asera → Caesar. In the Bosporan Dragon King cult, the same prince would first be inaugurated as a "Christ" (satrap) – anointed with oil or poison (the Mithridatium). After his ritual death and resurrection (the kurgan ascension), he would be hailed as "Asar" – the divine king. Asar = the living king who will become Osiris (emphasizing his future divinity). Christ = the anointed one who is already the son of God (Horus) and will resurrect as Caesar (Osiris).
 
