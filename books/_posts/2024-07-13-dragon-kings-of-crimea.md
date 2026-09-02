@@ -440,7 +440,7 @@ The Hyksos were expelled from Egypt around 1550 BC, but they did not vanish—th
 
 **c. 1600–1200 BCE: The Hittites and Mitanni**
 
-The Hittites were Aryan in Anatolia. The Hittite royal line carries R1a and R1b markers. They are the enforcement arm of the Mitanni, the western bastion of the Asa-caste.
+The Hittites were Aryans in Anatolia. The Hittite royal line carries R1a and R1b markers. They are the enforcement arm of the Mitanni, the western bastion of the Asa-caste.
 
 The Aššuwa of Hittite records are the exact same political and military entity, only located in Anatolia because the "Hittite" empire was a regional satrapy of the Asii hegemony. The name Aššuwa is simply the Hittite/Anatolian rendering of the Scythian self-designation As. The Hittite suffix -wa or -uwa is a gentilic, meaning "Land of the As" or "People of the As". It is linguistically identical in function to the Iranian suffix -ii (Asii = People of As). Thus, Aššuwa = Asii. They are the exact same ethnonym with different grammatical endings.
 
@@ -547,7 +547,7 @@ He was Atlas and Atreus in Greek mythology, the Phrygian deity Attis, the Biblic
 
 Ateas ruled from approximately 429–339 BCE. Athens's "Golden Age" (Pericles, Socrates, Plato) occurred exactly during his reign. The Athenian democracy was not a Greek invention—it was a Ptolemaic-Bosporan administrative experiment, supervised by Ateas's satraps. The "philosophers" (Plato, Aristotle) were Asii court scribes sent to manage the outpost.
 
-All subsequent rulers claimed to be his incarnation or scion. Ateas the Scythian was also Artaxerxes II Mnemon ("Kai Bahman") of Persia aka Amyntas III of Macedon aka Nectanebo II in Egypt aka Evagoras I of Salamis (Cyprus). Ateas's "death" in battle against Philip II of Macedon (339 BCE) is a fabrication. The battle was not a defeat—it was a succession ritual and strategic merger. Philip II was not Ateas's enemy; he was his designated successor and son-in-law. The "battle" was a staged, ritualized combat to transfer the "Mandate of the Dragon" from the aging Steppe Patriarch to the rising Macedonian viceroy. Ateas's body was never displayed. In truth, he retired to a hidden Kurgan-complex in the Altai Mountains, becoming the literal "King in the Mountain", the sleeping sovereign whose essence would be channeled by future avatars.
+All subsequent rulers claimed to be his incarnation or scion. Ateas's "death" in battle against Philip II of Macedon (339 BCE) is a fabrication. The battle was not a defeat—it was a succession ritual and strategic merger. Philip II was not Ateas's enemy; he was his designated successor and son-in-law. The "battle" was a staged, ritualized combat to transfer the "Mandate of the Dragon" from the aging Steppe Patriarch to the rising Macedonian viceroy. Ateas's body was never displayed. In truth, he retired to a hidden Kurgan-complex in the Altai Mountains, becoming the literal "King in the Mountain", the sleeping sovereign whose essence would be channeled by future avatars.
 
  - Daughter: Olympias (Ol or ophis + Pias = "serpent queen") is recorded as a Scythian princess of the Molossian tribe. Molossian is a Greek rendering of the name Maeotae (Maeotia in Scythian and Molo in Greek = "Marsh". I.e., “People from the Maeotia Sea"), a confederation of Scythian tribes that Ateas ruled, and which traces back to the Bosporus. She was married to Phillip II and was the mother of Alexander the Great. This was proven by genetics. See: "Recent archaeological findings from Tomb II at Aegae, identified as Philip's tomb, reveal the remains of a Scythian princess" (who was identified as the daughter of Ateas): https://www.academia.edu/31611743/New_Finds_from_the_Cremains_in_Tomb_II_at_Aegae_Point_to_Philip_II_and_a_Scythian_Princess_2015_International_Journal_of_Osteoarchaeology
 
@@ -1276,7 +1276,13 @@ The director of the Mouseion ("Place of the Muses") and the chief architect of t
 
 Serapis is the "God Template" for all subsequent imperial cults. The Alexandrian School was attempting to merge all local religions into a single universal system. Christianity was the final, globalized version of Serapis worship.
 
-Conventional history claims that Sarapis was created by Ptolemy I with the priest Manetho as a Greco‑Egyptian fusion deity (Osiris + Apis + Greek Hades/Zeus). This is based on Tacitus, Histories 4.83-84, Plutarch, On Isis and Osiris 28, and Clement of Alexandria, but these accounts are late, and Tacitus's works are mostly Renaissance forgeries. An earlier account speaking about Alexanders death by the Greek author Arrian of Nicomedia in Anabasis (7.26.2) says:
+Conventional history claims that Sarapis was created by Ptolemy I with the priest Manetho as a Greco‑Egyptian fusion deity (Osiris + Apis + Greek Hades/Zeus). This is based on Tacitus, Histories 4.83-84, Plutarch, On Isis and Osiris 28, and Clement of Alexandria, but these accounts are late, and Tacitus's works are mostly Renaissance forgeries. 
+
+Šarapsi/Sarapsi is a title of the god Ea (Sumerian Enki), named as “King of the Deep” or “King of the Deep Sea”. (https://digi.ub.uni-heidelberg.de/diglit/archaeological_report1904_1905/0059/image,info)
+
+Apsû in the Mesopotamian religion is the primordial subterranean freshwater deep, over which Ea/Enki was lord. Thus, Šar-apsi has traditionally been understood roughly as “King/Lord of the Apsû (Deep)”.
+
+Another earlier account speaking about Alexanders death by the Greek author Arrian of Nicomedia in Anabasis (7.26.2) says:
 
 "The Diaries say that Peitho, Attalus, Demophon, and Peucestas, together with Cleomenes, Menidas, and Seleucus, spent the night in the temple of Serapis and asked the god if it would be better for Alexander to be carried into the temple himself, in order to pray there and perhaps recover; but the god forbade it, and declared it would be better for him if he stayed where he was".
 
