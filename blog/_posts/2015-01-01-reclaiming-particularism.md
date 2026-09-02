@@ -133,7 +133,11 @@ Then even introduce class and materialism as the final disruption. For example, 
 
 **Conclusion**
 
-There is a reason that the disparate European peoples in America were labeled "white" instead of just "European". This term was chosen deliberately to strip disparate groups of people of their unique heritages and cultures and turn them into an easily controllable monolith. This word then evolved into "Christendom" through the abolitionist movement, Social Gospel promoters, Franz Boas and the Frankfurt School, then through the civil rights activists. It culminated in the modern "Woke" culture. The way to deconstruct this term, and the system that is built upon, is through a return to ethnic particularism.
+There is a reason that the disparate European peoples in America were labeled "white" instead of just "European". There are roughly 87 European ethnicities and each one was stripped of their unique heritages and cultures by grouping them as white. But most importantly, this term turned all these ethnicities into an easily controllable monolith. 
+
+The process of deracination started with Christianity, then deracination was codified in law with the bureaucratic term "White" which inherited christian universalism through the abolitionists and Social Gospel promoters. It became a fully secularized variant of "Christendom" after being filtered through Boasian Anthropology and the Frankfurt School.
+
+The way to deconstruct this term, and the system that is built upon, is through a return to ethnic particularism.
 
 Ethnic particularism does not require liking your fellow Europeans or feeling any broad kinship with them. It is modular, conditional, and narrowly ethnic: you advocate for your specific people—or your own ancestral mix, such as Celto-Germanic or Anglo-Slavic. In this sense, ethnic particularism is precisely what defeats universalism's grip (appointed representatives and internal moral police). You advocate for your specific group's interests because you occupy that structural position and it serves your material outcomes.
 
