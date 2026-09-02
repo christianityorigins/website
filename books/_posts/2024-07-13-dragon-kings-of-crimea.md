@@ -535,7 +535,9 @@ Toreatae: The name Turan (the ancient Iranian term for Central Asia, the land of
 
 Sittaceni: The name Sittake appears in Persian geography as a region in Mesopotamia. This is the eastern cognate of the Sittaceni who administered the Persian satrapies.
 
-Strabo reports that King Ateas the Scythian united under his power the Scythian tribes living between the Maeotian marshes and the Danube. This is not a vague geographic description. It is a precise administrative claim that Ateas ruled the Maeotae federation.
+Psessoi: Ps- is a Greek rendering of the Scythian Pas- (Lord/King). -essoi is a Greek plural suffix (like -oi). Psessoi = Pas-essoi = "The Pas People" = The Pasiani. This is the same tribe that Strabo lists as one of the four tribes that destroyed the Greco-Bactrian Kingdom (Asii, Pasiani, Tochari, and Sacarauli). The Pasiani (also Gasiani) were the tribe that produced the Parthian Arsacid dynasty (Pahlava in Indian sources), the Indian Pallava dynasty, and the Flavian dynasty (Pahlava → Falava → Flavius)
+
+Strabo reports that King Ateas the Scythian ruled the Scythian tribes living between the Maeotian marshes and the Danube (Strabo, "Geography", Book 7, Chapter 3, section 18). This is a precise administrative claim that Ateas ruled the Maeotae federation.
 
 ### 4.1 The Primordial Patriarch: Ateas the Scythian (c. 429–339 BCE)
 
@@ -556,7 +558,7 @@ Fig. 1.1. Showing grandfather and grandson. L. Ateas the Scythian (Ata- or Atha-
 
 **Son-in-law:** Philip II of Macedon. Philip was a title (Philippos (Lover of Horses) is a direct Greek translation of the Scythian royal title Pharnavaz (Horse-Lord). Aspurgus (Scythian-Iranian), Augustus (Latin), Agrippa (Latin), and Philip (Greek) all mean "Horse-King" or "Cavalry Commander". Philip II's grandfather was named Arrhidaeus. Arrhidaeus can be decoded as Ar- = "Shining, Noble" (the same root as Argead and Aryan), and -rhidaeus = A variant of the Scythian/Iranian root -ratha- (chariot) or -rathae (charioteer). This is the exact same title as Pharnavaz and Philip.
 
- - Wife: Olympias. In conventional history Olympias' father is listed as Neoptolemus, or "New Ptolemus", or "New War King". But that was his title, not his personal name. Ptolemus is the same as Polemon and Ptolemy. In the Iliad (Book 4, line 228) Ptolemaios is the name of a Greek warrior. Her real father was Ateas. Her grandfather (or great-grandfather) is listed as Tharrhypas, King of the Molossians. Tharrhypas was also rendered as Arrybas, Arybas, Arybbas: Ar- (Aryan/Noble) + -ybas (a variant of hypas, "lord" or "chief")). She claimed to have been impregnated by the god Zeus Ammon disguised as a serpent. This is the immaculate conception trope in the bible. 
+ - Wife: Olympias. In conventional history Olympias' father is listed as Neoptolemus, or "New Ptolemus", or "New War King". But that was his title, not his personal name. Ptolemus is the same as Polemon and Ptolemy. Strabo, in his book Geography, in the same section where he talks about Ateas (Strabo, "Geography", Book 7, Chapter 3, section 16), says: “At the mouth of the Tyras is a tower called the Tower of Neoptolemus”. And this is geographically the mouth of the Dniester (ancient Tyras), in the northwestern Black Sea. So the name Neoptolemus was explicitly associated with Ateas. Her real father was Ateas. Her grandfather (or great-grandfather) is listed as Tharrhypas, King of the Molossians. Tharrhypas was also rendered as Arrybas, Arybas, Arybbas: Ar- (Aryan/Noble) + -ybas (a variant of hypas, "lord" or "chief")). She claimed to have been impregnated by the god Zeus Ammon disguised as a serpent. This is the immaculate conception trope in the bible. 
 
 The marriage between Phillip II and Olympias was a strategic dynastic union between two powerful houses, the Argeads of Macedon and the Aeacids of Molossia, both of which trace their origins to a common Scythian-Iranian steppe ancestry.
 
