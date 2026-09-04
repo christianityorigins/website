@@ -41,7 +41,7 @@ Published by Heretical Books
 
 **Chapter 4: The Master Timeline — A Complete Chronology of the Dragon Empire**
 - 4.1 The Primordial Patriarch: Ateas the Scythian (c. 429–339 BCE)
-- 4.2 Later Dragon Kings
+- 4.2 The Dragon Kings
 
 
 ### Part 3: The Dragon Bloodline & The Bosphoran Connection
@@ -54,75 +54,79 @@ Published by Heretical Books
 **Chapter 7: Ancient Alias Names List**
 - 7.1 Ptolemy XII Auletes aka Mark Antony aka Mithridates VI Eupator
 - 7.2 Julius Caesar aka Asander, King of Bosphorus aka Mithridates Chrestus
-- 7.3.1 Julius Caesar was a Title
+- 7.2.1 Julius Caesar was a Title
 - 7.2.2 Julius Caesar aka Asander's Suspected Aliases
 - 7.3 Cleopatra VII aka Dynamis Ourania aka Pythodorida Philometor
 - 7.4 Ptolemy XIII Theos Philopator aka Gaius Octavius (Emperor Augustus) aka Rhoemetalces I
 - 7.5 Ptolemy XIV Philopator aka Amyntas Nikator aka Amyntas, King of Galatia
 - 7.5.1 Was Amyntas Nikator aka Amyntas, King of Galatia the Living Esus?
 - 7.6 Alexander, son of King Herod aka Alexander Helios aka Juba II
-- 7.7 The Successor Generations
-- 7.8 Izates II, King of Adiabene
-- 7.9 Tiberius Julius Sauromates II
-- 7.10 Simon Bar Kokhba
 
-**Chapter 8: Roman and Biblical Name and Title Decodings**
+**Chapter 8: Later Dragon Kings**
+- 8.1 The Successor Generations
+- 8.2 Izates II, King of Adiabene
+- 8.3 Tiberius Julius Sauromates II
+- 8.4 Simon Bar Kokhba
+- 8.4.1. The Bar Kokhba Revolt
+- 8.5 Attila the Hun
+
+**Chapter 9: Roman and Biblical Name and Title Decodings**
 
 
 ### Part 4: The Alexandrian Synthesis
 
-**Chapter 9: The Alexandrian School**
-- 9.1 Serapis Cult
-- 9.2 Religion as an Operating System for the Ancient World
-- 9.3 Judaism
-- 9.4 Location of Ancient Jerusalem (Hiero-Solyma)
-- 9.5 Modern Jews
+**Chapter 10: The Alexandrian School**
+- 10.1 Serapis Cult
+- 10.2 Religion as an Operating System for the Ancient World
+- 10.3 Judaism
+- 10.4 Location of Ancient Jerusalem (Hiero-Solyma)
+- 10.5 Modern Jews
 
 
 ### Part 5: The Flavian Dynasty and the Creation of Christianity
 
-**Chapter 10: The Flavian Dynasty**
-- 10.1: The Invention of Christianity
+**Chapter 11: The Flavian Dynasty**
+- 11.1: The Invention of Christianity
 
 
 ### Part 6: The Demographic Erasure of the Scythian-Aryan Hegemony
 
-**Chapter 11: The Flavians and Demographic Replacement (c. 50 BCE – 300 CE)**
+**Chapter 12: The Flavians and Demographic Replacement (c. 50 BCE – 300 CE)**
 
-**Chapter 12: China: The Han Synthesis and the Tartarian Genocide**
+**Chapter 13: China: The Han Synthesis and the Tartarian Genocide**
 
-**Chapter 13: Ancient India: The Mauryan Mirage**
+**Chapter 14: Ancient India: The Mauryan Mirage**
 
-**Chapter 14: The Middle East and North Africa: Invasions and Slave Colonization (250–650 CE)**
+**Chapter 15: The Middle East and North Africa: Invasions and Slave Colonization (250–650 CE)**
 
-**Chapter 15: Plagues and Biological Warfare**
+**Chapter 16: Plagues and Biological Warfare**
 
-**Chapter 16: Where Did The Scythian Aryans Go? The Refugia**
+**Chapter 17: Where Did The Scythian Aryans Go? The Refugia**
 
 
 ### Part 7: Rewriting History
 
-**Chapter 17: Rewriting History**
+**Chapter 18: Rewriting History**
 
-**Chapter 18: Inventing Ancient Greece**
+**Chapter 19: Inventing Ancient Greece**
 
-**Chapter 19: The 'Achaemenid' Empire is the Parthian Empire**
+**Chapter 20: The 'Achaemenid' Empire is the Parthian Empire**
 
-**Chapter 20: Fabricating 'Ancient' Egypt**
+**Chapter 21: Fabricating 'Ancient' Egypt**
 
-**Chapter 21: Rome: The Phantom Empire on the Tiber**
+**Chapter 22: Rome: The Phantom Empire on the Tiber**
 
-**Chapter 22: The Renaissance Forgery (14th–16th centuries CE)**
+**Chapter 23: The Renaissance Forgery (14th–16th centuries CE)**
 
-**Chapter 23: The Jesuit Operation (16th–18th centuries)**
+**Chapter 24: The Jesuit Operation (16th–18th centuries)**
 
 
 ### Part 8: Sects of the Imperial Cult
 
-**Chapter 24: Identifying the Flavian Scribes**
-- 24.1 Christianity
-- 24.2 The Cult of Antinous
-- 24.3 Islam
+**Chapter 25: Identifying the Flavian Scribes**
+- 25.1 Christianity
+- 25.2 The Cult of Antinous
+- 25.3 Islam
 
 
 ### Conclusion
@@ -582,7 +586,7 @@ Endnotes (Chapter 4.1)
 
 ---
 
-**4.2 Later Dragon Kings**
+**4.2 The Dragon Kings**
 
 **c. 323 BCE–181 CE: The Diadochi**
 
@@ -610,14 +614,6 @@ Bosporan and Dacian kingdoms control the Danube Delta and Bosporus Strait—the 
 
 The Dacian gold mines (100 BC – 100 AD) funded the "Roman" Empire. Asander, King of Bosporus (Julius Caesar), was the richest man in the world.
 
-**c. 110 BCE–17 BCE: Asander/Julius Caesar**
-
-Asander (c. 110–17 BCE) was the Bosporan Dragon King who was also Julius Caesar (Rome), Mithridates Chrestus (Pontus), Ptolemy of Cyprus (Egypt), Azes I (India), and Wang Mang (China). Asander = Asa-ander = "Serpent-Lord-Man." His reign ended with the "assassination" of Julius Caesar (44 BCE)—a ritual death that preceded his "resurrection" as Azes I in India.
-
-**c. 69–30 BCE: Cleopatra/Dynamis**
-
-Cleopatra VII was the same person as Dynamis, Queen of Bosporus, and Pythodorida Philometor. Dynamis = "Serpent-Power" (from Egyptian Denwen, the fiery serpent). She was married to her father Mark Antony/Herod/Mithridates VI, and to her brother Ptolemy XIII/Augustus/Rhoemetalces I.
-
 **c. 30–375 AD: Tochari (Bactria)**
 
 The Kushan Empire (1st-3rd c. CE) claimed descent from the Yuezhi. Their title for king was Shaonano Shao—"King of Kings"—a direct translation of the Bosporan Basileus Basileon and the Achaemenid Xšāyaθiya Xšāyaθiyānām.
@@ -625,50 +621,6 @@ The Kushan Empire (1st-3rd c. CE) claimed descent from the Yuezhi. Their title f
 The Greek Tokharoi, Sanskrit Tukhāra/Tushāra, and Old Persian Tuxāri- all go back to Tarkhu-As, meaning "Ruler-As" (Tarkhu is the storm-god title, as in Hittite Tarḫunna, Etruscan Tarquin).
 
 Strabo records four tribes that conquered Bactria: the Asioi, Pasianoi, Tochario, and Sakarauloi. The Pasianoi (also Gasiani) are the "People of the Pas" —a title that appears in the Flavian name Vespasian (Ves-Pasianus = "Lord of the Pasiani"). Armenian historical tradition later connects the Arsacid dynasty with the Kushans, and the founder of the Parthian Empire, Arsaces I, may have originated from the Gasiani tribe.
-
-**c. 37–55 CE: Izates II of Adiabene**
-
-Izates II (c. 37–55 CE) was the primary Jesus avatar. Izates = Yazata = "Divine Being" or "Lord." He was also Monobazus = Manu-Sabazios = "Zeus-Man." His kingdom was the "Kingdom of Ourania" —the "Kingdom of Heaven." He was the great-grandson of Mark Antony/Herod and Cleopatra/Dynamis.
-
-**c. 66–73 CE: The First Jewish-Roman War**
-
-The "First Jewish-Roman War" was not a provincial revolt. It was a civil war within the Dragon King hegemony. The Flavians did not put down a revolt. They launched a blitzkrieg against the core Eastern administration and destroyed the Scythian steppe hegemony. King Izates II (Jesus Emmanuel) led the Judean-Adiabenean forces against Rome.
-
-### PHASE 4: The Flavian Coup
-
-**c. 70 CE: The Flavian Dynasty Seizes Power**
-
-Vespasian (69–79 CE) was the first Flavian emperor. Vespasian = Ves-Pasianus = "Lord of the Pasiani" (the Parthians). The Flavians were not Asii. They were Pahlavi (Parthian)—a related but subordinate Iranian clan that had served as mercenaries and administrators. They were heavily intermarried with the Judeo-Anatolian J2 priesthood.
-
-**c. 70–100 CE: The Flavian Historiographical Project**
-
-J2/J1 Pahlavi-Flavian usurpers overthrow the R1a Asii hegemony. The Flavians (Vespasian, Titus) rewrite history, burn the Alexandrian Library, and create Christianity as the ontological inversion of the Asii Dragon Cult.
-
-**c. 117-138 CE: The Roxolani/Alans (Eastern Europe)**
-
-The Roxolani (-olani = - alani) were also a branch of the same tribe. Historian George Vernadsky suggested that the name Rocas (a tribe conquered by the Ostrogoths in the 4th century) may be a corruption of Ruxs-As—"Light-Asii". The Rosomoni, mentioned by Roman historian Jordanes, may also be related, interpreted as the "Ros Men". The name "Rus" is not a Viking invention. It is the Asii self-designation—the "Shining Asii" who later gave their name to the Russians. The Roxolani are the bridge between the ancient Asii and the modern Russian people.
-
-Alexander's father Philip belonged to the Argead dynasty who were of Dorian Greek ancestry. The name is traditionally derived from Argos, the Peloponnesian city, but this is a Hellenized etymology designed to obscure a deeper truth. The root Arge- is cognate with Sanskrit (rajata) = "silver, shining" and the Scythian Ar-/Al- = "noble, shining" (as in Alans, Roxolani). This is the exact same semantic field as the Roxolani ("Shining Alans") and the Asii ("The Shining Lords").
-
-Alexander (Al-As-andros = the Asii Lord Man) was a member of the Roxolani tribe and when he married Roxana he was marrying a heiress to the Roxolani. Al-As-andros = As-andros = Asander. The exact same title.
-
-**c. 132–136 CE: The Bar Kokhba Revolt**
-
-The Bar Kokhba Revolt was not a Jewish revolt – it was a R1a Scythian counter-revolt against the J1/J2 Flavian collaborators. The leader, Simon bar Kokhba (“Son of the Star”), was a R1a Scythian prince – his coins bear the star and crescent. The R1a Levites were decimated, while the J1 Cohanim survived. Hadrian’s decimation of the Jewish population was selective. He targeted the R1a Levites (the rebel warriors) but spared the J1 Cohanim (the collaborators). This is why the Cohanim today are J1 and the Levites are R1a – the Levites were nearly wiped out, while the Cohanim flourished under Roman protection.
-
-**c. 434-453 CE: Attila the Hun**
-
-Attila was the title of the last legitimate Bosporan Emperor attempting to reclaim the Western administration from the J2/J1 papal-financier class. 
-
-The name Attila is a diminutive of Ata (Scythian “Forefather”), the same root as Ateas and Adam. It means “Little Father” or “Son of the Dragon”. His brother’s name, Bleda, is a corruption of Bleda/Belisarius, linking to the Bel/Baal priestly title. 
-
-The legend that Attila received the “Sword of Mars” (the Sword of the War God) is a corrupted memory of the Scythian Akinakes, the sacred iron sword that the Scythians worshipped as the embodiment of Ares/Targitaos. Attila did not seek to destroy Rome. He sought to reintegrate the Western garrison into the Eastern (Constantinopolitan/Bosporan) fold and to purge the J2/J1 Levantine financial administration that had usurped control of the Gallic and Italian mints. 
-
-Attila the Hun was the same person as Priscus Attalus (Roman usurper) who was born in the Roman province of Asia.
-
-When the Vatican tried marrying princess Justa Grata Honoria to Bassus Herculanus, she refused, then sent her ring to Attila and proposed marriage. This was the Dragon princess who carried the R1b-V88/R1a-Z93 genetic memory of the old Western Sarmatian nobility refusing an arraigned marriage and instead choosing the last legitimate Dragon King.
-
-The Church invented Pope Leo I “miraculously” turning him back. In reality, a treaty was signed recognizing Attila’s suzerainty, followed by a biological weapon attack—the same Yersinia pestis vector used later by Justinian—released in his camp, causing his “nosebleed death” (hemorrhagic plague). This allowed the J2/J1 faction in Constantinople (the Papal States’ silent partners) to claim a divine victory. The Vatican then turned him into a foreign monster, instead of a Dragon King.
 
 ---
 
@@ -1072,7 +1024,7 @@ I identify Cleopatra's brother-husband Ptolemy XIII Theos Philopator as Gaius Oc
 
 Was he also Jesus ben Panthera? "Panthera" is a Hellenized corruption of "Ptolemaios" (Ptolem -> Ptol -> Panther). "Jesus, son of Ptolemy". The Talmud (Bereshit Rabbah 46:10) calls Izates and Monobazus the "Sons of Ptolemy".
 
-### 7.7 The Successor Generations
+### 8.1 Later Dragon Kings
 
 Cleopatra aka Dynamis's son with Mark Antony = Ptolemy Philadelphus who was Sampsiceramus I?
 
@@ -1084,7 +1036,7 @@ Cleopatra aka Dynamis's grandson with Mark Antony = Alexander (grandson of King 
 
 Fig. 1.48. (L) Alexander (grandson of King Herod) aka Gaius Julius Alexander, Herodian Prince of Judaea aka Alexander the Alabarch aka (King/Tetrarch) Ptolemy (Alexander) bar Menneus aka Ptolemy of Mauretania aka "Jesus" in the Bible. (R) Cleopatra (Thea Philopator) of Mauretania aka Cleopatra IX aka Pythodorida Philometor aka Helene aka Drusilla of Mauretania aka Julia Ourania of Parthia aka Alexandra bat Mattathias (Matityahu is the Hebrew form of Mattathias, which itself is a variant of Mithridates ("Given by Mithra")) aka "Philo of Alexandria".
 
-### 7.8 Izates II, King of Adiabene
+### 8.2 Izates II, King of Adiabene
 
 Alexander (grandson of King Herod) and his sister-wife Cleopatra (Thea Philopator) of Mauretania had two sons: Tiberius Julius Alexander aka Arrius Calpurnius Piso aka Arrius Varus aka Tiberius Julius Cotys (In Thracian, 'Cotys' is related to the word 'kotys' which is a title that means 'lord') aka Emperor Nerva, and Marcus Julius Alexander aka Yeshua Cleopatros (Cantheras/Panthera) ben Josephus bar Menneus aka Ma'nu of Adiabene/Edessa aka Ptolemy aka Yakov Zu Tolomoy aka Izates aka Jesus Emmanuel aka Monobazus of Adiabene [^23]
 
@@ -1096,7 +1048,7 @@ Fig. 1.49. 'Josephus' bust which I identify as Tiberius Julius Alexander. Compar
 
 Fig. 1.50. (L) and (R) show King Izates Monobazus of Edessa (known in Greek as the "Kingdom of Ourania" or in English as the "Kingdom of Heaven") wearing a crown of thorns. Izates or Izas is his title which is an ancient Greek translation of the Avestan word Yazatas (Persian: izad), meaning 'lord'. He is one of the Jesus avatars, Isa in the Quran, and Sultan Ezid in the Yazadi ('Iza'di) religion. He was the uncle of Tiberius Julius Sauromates II, King of Bosphorus. The middle image source: The Alexander Mosaic, Huqoq, Israel.
 
-### 7.9 Tiberius Julius Sauromates II
+### 8.3 Tiberius Julius Sauromates II
 
 ![Fig.1.51](/images/SauromatesII.jpg){:width="400px"}
 
@@ -1130,7 +1082,7 @@ Fig. 1.57. Was the father of Tiberius Julius Sauromates II named Tiberius Julius
 
 Fig. 1.58. Coin depicting Tiberius Julius Cotys II who was the grandfather of Tiberius Julius Sauromates II. Tiberius Julius Cotys II was the son of Tiberius Julius Sauromates I.
 
-### 7.10 Simon Bar Kokhba
+### 8.4 Simon Bar Kokhba
 
 Tiberius Julius Cotys II was the grandfather of Tiberius Julius Sauromates II. Was he also Simon bar Kokhba? Bar Kokhba means "Son of the Star". The star is the morning star (Venus), which is the symbol of the Julian house. That is the title of a Julian prince. The Star of Caesar (also Sidus Iulium, or "Julian Star") iconography is prominent in coins of Tiberius Julius Sauromates II and his son Rheskuporis V and directly links to the "Star and Crescent" symbolism on the coins of Asander/Julius Caesar and Dynamis/Cleopatra. He led the Bar Kokhba revolt (132-136 AD) against Rome. As heir to the dragon crown he would have had a claim to the emperor position.
 
@@ -1158,7 +1110,25 @@ Fig. 1.62. L. Simon Bar Kokhba coin. R. Coin of Alexander (grandson of King Hero
 
 Fig. 1.63. L. Simon Bar Kokhba coin showing a kithara (Greek musical instrument). R. Coin of Scilurus, king of Scythia also showing a kithara. The kithara also shows up on Asande's coins (https://leunumismatik.com/en/lot/24/154)
 
-**Endnotes (Chapter 7.10)**
+### 8.4.1 The Bar Kokhba Revolt
+
+The Bar Kokhba Revolt was not a Jewish revolt – it was a R1a Scythian counter-revolt against the J1/J2 Flavian collaborators. The leader, Simon bar Kokhba (“Son of the Star”), was a R1a Scythian prince – his coins bear the star and crescent. The R1a Levites were decimated, while the J1 Cohanim survived. Hadrian’s decimation of the Jewish population was selective. He targeted the R1a Levites (the rebel warriors) but spared the J1 Cohanim (the collaborators). This is why the Cohanim today are J1 and the Levites are R1a – the Levites were nearly wiped out, while the Cohanim flourished under Roman protection.
+
+### 8.5 Attila the Hun (c. 434-453 CE)
+
+Attila was the title of the last legitimate Bosporan Emperor attempting to reclaim the Western administration from the J2/J1 papal-financier class. 
+
+The name Attila is a diminutive of Ata (Scythian “Forefather”), the same root as Ateas and Adam. It means “Little Father” or “Son of the Dragon”. His brother’s name, Bleda, is a corruption of Bleda/Belisarius, linking to the Bel/Baal priestly title. 
+
+The legend that Attila received the “Sword of Mars” (the Sword of the War God) is a corrupted memory of the Scythian Akinakes, the sacred iron sword that the Scythians worshipped as the embodiment of Ares/Targitaos. Attila did not seek to destroy Rome. He sought to reintegrate the Western garrison into the Eastern (Constantinopolitan/Bosporan) fold and to purge the J2/J1 Levantine financial administration that had usurped control of the Gallic and Italian mints. 
+
+Attila the Hun was the same person as Priscus Attalus (Roman usurper) who was born in the Roman province of Asia.
+
+When the Vatican tried marrying princess Justa Grata Honoria to Bassus Herculanus, she refused, then sent her ring to Attila and proposed marriage. This was the Dragon princess who carried the R1b-V88/R1a-Z93 genetic memory of the old Western Sarmatian nobility refusing an arraigned marriage and instead choosing the last legitimate Dragon King.
+
+The Church invented Pope Leo I “miraculously” turning him back. In reality, a treaty was signed recognizing Attila’s suzerainty, followed by a biological weapon attack—the same Yersinia pestis vector used later by Justinian—released in his camp, causing his “nosebleed death” (hemorrhagic plague). This allowed the J2/J1 faction in Constantinople (the Papal States’ silent partners) to claim a divine victory. The Vatican then turned him into a foreign monster, instead of a Dragon King.
+
+**Endnotes (Chapter 8)**
 
 (a) The morning star was Lucifer, or "lucem ferre", which means "light-bearer" or "morning star". Lucifer became a demon after Flavian and J1/J2 rabbinic revision.
 (b) Apollonius of Tyre was married to the daughter of a king of Libya ("Historia Apollonii Regis Tyri" or "The Story of Apollonius, King of Tyre"), who was Cleopatra Selene aka Drusilla (aka Cleopatra (Thea Philopator) of Mauretania aka Cleopatra IX aka Helene aka Julia Ourania of Parthia aka Philo of Alexandria. Drusilla was the wife of Azizus who was her brother Juba II (Alexander Helios aka Alexander (son of King Herod)) aka Gaius Julius Alexander, Herodian Prince of Judaea aka Alexander Lysimachus aka Alexander the Alabarch aka Tiberius Julius Alexander Major aka (King/Tetrarch) Ptolemy (Alexander) bar Menneus aka Ptolemy of Mauretania aka Phraates V (the "King of Kings") aka Monobazus I King of Adiabene). [^24] [^25] So, Alexander aka Juba II was also Apollonius of Tyre. Juba II carried the title "Rex Literatissimus" which can be translated as "Most Learned King" or "The Most Scholarly King". He was known as a philosopher. These members of this royal family liked to role-play as philosopher kings. Is Apollonius of Tyre the same person as Apollonius of Tyana? This would make Apollonius of Tyana the brother-husband of Philo of Alexandria and the father of Josephus. These three created the core of Christianity.
@@ -1166,7 +1136,7 @@ Fig. 1.63. L. Simon Bar Kokhba coin showing a kithara (Greek musical instrument)
 
 ---
 
-## Chapter 8: Roman and Biblical Name and Title Decodings
+## Chapter 9: Roman and Biblical Name and Title Decodings
 
 The Flavians didn't just remake their main enemy's cult; they rewrote history, including executing a systemic replacement of the titulary lexicon. For example, "Caesar" originally meant "Osiris-King" (Ka-Asar). The Flavians changed the etymology to caesaries ("hair"), claiming Julius Caesar was born via caesarean section or had lush hair. This severed the title from its Egyptian/Osirian roots and made it Roman.
 
@@ -1269,13 +1239,13 @@ Jesus Christ then became a composite literary character based on the defeated Sa
 
 # Part 4: The Alexandrian Synthesis
 
-## Chapter 9: The Alexandrian School
+## Chapter 10: The Alexandrian School
 
 The Alexandrian School (Mouseion of Alexandria) was a religion-making factory. They were attempting to create a universal religion and this was being achieved by gradual syncretism using local identities and blending local deities into syncretic universal savior archetypes (Interpretatio Graecae) as a transitional phase toward a universal monotheism. The Ptolemaic elites were conditioning the disparate populations they ruled into accepting the Serapis cult.
 
 The director of the Mouseion ("Place of the Muses") and the chief architect of the synthetic religions was not a man. It was a succession of Ptolemaic princesses who held the title The Muse Ourania (The Heavenly Muse). The Mouseion was named after her office. Arsinoë II Philadelphus (c. 316 BC – 270 BC), daughter of Ptolemy Soter, was referred to as "the tenth Muse" and she had a cult dedicated to her as Arsinoë Aphrodite Ourania. In some cases these female directors took on male aliases, for example, Philo of Alexandria was Cleopatra (Thea Philopator) of Mauretania aka Cleopatra IX, Helene, Drusilla of Mauretania, Julia Ourania of Parthia, etc.
 
-### 9.1 Serapis Cult
+### 10.1 Serapis Cult
 
 Serapis is the "God Template" for all subsequent imperial cults. The Alexandrian School was attempting to merge all local religions into a single universal system. Christianity was the final, globalized version of Serapis worship.
 
@@ -1341,13 +1311,13 @@ The template is unmistakable: born in a cave (Jesus was born in a cave. Dionysus
 
 Previous to Serapis the first universal religion that the Alexandrian School tried to push was the "Ptolemaic Cult of Alexander the Great". They probably realized quickly that a religion about "The Divine Alexander" dies with Alexander so they switched to his deified form ("Sarapis") instead. This way that name became a placeholder that kings inherited. This role could switch between generations, and this is why they didn't directly deify themselves. The population knew the god-king was the earthly agent of whatever deity they worshiped.
 
-### 9.2 Religion as an Operating System for the Ancient World
+### 10.2 Religion as an Operating System for the Ancient World
 
 Religion was the technology that the Ptolemaic dynasty used to control the vast and disparate populations they ruled and they created religions in every single conquered land. They would take local customs and create a syncretic man-god representing the Ptolemaic pharaoh (the principle of 'Interpretatio Graeca'). This system had one primary function: to psychologically pacify conquered populations and prevent unified rebellion. They would package these religions as sects of local religions because getting people to abandon their religions for a new one is an impossible task. However, there are thousands of sects of major religions today, many with different prophets (e.g., Christianity as Judaism's "fulfillment").
 
 Beyond the surface-level imperial fiction, all these Alexandrian School religions contained the same psychological weapon at their core: centralized texts and priesthoods which makes a population easier to control through proxy (up until the Protestant Reformation most of the European population was illiterate. Then the church kept scripture in Latin, which only clergy could read. Reproducing or translating the Bible was punishable by death. This is because the Bible was written for a tiny, literate priestly elite who would then control the population on behalf of kings), moral codes like submission ("turn the other cheek", "the meek shall inherit the earth", "he who raises the sword will die by the sword", etc.), self-sacrifice, obedience, loyalty, divine judgment, the concept of hell, suffering in this life is good (it purifies the soul) and the promise of inner peace through acceptance of one's station, and monotheism which divides the population through binary thinking, ie., the opposition between good and evil, us vs them, left vs right, etc., which destroys tribalism/collectivism by splitting the population into two opposing groups. These religions were also likely designed to segment the populations by class, culture, and region to prevent unified resistance. For example, Mithraism was for military elites (requiring blood oaths, with a Mithraic initiate caste system and hierarchical structure). Serapism was for civilians (promising afterlife salvation). Christianity was for slaves ("turn the other cheek").
 
-### 9.3 Judaism
+### 10.3 Judaism
 
 Iudaios (Jew) = Iulius (Julius). The Tribe of Judah and the Gens Julia were the exact same bloodline. Both derive from title "Yuezhi", the Central Asian Scythian tribe (Yuezhi (Chinese) → Iuzi (some intermediary) → Iulius (Latin)), comes from. The name Jupiter comes from Dyēus Pter ("Sky Father") which is the original name of the chief god for the Proto-Indo-Europeans on the Pontic-Caspian Steppe. His name means "Shining Sky Father". The name Zeus comes from the pronunciation of "Dyeus", and I(J)upiter (there was no "J" in ancient Latin) comes from the pronunciation of "Dyeus Pter" (Diespiter -> Iupiter). I(J)upiter was also called Jove or Iove to the Romans. The Latin pronunciation of Iove would have been Yoh-Way, i.e., Yahweh/Yhwh. Dyēus -> Zeus -> Iove (Jove) -> Iud- (as in Iud-ii). The -ii suffix denotes "people of" or "tribe of". Iudii = "The People of Jove". The Scythian elite, as part of their imperial cult, syncretized their primary deity with local deities. In Anatolia and Thrace this same god was worshipped as Sabazios, so Yahweh Sabaoth, the god of the Hebrew Bible, is I(J)ove (Roman Zeus) Sabazios (Thracian Zeus).
 
@@ -1369,7 +1339,7 @@ Moses = Manes/Mannu-Kuras = Manu (Scythian Sage-King) = Menes (Egypt's legendary
 
 The Pentateuch is a Hebraized translation of Plato's Laws and Republic, overlaid on a Scythian tribal genealogy (the 12 clans of the Sarmatian federation), and codified at the Alexandrian School in Egypt. The myth of the jewish people and the Laws of Moses were based on Plato's hypothetical colony of Magnesia from his thesis called "The Laws" (347 BC) in which the proposed charter for the Cretan colony of Magnesia was modeled in large part on Athenian legal and constitutional traditions. Ancestors received law from a deity, hereditary priesthood rather than king, as well as the division into 12 tribes were all part of the formula. Plato's Timaeus (360 BC) is where the story of Abraham comes from. Plato's Timaeus is also the source for Genesis 1-11. Homer's Odyssey was the source of Genesis 24, 42-46. The biblical concept of hell was stolen from Plato's Republic ('Myth of Er'), and the spiritual plane of Heaven is ripped off from Plato's 'World of Forms'. Exodus is just a semitized retcon of Jason and the Argonauts, and the Oracles Against the Nations plagiarize the Sibylline Oracles.
 
-### 9.4 Location of Ancient Jerusalem (Hiero-Solyma)
+### 10.4 Location of Ancient Jerusalem (Hiero-Solyma)
 
 Ancient Jerusalem was located in Anatolia, along the Bosphorus river near Yoros castle. The name "Yoros" (also spelled Ioros) is a direct phonetic match for the first half of "Ierosolyma" (Jerusalem). The Turkish name Yoros is also a contraction of the Greek Hieron ("Sacred Place") – which is the same root as Hierosolyma, the Greek name for Jerusalem.
 
@@ -1391,7 +1361,7 @@ This region was populated by the Celts (Galatians) who came to ancient Anatolia 
 
 For example, the Celtic languages are surprisingly Semitic with a verb-subject-object word order and a shocking amount of vocabulary overlap, and the name of Irish deities, Balor and his holiday Beltaine are cognate to Bal and Elatha the Irish Uranus is cognate to Hebrew El. King David (DWD) = King Druid. 1 Samuel 16:12 claims that King David had red hair. The ancient Celtic prefixes 'Rab' or 'Rhab' mean 'wise one' or 'seer', and a Druid equates to a Rabbi. There was even a Celtic tribe called the "Iudii" -> Ioudaioi -> Jew.
 
-### 9.5 Modern Jews
+### 10.5 Modern Jews
 
 The original Jews were not a Semitic tribe from Canaan. They were the Gens Julii – the Dragon Kings' priestly caste who spread from Central Asia to Europe.
 
@@ -1415,7 +1385,7 @@ The Levites who survived the purges by the Flavians and Emperor Hadrian were the
 
 # Part 5: The Flavian Dynasty and the Creation of Christianity
 
-## Chapter 10: The Flavian Dynasty
+## Chapter 11: The Flavian Dynasty
 
 Vespasian’s father, Titus Flavius Sabinus, was a publicanus—a tax/financial contractor—and later became a moneylender/collector in Asia. He was recorded as "the honest tax collector". Titus Flavius Sabinus's father, Titus Flavius Petro, was actually named Poppaeus Sabinus and was "given" the former estate of Vipsania Polla in Falacrine, and he attained the cognomen Sabinus with his senatorial rank.
 
@@ -1443,11 +1413,11 @@ Berenice's brother Marcus Julius Agrippa II, whom she was in an incestuous relat
 
 Emperor Vitellius was probably an alias for Vespasian's older brother Titus Flavius Sabinus who was married to Mariamne III aka "Arria the Elder" ("Arria" from her father's name judean king Aristobulus IV who was the son of King Herod and he was also Julius Caesar's adopted son).
 
-## Chapter 10.1: The Invention of Christianity
+## Chapter 11.1: The Invention of Christianity
 
 The Flavians did not create Christianity from nothing. They took the existing Dragon King cult (the "Asandrokhos"/"Christ" title) and inverted it into a slave-morality religion. Emperor Vespasian originally created a religion as part of his rise to power, and weaponized this imperial cult by creating a virus within the host: a "religion" that systematically inverted the original cult by transforming the governing elite's title into the name of a sacrificial victim. Tiberius Julius Alexander aka "Josephus", who was the Flavian court historian, was the prefect of Egypt at this time and had control of the Library of Alexandria and the Alexandrian School, and with the help of Alexandrian School scribes, is likely who was responsible for creating history's most devastating psy-op—a forged testament that was later used to shatter the very empire that authored it. He was also likely the one who burned down the Library of Alexandria soon after to cover up the tracks of his conspiracy. (Ironically, Tiberius Julius Alexander aka "Josephus" was the brother of Izates II who was Marcus Julius Alexander).
 
-**Endnotes (Chapter 10)**
+**Endnotes (Chapter 11**
 
 (a) Theory: Alexander (grandson of King Herod) aka Gaius Julius Alexander, Herodian Prince of Judaea aka Alexander Lysimachus aka Alexander the Alabarch aka Tiberius Julius Alexander Major aka (King/Tetrarch) Ptolemy (Alexander) bar Menneus aka Ptolemy of Mauretania was also the Roman general 'Gnaeus Domitius Corbulo'. Gnaeus Domitius Corbulo conquered Armenia alongside Tiberius Julius Alexander (his son Tiberius Julius Alexander aka Arrius Calpurnius Piso aka Arrius Varus aka Tiberius Julius Cotys aka Emperor Nerva), after which, Tigranes VI (Tiberius Julius Alexander) was installed as king. Compare his bust [link] to the famous 'Josephus' (Tiberius Julius Alexander) bust [link]. Notice a resemblance? If this is correct, then he (Alexander) would have been the brother-in-law to Caligula and father-in-law to Domitian. Tiridates of Armenia (who would have been Mithridates Chrestus' great-great-grandson) was the one who spread the religion Mithraism which was a syncretic slave-morality religion to subjugate the Parthians. Mithras is inspired by Zoroastrianism, the religion of the Persians/Parthians, but Mithras is the same as Sabazios. It's a solar son deity, a Jupiter.
 (b) Coin of Vespasian depicitng "Zeus-Sarapis": [^27]
@@ -1456,7 +1426,7 @@ The Flavians did not create Christianity from nothing. They took the existing Dr
 
 # Part 6: The Demographic Erasure of the Scythian-Aryan Hegemony
 
-## Chapter 11: The Flavians and Demographic Replacement (c. 50 BCE – 300 CE)
+## Chapter 12: The Flavians and Demographic Replacement (c. 50 BCE – 300 CE)
 
 A recent study published in the Journal of Science (Ancient Rome: A genetic crossroads of Europe and the Mediterranean. https://www.science.org/doi/10.1126/science.aay6826) explicitly notes that during the Imperial period (27 BC – 300 AD), Rome experienced a massive genetic shift from local Italian (Etruscan/Latin/R1a) ancestry toward Eastern Mediterranean and Anatolian ancestry (J1/J2). The study dates this shift to exactly the Flavian period (70–100 AD). The influx of “Eastern” DNA coincides perfectly with Vespasian’s importation of 100,000+ Jews/Adiabeneans into Italy after the Jewish-Roman War (Josephus, Jewish War vi). This is why the Flavian dynasty and their court historians (Josephus, Pliny, Tacitus) rewrote history to erase the Scythian origins of ancient civilizations and painted the Scythians (R1a) as monstrous foreigners.
 
@@ -1478,7 +1448,7 @@ This is why they erased the Scythian origins of ancient civilizations and painte
 
 ---
 
-## Chapter 12: China: The Han Synthesis and the Tartarian Genocide
+## Chapter 13: China: The Han Synthesis and the Tartarian Genocide
 
 The Scythians ruled a Eurasian empire that stretched into China.
 
@@ -1529,7 +1499,7 @@ The twist is that Genghis Khan is a Dragon King avatar. His name decodes to Geng
 
 ---
 
-## Chapter 13: Ancient India: The Mauryan Mirage
+## Chapter 14: Ancient India: The Mauryan Mirage
 
 The "Mauryan" Empire is a Flavian/Vatican fabrication. Chandragupta Maurya is Alexander the Great.
 
@@ -1593,7 +1563,7 @@ The caste system itself was a genetic cordon sanitaire to keep the old bloodline
 
 ---
 
-## Chapter 14: The Middle East and North Africa: Invasions and Slave Colonization (250 - 650 CE)
+## Chapter 15: The Middle East and North Africa: Invasions and Slave Colonization (250 - 650 CE)
 
 The destruction of the Aryans in the Middle East and North Africa was done in three phases:
 
@@ -1620,7 +1590,7 @@ The Vandals were the last R1a elite in North Africa. Their destruction by Belisa
 
 ---
 
-## Chapter 15: Plagues and Biological Warfare
+## Chapter 16: Plagues and Biological Warfare
 
 All three major plague pandemics (Justinianic, Black Death, Third Pandemic) were deliberate deployments of Yersinia pestis by the J2/J1 priestly-financier class (the heirs of the Flavians) to cull the R1a refugia populations in Europe and Central Asia.
 
@@ -1638,7 +1608,7 @@ The plagues were not natural. They were the final solution of the Flavian-Vatica
 
 ---
 
-## Chapter 16: Where Did The Scythian Aryans Go? The Refugia
+## Chapter 17: Where Did The Scythian Aryans Go? The Refugia
 
 The Scythians did not completely vanish. Some were pushed to the geographic and social margins:
 
@@ -1658,7 +1628,7 @@ The victors then wrote the history, claiming the cultural achievements of the de
 
 # Part 7: Rewriting History
 
-## Chapter 17: Rewriting History
+## Chapter 18: Rewriting History
 
 The main culprits for forging history were the Flavians so that they could legitimize their new dynasty and obscure their Bosphoran/Asii origins. It would have taken a global conspiracy to forge entire material cultures. It would have required destroying texts and artifacts in a number of different countries and then paying an army of scribes and artisans to create a new history. Not even the Vatican would have had this power. For the church to do this they would have had to destroy texts and artifacts in Muslim, Hindu, and Buddhist countries that were out of their reach, and even in places as far as Russia and China. Only the Flavians had this power. They controlled the Alexandrian School (via Tiberius Julius Alexander/Josephus who was likely the one who burned it down) which was the world's only major repository of texts and the only "publishing house". This gave them control over the primary intellectual and scribal output of the ancient world. It was the ancient equivalent of taking over Google, Wikipedia, and every major university press.
 
@@ -1678,7 +1648,7 @@ This is why they erased the Scythian origins of ancient civilizations and painte
 
 ---
 
-## Chapter 18: Inventing Ancient Greece
+## Chapter 19: Inventing Ancient Greece
 
 Not only is Western Rome a phantom empire, so was the "Classical Greece" of Pericles, Plato, and Aristotle. It is a literary and philosophical back-projection, created by the Flavians and later Renaissance humanists. Its purpose was to provide a "noble pedigree" for the Western Roman Empire, separating it from its "barbaric" Scythian roots. The works of Plato and Aristotle are not the products of a 5th-4th century BC Athenian democracy. They are the synthesized theological and political philosophy of the Alexandrian/Bosphoran intellectual elite, likely compiled between the 1st century BC and 2nd century AD at the Alexandrian School in Egypt, and then retroactively attributed to fictional "Greek" sages.
 
@@ -1688,7 +1658,7 @@ Plato's "Academy" was the Alexandrian School. "Plato" is not a man. The name is 
 
 ---
 
-## Chapter 19: The 'Achaemenid' Empire is the Parthian Empire
+## Chapter 20: The 'Achaemenid' Empire is the Parthian Empire
 
 The Alexandrian School moved history back 300-500 years. They invented the 'Achaemenid' Empire as a mirror of the Parthian Empire which itself is a mirror of the Mithridatic-Bosporan dynasty.
 
@@ -1726,7 +1696,7 @@ The entire Parthian king list is a phantom mirror of the Pontic-Bosporan Dynasty
 
 ---
 
-## Chapter 20: Fabricating 'Ancient' Egypt
+## Chapter 21: Fabricating 'Ancient' Egypt
 
 In Egypt the "5000-year" history of Egypt is a Flavian-era fabrication to provide a deep, mystical past for the Serapis cult.
 
@@ -1736,7 +1706,7 @@ The "Old Kingdom" is a fictional pre-history for the Serapis Cult. The Pyramids 
 
 ---
 
-## Chapter 21: Rome: The Phantom Empire on the Tiber
+## Chapter 22: Rome: The Phantom Empire on the Tiber
 
 The "Roman Republic" and the bulk of the "Roman Empire" prior to Vespasian are literary phantoms. The events, consuls, and wars of the 1st centuries BCE and CE are not history but theological and political allegory back-projected onto the Italian peninsula.
 
@@ -1765,7 +1735,7 @@ Rome became a ghost town inhabited by a fraction of its former population. Its g
 
 ---
 
-## Chapter 22: The Renaissance Forgery (14th–16th centuries CE)
+## Chapter 23: The Renaissance Forgery (14th–16th centuries CE)
 
 A clandestine cartel of Venetian and Genoese merchant-banking families, in collaboration with certain Vatican factions, orchestrated the bulk of the "rediscovery" of antiquity in the 15th-16th centuries. From roughly 600–1200 CE, almost all ancient texts survive only via monasteries.
 
@@ -1798,7 +1768,7 @@ Not long after Poggio Bracciolini, the Vatican was proven to be fabricating anti
 
 ---
 
-## Chapter 23: The Jesuit Operation (16th-18th c.)
+## Chapter 24: The Jesuit Operation (16th-18th c.)
 
 Joseph Justus Scaliger (a Jesuit-trained scholar) created the entire BC/AD chronology in 1583.
 
@@ -1814,11 +1784,11 @@ There was a Jesuit named Jean Hardouin who said that a 14th Century Jesuit consp
 
 # Part 8: Sects of the Imperial Cult
 
-## Chapter 24: Identifying the Flavian Scribes
+## Chapter 25: Identifying the Flavian Scribes
 
 It is possible to identify who wrote the Bible by looking at sects of the Imperial cult.
 
-### 24.1 Christianity
+### 25.1 Christianity
 
 Sometime after the Roman-Jewish wars the Flavians tried to subvert the eastern imperial religion and they created Christianity. It seems likely that the Bosphoran imperial religion before Christianity was essentially Judaism (see: Chapter 8. Who Forged History?). Jewish rabbis within the Flavian administration who worked as scribes took this religion and they infused a slave morality into it.
 
@@ -1850,7 +1820,7 @@ The Flavian scribes systematically inverted the female deities of the Dragon Kin
 
 Through demonizing women they centralized authority in male priests. The Church Father became the new "fathers" of the Christian community, replacing the Dragon King's matrilineal priests. In Pagan European cultures women were the teachers of the youth. Why did they do this? Author Ammon Hillman in his book 'Original Sin: Sex, Drugs, and the Church' (2012), who speaks Koine Greek, claims that the authors of the Bible demonized women because women in Pagan cultures were the teachers and the early priests were pedophiles who wanted access to children. The systematic abuse of children by Catholic priests over the past century (https://en.wikipedia.org/wiki/Catholic_Church_sexual_abuse_cases) wasn't a bug, it was a feature.
 
-### 24.2 The Cult of Antinous
+### 25.2 The Cult of Antinous
 
 Two years before the Bar Kokhba Revolt (132--136 CE) emperor Hadrian created a religion to deify his underage gay lover as the son of god (Osiris-Antinous) called 'The Cult of Antinous'. The name "Antinous" is an obvious indication of descent from the Antonii line and that he was a descendant of Mark Antony himself, not a random adoption by Hadrian. The use of "-ninus" is really the Greek "nini", which is "baby" or infant (i.e., "baby Jesus"). Historian Cassius Dio claims that Antinous was offered as a human sacrifice to Hadrian (Cassius Dio Cocceianus, Historiae Romanae, book 69, chapter 11) but in the Dragon King tradition they did not practice human sacrifice – they practiced ritual death and resurrection via poison (Mithridatium). Antinous's "drowning" in the Nile is the same allegory as Osiris's drowning. He was not killed; he was re‑baptised into a new avatar. He emerges as Antoninus Pius – the successor emperor. Antoninus Pius's full name is Titus Aelius Hadrianus Antoninus Pius and he was adopted by Hadrian and was his successor, and the cult of Antinous was his imperial cult. One of the scribes for The Cult of Antinous was Aquila of Sinope aka Onkelos who was a kinsman of the Roman emperor Hadrian. Emperor Hadrian also employed Aquila of Sinope to rebuild Jerusalem as Aelia Capitolina after the Bar Kokhba revolt (the city was named after Hadrian's family name (Aelia) and the Roman god Jupiter (Capitolina)). In Acts 18:2-3 and Romans 16:3 NASB, it is claimed that Aquila of Sinope and his wife Prisca or Priscilla lived with Paul the Apostle and Paul called them "my fellow workers in Christ Jesus"
 
@@ -1860,7 +1830,7 @@ Fig. 1.67. Steel relief that shows Antinous holding the grapes of Dionysus in on
 
 The Cult of Antinous failed (overt homoeroticism, too tied to a single emperor) but it did serve as a trial run for later cults (Christianity/Islam).
 
-### 24.3 Islam
+### 25.3 Islam
 
 Islam is a surviving (albeit subverted) sect of an Alexandrian School Imperial Cult that had its roots in the Serapis, Flamen Dialis, and the Antinous cults.
 
@@ -1888,7 +1858,7 @@ The concept of Jihad (struggle) is the exact inverse of Christianity's "turn the
 
 The Arab conquests were not a spontaneous eruption from the desert. They were a meticulously planned J2 coup d'état against both the Byzantine and Sassanid empires from within, using a new religion as the unifying ideology for the multi-ethnic slave-soldier armies. The ultimate goal was the complete erasure of the Dragon King bloodline and its replacement with a manageable, slave-soldier population. The Arab conquests swept across the Middle East and North Africa, carrying out the systematic genocide and replacement of the remaining R1a-V88 Berber and R1a-Z93 Parthian/Sassanid elites. The religion of Islam provided the perfect ideological justification: submission to a single, abstract God whose earthly stewards were the ulama (the J2 priestly class). The Caliphate was the new Flavian dynasty, ruling a restored universal empire from Baghdad, with Islam as its Christianity and the Arabs as its Germanic legions.
 
-Endnotes (Chapter 24.3)
+Endnotes (Chapter 25.3)
 
 (a) Marcion of Sinope aka Markianos of Alexandria grew up in the Attis-Sabazios cult on Anatolia before traveling to Judea to study under rabbi Akiva and finally to Alexandria at the Alexandrian School.
 (b) There was a Marcus who founded the Marcosian Gnostic sect. He was a teacher of Bishop Irenaeus and a friend of Clement of Alexandria. Was he also Marcion of Sinope aka Markianos of Alexandria? [^40]. St. Jerome in "Against Jovinian" describes Mark as a disciple of the Gnostic teacher Basilides. Here is a list of "Marks" who were active around the same time: Mark, the Evangelist, John Mark, Mark of Apollonias, Markianos of Alexandria, Mahalia, Marcus of Jerusalem, Marcus Pompeius, Marcus Annaeus Lucanus, Marcus the Magician, Marcion of Sinope, Marcus the Marcosian. Mark of Apollonias, John Mark, Mark the cousin of Barnabas, and Mark the Apostle are considered to be the same person by historians, so it is conceivable that all these "Marks" were the same person.
