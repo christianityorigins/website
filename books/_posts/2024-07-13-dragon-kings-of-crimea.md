@@ -502,7 +502,7 @@ King Xerxes name in old Persian is Xšayāršā which is related to xšaya (rule
 
 The Etruscan Tarquin dynasty seizes power in the Italian settlement of Rome. The Etruscans were not a mystery; they were an Aryan colonial governorate. Tarquin = Tarkhu (Scythian: "Ruler"). Servius Tullius = Tulli (Scythian: "Wolf Clan"). Servius Tullius, the sixth king of Rome, was not of Latin origin but was an Etruscan named Mastarna. He changed his name to Servius Tullius after arriving in Rome. This is consistent with the model of Asii kings adopting regional aliases. The "Roman" Republic was established as a military-administrative outpost to control the Western Mediterranean and secure tin from Britain.
 
-**c. 650–620 BCE: The Reign of Skyles (Scyles)**
+**c. 650–620 BCE: The Reign of Skunkha **
 
 The scattered Scythian (Saka) clans are unified under a single "King of Kings," the primordial Dragon-Man. From his Pontic-Steppe core, he forges the first explicit Scythian World Empire, ruling through regional avatars:
 
@@ -542,11 +542,79 @@ Sittaceni: The name Sittake appears in Persian geography as a region in Mesopota
 
 Psessoi: Ps- is a Greek rendering of the Scythian Pas- (Lord/King). -essoi is a Greek plural suffix (like -oi). Psessoi = Pas-essoi = "The Pas People" = The Pasiani. This is the same tribe that Strabo lists as one of the four tribes that destroyed the Greco-Bactrian Kingdom (Asii, Pasiani, Tochari, and Sacarauli). The Pasiani (also Gasiani) were the tribe that produced the Parthian Arsacid dynasty (Pahlava in Indian sources), the Indian Pallava dynasty, and the Flavian dynasty (Pahlava → Falava → Flavius)
 
-Strabo reports that King Ateas the Scythian ruled the Scythian tribes living between the Maeotian marshes and the Danube (Strabo, "Geography", Book 7, Chapter 3, section 18). This is a precise administrative claim that Ateas ruled the Maeotae federation.
+**Scythian Dragon King Lineage**
+
+**The Assyrian Branch (c. 745–631 BC)**
+
+Scythian king Spargapithes (c. 650 BC) was a grandson of Sargon II (https://fabpedigree.com/s092/f082073.htm)
+
+This lineage is historically corroborated by the marriage of the Scythian king Bartatua (Protothyes) to a daughter of Esarhaddon. This union formally allied the Scythian royal house with the Assyrian imperial family. The Assyrian records confirm that the Scythian kings were not merely allies but were part of the same extended royal network.
+
+The pedigree further connects Sargon II to the royal house of Judah: Sargon II the Great (of Assyria) -> Yabaa of Judah.
+
+This connection indicates that the Assyrian and Judahite royal families were linked through intermarriage, making them part of the same extended family.
+
+**Sumerian Branch**
+
+Spargapithes is the claimed grandson of King Ziusudra of Shuruppak is the hero of the Sumerian Flood Myth (also known as the Eridu Genesis), dating to approximately 1600 BCE. Ziusudra was the last king of Sumer prior to the Great Flood.
+
+This is the same figure who appears as Utnapishtim in the Epic of Gilgamesh (Tablet XI) and as Noah in the Hebrew Bible. The story goes that Ziusudra was the son of Ubara-Tutu, the king of Shuruppak. According to the myth, the god Enki warned Ziusudra of the coming flood and instructed him to build a giant boat to save himself, his family, and representatives of the animals. After the flood, Ziusudra was granted eternal life and taken to dwell among the gods
+
+He was also Papaeus (Sky God of Scythians), and Zeus (Sky God of the Greeks).
+
+**The Herodotean Branch (c. 650–450 BC)**
+
+Spargapithes (c. 650–600 BC) [Herodotus 4.76] (son of Protothyes?; grandson of Arianta?; great-grandson of Colaxais? according to FabPedigree)
+
+Son: Lycus (c. 600–570 BC) [Herodotus 4.76] (son of Spargapithes)
+
+Son: Gnurus (c. 570–540 BC) [Herodotus 4.76] (son of Lycus)
+
+Son: Saulius (c. 540–514 BC) "Sun-King" [Herodotus 4.76] (son of Gnurus) (killed his brother Anacharsis for adopting Greek customs) [Herodotus 4.76]
+
+Son: Idanthyrsus (c. 514–500 BC) "Serpent-Lord" [Herodotus 4.76] (son of Saulius) (faced Darius I's invasion of Scythia) [Herodotus 4.120-127]
+
+Brother: Anacharsis (c. 540 BC) "Serpent-Lord" [Herodotus 4.76] (son of Gnurus, brother of Saulius, uncle of Idanthyrsus) (executed by Saulius for introducing Greek customs) [Herodotus 4.76]
+
+Source Summary:
+
+Herodotus 4.76: Genealogy: Spargapithes → Lycus → Gnurus → Saulius → Idanthyrsus; Anacharsis is the brother of Saulius, uncle of Idanthyrsus.
+
+Herodotus 4.120-127: Idanthyrsus faced Darius I's invasion of Scythia.
+
+Herodotus 4.76: Saulius killed Anacharsis for introducing Greek customs.
+
+**The Ariapithes-Skyles-Octamasadas Branch (c. 500–429 BC)**
+
+Ariapithes (c. 500–465 BC) "Aryan-Father" [Herodotus 4.78] (son of Idanthyrsus?; grandson of Saulius?; great-grandson of Gnurus? according to Herodotus 4.76-78) (treacherously slain by Spargapithes, king of the Agathyrsi) [Herodotus 4.78]
+
+Son: Skyles (Scyles) (c. 465–450 BC) "The Scythian" [Herodotus 4.78-80] (son of Ariapithes by a Greek woman from Istria) (deposed and executed by his brother Octamasadas) [Herodotus 4.80]
+
+Grandson: Oricus (son of Skyles by Opoea) [Herodotus 4.78]
+
+Son: Octamasadas (c. 450–429 BC) "Eight-Lord" [Herodotus 4.80] (son of Ariapithes by a daughter of Teres I, king of the Odrysian Thracians) (succeeded Skyles after beheading him) [Herodotus 4.80]
+
+Source Summary:
+
+Herodotus 4.78: Ariapithes was king of the Scythians; treacherously slain by Spargapithes, king of the Agathyrsi; had a son Skyles by a Greek woman from Istria; Skyles had a son named Oricus by Opoea.
+
+Herodotus 4.78-80: Skyles loved Greek customs, built a house in Olbia, married a Greek woman; his Scythian subjects revolted; Octamasadas took the throne and beheaded Skyles.
+
+Herodotus 4.80: Skyles was executed by his brother Octamasadas.
+
+**The Behistun Interlude (c. 519 BC)**
+
+Skunkha (c. 519 BC). "Chief of the Saka who wear pointed caps" [Behistun Inscription, Column V] (captured by Darius I)
+
+Source Summary:
+
+Behistun Inscription, Column V (DB V 20-34): Darius I's campaign against the Sakā tigraxaudā ("Saka who wear pointed caps"); Skunkha is named as their chief; the relief shows Skunkha wearing a pointed cap.
+
+The inscription is in Old Persian, Elamite, and Akkadian.
 
 ### 4.1 The Primordial Patriarch: Ateas the Scythian (c. 429–339 BCE)
 
-Sometime after 500 BCE the Akrosander Hegemony begins to fragment. Civil wars erupt between descendant lines, leading to the rise of competing Dragon King factions—the Persians, the Greeks, the Macedonians—all claiming the same "King of Kings" title. They were then all subdued by Ateas the Scythian who reestablished the Scythian hegemony. 
+Sometime after 500 BCE the Scythian Hegemony begins to fragment. Civil wars erupt between descendant lines, leading to the rise of competing Dragon King factions—the Persians, the Greeks, the Macedonians—all claiming the same "King of Kings" title. They were then all subdued by Ateas the Scythian who reestablished the Scythian hegemony. 
 
 Ateas the Scythian was the last great emperor of the direct Akrosander bloodline, ruling from the Danube to the Caucasus. The name "Ateas" is not a Scythian personal name. It is the core title of the Dragon King. Ateas = Ata-as = "Father-As" or "Forefather of the Asii"—the same root as Asander, Asinder and Attila. His name also occurs as Atheas, Ateia, Ataias, and Ateus. He was not just a king; he was the eponymous ancestor of the Asii-Alan people.
 
