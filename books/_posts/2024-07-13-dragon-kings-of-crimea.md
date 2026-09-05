@@ -502,13 +502,14 @@ King Xerxes name in old Persian is Xšayāršā which is related to xšaya (rule
 
 The Etruscan Tarquin dynasty seizes power in the Italian settlement of Rome. The Etruscans were not a mystery; they were an Aryan colonial governorate. Tarquin = Tarkhu (Scythian: "Ruler"). Servius Tullius = Tulli (Scythian: "Wolf Clan"). Servius Tullius, the sixth king of Rome, was not of Latin origin but was an Etruscan named Mastarna. He changed his name to Servius Tullius after arriving in Rome. This is consistent with the model of Asii kings adopting regional aliases. The "Roman" Republic was established as a military-administrative outpost to control the Western Mediterranean and secure tin from Britain.
 
-**c. 650–620 BCE: The Reign of Akrosander/Akrosas**
+**c. 650–620 BCE: The Reign of Skilurus**
 
 The scattered Scythian (Saka) clans are unified under a single "King of Kings," the primordial Dragon-Man. From his Pontic-Steppe core, he forges the first explicit Scythian World Empire, ruling through regional avatars:
 
 - In Egypt, he is known as Psamtik I, founder of the 26th (Saite) Dynasty. His name decodes to Ak-Sam = "Dragon-Sun"—a metathesis of Akrosas. He reunifies Egypt using Scythian-proxy mercenaries.
 - In Media, he is the supreme overlord Cyaxares, the power behind the Median throne who destroys Assyria.
 - His reign is encoded in myth as the quest for the Golden Fleece and in biblical lore as the prototype for Nebuchadnezzar.
+- Darius I "The Great" (c. 550–486 BC) in Persia?
 - This is the foundational event. All subsequent "empires" are either his direct descendants or rebel satraps attempting to reclaim his title.
 
 **c. 500 BCE: Scandinavia (The Aesir)**
@@ -578,7 +579,7 @@ Amyntas III (Macedonia) was also Nectanebo II (Egypt), Evagoras I (Cyprus), Oron
 **Grandson:** Ptolemy I Soter was another grandson of Ateas/Amyntas III/Artaxerxes who received Egypt. Following Alexander's "resurrection" as Chandragupta in the East, his bloodline consolidated its rule in the West. Ptolemy I Soter, a fellow Scythian noble and Alexander's brother, took the Egyptian satrapy. The Ptolemaic Dynasty was not a new Greek ruling class, but the continuation of the Akrosander bloodline using Egypt as its new imperial base.
 
 ![Fig.1.2](/images/Skyles.jpg){:width="400px"}\
-Fig. 1.2. Coin of Skyles, a Scythian king who reigned from ca 470-460 BC displaying a Scythian Solar Wheel and the World Tree combined. The cross was prominent in ancient Europe. It was a sundial and every city would have had one to track the time, dates, and agricultural and lunar cycles. "Skylesis" a Greek mockery of Skuða-las (Scythian King). The owl on the reverse side is the Owl of Athena also known as the Owl of Minerva, a sacred bird in Greek mythology that accompanies Athena. It shows up prominently in later Greek tetradrachms connecting him to Greece. For a Scythian king to carry that iconography shows direct interaction.
+Fig. 1.2. Coin of Skyles, a Scythian king who reigned from ca 470-460 BC displaying a Scythian Solar Wheel and the World Tree combined. The cross was prominent in ancient Europe. It was a sundial and every city would have had one to track the time, dates, and agricultural and lunar cycles. "Skylesis" a Greek mockery of Skuða-las (Scythian King). The owl on the reverse side is the Owl of Athena also known as the Owl of Minerva, a sacred bird in Greek mythology that accompanies Athena. It shows up prominently in later Greek tetradrachms connecting him to Greece. For a Scythian king to carry that iconography shows direct interaction. Skyles was likely Ateass' grandfather.
 
 Endnotes (Chapter 4.1)
 
@@ -802,7 +803,7 @@ Fig. 1.37. L. Coin depicting Phraates IV of Parthia that also shows his son. Com
 
 ![Fig.1.38](/images/AriarathesIX.jpg){:width="400px"}
 
-Fig. 1.38. Coin depicting Ariarathes IX Eusebes Philopator, King of Cappadocia (Central Anatolia/modern Turkey). He was the son of Mithridates VI Eupator of Pontus. Ariarathes IX Eusebes' brothers were named Cyrus, Xeres, and Darius. His sisters were named Cleopatra and Mithridates. In Chapter 8.2. I write that the 'Achaemenid' Persian Empire is a phantom empire. it is a back projection of the Parthian Empire. Cyrus and Darius were composite characters based on the sons of Mithridates VI Eupator
+Fig. 1.38. Coin depicting Ariarathes IX Eusebes Philopator, King of Cappadocia (Central Anatolia/modern Turkey). He was the son of Mithridates VI Eupator of Pontus. Ariarathes IX Eusebes' brothers were named Cyrus, Xeres, and Darius. His sisters were named Cleopatra and Mithridates. This proves Cyrus, Xeres, and Darius were job titles, not personal names.
 
 ![Fig.1.39](/images/PharnacesII.jpg){:width="400px"}
 
@@ -1662,7 +1663,7 @@ Plato's "Academy" was the Alexandrian School. "Plato" is not a man. The name is 
 
 The Alexandrian School moved history back 300-500 years. They invented the 'Achaemenid' Empire as a mirror of the Parthian Empire which itself is a mirror of the Mithridatic-Bosporan dynasty.
 
-In Persia, the "Achaemenid Empire" is a phantom, a Flavian-era literary creation designed to provide a grandiose, conquered enemy for "Alexander the Great", and push the "center" of ancient power further east, away from the Bosphoran core. There are no coins issued in the name of "Cyrus the Great", "Darius I", or "Xerxes". The entire empire, supposedly the largest in the world, allegedly functioned for centuries without a coinage system. The coins we attribute to them are misdated Greco-Bactrian and Parthian issues. There are no contemporary records of Cyrus. Cyrus, Darius, and Xerxes are backdated composites of the sons of Mithridates VI Eupator who were also named Cyrus, Darius, Xerxes, and other Parthian kings.
+In Persia, the "Achaemenid Empire" is a phantom, a Flavian-era literary creation designed to provide a grandiose, conquered enemy for "Alexander the Great", and push the "center" of ancient power further east, away from the Bosphoran core. There are no coins issued in the name of "Cyrus the Great", "Darius I", or "Xerxes". The entire empire, supposedly the largest in the world, allegedly functioned for centuries without a coinage system. The coins we attribute to them are misdated Greco-Bactrian and Parthian issues. There are no contemporary records of Cyrus.
 
 The "Achaemenid" Empire perfectly mirrors the Arsacid Parthian empire if you factor in "phantom time".
 
