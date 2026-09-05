@@ -502,7 +502,7 @@ King Xerxes name in old Persian is Xšayāršā which is related to xšaya (rule
 
 The Etruscan Tarquin dynasty seizes power in the Italian settlement of Rome. The Etruscans were not a mystery; they were an Aryan colonial governorate. Tarquin = Tarkhu (Scythian: "Ruler"). Servius Tullius = Tulli (Scythian: "Wolf Clan"). Servius Tullius, the sixth king of Rome, was not of Latin origin but was an Etruscan named Mastarna. He changed his name to Servius Tullius after arriving in Rome. This is consistent with the model of Asii kings adopting regional aliases. The "Roman" Republic was established as a military-administrative outpost to control the Western Mediterranean and secure tin from Britain.
 
-**c. 650–620 BCE: The Reign of Skilurus**
+**c. 650–620 BCE: The Reign of Skyles (Scyles)**
 
 The scattered Scythian (Saka) clans are unified under a single "King of Kings," the primordial Dragon-Man. From his Pontic-Steppe core, he forges the first explicit Scythian World Empire, ruling through regional avatars:
 
