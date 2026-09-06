@@ -508,6 +508,7 @@ The scattered Scythian (Saka) clans are unified under a single "King of Kings," 
 
 - In Egypt, he is known as Psamtik I, founder of the 26th (Saite) Dynasty. His name decodes to Ak-Sam = "Dragon-Sun"—a metathesis of Akrosas. He reunifies Egypt using Scythian-proxy mercenaries.
 - In Media, he is the supreme overlord Cyaxares, the power behind the Median throne who destroys Assyria.
+- Nabopolassar, father of King Nebuchadnezzar II (r. 605-562 BC), concluded a treaty with Cyaxares which was sealed by the marriage of his daughter, Amytis, with Nebuchadnezzar II.
 - His reign is encoded in myth as the quest for the Golden Fleece and in biblical lore as the prototype for Nebuchadnezzar.
 - Darius I "The Great" (c. 550–486 BC) in Persia?
 - This is the foundational event. All subsequent "empires" are either his direct descendants or rebel satraps attempting to reclaim his title.
@@ -544,6 +545,16 @@ Psessoi: Ps- is a Greek rendering of the Scythian Pas- (Lord/King). -essoi is a 
 
 **Scythian Dragon King Lineage**
 
+**The Early Scythian Kings (7th Century BCE)**
+
+Protothyes (1st King) of Scythians — Also known as Bartatua (Akkadian: mBar-ta-tu-a), Partatua, or Partitava.- Meaning: Pr̥ϑutavā — "with far-reaching strength"- Reign: c. 679–c. 658/9 BCE.
+
+Earliest Attestations: Assyrian records: Bartatua sent messengers to Esarhaddon of Assyria requesting a royal daughter in marriage [Assyrian royal inscriptions; SAA 04 020]. Saqqez silver dish inscription (Hieroglyphic Luwian): "Partitava xšaya" — "King Partitavas" [Saqqez silver dish inscription, published 2008]. Herodotus 1.103: Protothyes (Προτοθύης) [Herodotus 1.103]
+
+Spouse: Serua-eterat (daughter of Esarhaddon, king of Assyria) [Assyrian royal inscriptions]-
+
+Children: Madyes (King of Scythians) [Herodotus 1.103] and Išpakaia — Predecessor of Bartatua, possibly his father.
+
 **The Assyrian Branch (c. 745–631 BC)**
 
 Scythian king Spargapithes (c. 650 BC) was a grandson of Sargon II (https://fabpedigree.com/s092/f082073.htm)
@@ -564,7 +575,13 @@ He was also Papaeus (Sky God of Scythians), and Zeus (Sky God of the Greeks).
 
 **The Herodotean Branch (c. 650–450 BC)**
 
-Spargapithes (c. 650–600 BC) [Herodotus 4.76] (son of Protothyes?; grandson of Arianta?; great-grandson of Colaxais? according to FabPedigree)
+Madyes King of Scythians. He was the son of Bartatua and an Assyrian princess.
+
+Earliest Attestation: Herodotus 1.103 (c. 430 BCE); Assyrian records [Herodotus 1.103]- He brought Scythian hegemony over Media for twenty-eight years. [Herodotus 1.103]
+
+Arianta King of Scythains — Possibly a son or descendant of Madyes. (https://fabpedigree.com/s092/f082073.htm)
+
+Spargapithes (c. 650–600 BC) [Herodotus 4.76] (son of Protothyes?; grandson of Arianta?; great-grandson of Colaxais?)
 
 Son: Lycus (c. 600–570 BC) [Herodotus 4.76] (son of Spargapithes)
 
@@ -608,7 +625,7 @@ Skunkha (c. 519 BC). "Chief of the Saka who wear pointed caps" [Behistun Inscrip
 
 Source Summary:
 
-Behistun Inscription, Column V (DB V 20-34): Darius I's campaign against the Sakā tigraxaudā ("Saka who wear pointed caps"); Skunkha is named as their chief; the relief shows Skunkha wearing a pointed cap.
+Behistun Inscription, Column V (DB V 20-34): Darius I's campaign against the Sakā tigraxaudā ("Saka who wear pointed caps"); Skunkha is named as Bartatua their chief; the relief shows Skunkha wearing a pointed cap.
 
 The inscription is in Old Persian, Elamite, and Akkadian.
 
@@ -616,7 +633,7 @@ The inscription is in Old Persian, Elamite, and Akkadian.
 
 Sometime after 500 BCE the Scythian Hegemony begins to fragment. Civil wars erupt between descendant lines, leading to the rise of competing Dragon King factions—the Persians, the Greeks, the Macedonians—all claiming the same "King of Kings" title. They were then all subdued by Ateas the Scythian who reestablished the Scythian hegemony. 
 
-Ateas the Scythian was the last great emperor of the direct Akrosander bloodline, ruling from the Danube to the Caucasus. The name "Ateas" is not a Scythian personal name. It is the core title of the Dragon King. Ateas = Ata-as = "Father-As" or "Forefather of the Asii"—the same root as Asander, Asinder and Attila. His name also occurs as Atheas, Ateia, Ataias, and Ateus. He was not just a king; he was the eponymous ancestor of the Asii-Alan people.
+Ateas (Atheas, Ataias, Ateus) the Scythian was the last great emperor of the direct Akrosander bloodline, ruling from the Danube to the Caucasus. The name "Ateas" is not a Scythian personal name. It is the core title of the Dragon King. Ateas = Ata-as = "Father-As" or "Forefather of the Asii"—the same root as Asander, Asinder and Attila. His name also occurs as Atheas, Ateia, Ataias, and Ateus. He was not just a king; he was the eponymous ancestor of the Asii-Alan people.
 
 He was Atlas and Atreus in Greek mythology, the Phrygian deity Attis, the Biblical "Adam" (Ad - The same root as Ateas's At + -am (People/Nation); "The Ancestor of the People"), Ara (father in Turkic), Atum (the Egyptian "All-Lord"). Eas/Esz/As: the universal Aži/Serpent root. Thus, Ateas = "The Primordial Serpent-Father". Ateas was also called Atheas which is where the name of the city Athens comes from. In mythology Athena or Athene was often given the epithet Pallas, which is an identity Cleopatra used. Athena could be his wife or daughter.
 
@@ -1622,9 +1639,7 @@ These Ethiopian slaves bred with the local Dravidian-Australoid population, crea
 
 But this African slave trade into India didn't stop in the 9th century.
 
-A genome-wide study found that Siddis (Habishi) carry substantial African, South Asian and possibly European ancestry. Their Y-chromosome lineages include African haplogroups E1b1a-M2 and B2-M182, characteristic of sub-Saharan/Bantu populations. Approximately 70% of the sampled Siddi male lineages in that study fell into haplogroups generally characteristic of African populations (https://pmc.ncbi.nlm.nih.gov/articles/PMC3135801/)
-
-Another study specifically notes historical evidence for a substantial influx from Mozambique between approximately 1680 and 1720 (https://pmc.ncbi.nlm.nih.gov/articles/PMC5518532/)
+Another genetic study specifically notes historical evidence for a substantial influx from Mozambique between approximately 1680 and 1720 (https://pmc.ncbi.nlm.nih.gov/articles/PMC5518532/)
 
 One study estimates the major Siddi–South Asian admixture event happened as recently as 200 years ago (https://pmc.ncbi.nlm.nih.gov/articles/PMC3135801/)
 
