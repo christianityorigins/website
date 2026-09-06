@@ -565,7 +565,7 @@ The pedigree further connects Sargon II to the royal house of Judah: Sargon II t
 
 This connection indicates that the Assyrian and Judahite royal families were linked through intermarriage, making them part of the same extended family.
 
-**Sumerian Branch**
+**Sumerian Branch (c. 650 BCE)**
 
 In mythology, Spargapithes is the claimed grandson of King Ziusudra of Shuruppak who is the hero of the Sumerian Flood Myth (also known as the Eridu Genesis), dating to approximately 1600 BCE. Ziusudra was the last king of Sumer prior to the Great Flood.
 
