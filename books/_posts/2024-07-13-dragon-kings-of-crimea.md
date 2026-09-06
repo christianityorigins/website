@@ -567,7 +567,7 @@ This connection indicates that the Assyrian and Judahite royal families were lin
 
 **Sumerian Branch**
 
-Spargapithes is the claimed grandson of King Ziusudra of Shuruppak is the hero of the Sumerian Flood Myth (also known as the Eridu Genesis), dating to approximately 1600 BCE. Ziusudra was the last king of Sumer prior to the Great Flood.
+In mythology, Spargapithes is the claimed grandson of King Ziusudra of Shuruppak who is the hero of the Sumerian Flood Myth (also known as the Eridu Genesis), dating to approximately 1600 BCE. Ziusudra was the last king of Sumer prior to the Great Flood.
 
 This is the same figure who appears as Utnapishtim in the Epic of Gilgamesh (Tablet XI) and as Noah in the Hebrew Bible. The story goes that Ziusudra was the son of Ubara-Tutu, the king of Shuruppak. According to the myth, the god Enki warned Ziusudra of the coming flood and instructed him to build a giant boat to save himself, his family, and representatives of the animals. After the flood, Ziusudra was granted eternal life and taken to dwell among the gods
 
@@ -575,11 +575,11 @@ He was also Papaeus (Sky God of Scythians), and Zeus (Sky God of the Greeks).
 
 **The Herodotean Branch (c. 650–450 BC)**
 
-Madyes King of Scythians. He was the son of Bartatua and an Assyrian princess.
+Madyes King of Scythians was the son of Bartatua and an Assyrian princess.
 
 Earliest Attestation: Herodotus 1.103 (c. 430 BCE); Assyrian records [Herodotus 1.103]- He brought Scythian hegemony over Media for twenty-eight years. [Herodotus 1.103]
 
-Arianta King of Scythains — Possibly a son or descendant of Madyes. (https://fabpedigree.com/s092/f082073.htm)
+Arianta King of Scythains is possibly a son or descendant of Madyes. (https://fabpedigree.com/s092/f082073.htm)
 
 Spargapithes (c. 650–600 BC) [Herodotus 4.76] (son of Protothyes?; grandson of Arianta?; great-grandson of Colaxais?)
 
@@ -621,13 +621,22 @@ Herodotus 4.80: Skyles was executed by his brother Octamasadas.
 
 **The Behistun Interlude (c. 519 BC)**
 
-Skunkha (c. 519 BC). "Chief of the Saka who wear pointed caps" [Behistun Inscription, Column V] (captured by Darius I)
+The Behistun Inscription, Column V (DB V 20-34), carved into a cliff face, depicts Scythian king Skunkha (c. 519 BC) who was captured by Darius I [Behistun Inscription, Column V]
+
+The name Skunkha (Old Persian: Skuⁿxa) is a title, not a personal name. It contains the root Sku-, which is the Scythian endonym *Skuδa, meaning "Scythian". The suffix -nxa is a royal marker, meaning "king" or "lord". The name literally translates to "The Scythian King".
+
+Skunkha's predecessor was queen Tomyris, leader of the Massagetae tribe who defeated and killed Cyrus the Great in 530 BCE (likely just an avatar switch. He became Darius the Mede or Nebuchadnezzar II in Babylonia?). By around 520 BCE, her tribe was ruled by Skunkha.
+
+- In Egypt, he is known as Psamtik I, founder of the 26th (Saite) Dynasty. His name decodes to Ak-Sam = "Dragon-Sun"—a metathesis of Akrosas. He reunifies Egypt using Scythian-proxy mercenaries.
+- In Media, he is the supreme overlord Cyaxares, the power behind the Median throne who destroys Assyria. The root xšϑra (xšaya) is the Dragon King root, meaning "power, dominion, rule". This is the same root found in Xšayaθiya (Persian king), Kshatriya (Sanskrit warrior-king), and Christos (anointed one).
+- Nabopolassar, father of King Nebuchadnezzar II (r. 605-562 BC), concluded a treaty with Cyaxares which was sealed by the marriage of his daughter, Amytis, with Nebuchadnezzar II.
+- His reign is encoded in myth as the quest for the Golden Fleece and in biblical lore as the prototype for Nebuchadnezzar.
+- Darius I "The Great" (c. 550–486 BC) in Persia?
+- This is the foundational event. All subsequent "empires" are either his direct descendants or rebel satraps attempting to reclaim his title.
 
 Source Summary:
 
 Behistun Inscription, Column V (DB V 20-34): Darius I's campaign against the Sakā tigraxaudā ("Saka who wear pointed caps"); Skunkha is named as Bartatua their chief; the relief shows Skunkha wearing a pointed cap.
-
-The inscription is in Old Persian, Elamite, and Akkadian.
 
 ### 4.1 The Primordial Patriarch: Ateas the Scythian (c. 429–339 BCE)
 
