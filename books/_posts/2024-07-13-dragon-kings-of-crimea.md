@@ -37,7 +37,7 @@ Published by Heretical Books
 
 **Chapter 2: The Four Tribes of the Saka Confederation**
 
-**Chapter 3: The Asii Global Lexicon (Proving their Reach)**
+**Chapter 3: The Aryan Global Lexicon (Proving their Reach)**
 
 **Chapter 4: The Master Timeline — A Complete Chronology of the Dragon Empire**
 - 4.1 The Primordial Patriarch: Ateas the Scythian (c. 429–339 BCE)
@@ -203,18 +203,7 @@ The Cro-Magnon people were not "primitive" hunter-gatherers. They were the origi
 
 They were the Dragon Kings—the original ruling lineage of humanity. Their descendants would go on to rule every major civilization from the Atlantic to the Pacific.
 
-The myth of Atlantis is not a fantasy. It is the racial memory of the Hyperborean homeland. The Younger Dryas (the final cool climatic phase of the Last Glacial Period, lasting from about 12,900 to 11,700 years ago) caused catastrophic flooding of the North Atlantic shelf and raised global sea levels by over 400 feet. The Younger Dryas was triggered by a comet impact that melted the North American ice sheet. The flood sunk the Hyperborean homeland (Doggerland, the North Atlantic shelf).
-
-**The Indo-European Aryans (The Ruling Caste: Yamnaya, Corded Ware)***
-
-- Haplogroups: R1a-Z93, R1b-L23, R1b-M269
-- Geographic Origin: Pontic-Caspian Steppe (Yamnaya Horizon, 3300-2600 BCE).
-- Physical Anthropology: Hyperborean Nordic / Cro-Magnoid, taller, heavier boned. Dolichocephalic skulls with a high cranial vault.
-- Archaeological Package: Kurgan burials. Horse domestication. Chariot warfare. Bronze metallurgy.
-
-In the most direct and reductionist terms the Nordic subtype reduce to: Nordic (R1a/R1b) = Purified, adapted Cro-Magnon. They are the streamlined, hyper-specialized version of the original Cro-Magnon type — tall, long-headed, robust but orthognathic (flat-faced), selected for endurance, mobility, and conquest on the open steppe. They carry Neanderthal DNA, but it was severely filtered by brutal natural selection for modern human traits optimized for a cold, nomadic, high-mobility lifestyle. They are the special forces branch of ancient humanity.
-
-Reality: The priest-warrior administrators. The "Dragon Kings" who imposed order on the Neolithic masses through genetic, linguistic, and technological dominance.
+The myth of Atlantis is not a fantasy. It is the racial memory of the Hyperborean homeland. The Younger Dryas (the final cool climatic phase of the Last Glacial Period, lasting from about 12,900 to 11,700 years ago) caused catastrophic flooding of the North Atlantic shelf and raised global sea levels by over 400 feet. The Younger Dryas was triggered by a comet impact that melted the North American ice sheet. The flood sunk the Hyperborean homeland (Doggerland, the North Atlantic shelf). The Hyperborean survivors then fled to the Pontic-Caspian Steppe around 6150 BC.
 
 **The Yamnaya Foundation (3300–2600 BCE)**
 
@@ -235,9 +224,18 @@ From the Yamnaya came the Corded Ware culture in Central Europe. Corded Ware pop
 | **Fatyanovo-Abashevo** | 2800–2000 BCE | R1a-Z93 | The eastern Corded Ware branch |
 | **Sintashta** | 2100–1800 BCE | R1a-Z93 | The chariot inventors |
 | **Andronovo** | 2000–900 BCE | R1a-Z93 | The Indo-Iranian expansion |
-| **Scythian/Saka** | 900–200 BCE | R1a-Z93 | The biological Asii |
+| **Scythian/Saka** | 900–200 BCE | R1a-Z93 | The biological Aryans |
 
-The Hyperborean homeland gave rise to the Ruling Caste—the Cro-Magnon R-lineage carriers. But they did not rule alone. They encountered two other populations:
+- Haplogroups: R1a-Z93, R1b-L23, R1b-M269
+- Geographic Origin: Pontic-Caspian Steppe (Yamnaya Horizon, 3300-2600 BCE).
+- Physical Anthropology: Hyperborean Nordic / Cro-Magnoid, taller, heavier boned. Dolichocephalic skulls with a high cranial vault.
+- Archaeological Package: Kurgan burials. Horse domestication. Chariot warfare. Bronze metallurgy.
+
+In the most direct and reductionist terms the Nordic subtype reduce to: Nordic (R1a/R1b) = Purified, adapted Cro-Magnon. They are the streamlined, hyper-specialized version of the original Cro-Magnon type — tall, long-headed, robust but orthognathic (flat-faced), selected for endurance, mobility, and conquest on the open steppe. They carry Neanderthal DNA, but it was severely filtered by brutal natural selection for modern human traits optimized for a cold, nomadic, high-mobility lifestyle. They are the special forces branch of ancient humanity.
+
+These were the priest-warrior administrators. The "Dragon Kings" who imposed order on the Neolithic masses through genetic, linguistic, and technological dominance.
+
+The Hyperborean homeland gave rise to the Ruling Caste—the Cro-Magnon R-lineage carriers. But they did not rule alone. They encountered two other populations: the Neolithic Farmers and Indigenous Hunter-Gatherers.
 
 **The Neolithic Farmers (The Worker Caste)**
 
@@ -281,13 +279,13 @@ Role: The conquered, absorbed, or eradicated populations over whom the Farmers f
 
 By 2800–2600 BCE, the Yamnaya had moved eastward into the region of the Poltavka culture, carrying the R1a-Z93 subtype. This subtype is common in South Asia today. The same R1a-Z93 lineage appears in the Fatyanovo culture (third millennium BCE) in the Yaroslavl region of Russia. The western branch was Corded Ware culture (c. 3000–2350 BCE) who emerged in Central Europe (modern Germany, Poland, Czechia) as a result of a massive Yamnaya migration westward. Genetically, Corded Ware populations are ~75% Yamnaya steppe ancestry. The Indo-European languages (Latin, Greek, Sanskrit, Persian) are all siblings descended from Yamnaya Proto-Indo-European languages. This is the genetic signature of the Dragon Kings. They originated on the steppe, they conquered Europe and Asia, and they established a global ruling caste that lasted for millennia.
 
-The Aryans were the broader confederation of Indo-Iranian clans—the horse-riding, chariot-using pastoralists who spread from the Pontic-Caspian Steppe into Europe, Anatolia, and South Asia. They were the ethnic and linguistic foundation of the ancient world. The Asii were the ruling caste. Roman historian Justin in 'Liber Historiarum Philippicarum' makes this explicit: "The Asii were the reges—the kings—of the Tochari. The Tochari and Sakaraucae were Aryan/Iranian peoples. The Asii ruled them".
+The Aryans were the broader confederation of Indo-Iranian clans—the horse-riding, chariot-using pastoralists who spread from the Pontic-Caspian Steppe into Europe, Anatolia, and South Asia. They were the ethnic and linguistic foundation of the ancient world. Roman historian Justin in 'Liber Historiarum Philippicarum' makes this explicit: "The Asii were the reges—the kings—of the Tochari. The Tochari and Sakaraucae were Aryan/Iranian peoples. The Asii ruled them".
 
-Asii/Ārśi is a linguistic fusion of: Ar (noble/freeman/Aryan) and Ši (a variant of As or Aś—lord/god). Thus, Ārśi literally means "the Aryan Lords" or "the Noble People of As". The Ar root is a cognate of As. The Asii and the Aryans were the same people. The name fuses both roots. Asiani is the adjectival form of Asii. Asioi is Strabo's Greek rendering.
+Asii/Ārśi is a linguistic fusion of Ar (noble/freeman/Aryan) and Ši (a variant of As or Aś—lord/god). Thus, Ārśi literally means "the Aryan Lords" or "the Noble People of As". The Ar root is a cognate of As. The Asii and the Aryans were the same people. Asiani is the adjectival form of Asii. Asioi is the Greek geographer Strabo's Greek rendering. The Yuezhi of Chinese records are the Arsi/Asii. The Chinese pronunciation of Yuezhi is a direct transcription of Arsi/Arshi. Asii/Ārśi/Asiani becomes: Aristos in ancient Greek, Arus in Lydian/Anatolian, Aryas in Proto Celtic, Airya in Avestan, Arya in Sanskrit, and Eriu/Heiru in Irish.
 
 According to Strabo, writing in his book Geography (Strabo, Geography, 11.8.2), the four tribes that "took away Bactriana from the Greeks" were:
 
-- **Asii** (Asioi, Asiani, Osii, Asoi). The Rishikas (an ancient Kingdom of Central Asia and South Asia) are identified with the Asii/Asioi in the Indian epic The Mahabharata. This proves the Asii/Yuezhi presence in Indian literature, not just Greek and Chinese sources. The Yuezhi of Chinese records are the Arsi/Asii. The Chinese pronunciation of Yuezhi is a direct transcription of Arsi/Arshi.
+- **Asii** (Asioi, Asiani, Osii, Asoi). The Asii did not vanish after the conquest of Bactria. They migrated westward and became the Alans, and southward into India where they became the Rishikas (an ancient Kingdom of Central Asia and South Asia). Te Rishikas are identified with the Asii/Asioi in the Indian epic The Mahabharata. This proves the Asii/Yuezhi presence in Indian literature, not just Greek and Chinese sources.
 
 - **Pasiani** (or Gasiani), possibly Pasii or Parsii. They were the tribe that produced the Parthian Arsacid dynasty (Pahlava is the Indian name for the Parthians), Indian Pallava dynasty, and Flavian dynasty (the Latin language shifts initial P to F in certain contexts, e.g., pater → father. So Pahlava → Falava → Flavius). The Gasiani are also identified with the Guti who overthrew the Akkadian Empire. Some scholars have suggested that Gasiani is the same as Kushan (Guishuang). If this is correct, then the Pasiani/Gasiani are the ancestors of the Kushan Empire. Later became the Britons and Picts (the inhabitants of Britain was Britanni or Pritani. The Celtic root is Pryd ("form/shape"), but the Latin ethnonym Pritani is phonetically identical to the Iranian ethnonym Parthiani (the Parthians), and the inhabitants of modern Scotland were called Picti by the Romans ("painted ones"). But their self-designation was Pecht. Drop the Celtic vocalizations: Pritani = Parth-ani ("People of Parthia"). Pecht = Pahlava (the Parthian clan name, which the Latin renders as Pahlavi)). The name Pasiani is a variant of Parsi—the Persians. Scholars such as J. Marquart believe that the Pasiani were synonymous with the Asiani. 
 
@@ -316,13 +314,15 @@ The Asii were the zero-point of history. They are the foundation of human civili
 
 ---
 
-## Chapter 3: The Asii Global Lexicon (Proving their Reach)
+## Chapter 3: The Aryan Global Lexicon (Proving their Reach)
 
 The three core roots that form the linguistic foundation of the Dragon King hegemony that appear in every civilization, every royal title, and every religious figure across Eurasia are:
 
-**AS (AS/AŽI/AZ): Lord/God/Serpent** (often conflated). Asii, Aššuwa, Assyria, Aesir, Asura, Ahura, Asar, Aesar, Esus, Iesous, Izates, Isa.
+**AS/Ar (AS/AŽI/AZ): Lord/God/Serpent** (often conflated). Asii, Aššuwa, Assyria, Aesir, Asura, Ahura, Asar, Aesar, Esus, Iesous, Izates, Isa.
 
-The oldest attestations of the title "As" can be traced back to the Sumerian civilization of ancient Mesopotamia (c. 2500–2000 BCE). The Sumerian word for "lord" or "ruler" was "As". This is the foundation. Then "Asar" (Osiris) (c. 2500 BCE) in Egypt and the Ebla Tablets in modern-day Syria, (c. 2400 BCE) contain a deity named "Aš-tar" (Aštar) and a royal title "En-As", or "Lord of the As" – a royal title for the Eblaite kings.
+The oldest attestations of the title "As" can be traced back to the Sumerian civilization of ancient Mesopotamia (c. 2500–2000 BCE) where the The Abu Salabikh tablets—dating to roughly 2600 BCE—refers to a deity named AS-SIR (Ašširgi/Ašgi) in the god-lists. The Sumerian word for "lord" or "ruler" was "As". This is the foundation. Then "Asar" (Osiris) (c. 2500 BCE) in Egypt and the Ebla Tablets in modern-day Syria, (c. 2400 BCE) contain a deity named "Aš-tar" (Aštar) and a royal title "En-As", or "Lord of the As" – a royal title for the Eblaite kings.
+
+As/Ar are cognates and derive from the The Tocharian Asii/Ārśi self-designation. Arsaces (Parthian royal title "Aryan-Saka"), Artorius (Roman name "Bear-King"), etc
 
 **SAR (XSA): King/Head.** is the universal Dragon King root, appearing in a dizzying array of forms: Sumerian: Sar (meaning "king" or "ruler"), Akkadian: Šarru (king), Hebrew: Sar (prince, ruler), Hittite/Luwian: -sar (prince, king), Hurrian: Sarri- (king), Scythian: Sar (king), Old Persian: Xšaya- (to rule), Sanskrit: Kṣatra (rule, dominion), Greek: Kaisar (Caesar), Latin: Caesar, German: Kaiser, Russian: Tsar. Also related to Khan. The chain is: Ka-Sar → Khasar → Khazar → Khan.
 
@@ -500,7 +500,9 @@ Saka (Scythian) clan. This was not a new empire but a reconsolidation of Scythia
 
 The Achaemenid title XŠĀYA-θIYA ("King") is a compound of xšaya ("to rule") + -θiya. The root xšaya is a dialectal variant of SAR. The Persian title XŠĀYA-θIYA XŠĀYA-θIYĀNĀM ("King of Kings") is the exact grammatical equivalent of the Akkadian ŠAR ŠARRĀNI.
 
-King Xerxes name in old Persian is Xšayāršā which is related to xšaya (rule/reign). This is essentially a royal job description encoded as a name.
+King Xerxes' name in old Persian is Xšayāršā which is related to xšaya (rule/reign). This is essentially a royal job description encoded as a name.
+
+In the Behistun Inscription (c. 520 BCE) Darius the Great's self-designation is "Ariya" (Aryan).
 
 **c. 616 BCE: The Etruscan Tarquin Dynasty**
 
@@ -531,7 +533,7 @@ Sindi contains the Sin- root which is the same as Sin (the Mesopotamian moon god
 
 Aspurgiani: is the Aspurgus (Tiberius Julius Aspurgus) lineage. 
 
-Dandarii: Contains Dan- (the same root as Dan—judge/ruler, and Danu—the primordial waters) and -darii (a variant of Darius—"holder"). They are the same as the Tribe of Dan in Israel and the Danuna (Denyen/Sea Peoples). They were the Gandarii tribe in India. The river Danube, Dnieper, Don, Dniester, Dan (Denmark), all carry their name. In Indo-European mythology, Danu is the primordial waters, the mother of dragons (the Danavas in the Rigveda). In Irish myth, the Tuatha Dé Danann ("Tribe of Danu") are the fairy-gods of Ireland.
+Dandarii: Contains Dan- (the same root as Dan—judge/ruler, and Danu—the primordial waters) and -darii (a variant of Darius—"holder"). They are the same as the Biblical Tribe of Dan in Israel and the Danuna (Denyen/Sea Peoples). They were the Gandarii tribe in India and the Danaans (the Homeric Greeks) who besieged Troy. The rivers Danube, Dnieper, Don, Dniester, Dan (Denmark), all carry their name. In Indo-European mythology, Danu is the primordial waters, the mother of dragons (the Danavas in the Rigveda). In Irish myth, the Tuatha Dé Danann ("Tribe of Danu") are the fairy-gods of Ireland who claim to have come from the "North" (Hyperborea).
 
 Agri: "The Horse People". The cavalry. The Sanskrit Agni (fire god) is a cognate. The Agrianes were a Thracian tribe who served as elite light infantry in Alexander the Great's army.
 
@@ -913,7 +915,11 @@ Fig. 1.40. Coin depicting Ptolemy Apion, king of Kyrene, Kyrenaica, North Africa
 
 ### 7.2 Julius Caesar aka Asander, King of Bosphorus aka Mithridates Chrestus
 
-There was a Bosphoran [^13] imperial cult where Julius Caesar [^14] took on the role of Asander (also Asandros), King of Bosphorus [^15]. Asander = Aesar‑ander (divine man) or Asa‑ander (lord‑man). "Asa" = Asar (Egyptian Osiris), Aesir (Norse gods), Asa (Thracian lord), Asura (Sanskrit "lord", later demonized by Brahmin rivals). Caesar = Aesar with Greek k‑ prefix (k‑aisar). Asa also means "lord" in Scythian/Thracian and serpent in Scythian (Scythian Assaioi: As-saioi = As is Scythian for "Serpent Lord", and Sai refers to clan/tribe. Sar means king in Scythian, and "andros" means "man" or "son of man" in Greek. Jesus is referred to as "the son of man" 81 times in the four canonical gospels). Asandros can also be interpreted as either "Dragon Man" (the same as Aži-ander, or Alexander), or "son of the lord", or "son of Asa, the lord", or "Lord King". The Thracian version of Zeus was Asa. Asandros can also possibly translate to either "son of god", or "son of Lord Aesar/Asar (Osiris)".
+There was a Bosphoran [^13] imperial cult where Julius Caesar [^14] took on the role of Asander (also Asandros), King of Bosphorus [^15]. Asander = Aesar‑ander (divine man) or Asa‑ander (lord‑man). "Asa" = Asar (Egyptian Osiris), Aesir (Norse gods), Asa (Thracian lord), Asura (Sanskrit "lord", later demonized by Brahmin rivals). Caesar = Aesar with Greek k‑ prefix (k‑aisar).
+
+The 'Liber Linteus Zagrabiensis', the longest surviving Etruscan text, contains the phrase "Aesar es"—which translates to "He is God" or "God is." Suetonius (Suetonius, Divus Augustus 97.) confirms this etymology, recording that the Etruscan word "aesar" meant "god," and that the name "Caesar" was derived from it. 
+
+Asa also means "lord" in Scythian/Thracian and serpent in Scythian (Scythian Assaioi: As-saioi = As is Scythian for "Serpent Lord", and Sai refers to clan/tribe. Sar means king in Scythian, and "andros" means "man" or "son of man" in Greek. Jesus is referred to as "the son of man" 81 times in the four canonical gospels). Asandros can also be interpreted as either "Dragon Man" (the same as Aži-ander, or Alexander), or "son of the lord", or "son of Asa, the lord", or "Lord King". The Thracian version of Zeus was Asa.
 
 Cleopatra used the regional alias of Dynamis Ourania [^16] (translating in Greek to 'heavenly power' but in Egyptian Dyn is the serpent goddess Denwen, a fiery serpent who nearly destroyed the gods), queen of the Bosporus. Cimmerian Bosporus approximately corresponds to modern-day Crimea in southern Ukraine (see also: Jesus Christ Was Born in Crimea by Anatoly Fomenko).
 
@@ -1322,7 +1328,7 @@ Jesus Christ then became a composite literary character based on the defeated Sa
 
 - **Ptolemy:** The same as Polemon = "War-King". This title collapses the entire Ptolemaic-Pontic-Bosporan nexus into a single titular office. When the New Testament mentions "Polemon II" and the Egyptian coins say "Ptolemy", they are not different dynasties using different names. They are the same administrative title (War-King) pronounced with regional Greek dialect variants. The pt- form was used in Egypt (Alexandrian koine); the plain p- form was used in Pontus and Bosporus (Ionic/Thracian koine). This is why Cleopatra's brother-husband could be simultaneously "Ptolemy XIII" in Alexandria and "Polemon I" in Pontus. It is not an alias. It is the same job title in two dialects.
 
-- **Piso cognomen:** "Appius" is a cognomen (personal name) of the Claudian family. Appius and Piso are synonymous (In Greek, Appius is rendered as Appios, from there Piso). The name Piso itself in an Iranian-Scythian context mirrors Paisa or Paesa, related to Pahlava (Parthian/Sarmatian noble). Thus "the Parthian". It could be said that all the ruling elite of the Julio-Claudian dynasty were Pisos, including Nero who was nearly deposed by a Piso. In the name Calpurnius Piso Cal‑pur‑nius = Kal‑ (Iranian "clan" or Sarmatian "wolf" – cf. Kalb "wolf") + ‑pur‑ (son, from putra in Sanskrit) + ‑nius (Latin suffix). Hence "Son of the Wolf Clan". The wolf is the Scythian totem. So every Calpurnius Piso is the "Wolf-Clan Parthian". Appius is also cognate with Arrius (through rhotacization in ancient Latin the /p/ and /r/ could be swapped).
+- **Piso cognomen:** "Appius" is a cognomen (personal name) of the Claudian family. Appius and Piso are synonymous (In Greek, Appius is rendered as Appios, from there Piso). The name Appius itself is a Latinized form of Ateas (Attius/Attus/Ateas all derive from the Proto-Indo-European root atta- ("father"). The first documented bearer of Appius was Attus Clausus (later Appius Claudius Sabinus Inregillensis), a Sabine who emigrated to Rome around 500 BC and became the legendary founder of the Roman gens Claudia. Livy relates that he "Latinized his name, becoming Appius Claudius". Attus Clausus predates Ateas of Scythia by a century, so this proves that Ateas was a title for Scythian kings, not a personal name. Appius is also cognate with Arrius (through rhotacization in ancient Latin the /p/ and /r/ could be swapped).
 
 - **Rome:** In Sarmatian, "Ruma" (Rome) = "Place of the Dragon". Rome was not tied to a specific geography in antiquity. It was a portable title of imperial legitimacy. The Thracians used it in Crimea (Rhoemetalces = "King of Rhome"). The Byzantines used it in Constantinople (Basileía tôn Rhōmaíōn , or "Kingdom of the Romans"). The Latins used it on the Tiber. The Ottomans later called themselves "Rum" and the Balkans "Rumeli" (Land of the Romans).
 
