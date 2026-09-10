@@ -33,7 +33,7 @@ Published by Heretical Books
 
 **Chapter 1: The Three Castes of Ancient Eurasia**
 
-### Part 2: The Asii Foundation & Satrapy System
+### Part 2: The Aryan Foundation & Satrapy System
 
 **Chapter 2: The Four Tribes of the Saka Confederation**
 
@@ -275,7 +275,7 @@ Role: The conquered, absorbed, or eradicated populations over whom the Farmers f
 
 ---
 
-# Part 2: The Asii Foundation & Satrapy System
+# Part 2: The Aryan Foundation & Satrapy System
 
 ## Chapter 2: The Four Tribes of the Saka Confederation
 
@@ -283,11 +283,13 @@ By 2800–2600 BCE, the Yamnaya had moved eastward into the region of the Poltav
 
 The Aryans were the broader confederation of Indo-Iranian clans—the horse-riding, chariot-using pastoralists who spread from the Pontic-Caspian Steppe into Europe, Anatolia, and South Asia. They were the ethnic and linguistic foundation of the ancient world. The Asii were the ruling caste. Roman historian Justin in 'Liber Historiarum Philippicarum' makes this explicit: "The Asii were the reges—the kings—of the Tochari. The Tochari and Sakaraucae were Aryan/Iranian peoples. The Asii ruled them".
 
+Asii/Ārśi is a linguistic fusion of: Ar (noble/freeman/Aryan) and Ši (a variant of As or Aś—lord/god). Thus, Ārśi literally means "the Aryan Lords" or "the Noble People of As". The Ar root is a cognate of As. The Asii and the Aryans were the same people. The name fuses both roots. Asiani is the adjectival form of Asii. Asioi is Strabo's Greek rendering.
+
 According to Strabo, writing in his book Geography (Strabo, Geography, 11.8.2), the four tribes that "took away Bactriana from the Greeks" were:
 
-- **Asii** (Asioi, Asiani, Osii, Asoi). The Rishikas (an ancient Kingdom of Central Asia and South Asia) are identified with the Asii/Asioi in the Indian epic The Mahabharata. This proves the Asii/Yuezhi presence in Indian literature, not just Greek and Chinese sources.
+- **Asii** (Asioi, Asiani, Osii, Asoi). The Rishikas (an ancient Kingdom of Central Asia and South Asia) are identified with the Asii/Asioi in the Indian epic The Mahabharata. This proves the Asii/Yuezhi presence in Indian literature, not just Greek and Chinese sources. The Yuezhi of Chinese records are the Arsi/Asii. The Chinese pronunciation of Yuezhi is a direct transcription of Arsi/Arshi.
 
-- **Pasiani** (or Gasiani), possibly Pasii or Parsii. They were the tribe that produced the Parthian Arsacid dynasty (Pahlava is the Indian name for the Parthians), Indian Pallava dynasty, and Flavian dynasty (the Latin language shifts initial P to F in certain contexts, e.g., pater → father. So Pahlava → Falava → Flavius). The Gasiani are also identified with the Guti who overthrew the Akkadian Empire. Some scholars have suggested that Gasiani is the same as Kushan (Guishuang). If this is correct, then the Pasiani/Gasiani are the ancestors of the Kushan Empire. Later became the Britons and Picts (the inhabitants of Britain was Britanni or Pritani. The Celtic root is Pryd ("form/shape"), but the Latin ethnonym Pritani is phonetically identical to the Iranian ethnonym Parthiani (the Parthians), and the inhabitants of modern Scotland were called Picti by the Romans ("painted ones"). But their self-designation was Pecht. Drop the Celtic vocalizations: Pritani = Parth-ani ("People of Parthia"). Pecht = Pahlava (the Parthian clan name, which the Latin renders as Pahlavi)).
+- **Pasiani** (or Gasiani), possibly Pasii or Parsii. They were the tribe that produced the Parthian Arsacid dynasty (Pahlava is the Indian name for the Parthians), Indian Pallava dynasty, and Flavian dynasty (the Latin language shifts initial P to F in certain contexts, e.g., pater → father. So Pahlava → Falava → Flavius). The Gasiani are also identified with the Guti who overthrew the Akkadian Empire. Some scholars have suggested that Gasiani is the same as Kushan (Guishuang). If this is correct, then the Pasiani/Gasiani are the ancestors of the Kushan Empire. Later became the Britons and Picts (the inhabitants of Britain was Britanni or Pritani. The Celtic root is Pryd ("form/shape"), but the Latin ethnonym Pritani is phonetically identical to the Iranian ethnonym Parthiani (the Parthians), and the inhabitants of modern Scotland were called Picti by the Romans ("painted ones"). But their self-designation was Pecht. Drop the Celtic vocalizations: Pritani = Parth-ani ("People of Parthia"). Pecht = Pahlava (the Parthian clan name, which the Latin renders as Pahlavi)). The name Pasiani is a variant of Parsi—the Persians. Scholars such as J. Marquart believe that the Pasiani were synonymous with the Asiani. 
 
 - **Tochari** (Tokharoi, Tukhāra). Another designation for the Asii. (The Encyclopaedia Iranica confirms: "the identity of the Yüeh-chih with the Tochari, Asii, and the rest is established" https://www.iranicaonline.org/articles/asii-or-asiani-an-ancient-nomadic-people-of-central-asia-who-about-130-b/?generate_pdf=1#1#1)
 
@@ -1003,7 +1005,7 @@ Antiochus I Theos is the same as Tigranes II, king of Armenia (another Asander/J
 
 ![Fig.1.30](/images/NicomedesIV.jpg){:width="400px"}
 
-Fig. 1.30. Bust depicting Nicomedes IV Philopator King of Bithynia. The bust is also labeled Ptolemy Alexander (Ptolemy X Alexander I?), He was the brother of Socrates Chrestus.
+Fig. 1.30. Bust depicting Nicomedes IV Philopator King of Bithynia, He was the brother of Socrates Chrestus. Bithynia was located directly adjacent to the Bosporan Kingdom and the Kingdom of Pontus (This bust was found in 1754 at the Villa of the Papyri in Herculaneum, it was first labeled as "Ptolemy Alexander" in the 18th century (https://commons.wikimedia.org/wiki/Category:Ptolemy_Alexander_bust_(Mann,_5596)) but modern scholarship now identifies it as a Bithynian ruler after the discovery of a plaster cast cataloged by the Bergischer Geschichtsverein e.V (https://nat.museum-digital.de/object/996897) that shows the same figure with the inscription "NICOMED". Both identifications are right as Asander was both Ptolemy XI Alexander II (who was also Ptolemy of Cyprus) and Nicomedes IV Philopator King of Bithynia)
 
 ### 7.3 Cleopatra VII aka Dynamis Ourania aka Pythodorida Philometor
 
