@@ -285,7 +285,7 @@ Asii/Ārśi is a linguistic fusion of Ar (noble/freeman/Aryan) and Ši (a varian
 
 According to Strabo, writing in his book Geography (Strabo, Geography, 11.8.2), the four tribes that "took away Bactriana from the Greeks" were:
 
-- **Asii** (Asioi, Asiani, Osii, Asoi). The Asii did not vanish after the conquest of Bactria. They migrated westward and became the Alans, and southward into India where they became the Rishikas (an ancient Kingdom of Central Asia and South Asia). Te Rishikas are identified with the Asii/Asioi in the Indian epic The Mahabharata. This proves the Asii/Yuezhi presence in Indian literature, not just Greek and Chinese sources.
+- **Asii** (Asioi, Asiani, Osii, Asoi). The Asii did not vanish after the conquest of Bactria. They migrated westward and became the Alans, and southward into India where they became the Rishikas (an ancient Kingdom of Central Asia and South Asia). Te Rishikas are identified with the Asii/Asioi in the Indian epic The Mahabharata. This proves the Asii/Yuezhi presence in Indian literature, not just Greek and Chinese sources. Also in India they became the Jat clan called the Asiagh (also Siwal, Sihag, Sehwag). The Asiagh were the inhabitants of Asirgarh—a fortress in the Malwa region of central India whose name decodes as Asii-garh, "Fort of the Asii".
 
 - **Pasiani** (or Gasiani), possibly Pasii or Parsii. They were the tribe that produced the Parthian Arsacid dynasty (Pahlava is the Indian name for the Parthians), Indian Pallava dynasty, and Flavian dynasty (the Latin language shifts initial P to F in certain contexts, e.g., pater → father. So Pahlava → Falava → Flavius). The Gasiani are also identified with the Guti who overthrew the Akkadian Empire. Some scholars have suggested that Gasiani is the same as Kushan (Guishuang). If this is correct, then the Pasiani/Gasiani are the ancestors of the Kushan Empire. Later became the Britons and Picts (the inhabitants of Britain was Britanni or Pritani. The Celtic root is Pryd ("form/shape"), but the Latin ethnonym Pritani is phonetically identical to the Iranian ethnonym Parthiani (the Parthians), and the inhabitants of modern Scotland were called Picti by the Romans ("painted ones"). But their self-designation was Pecht. Drop the Celtic vocalizations: Pritani = Parth-ani ("People of Parthia"). Pecht = Pahlava (the Parthian clan name, which the Latin renders as Pahlavi)). The name Pasiani is a variant of Parsi—the Persians. Scholars such as J. Marquart believe that the Pasiani were synonymous with the Asiani. 
 
@@ -340,7 +340,7 @@ The serpent (Azhi in Avestan) was the Asii symbol of wisdom, metallurgy, and roy
 
 The name "Scythian" itself decodes as "Scyth" = "Sak" = "Saka" which is related to the word for "serpent" in many Indo-European languages. The Scythians were known as the "Saka" to the Persians, and this term is linked to the Sanskrit "Sarp" (serpent). Thus, the Scythians were the "Serpent People". Sauromatians = "Saur" = "Snake/Dragon" + "Matae" = "Men/Warriors" - where the Sumerian "sar" (king) comes from. The Scythicon (snake-venom poison/antidote) was the Asii medical technology, later known as Mithridatium—the potion that conferred ritual invincibility.
 
-**Seals and Tamgas:**
+**Seals and Tamgas**
 
 **The Star:** The star is Ishtar/Venus (Mesopotamia), Aphrodite (Greece), Sidus Iulium/"Julian Star" (Rome) (Caesar claimed descent from Venus (Aeneas)).
 
@@ -1592,7 +1592,7 @@ The Jie tribe's name is phonetically identical to Gut (Gutians) and Goth (Goths)
 
 After the Ran Min genocide then came the An Lushan rebellion.
 
-The Tang Dynasty (618–907 CE) was the zenith of the "Golden Clan" influence in China. The Tang emperors had heavy Sogdian (Iranian, R1a) ancestry. An Lushan was a Sogdian-Turkic general who rebelled against the Tang. The Tang loyalists, led by the Turkic (Mongoloid) general Gao Juren, brutally suppressed the rebellion. But the suppression turned into an ethnic purge. Gao Juren's army specifically targeted the Sogdian and Tocharian populations of northern China, massacring entire communities. The Tongdian records that over 2 million people were killed or displaced in the subsequent ethnic cleansings. This was the systematic destruction of the R1a elite in the East.
+The Tang Dynasty (618–907 CE) was the zenith of the "Golden Clan" influence in China. The Tang emperors had heavy Sogdian (R1a) ancestry. An Lushan was a Sogdian general who rebelled against the Tang. The Tang loyalists, led by the Turkic (Mongoloid) general Gao Juren, brutally suppressed the rebellion. But the suppression turned into an ethnic purge. Gao Juren's army specifically targeted the Sogdian and Tocharian populations of northern China, massacring entire communities, and "identifying them through their big noses" and "impaling their children with lances". The Tongdian records that over 2 million people were killed or displaced in the subsequent ethnic cleansings. This was the systematic destruction of the R1a elite in the East.
 
  **The Jurchen Jin Dynasty (1115–1234 CE): The Last "Golden" Empire**
 
