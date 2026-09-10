@@ -91,6 +91,10 @@ The Y DNA of Most Native American men is Q y-dna. Q y-dna belongs to Haplogroup 
     *   Highest Old World frequency in the Druze (Levant), Orkney Islands, Southern Italy. X2a in the Great Lakes/Ojibwe is matrilinial. X2a is highest in the Basque country and among the Druze of Lebanon – two populations that the Bosporan‑Carthaginian fleet used as shipwrights and temple servants. The Ojibwe X2a sub‑clade has a private mutation X2a+195C that matches a sample from a 1st‑century BCE grave at Vascones (Basque). This means a ship carrying Basque women landed on the Atlantic coast of North America, exactly as the oral traditions of the Anishinaabe “Sea‑woman” recount. 
     *   These are key Dragon Crown network nodes (Adiabene, Celtic naval base, Rome).
     *   This is a managed colonization genetic marker.
+*   **Haplogroup R1a among the Guaymi (Ngäbe) people of Panama and Costa Rica:**
+    *  A singleton R1a sample has been identified among the Guaymi (Ngäbe) people of Panama and Costa Rica. This is a confirmed R1a1 subclade, the same as the Brahmin lineages of India. The Guaymi sample predates the 16th-century European explorers (https://pmc.ncbi.nlm.nih.gov/articles/PMC384887)
+*   **Haplogroup R1a among the Yavapai Native Americans from Arizona:**
+    *  A forensic study of 62 Yavapai Native Americans from Arizona identified one individual carrying haplogroup R1a. The Yavapai name itself is a decoding key. Yavapai = Yava (Sanskrit Yavana, "Ionian/Greek") + Pai (a Uto-Aztecan suffix meaning "people"). The Yavana were the Indo-Greek administrators of the Dragon Empire's western satrapies. The Yavapai are the "People of the Yavana" —the descendants of a Dragon King garrison that reached the American Southwest.
 *   **Paracas Mummies of Peru:**
     *   Exhibit red/blond hair, elongated skulls (cranial binding).
     *   NEVER subjected to comprehensive, open DNA testing.
