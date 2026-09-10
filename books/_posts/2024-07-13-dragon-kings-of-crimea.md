@@ -981,7 +981,8 @@ Fig. 1.23. Coin of Vercingetorix, a Gallic king and chieftain of the Arverni tri
 
 ![Fig.1.24](/images/Diviciacus.jpg){:width="400px"}
 
-Fig. 1.24. Coin of Diviciacus. He was of the Aedui tribe (Iudii (Jews) -> Iulii (Julians) -> Aedui (Celts)) and was a Druid and chieftain. He was a leader of the pro-Roman faction during the Gallic Wars and was recorded to have aided Julius Caesar in his conquest of Gaul. The Aedui claimed descent from Troy, used the Gaius Julius name, and worshiped the Deified Caesar (https://en.wikipedia.org/wiki/Gaius_Julius_Vercondaridubnus)
+Fig. 1.24. Coin of Diviciacus. He was of the Aedui tribe (Iudii (Jews) -> Iulii (Julians) -> Aedui (Celts)) and was a Druid and chieftain. He was a leader of the pro-Roman faction during the Gallic Wars and was recorded to have aided Julius Caesar in his conquest of Gaul. The Aedui claimed descent from Troy, used the Gaius Julius name, and worshiped the Deified Caesar Chapter 11: The Flavian Dynasty
+(https://en.wikipedia.org/wiki/Gaius_Julius_Vercondaridubnus)
 
 ![Fig.1.25](/images/JubaI.jpg){:width="400px"}
 
@@ -989,7 +990,7 @@ Fig. 1.25. Coin depicting Juba I, king of Mauretania (a territory that encompass
 
 ![Fig.1.26](/images/Kanites.jpg){:width="400px"}
 
-Fig. 1.26. Coin depicting Kanites, King of Scythia. The root comes from "Khan" = supreme steppe ruler. "-it": A Sarmatian suffix denoting "belonging to" or "descendant of". "Khanites" = "He who is of the Khan/The Khan's Scion".
+Fig. 1.26. Coin depicting Kanites, King of Scythia. The root comes from "Khan" = supreme steppe ruler plus "-it", a Sarmatian suffix denoting "belonging to" or "descendant of". "Khanites" = "He who is of the Khan/The Khan's Scion".
 
 ![Fig.1.27](/images/ObodasII.jpg){:width="400px"}
 
