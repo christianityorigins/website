@@ -505,7 +505,7 @@ The Achaemenid title XŠĀYA-θIYA ("King") is a compound of xšaya ("to rule") 
 
 King Xerxes' name in old Persian is Xšayāršā which is related to xšaya (rule/reign). This is essentially a royal job description encoded as a name.
 
-In the Behistun Inscription (c. 520 BCE) Darius the Great's self-designation is "Ariya" (Aryan).
+The Naqsh-i-Rustam inscription of Darius I explicitly states: "adam Dārayavuṣ... Pārsā, Pārsahyā puça, Ariya, Ariya ciça" — "I am Darius... a Persian, son of a Persian, an Aryan, of Aryan lineage".
 
 **c. 616 BCE: The Etruscan Tarquin Dynasty**
 
@@ -1425,7 +1425,7 @@ Beyond the surface-level imperial fiction, all these Alexandrian School religion
 
 Buddhism was the forerunner to the slave moralities that became Christianity (asceticism and suffering purifies the soul). Buddhism was Pyrrho of Elis's syncretic attempt at subverting the Indo-Aryans in Bactria which was governed by Sophytes who was a son of Alexander the Great by Dkhti, daughter of Subhuti, Indian Prince of Paropamisos. The name Sophytes is the Greek rendering of the Sanskrit Saubhūti—a patronymic meaning "descendant of Subhut". In Buddhism Subhuti is considered the Buddha's foremost disciple.
 
-![Fig.1.67](/images/Sophytes.jgg){:width="400px"}
+![Fig.1.67](/images/Sophytes.jpg){:width="400px"}
 
 Fig. 1.67. L. Coin depicting Sophytes, king of Bactria who was likely Buddha. R. Bust of a Parthian warrior that bears a striking resemblance to Sophytes and who is wearing the same helmet (https://en.wikipedia.org/wiki/Nisa_helmeted_warrior)
 
@@ -1434,6 +1434,8 @@ Alexander Cunningham, the founding father of Indian archaeology, identified Soph
 There is also an Indian king "Sophytes", described as ruling along the Indus during the campaigns of Alexander the Great, in the Bibliotheca of Diodorus Siculus. Curtius also records a dramatic interview between the tall and handsome Saubhuti and Alexander in which Saubhuti offers his submission to the conqueror" (Shastri 69). The hunting dogs of his country appeared to have impressed the Macedonian. As such, questions continue to remain about exactly who Sophytes was and where he ruled.
 
 Sophytes is the Saka king of Sangala—the Scythian ruler of the Salt Range. The Salt Range (the Sindh Sagar doab) is the geological chokepoint that controls the route from the Punjab into Bactria and the Khyber Pass. 
+
+The Buddha's Epithet Śākyamuni = "Sage of the Scythians". The Encyclopædia Britannica (9th ed.) notes: "An effort has been made to trace Buddha himself to a Scythic origin. He belonged to a royal stock of Sakyas."
 
 ### 10.4 Judaism
 
@@ -1587,6 +1589,8 @@ The modern "Han Chinese" are not in fact "Han" or "Chinese" ("Chinese" is an ide
 The genetic reality is that the Yangshao culture (5000 BCE) in northern China was 90% R1a – European steppe DNA. The modern "Han" population of China is predominantly O2 and O3 (Mongoloid haplogroups) – they are the descendants of the Miao, Hmong, and Tai peoples who migrated north from Vietnam after the Dragon Kings were purged.
 
 "Han" decodes to Ah-an (Aryan) – the same root as the Achaemenid Ariya and the Irish Eire. The Jesuits took this ancient Aryan self-designation and applied it to the southern Miao-Hmong populations to fabricate a continuous, unbroken Chinese identity that never existed.
+
+The Xiongnu (300 BC) were Iranian-speaking Scythians. János Harmatta, editor of the UNESCO History of Civilizations of Central Asia, states: "Their royal tribes and kings (shan-yü) bore Iranian names and all the Hsiung-nu words noted by the Chinese can be explained from an Iranian language of Saka type. It is therefore clear that the majority of Hsiung-nu tribes spoke an Eastern Iranian language". H.W. Bailey, an English scholar of Khotanese, Sanskrit, and the comparative study of Iranian languages, proposed an Iranian origin of the Xiongnu, "recognizing all the earliest Xiongnu names of the 2nd century BC as being of the Iranian type. This is corroborated, not merely claimed.
 
 China had no chronology until the Jesuits came to the Emperor's court. Their oldest "ancient" records date from this period. Stone inscriptions and bronze engravings and a few bamboo slips survive from older times, but they were never arranged into a consistent chronology. If you read the Bellum Tartaricum, a pre-edit Jesuit source, it gives a very different chronology as well as info about the white Slav-like race known as the Tartarians, their rulers and their wars with China. The Jesuits essentially wrote early Chinese history for them. They "reconstructed" the Xia and Shang dynasties based on fragmentary records, arranging them to fit the Biblical timeline. Martino Martini wrote 'Sinicae historiae decas prima' (1658)—the foundation of all Chinese chronology—using Chinese sources he alone could read and interpret. There were no independent Western verifications. Mateo Ricci invented Confucius and was the one who retroactively attributed 'The Art of War' to Sun Tzu. The Art of War was originally a Flavian-era strategic treatise on psychological warfare and systems control (the exact principles the Synarchy used to manage its global hegemony).
 
