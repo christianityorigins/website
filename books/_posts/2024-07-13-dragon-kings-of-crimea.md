@@ -565,9 +565,15 @@ Children: Madyes (King of Scythians) [Herodotus 1.103] and Išpakaia — Predece
 
 **The Assyrian Branch (c. 745–631 BC)**
 
-Scythian king Spargapithes (c. 650 BC) was a grandson of Sargon II (https://fabpedigree.com/s092/f082073.htm)
+Spargapithes, king of the Scythians (c. 650 BCE) 
 
-This lineage is historically corroborated by the marriage of the Scythian king Bartatua (Protothyes) to a daughter of Esarhaddon. This union formally allied the Scythian royal house with the Assyrian imperial family. The Assyrian records confirm that the Scythian kings were not merely allies but were part of the same extended royal network.
+In mythology Spargapithes was a grandson of Ziusudra who was the last king of Sumer prior to the Great Flood. He is subsequently recorded as the hero of the Eridu Genesis and appears in the writings of Berossus as Xisuthros. Ziusudra was Zeus.
+
+Ziusudra was likely a real king of Shuruppak who was later mythologized. The Sumerian King List (WB-62 recension, c. 2000 BCE) lists Ziusudra as the son of Ubara-Tutu and the last king of Sumer before the Great Flood. Archaeological evidence supports a historical flood at Shuruppak. Excavations at Tell Fara (ancient Shuruppak) revealed a layer of flood deposits (clay and sand, about 60 cm thick) dated to c. 2850 BCE, at the end of the Jemdet Nasr period and below the Early Dynastic level. This is exactly the period the Sumerian King List assigns to Ziusudra.
+
+Spargapithes (or Spargapises) is the Sanskrit Svargapati, meaning "Lord of Heaven"—a title of Indra, the Vedic king of the gods. Indra is the Vedic Zeus. He is the storm-god who wields the vajra (thunderbolt) and slays the serpent-dragon Vritra—the same mythic pattern as Zeus vs. Typhon and Thor vs. Jörmungandr. So Spargapithes = "Lord of Heaven" = Indra = Zeus.
+
+Spargapithes was a grandson of Sargon II king of Assyria (https://fabpedigree.com/s092/f082073.htm). This lineage is historically corroborated by the marriage of the Scythian king Bartatua (Protothyes) to a daughter of Esarhaddon. This union formally allied the Scythian royal house with the Assyrian imperial family. The Assyrian records confirm that the Scythian kings were not merely allies but were part of the same extended royal network.
 
 The pedigree further connects Sargon II to the royal house of Judah: Sargon II the Great (of Assyria) -> Yabaa of Judah.
 
