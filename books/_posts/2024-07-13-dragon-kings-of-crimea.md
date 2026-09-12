@@ -78,9 +78,10 @@ Published by Heretical Books
 **Chapter 10: The Alexandrian School**
 - 10.1 Serapis Cult
 - 10.2 Religion as an Operating System for the Ancient World
-- 10.3 Judaism
-- 10.4 Location of Ancient Jerusalem (Hiero-Solyma)
-- 10.5 Modern Jews
+- 10.3 Buddhism
+- 10.4 Judaism
+- 10.5 Location of Ancient Jerusalem (Hiero-Solyma)
+- 10.6 Modern Jews
 
 
 ### Part 5: The Flavian Dynasty and the Creation of Christianity
@@ -521,6 +522,16 @@ The scattered Scythian (Saka) clans are unified under a single "King of Kings," 
 - Darius I "The Great" (c. 550–486 BC) in Persia?
 - This is the foundational event. All subsequent "empires" are either his direct descendants or rebel satraps attempting to reclaim his title.
 
+The Behistun Inscription, Column V (DB V 20-34), carved into a cliff face, depicts Scythian king Skunkha (c. 519 BC) who was captured by Darius I [Behistun Inscription, Column V]
+
+The name Skunkha (Old Persian: Skuⁿxa) is a title, not a personal name. It contains the root Sku-, which is the Scythian endonym *Skuδa, meaning "Scythian". The suffix -nxa is a royal marker, meaning "king" or "lord". The name literally translates to "The Scythian King".
+
+Skunkha's predecessor was queen Tomyris, leader of the Massagetae tribe who defeated and killed Cyrus the Great in 530 BCE (likely just an avatar switch. He became Darius the Mede or Nebuchadnezzar II in Babylonia?). By around 520 BCE, her tribe was ruled by Skunkha.
+
+Source Summary:
+
+Behistun Inscription, Column V (DB V 20-34): Darius I's campaign against the Sakā tigraxaudā ("Saka who wear pointed caps"); Skunkha is named as Bartatua their chief; the relief shows Skunkha wearing a pointed cap.
+
 **c. 500 BCE: Scandinavia (The Aesir)**
 
 The religious book of Scandinavia, Prose Edda, written by Snorri Sturluson, mentions that the ancient inhabitants of Scandinavia were Asi people who came to that land from Asirgarh in 500 BCE and their leader was Odin (Proto-Germanic Wōðanaz (Wod-As)). The title "Oado" appears on Indo-Scythian coins, particularly Kanishka I. Oado is the Bactrian form of Vāta/Vāyu (both mean wind/fury). Vāta/Vāta‑deva is the Indo‑Iranian wind/fury deity. Wōðanaz (Odin) and Vāta (Oado) are dialectal pronunciations of the same PIE root. The Norse sagas claim Odin "died" and was "resurrected" as different kings. This is not mythology; it is the avatar transfer protocol.
@@ -563,33 +574,23 @@ Spouse: Serua-eterat (daughter of Esarhaddon, king of Assyria) [Assyrian royal i
 
 Children: Madyes (King of Scythians) [Herodotus 1.103] and Išpakaia — Predecessor of Bartatua, possibly his father.
 
-**The Assyrian Branch (c. 745–631 BC)**
+**The Assyrian and Sumerian Branches (c. 745–631 BC)**
 
-Spargapithes, king of the Scythians (c. 650 BCE) 
+Scythian king Madyes's son was Spargapithes (c. 650 BCE) who was also a grandson of Sargon II king of Assyria (https://fabpedigree.com/s092/f082073.htm). This lineage is historically corroborated by the marriage of the Scythian king Bartatua (Protothyes) to a daughter of Esarhaddon. This union formally allied the Scythian royal house with the Assyrian imperial family. The Assyrian records confirm that the Scythian kings were not merely allies but were part of the same extended royal network.
 
-In mythology Spargapithes was a grandson of Ziusudra who was the last king of Sumer prior to the Great Flood. He is subsequently recorded as the hero of the Eridu Genesis and appears in the writings of Berossus as Xisuthros. Ziusudra was Zeus.
+In mythology Spargapithes was a grandson of Ziusudra who was the last king of Sumer prior to the Great Flood. He is subsequently recorded as the hero of the Eridu Genesis and appears in the writings of Berossus as Xisuthros. This is the same figure who appears as Utnapishtim in the Epic of Gilgamesh (Tablet XI) and as Noah in the Hebrew Bible. The story goes that Ziusudra was the son of Ubara-Tutu, the king of Shuruppak. According to the myth, the god Enki warned Ziusudra of the coming flood and instructed him to build a giant boat to save himself, his family, and representatives of the animals. After the flood, Ziusudra was granted eternal life and taken to dwell among the gods. Ziusudra = Papaeus (Sky God of Scythians) = Zeus (Sky God of the Greeks).
 
 Ziusudra was likely a real king of Shuruppak who was later mythologized. The Sumerian King List (WB-62 recension, c. 2000 BCE) lists Ziusudra as the son of Ubara-Tutu and the last king of Sumer before the Great Flood. Archaeological evidence supports a historical flood at Shuruppak. Excavations at Tell Fara (ancient Shuruppak) revealed a layer of flood deposits (clay and sand, about 60 cm thick) dated to c. 2850 BCE, at the end of the Jemdet Nasr period and below the Early Dynastic level. This is exactly the period the Sumerian King List assigns to Ziusudra.
 
 Spargapithes (or Spargapises) is the Sanskrit Svargapati, meaning "Lord of Heaven"—a title of Indra, the Vedic king of the gods. Indra is the Vedic Zeus. He is the storm-god who wields the vajra (thunderbolt) and slays the serpent-dragon Vritra—the same mythic pattern as Zeus vs. Typhon and Thor vs. Jörmungandr. So Spargapithes = "Lord of Heaven" = Indra = Zeus.
 
-Spargapithes was a grandson of Sargon II king of Assyria (https://fabpedigree.com/s092/f082073.htm). This lineage is historically corroborated by the marriage of the Scythian king Bartatua (Protothyes) to a daughter of Esarhaddon. This union formally allied the Scythian royal house with the Assyrian imperial family. The Assyrian records confirm that the Scythian kings were not merely allies but were part of the same extended royal network.
-
 The pedigree further connects Sargon II to the royal house of Judah: Sargon II the Great (of Assyria) -> Yabaa of Judah.
 
 This connection indicates that the Assyrian and Judahite royal families were linked through intermarriage, making them part of the same extended family.
 
-**Sumerian Branch (c. 650 BCE)**
-
-In mythology, Spargapithes is the claimed grandson of King Ziusudra of Shuruppak who is the hero of the Sumerian Flood Myth (also known as the Eridu Genesis), dating to approximately 1600 BCE. Ziusudra was the last king of Sumer prior to the Great Flood.
-
-This is the same figure who appears as Utnapishtim in the Epic of Gilgamesh (Tablet XI) and as Noah in the Hebrew Bible. The story goes that Ziusudra was the son of Ubara-Tutu, the king of Shuruppak. According to the myth, the god Enki warned Ziusudra of the coming flood and instructed him to build a giant boat to save himself, his family, and representatives of the animals. After the flood, Ziusudra was granted eternal life and taken to dwell among the gods
-
-He was also Papaeus (Sky God of Scythians), and Zeus (Sky God of the Greeks).
-
 **The Herodotean Branch (c. 650–450 BC)**
 
-Madyes King of Scythians was the son of Bartatua and an Assyrian princess.
+Madyes, the king of Scythians, was the son of Bartatua and an Assyrian princess.
 
 Earliest Attestation: Herodotus 1.103 (c. 430 BCE); Assyrian records [Herodotus 1.103]- He brought Scythian hegemony over Media for twenty-eight years. [Herodotus 1.103]
 
@@ -632,25 +633,6 @@ Herodotus 4.78: Ariapithes was king of the Scythians; treacherously slain by Spa
 Herodotus 4.78-80: Skyles loved Greek customs, built a house in Olbia, married a Greek woman; his Scythian subjects revolted; Octamasadas took the throne and beheaded Skyles.
 
 Herodotus 4.80: Skyles was executed by his brother Octamasadas.
-
-**The Behistun Interlude (c. 519 BC)**
-
-The Behistun Inscription, Column V (DB V 20-34), carved into a cliff face, depicts Scythian king Skunkha (c. 519 BC) who was captured by Darius I [Behistun Inscription, Column V]
-
-The name Skunkha (Old Persian: Skuⁿxa) is a title, not a personal name. It contains the root Sku-, which is the Scythian endonym *Skuδa, meaning "Scythian". The suffix -nxa is a royal marker, meaning "king" or "lord". The name literally translates to "The Scythian King".
-
-Skunkha's predecessor was queen Tomyris, leader of the Massagetae tribe who defeated and killed Cyrus the Great in 530 BCE (likely just an avatar switch. He became Darius the Mede or Nebuchadnezzar II in Babylonia?). By around 520 BCE, her tribe was ruled by Skunkha.
-
-- In Egypt, he is known as Psamtik I, founder of the 26th (Saite) Dynasty. His name decodes to Ak-Sam = "Dragon-Sun"—a metathesis of Akrosas. He reunifies Egypt using Scythian-proxy mercenaries.
-- In Media, he is the supreme overlord Cyaxares, the power behind the Median throne who destroys Assyria. The root xšϑra (xšaya) is the Dragon King root, meaning "power, dominion, rule". This is the same root found in Xšayaθiya (Persian king), Kshatriya (Sanskrit warrior-king), and Christos (anointed one).
-- Nabopolassar, father of King Nebuchadnezzar II (r. 605-562 BC), concluded a treaty with Cyaxares which was sealed by the marriage of his daughter, Amytis, with Nebuchadnezzar II.
-- His reign is encoded in myth as the quest for the Golden Fleece and in biblical lore as the prototype for Nebuchadnezzar.
-- Darius I "The Great" (c. 550–486 BC) in Persia?
-- This is the foundational event. All subsequent "empires" are either his direct descendants or rebel satraps attempting to reclaim his title.
-
-Source Summary:
-
-Behistun Inscription, Column V (DB V 20-34): Darius I's campaign against the Sakā tigraxaudā ("Saka who wear pointed caps"); Skunkha is named as Bartatua their chief; the relief shows Skunkha wearing a pointed cap.
 
 ### 4.1 The Primordial Patriarch: Ateas the Scythian (c. 429–339 BCE)
 
@@ -1385,9 +1367,9 @@ This means that Serapis was worshiped during Alexander's lifetime.
 
 The truth is that Serapis is the same as Sabazios who was the Phrygian and Thracian version of Zeus (Serapis = Osiris + Apis or Šar Apsi - King Apsu = Enki-Ea) and Alexander was Serapis in deified form. Sabazios is the living aspect; Serapis is the dead aspect (Ka of Osiris as the Bull, or the resurrected form). "The Ka of Osiris" is the vital double of the dead king. Greek adds the K-prefix convention: Aesar → Kaesar → Caesar. As Flamen Dialis (Brahman of Dyeus), Asander/Julius is the priest of Jupiter, the Roman Sabazios. He became Caesar after death. This is why Caesar = Christ.
 
-![Fig.1.16](/images/Sabazios_from_the_tomb_of_Alexander_IV_at_Aigai,_311_BCE.jpg){:width="400px"}
+![Fig.1.64](/images/Sabazios_from_the_tomb_of_Alexander_IV_at_Aigai,_311_BCE.jpg){:width="400px"}
 
-Fig. 1.16 Miniature of Sabazios from the tomb of Alexander IV, son of Alexander the Great and Roxana, at Aigai, 311 BCE. Sabazios is a Thracian deity identified with Dionysus.
+Fig. 1.64 Miniature of Sabazios from the tomb of Alexander IV, son of Alexander the Great and Roxana, at Aigai, 311 BCE. Sabazios is a Thracian deity identified with Dionysus.
 
 Sabazios = Saba-As = Lord (As) of the Seven Clans. The Asii were lords of a confederation of seven Aryan tribes. The main deity was Dyeus Pater and it had seven reflexes: Zeus, Jupiter, Tarhunna, Sabazios, Yahweh, Amun, Dyaus Pitar, which symbolized the seven clans. The Asii-Saka clan held the leadership title (Sabazios).
 
@@ -1399,9 +1381,9 @@ Also, up until the First Council of Nicaea the title "Christ", or "Christian", r
 
 "Those who worship Serapis are, in fact, Christians, and those who call themselves bishops of Christ are, in fact, devotees of Serapis." (Historia Augusta, specifically in the Life of Saturninus (8.1–8), reporting a letter of Hadrian to Servianus)
 
-![Fig.1.17](/images/SarapisAmunAgathodaemon.jpg){:width="400px"}
+![Fig.1.65](/images/SarapisAmunAgathodaemon.jpg){:width="400px"}
 
-Fig. 1.17 Copper statuette of the god Sarapis Amun Agathodaemon depicted as half-deity, half-snake (Egypt late Hellenistic/early Roman period 1st century BC - 1st century AD).
+Fig. 1.65 Copper statuette of the god Sarapis Amun Agathodaemon depicted as half-deity, half-snake (Egypt late Hellenistic/early Roman period 1st century BC - 1st century AD).
 
 In 84 BC, when Julius Caesar was about sixteen, the consul Lucius Cornelius Cinna nominated him for the office of Flamen Dialis, the high priest of Jupiter Optimus Maximus. Flamen Dialis = Brahmin of Dyaus. The Latin term flamen is linguistically related to Sanskrit brahman. Both derive from the Proto-Indo-European root *bhlagh-men-, meaning "priest, sacrificer, formulator of the sacred word". The Dialis part is from Dius/Dyaus, the Sky Father. This is not a folk etymology, it is a standard Indo-European correspondence. Jupiter is Dyēus, and Sabazios is Zeus-Sabazios.
 
@@ -1415,9 +1397,9 @@ This is why the Romans called the Sabine priest-kings Sabi. This is why Suetoniu
 
 Further down the family line, King Izates of Adiabene, who carried the title Monobazus, and who was the main "Jesus" avatar in the gospels, explicitly connects to cult of Sabazios. Manu-Sabazios becomes Monobazus. Monobazus also becomes "Bazus" or "Bar Izates" shortened to "baYZTus" (or bar YZT) through frequent oral repetition which then becomes "bOETHus". Monobazus = Ma'nu-Sabazios = Manu-Zeus = "Zeus-Man" or "The Divine Man". Monobazus, Menneus, and Boethus (Bo + Bazus = "Of Sabazios").
 
-![Fig.1.18](/images/VespasianSerapis.png){:width="400px"}
+![Fig.1.66](/images/VespasianSerapis.png){:width="400px"}
 
-Fig. 1.18. Coin of Emperor Vespasian depicting Zeus-Serapis proving that Zeus was equated with Serapis.
+Fig. 1.66. Coin of Emperor Vespasian depicting Zeus-Serapis proving that Zeus was equated with Serapis.
 
 Every cult spun from the Alexandrian School and Serapis contains the same four components:
 
@@ -1439,7 +1421,21 @@ Religion was the technology that the Ptolemaic dynasty used to control the vast 
 
 Beyond the surface-level imperial fiction, all these Alexandrian School religions contained the same psychological weapon at their core: centralized texts and priesthoods which makes a population easier to control through proxy (up until the Protestant Reformation most of the European population was illiterate. Then the church kept scripture in Latin, which only clergy could read. Reproducing or translating the Bible was punishable by death. This is because the Bible was written for a tiny, literate priestly elite who would then control the population on behalf of kings), moral codes like submission ("turn the other cheek", "the meek shall inherit the earth", "he who raises the sword will die by the sword", etc.), self-sacrifice, obedience, loyalty, divine judgment, the concept of hell, suffering in this life is good (it purifies the soul) and the promise of inner peace through acceptance of one's station, and monotheism which divides the population through binary thinking, ie., the opposition between good and evil, us vs them, left vs right, etc., which destroys tribalism/collectivism by splitting the population into two opposing groups. These religions were also likely designed to segment the populations by class, culture, and region to prevent unified resistance. For example, Mithraism was for military elites (requiring blood oaths, with a Mithraic initiate caste system and hierarchical structure). Serapism was for civilians (promising afterlife salvation). Christianity was for slaves ("turn the other cheek").
 
-### 10.3 Judaism
+### 10.3 Buddhism
+
+Buddhism was the forerunner to the slave moralities that became Christianity (asceticism and suffering purifies the soul). Buddhism was Pyrrho of Elis's syncretic attempt at subverting the Indo-Aryans in Bactria which was governed by Sophytes who was a son of Alexander the Great by Dkhti, daughter of Subhuti, Indian Prince of Paropamisos. The name Sophytes is the Greek rendering of the Sanskrit Saubhūti—a patronymic meaning "descendant of Subhut". In Buddhism Subhuti is considered the Buddha's foremost disciple.
+
+![Fig.1.67](/images/Sophytes.jgg){:width="400px"}
+
+Fig. 1.67. L. Coin depicting Sophytes, king of Bactria who was likely Buddha. R. Bust of a Parthian warrior that bears a striking resemblance to Sophytes and who is wearing the same helmet (https://en.wikipedia.org/wiki/Nisa_helmeted_warrior)
+
+Alexander Cunningham, the founding father of Indian archaeology, identified Sophytes with Indian King Fobnath (or Fobnads) of "Sangala," (a name some read as "Saka-town") while A.C.L. Carlleyle connects him with the same king's son Suveg, which is more likely in light of the identification of Fobnath as a royal title rather than a name; potentially making him a Madra of Saka/Iranian origin. Cunningham believes the Sobii and Kathaei to have been his subjects, whom he asserts were Turanians, making them of the same stock as the Saka or Indo-Scythians. It is interesting to note that Sagala was the capital of the later Indo-Greek dynasty of Menander I for several generations, and that Menander himself struck several coins with a similar reverse, suggesting that his dynasty inherited the older king's mints when he took the city for himself.
+
+There is also an Indian king "Sophytes", described as ruling along the Indus during the campaigns of Alexander the Great, in the Bibliotheca of Diodorus Siculus. Curtius also records a dramatic interview between the tall and handsome Saubhuti and Alexander in which Saubhuti offers his submission to the conqueror" (Shastri 69). The hunting dogs of his country appeared to have impressed the Macedonian. As such, questions continue to remain about exactly who Sophytes was and where he ruled.
+
+Sophytes is the Saka king of Sangala—the Scythian ruler of the Salt Range. The Salt Range (the Sindh Sagar doab) is the geological chokepoint that controls the route from the Punjab into Bactria and the Khyber Pass. 
+
+### 10.4 Judaism
 
 Iudaios (Jew) = Iulius (Julius). The Tribe of Judah and the Gens Julia were the exact same bloodline. Both derive from title "Yuezhi", the Central Asian Scythian tribe (Yuezhi (Chinese) → Iuzi (some intermediary) → Iulius (Latin)), comes from. The name Jupiter comes from Dyēus Pter ("Sky Father") which is the original name of the chief god for the Proto-Indo-Europeans on the Pontic-Caspian Steppe. His name means "Shining Sky Father". The name Zeus comes from the pronunciation of "Dyeus", and I(J)upiter (there was no "J" in ancient Latin) comes from the pronunciation of "Dyeus Pter" (Diespiter -> Iupiter). I(J)upiter was also called Jove or Iove to the Romans. The Latin pronunciation of Iove would have been Yoh-Way, i.e., Yahweh/Yhwh. Dyēus -> Zeus -> Iove (Jove) -> Iud- (as in Iud-ii). The -ii suffix denotes "people of" or "tribe of". Iudii = "The People of Jove". The Scythian elite, as part of their imperial cult, syncretized their primary deity with local deities. In Anatolia and Thrace this same god was worshipped as Sabazios, so Yahweh Sabaoth, the god of the Hebrew Bible, is I(J)ove (Roman Zeus) Sabazios (Thracian Zeus).
 
@@ -1461,7 +1457,7 @@ Moses = Manes/Mannu-Kuras = Manu (Scythian Sage-King) = Menes (Egypt's legendary
 
 The Pentateuch is a Hebraized translation of Plato's Laws and Republic, overlaid on a Scythian tribal genealogy (the 12 clans of the Sarmatian federation), and codified at the Alexandrian School in Egypt. The myth of the jewish people and the Laws of Moses were based on Plato's hypothetical colony of Magnesia from his thesis called "The Laws" (347 BC) in which the proposed charter for the Cretan colony of Magnesia was modeled in large part on Athenian legal and constitutional traditions. Ancestors received law from a deity, hereditary priesthood rather than king, as well as the division into 12 tribes were all part of the formula. Plato's Timaeus (360 BC) is where the story of Abraham comes from. Plato's Timaeus is also the source for Genesis 1-11. Homer's Odyssey was the source of Genesis 24, 42-46. The biblical concept of hell was stolen from Plato's Republic ('Myth of Er'), and the spiritual plane of Heaven is ripped off from Plato's 'World of Forms'. Exodus is just a semitized retcon of Jason and the Argonauts, and the Oracles Against the Nations plagiarize the Sibylline Oracles.
 
-### 10.4 Location of Ancient Jerusalem (Hiero-Solyma)
+### 10.5 Location of Ancient Jerusalem (Hiero-Solyma)
 
 Ancient Jerusalem was located in Anatolia, along the Bosphorus river near Yoros castle. The name "Yoros" (also spelled Ioros) is a direct phonetic match for the first half of "Ierosolyma" (Jerusalem). The Turkish name Yoros is also a contraction of the Greek Hieron ("Sacred Place") – which is the same root as Hierosolyma, the Greek name for Jerusalem.
 
@@ -1483,7 +1479,7 @@ This region was populated by the Celts (Galatians) who came to ancient Anatolia 
 
 For example, the Celtic languages are surprisingly Semitic with a verb-subject-object word order and a shocking amount of vocabulary overlap, and the name of Irish deities, Balor and his holiday Beltaine are cognate to Bal and Elatha the Irish Uranus is cognate to Hebrew El. King David (DWD) = King Druid. 1 Samuel 16:12 claims that King David had red hair. The ancient Celtic prefixes 'Rab' or 'Rhab' mean 'wise one' or 'seer', and a Druid equates to a Rabbi. There was even a Celtic tribe called the "Iudii" -> Ioudaioi -> Jew.
 
-### 10.5 Modern Jews
+### 10.6 Modern Jews
 
 The original Jews were not a Semitic tribe from Canaan. They were the Gens Julii – the Dragon Kings' priestly caste who spread from Central Asia to Europe.
 
@@ -1525,9 +1521,9 @@ Vespasian's mother is recorded as Vespasia Pollo. Pollio derives from Ptolemy, o
 
 Vespasian's true identity was Gaius Poppaeus Sabianus. The missing Flavian sister (died in childhood) is actually Poppaea the Elder. Her political career is marked with disgrace and scandal. She's forced to commit suicide by Claudius. Her daughter becomes a ward of the court. Due to Poppaea's disgrace, and the novelty of their family, Vespasian and his brother change their names. He becomes 'Flavius Scaevinus' after inheriting the Flavian title from his wife. He was the same Flavius Scaevinus who was a conspirator involved in Nero's assassination. [^26]. Tacitus describes Scaevinus as "a man of dissolute character and slothful life". He then helped incite the Jewish Revolt. Christianity was originally an attempt to lay the groundwork for Vespasian to become emperor. They wanted a Roman Jew to become the new messiah, ending messianic cults.
 
-![Fig.1.64](/images/Vespasian.jpg){:width="400px"}
+![Fig.1.68](/images/Vespasian.jpg){:width="400px"}
 
-Fig. 1.64. L. Vespasian. R. Herod Agrippa I
+Fig. 1.68. L. Vespasian. R. Herod Agrippa I
 
 Vespasian's son Titus was in a relationship with Berenice, granddaughter of King Herod, who was St. Veronica in the Bible (Veronica is a transliteration of the Greek name Berenike meaning 'victory').
 
@@ -1558,9 +1554,9 @@ The haplotype R1a (the famed "Arya" gene) was the dominant haplogroup of the Rom
 
 "Flavius" (Pālava/Pahlavi) eventually became Shabbos. From Constantine to Heraklios, for 500 years nearly every single Emperor bore the Flavius (Shabbos) title. By my count, 37 Roman and Byzantine emperors in all bore the honorary title "Flavius", and then later, "Phlabios" (https://en.wikipedia.org/wiki/Special:MobileDiff/1062698821)
 
-![Fig.1.65](/images/VespasianBust.jpg){:width="400px"}
+![Fig.1.69](/images/VespasianBust.jpg){:width="400px"}
 
-Fig. 1.65. Not only were their names and titles localized to different populations, but so were their depictions. L. The earliest bust of Vespasian and likely the most true to life. R. The Julio-Claudian inspired depiction that is most commonly associated with him.
+Fig. 1.69. Not only were their names and titles localized to different populations, but so were their depictions. L. The earliest bust of Vespasian and likely the most true to life. R. The Julio-Claudian inspired depiction that is most commonly associated with him.
 
 Vespasian then imported 100,000+ Jews into Italy (Josephus, Jewish War vi), gave them citizenship and institutional positions, and this began Rome's descent into a multi-racialism/multi-culturalism.
 
@@ -1631,9 +1627,9 @@ Chandragupta Maurya is consistently referred to as Sandrokottos or Androcottos. 
 
 Thus, this was a dynastic title and Andragoras (Seleucid satrap) (https://en.wikipedia.org/wiki/Andragoras_(Seleucid_satrap)) and Andragoras the Parthian (https://en.wikipedia.org/wiki/Andragoras_(4th_century_BC)), who was the ancestor of the subsequent kings of Parthia (Justin 41.4; Ammianus Marcellinus 23.6.2), were Alexander's heirs using this title (or likely his nephews through "Dara" (Darius III) aka Seleucus I Nicator as Andragoras claimed Seleucid descent)
 
-![Fig.1.66](/images/KanitesAndragorasSeleukosI.jpg){:width="400px"}
+![Fig.1.70](/images/KanitesAndragorasSeleukosI.jpg){:width="400px"}
 
-Fig. 1.66. L. Seleukos I, son of  Seleucus I Nicator. M. Andragoras, Iranian satrap of the Seleucid provinces of Parthia and Hyrcania. R. Kanites, king of Scythia.
+Fig. 1.70. L. Seleukos I, son of  Seleucus I Nicator. M. Andragoras, Iranian satrap of the Seleucid provinces of Parthia and Hyrcania. R. Kanites, king of Scythia.
 
 The name "Narisanka" is given as an alternate name for Andragoras. This is intriguing because it could be an Iranian translation of an Indian title like Narendra-simha (Lion-King). This itself is derived from the Avestan Nairyosangha, which means "man of words" and refers to a divine messenger of Ahura Mazda.
 
@@ -1944,9 +1940,9 @@ Through demonizing women they centralized authority in male priests. The Church 
 
 Two years before the Bar Kokhba Revolt (132--136 CE) emperor Hadrian created a religion to deify his underage gay lover as the son of god (Osiris-Antinous) called 'The Cult of Antinous'. The name "Antinous" is an obvious indication of descent from the Antonii line and that he was a descendant of Mark Antony himself, not a random adoption by Hadrian. The use of "-ninus" is really the Greek "nini", which is "baby" or infant (i.e., "baby Jesus"). Historian Cassius Dio claims that Antinous was offered as a human sacrifice to Hadrian (Cassius Dio Cocceianus, Historiae Romanae, book 69, chapter 11) but in the Dragon King tradition they did not practice human sacrifice – they practiced ritual death and resurrection via poison (Mithridatium). Antinous's "drowning" in the Nile is the same allegory as Osiris's drowning. He was not killed; he was re‑baptised into a new avatar. He emerges as Antoninus Pius – the successor emperor. Antoninus Pius's full name is Titus Aelius Hadrianus Antoninus Pius and he was adopted by Hadrian and was his successor, and the cult of Antinous was his imperial cult. One of the scribes for The Cult of Antinous was Aquila of Sinope aka Onkelos who was a kinsman of the Roman emperor Hadrian. Emperor Hadrian also employed Aquila of Sinope to rebuild Jerusalem as Aelia Capitolina after the Bar Kokhba revolt (the city was named after Hadrian's family name (Aelia) and the Roman god Jupiter (Capitolina)). In Acts 18:2-3 and Romans 16:3 NASB, it is claimed that Aquila of Sinope and his wife Prisca or Priscilla lived with Paul the Apostle and Paul called them "my fellow workers in Christ Jesus"
 
-![Fig.1.67](/images/Antinous.jpg){:width="400px"}
+![Fig.1.71](/images/Antinous.jpg){:width="400px"}
 
-Fig. 1.67. Steel relief that shows Antinous holding the grapes of Dionysus in one-hand and a cross in the other.
+Fig. 1.71. Steel relief that shows Antinous holding the grapes of Dionysus in one-hand and a cross in the other.
 
 The Cult of Antinous failed (overt homoeroticism, too tied to a single emperor) but it did serve as a trial run for later cults (Christianity/Islam).
 
@@ -2051,9 +2047,9 @@ King Arthur is not a medieval fiction. He is the memory of the last Scythian-Bri
 
 *Jesus Among the Julio-Claudians* (2021) by Charles N. Pope
 
-*History: Fiction or Science?* by Anatoly T. Fomenko
-
 *How Fake Is Roman Antiquity?* (2020) by Laurent Guyenot
+
+*The Scythian Empire: Central Eurasia and the Birth of the Classical Age from Persia to China* (2023) by Christopher I. Beckwith
 
 ---
 
