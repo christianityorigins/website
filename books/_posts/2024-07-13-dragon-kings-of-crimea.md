@@ -578,7 +578,7 @@ Children: Madyes (King of Scythians) [Herodotus 1.103] and Išpakaia — Predece
 
 Scythian king Madyes's son was Spargapithes (c. 650 BCE) who was also a grandson of Sargon II king of Assyria (https://fabpedigree.com/s092/f082073.htm). This lineage is historically corroborated by the marriage of the Scythian king Bartatua (Protothyes) to a daughter of Esarhaddon. This union formally allied the Scythian royal house with the Assyrian imperial family. The Assyrian records confirm that the Scythian kings were not merely allies but were part of the same extended royal network.
 
-In mythology Spargapithes was a grandson of Ziusudra who was the last king of Sumer prior to the Great Flood. He is subsequently recorded as the hero of the Eridu Genesis and appears in the writings of Berossus as Xisuthros. This is the same figure who appears as Utnapishtim in the Epic of Gilgamesh (Tablet XI) and as Noah in the Hebrew Bible. The story goes that Ziusudra was the son of Ubara-Tutu, the king of Shuruppak. According to the myth, the god Enki warned Ziusudra of the coming flood and instructed him to build a giant boat to save himself, his family, and representatives of the animals. After the flood, Ziusudra was granted eternal life and taken to dwell among the gods. Ziusudra = Papaeus (Sky God of Scythians) = Zeus (Sky God of the Greeks).
+In mythology Spargapithes was the son of Kolaxais (Colaxis/Kolaxais whose name contains the suffix -xaïs which linguists unanimously consider to be a reproduction of the Iranian name for king, xšaya-) who was a son of Targitaos or Scythes, who was the ancestral god of the Scythians according to Scythian mythology (Targitaos was the son of Papaios/Greek Zeus who married Mari, the snake legged goddess and birthed the Scythians), and he was a grandson of Ziusudra who was the last king of Sumer prior to the Great Flood. He is subsequently recorded as the hero of the Eridu Genesis and appears in the writings of Berossus as Xisuthros. This is the same figure who appears as Utnapishtim in the Epic of Gilgamesh (Tablet XI) and as Noah in the Hebrew Bible. The story goes that Ziusudra was the son of Ubara-Tutu, the king of Shuruppak. According to the myth, the god Enki warned Ziusudra of the coming flood and instructed him to build a giant boat to save himself, his family, and representatives of the animals. After the flood, Ziusudra was granted eternal life and taken to dwell among the gods. Ziusudra = Papaeus (Sky God of Scythians) = Zeus (Sky God of the Greeks).
 
 Ziusudra was likely a real king of Shuruppak who was later mythologized. The Sumerian King List (WB-62 recension, c. 2000 BCE) lists Ziusudra as the son of Ubara-Tutu and the last king of Sumer before the Great Flood. Archaeological evidence supports a historical flood at Shuruppak. Excavations at Tell Fara (ancient Shuruppak) revealed a layer of flood deposits (clay and sand, about 60 cm thick) dated to c. 2850 BCE, at the end of the Jemdet Nasr period and below the Early Dynastic level. This is exactly the period the Sumerian King List assigns to Ziusudra.
 
@@ -590,13 +590,13 @@ This connection indicates that the Assyrian and Judahite royal families were lin
 
 **The Herodotean Branch (c. 650–450 BC)**
 
-Madyes, the king of Scythians, was the son of Bartatua and an Assyrian princess.
+Madyes, the king of Scythians, was the son of Protothyes aka Bartatua and an Assyrian princess.
 
 Earliest Attestation: Herodotus 1.103 (c. 430 BCE); Assyrian records [Herodotus 1.103]- He brought Scythian hegemony over Media for twenty-eight years. [Herodotus 1.103]
 
 Arianta King of Scythians is possibly a son or descendant of Madyes. (https://fabpedigree.com/s092/f082073.htm)
 
-Spargapithes (c. 650–600 BC) [Herodotus 4.76] (son of Protothyes?; grandson of Arianta?; great-grandson of Colaxais?)
+Spargapithes (c. 650–600 BC) [Herodotus 4.76] (son of Madyes)
 
 Son: Lycus (c. 600–570 BC) [Herodotus 4.76] (son of Spargapithes)
 
@@ -620,7 +620,7 @@ Herodotus 4.76: Saulius killed Anacharsis for introducing Greek customs.
 
 Ariapithes (c. 500–465 BC) "Aryan-Father" [Herodotus 4.78] (son of Idanthyrsus?; grandson of Saulius?; great-grandson of Gnurus? according to Herodotus 4.76-78) (treacherously slain by Spargapithes, king of the Agathyrsi) [Herodotus 4.78]
 
-Son: Skyles (Scyles) (c. 465–450 BC) "The Scythian" [Herodotus 4.78-80] (son of Ariapithes by a Greek woman from Istria) (deposed and executed by his brother Octamasadas) [Herodotus 4.80]
+Son: Skyles (Skyles/Scyles is the Hellenisation of the Scythian name Skula. Scythes, Skyles, Skunkha, Skilurus are all variations of the title "Scythian King") (c. 465–450 BC) [Herodotus 4.78-80] (son of Ariapithes by a Greek woman from Istria) (deposed and executed by his brother Octamasadas) [Herodotus 4.80]
 
 Grandson: Oricus (son of Skyles by Opoea) [Herodotus 4.78]
 
